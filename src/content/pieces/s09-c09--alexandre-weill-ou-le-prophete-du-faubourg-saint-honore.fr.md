@@ -35,7 +35,7 @@ _ une idée, abrégée, mais complète, de nos éditions anté- SENS
 _ rieures et de nos cinq premières séries ; tout y est classé ni
 _ dans l'ordre ; il suffit de le lire pour trouver, à leur Tate
 _ place, les références demandées. ee
-. Ce catalogue, in-18 grand jésus, forme un cahier e
+. Ce catalogue, in-18 grand jésus, forme un cahier
 _ très épais de XII+/08 pages très denses, marqué cinq
 …— francs; ce cahier comptait comme premier cahier de la QE
 _ sixième série et nos abonnés l'ont reçu à sa date, le FR
@@ -75,7 +75,7 @@ asiatiques. — Les Pléiades. — La Renaissance.
 
 un cahier blanc de xu--360 pages, marqué............
 On sait que ce cahier est complètement épuisé; la :
-seule édition de ce Gobineau qui soit aujourd'hui dans 1
+seule édition de ce Gobineau qui soit aujourd'hui dans
 le commerce est l'édition Calmann Lévy annoncée ciaprès, en vente à la librairie des cahiers.
 
 en vente à la librairie des cahiers
@@ -231,7 +231,7 @@ une œuvre d'imagination, comme lui-même s'efforçait
 de fixer l' « âme lorraine ».. Et je me permis d'expliquer
 à M. Maurice Barrès que les juifs de France sont à
 
-S présent trop identifiés à la société française, trop pareils È
+S présent trop identifiés à la société française, trop pareils
 . aux autres Français de tous les groupes et de toutes les
 provenances, pour être tentés ou capables d'exprimer
 une sensibilité, des idées et des tendances différentes et
@@ -283,7 +283,7 @@ grande majorité) et ne plus l'être. On a beau avoir les aspirations d'un homme
 est prêtre, dès qu'on vit de l'auiel, forcé de se prononcer
 entre l'intérêt et la vérité, on s'expose à opter pour l'intérêt.
 Le vrai sage, comme la vraie vertu, craint la tentation et
-s'entoure d'une haie d'épines. Dès que j'ai eu le diplôme de é
+s'entoure d'une haie d'épines. Dès que j'ai eu le diplôme de
 rabbin, et je l'ai eu pour ainsi dire malgré moi, je me suis |
 dit : « Tu ne mangeras pas de ce pain de mensonge et
 
@@ -325,7 +325,7 @@ indiqués par lui, La Loi de la justice absolue ; idée universelle
 que la Révolution a tronquée en Fraternité restreinte. » (Code
 
 Schneider promener à travers l'Alsace les atrocités de
-sa guillotine, Son propre père avait exercé à Stras- 44
+sa guillotine, Son propre père avait exercé à Stras-
 bourg les fonctions de greffier révolutionnaire : Q Il fut,
 nous dit Alexandre Weill, l'ami de Robespierre et de
 Saint-Just, ce dont son petit-fils le félicite sincèrement. » (1)
@@ -376,7 +376,7 @@ que cela voulait dire. Aujourd'hui encore, les savants germains se creusent la t
 interjection l'assemblage des lettres initiales des trois
 
 ;. mots de la phrase latine : Jierosoly ma est perdita, « Jé-
-rusalem est anéantie ! » C'est bien compliqué. On y a vu d
+rusalem est anéantie ! » C'est bien compliqué. On y a vu
 
 | aussi une Corruption de l'impératif allemand Æebe
 
@@ -430,7 +430,7 @@ _ faire. « Guidèle, disait-il à ma mère, veille bien sur ton garL çon, c'es
 ; Or, le petit Alexandre avait lu un récit hébraïque, où
 il était dit qu'un certain Jésus, « élève talmudique de
 __ Rabbi Siméon ben Perachia, pour faire des miracles,
-s'était emparé du nom mystérieux de Jéovah; nom que ÿ
+s'était emparé du nom mystérieux de Jéovah; nom que
 les Talmudistes ne prononcent jamais. À sa place ils
 + disent Adonaï (Seigneur). » (2) Lorsqu'il sut que les
 chrétiens de Schirhof adoraient en Jésus le fils de Dieu
@@ -472,7 +472,7 @@ qu'à tour de rôle chaque famille israélite admiît quelques
 du ciel te jettera une amande en guise de récompense. — Il y a *
 donc des amandiers au ciel ? lui répondis-je. » (Ma Jeunesse, page 30)
 — « À cinq ans et demi, après avoir traduit le premier verset hé-
-: « Avec le commencement Dieu créa les cieux et la terre », je deman- ÿ
+: « Avec le commencement Dieu créa les cieux et la terre », je deman-
 dai à M. Lévy, mon maître d'école : « Et qu'est-ce que Dieu à fait
 avant de créer le monde ? » Au lieu de me répondre, il mappliqua
 sur l'épaule une douzaine de coups de règle en s'écriant : (Malheureux, tu renieras la foi d'Israël ! » De fait, il a dit vrai. J'arracherai
@@ -627,7 +627,7 @@ d de rechercher les traces de la collaboration d'Alexandre Weill à
 la sévère Gazelie de France.
 
 saisissent les relations intérieures, qui lient l'idée d'un Dieu
-immuable comme idéal de justice, avec la Révolution de 89;
+immuable comme idéal de justice, avec la Révolution de
 Révolution, qui, quoi qu'en disent les ignares, les cafards
 et les cuistres, devait logiquement aboutir à l'Étre suprême
 de Robespierre, et qui, sans ce fondement céleste, devait
@@ -664,15 +664,15 @@ chambres, en gueulant la Marseillaise... (1}
 Racine, Jean-Jacques, — plus tard Descartes et Spi- |
 noza.. Par le désordre de cette liste, je cherche à imiter %
 ici le désordre de ses lectures. Elles paraissent avoir été $
-gigantesques et incohérentes. Et le résultat fut ce qu'il 1
-devait être... Imaginez ce que pouvait produire cette j
+gigantesques et incohérentes. Et le résultat fut ce qu'il
+devait être... Imaginez ce que pouvait produire cette
 invasion violente de tout le savoir, de toute la pensée, ‘
-de toute l'imagination éternelle des peuples dans le cer- É
-veau d'un petit étudiant rabbinique, dont la sphère spi- ÿ
+de toute l'imagination éternelle des peuples dans le cer-
+veau d'un petit étudiant rabbinique, dont la sphère spi-
 rituelle s'était jusqu'alors limitée à des exercices FT
 j d'école sur les textes de la Bible et du Talmud. Comment n'eût-elle pas entraîné le doute, l'inquiétude, le à
 déséquilibre, que suscitent toujours, même chez des |
-jeunes gens mieux avertis ou plus frivoles, les premières ÿ
+jeunes gens mieux avertis ou plus frivoles, les premières
 ivresses de l'émotion philosophique ?
 Chez le petit Alexandre Weill, qui était outrancier ets +
 logicien par tempérament, ce choc fut terrible. Juste- à
@@ -681,8 +681,8 @@ son premier élan d'incrédulité lemporta d'abord bien |
 au delà du point auquel il devait finalement se tenir. |
 Avec cette même crudité qu'il avait mise jusqu'alors à
 affirmer et à croire, — il nia. Là-dessus, nous avons son
-aveu : « Je n'avais plus la foi, je ne croyais plus à la ï
-révélation personnelle de Moïse, encore moins au 1h
+aveu : « Je n'avais plus la foi, je ne croyais plus à la
+révélation personnelle de Moïse, encore moins au
 Talmud. Je passais mes nuits à chercher les preuves de
 l'existence de Dieu. » (1) Et vous entendez bien que ces
 preuves, s'il les cherchait, c'est qu'il ne les trouvait plus
@@ -698,7 +698,7 @@ _ livre hérétique de Michaëlis. Parfois survenait un jeune
 barbier, ami de ces deux jeunes filles, et tard dans la
 nuit la causerie se prolongeait en querelles audacieuses
 _ sur Jésus et sur Moïse, et sur l'essence de la révélation,
-et sur les destinées de l'âme... È
+et sur les destinées de l'âme...
 Surpris lui-même à ce souvenir, le vieil Alexandre
 Weill s'écriera plus tard, avec un mélange de sarcasme
 et d'orgueil :
@@ -709,7 +709,7 @@ F (En vérité, n'était-ce point là, très exactement, la pre-
 De pareilles crises sont toujours redoutables chez ceux
 qui sont aptes à les trouver sur leur chemin. Mais com-
 . bien davantage chez un futur prêtre ! Soudain, le jeune
-__ Alexandre Weill ne se découvre plus d'obéissance pos- h
+__ Alexandre Weill ne se découvre plus d'obéissance pos-
 | _sible qu'envers la raison, ni de goût intime que pour
 … les joies de la vie, de l'esprit et de l'amour. Incertain de
 … croire en Dieu, il était certain de rejeter le dogme et le
@@ -748,7 +748,7 @@ rachetée, elle sera mise à mort. » (1)
 
 Voici le récit d'Alexandre Weill :
 
-Depuis l'âge de dix-huit ans jusqu'à vingt-deux ans l
+Depuis l'âge de dix-huit ans jusqu'à vingt-deux ans
 (j'avais déjà le diplôme rabbinique), j'étais premier officiant
 et lecteur de la Thorah dans la synagogue de l'hospice
 israélite, à Francfort. Cette petite synagogue avait la réputation d'une chapelle sacro-sainte. Il n'y avait qu'une cin- ‘
@@ -758,7 +758,7 @@ quantaine de fidèles, composés de quelques ultra-orthodoxes
 même pour les femmes, toutes connues pour leur piété et
 leur charité.
 
-Le Pentateuque écrit sur parchemin est sans voyelles: 16
+Le Pentateuque écrit sur parchemin est sans voyelles:
 
 * Comme j'en faisais tous les samedis une lecture à haute
 voix de sept coupures et tous les lundis et jeudis d'un chapitre, je le savais par cœur. Un samedi (j'avais déjà sauté
@@ -767,7 +767,7 @@ doute universel, et la lecture presque quotidienne du Pentateuque avec ses contr
 lestement et passai aux dix dernières lignes. — Monsieur !
 Monsieur ! Jeune homme ! Jeune rabbin! me criaient dix |
 . voix à la fois, qui d'ordinaire suivaient scrupuleusement la
-lecture dans leur livre, vous avez sauté deux versets ! Il est d
+lecture dans leur livre, vous avez sauté deux versets ! Il est
 défendu de parler pendant la lecture. Mais comme le Lévitique finit à ce passage, après avoir prononcé la bénédiction
 voulue, je leur répondis : — Oui, Messieurs ! J'ai sauté cet
 infâme passage. Lisez-le vous-mêmes. En savez-vous la signification? J'en doute! Quant à moi, jamais ces lignes ne
@@ -783,7 +783,7 @@ d'ailleurs, je vous donne ma démission de Hasan et de Koré
 5 belle voix de ténor de poitrine, que je sayais l'hébreu comme
 L une langue maternelle et surtout que j'allais vite, abattant
 | le service au galop (ce qui leur allait très bien), on me priait
-pi de continuer mon service. La cause fut portée devant un lit F
+pi de continuer mon service. La cause fut portée devant un lit
 de justice composé de trois rabbins.On me priait de revenir
 | sur mon obstination, mais mon parti était pris. Je maïintins
 ma démission, en leur disant que depuis longtemps je n'étais
@@ -791,7 +791,7 @@ ma démission, en leur disant que depuis longtemps je n'étais
 | depuis ce jour je n'ai plus revu cette sainte synagogue que quarante ans plus tard, et qui aujourd'huin'existe plus du tout. (x)
 + (n) Les Cinq livres (mosaistes) de Moïse. Tome III; Le Léoitique,
 
-Et voilà notre Alexandre Weill sur le pavé de Franc- s
+Et voilà notre Alexandre Weill sur le pavé de Franc-
 fort. Il n'a plus de métier, il n'a pas de ressources, et,
 par cet éclat, vient sans doute de s'aliéner ses protecteurs ? — Si pourtant! il lui en reste, tant parmi les
 juifs fidèles que parmi les convertis et les protestants.
@@ -811,7 +811,7 @@ m'aperçus que c'était un véritable esclavage. Esclavage
 (2) &« A l'âge de vingt-deux ans, un comité composé de deux sénateurs chrétiens, qui m'avaient entendu chanter dans la synagogue,
 du célèbre avocat Goldschmid, d'un membre de la famille Rothschild, M. Beyfus, et du docteur Wihl bien connu en France, après
 m'avoir fait chanter l'air du ténor de la FÆlüte enchantée, m'ont
-offert de consacrer la somme de six mille francs à mes études de 5
+offert de consacrer la somme de six mille francs à mes études de
 chant, à condition de m'engager à vie comme premier ténor à
 LPOpéra de Francfort, à raison de dix mille florins par an. Je leur
 ai répondu : « Vous voulez que de la belle voix que Dieu m'a
@@ -835,7 +835,7 @@ répétitions, matin et soir aux leçons. Être exposé à ce qu'un
 l'heure indiquée, non pas quand il vous plaira, quand le
 cœur vous en dit, mais quand il plaira à un directeur spé-
 culateur et à un public sot, et ignorant et oisif; être exposé
-aux sifflets d'un imbécile et par-dessus tout s'engager par 1
+aux sifflets d'un imbécile et par-dessus tout s'engager par
 écrit et signer tous les jours un papier de présence. Il est
 vrai qu'on a devant soi un bel avenir d'or et de femmes!
 Mais quoi! L'or, je m'en passais très bien, et quant aux
@@ -866,7 +866,7 @@ Le même sénateur — il s'appelait Coester — qui avait
 souscrit pour faire de moi un chanteur, après avoir vu mon
 
 ÿ refus et après avoir lu de moi une brochure intitulée :
-Kolladi et son ami, réponse aux questions vitales de la philo- ÿ
+Kolladi et son ami, réponse aux questions vitales de la philo-
 sophie et de la religion, vint m'offrir en mariage sa nièce,
 son héritière, à condition de me convertir et de me faire
 
@@ -931,13 +931,13 @@ Alsacien, après avoir essayé de Francfort, est guetté
 par le grand Paris.
 
 Le hasard lui vint en aide. | le
-En 1836, Gérard de Nerval traversa Francfort, en 4
+En 1836, Gérard de Nerval traversa Francfort, en
 compagnie de Dumas père. Alexandre Weill combattait dl
 alors dans les rangs de la Jeune Allemagne. Gérard le
 vit, s'attacha à ce drôle de garçon, et l''engagea à venir
 Alexandre Weill en était bien tenté, mais il hésitait :
 Comment aller à Paris sans être sûr d'y gagner ma vie
-avee ma plume française, affligé que j'étais de mon accent 4
+avee ma plume française, affligé que j'étais de mon accent
 alsacien, que je n'ai jamais totalement perdu ? — L'envie de
 rentrer dans mon pays, qui, grâce à l'émancipation des
 Israélites, devint pour moi une patrie, sempara tellement
@@ -950,7 +950,7 @@ jusqu'à sa mort et, quand vinrent les malheurs de
 dirent sa douleur et sa colère d'avoir vu Schirhof changé |
 Mais en 1837, époque où il vint s'installer à Paris, |
 convenons qu'il était encore un peu étranger à la
-France, sinon dans son cœur, du moins dans son lan- F
+France, sinon dans son cœur, du moins dans son lan-
 gage et sa tournure. Surtout, il était étranger au boule- :
 vard. Dans cette bohème littéraire où il fréquente dès
 son arrivée, il apparaît comme eût été l'Ingénu de Voltaire, si, au lieu d'être Huron et de s'être laissé baptiser, j'A
@@ -976,7 +976,7 @@ Heine et Mathilde autour d'une côtelette à la proven-
 garde plus. Tandis que vous, monsieur de Saint-Victor,
 si vous aviez gardé les pourceaux, vous les garderiez
 (1) « Grâce à ma qualité de correspondant des principaux journaux allemands et à mon amitié avec Gérard de Nerval, j'obtins
-vite mes entrées dans les sanctuaires de la science et de la littéra- J 1
+vite mes entrées dans les sanctuaires de la science et de la littéra-
 ture de Paris. En effet, tous les journaux allemands étaient à ma
 disposition. Je correspondais avec la Gazette d'Augsbourg, le Correspondant de Nuremberg, la Gazette de Leipzig et le Courrier de
 … Stuttgart. — J'étais collaborateur du Monde Elégant de Kuhne, du
@@ -1009,14 +1009,14 @@ pages ou quelques paroles méritent de survivre, n'estce point cet orgueil qui l
 
 En voici, je crois, le plus magnifique exemplaire. Je
 le relève dans l'Histoire véridique et vécue de la Révolution de 1848, à l'endroit où Alexandre Weill conte |
-son projet de candidature à l'Assemblée Constituante : j
+son projet de candidature à l'Assemblée Constituante
 
 Sur une seule déclaration insérée dans la Presse, j'ai eu Éu
 
 î 15.000 voix à Paris. On m'a prié de me présenter aux clubs,
 
 (1) Adolphe Brisson, Promenades et visites; le dernier ami de
-Henri Heine. — Temps du 21 novembre 1901. e
+Henri Heine. — Temps du 21 novembre 1901.
 
 | Les Souvenirs intimes de Henri Heine, par Alexandre Weill |
 (Dentu, 1883), sont un de ses bons livres, et un document infiniment agréable et réaliste sur la vie privée de ce grand poète.
@@ -1050,7 +1050,7 @@ Mais moi, sans vantardise, je vous dis:
 Je suis un envoyé de Dieu!
 Je viens du cœur de la France,
 Et mon nom est Alexandre !
-- 51
+-
 
 !  cien déraciné, couve encore le feu sacré et crépitent
 parfois les étincelles du prophétisme d'Israël.
@@ -1126,11 +1126,11 @@ lucre, mais dans un esprit mêlé d'orgueil, de désintéressement, de « devoir
 humain, que jamais il ne se lasse de publier ces livres
 à ses frais, ou plutôt aux frais de sa femme, dont le
 commerce de modes alimente la propagande et les mé- ;
-ditations du prophète. 9
+ditations du prophète.
 è Alexandre Weill avait épousé mademoiselle Agathina
 Marx à la fin du règne de:Louis-Philippe, — en 1847.
-(n Le Centenaire de l'émancipation des Juifs, préface. Paris, 1888. i
-2) La plupart des derniers livres d'Alexandre Weill portent cette k
+(n Le Centenaire de l'émancipation des Juifs, préface. Paris, 1888.
+2) La plupart des derniers livres d'Alexandre Weill portent cette
 indication : « Chez l'auteur, 11, faubourg Saint-Honoré. » — En }
 outre, sur certains d'entre eux, on lit cet avis : « Ne pas confondre
 mon nom avec celui de mon riche homonyme, 45, rue de Courcelles. »
@@ -1224,9 +1224,9 @@ emplit ses innombrables livres.
 Cette idée, c'est que la plus grande fraude historique,
 religieuse et philosophique, qui ait jamais été commise,
 a été l'introduction mensongère et funeste de la fête du
- : Grand-Pardon — ou de Xipour — dans la législation i
+ : Grand-Pardon — ou de Xipour — dans la législation
 attribuée à Moïse par les rédacteurs du Pentateuque; que
-« depuis l'existence du monde, toutes les superstitions ÿ
+« depuis l'existence du monde, toutes les superstitions
 réunies de toutes les nations n'ont pas produit autant
 de malheurs, de crimes, d'infamies et de méfaits que la
 _ seule idée, la seule erreur de la possibilité du pardon,
@@ -1288,7 +1288,7 @@ des crimes, moyennant un bouc envoyé au diable, aucune
 prophétie n'est plus possible. La prophétie est basée sur la
 loi immuable de Dieu, des causes et des effets par le Temps,
 chaque cause produisant son effet sans qu'aucun pouvoir » puisse détacher les effets de sa cause par un miracle ou par
-() Lettres de vengeance d'un Alsacien, page 16.
+() Lettres de vengeance d'un Alsacien, page
 
 Alexandre Weill ; du
 
@@ -1314,7 +1314,7 @@ sortis naturellement de leur fausse religion esraïque et tal-
 
 malheurs dureront aussi longtemps qu'ils ne retourneront
 
-pas à la religion de Moïse et qu'ils ne pratiqueront pas les d
+pas à la religion de Moïse et qu'ils ne pratiqueront pas les
 lois et les vertus que Moïse leur a prescrits, au nom de
 Dieu dont, mieux que tout autre mortel, il a connu les lois
 et les voies de justice.
@@ -1343,7 +1343,7 @@ choisit Isaïe comme son prototype et son modèle, parce
 qu'il aime son mépris des rites, sa sévérité contre les
 grands, et ses promesses d'universelle fraternité millé-
 Et de Jérusalem la parole de l'Éternel.
-Il sera le juge des nations, î
+Il sera le juge des nations,
 L'arbitre d'un grand nombre de peuples.
 De leurs glaives ils forgeront des hoyaux,
 Et de leurs lances des serpes;
@@ -1352,7 +1352,7 @@ Et l'on n'apprendra plus la guerre. (2)
 j Les curieux trouveront, dans les livres d'Alexandre
 Weill, bien des prédictions concernant les nations et
 les hommes. A croire leur auteur, toutes se sont accom-
-(1) Lettres de vengeance d'un Alsacien, page 17.
+(1) Lettres de vengeance d'un Alsacien, page
 (2) Isaïe, 11, 3-4. — Ce « pacifisme » messianique d'Isaïe ne le dé-
 tournait point d'être, dans le présent, un grand patriote. Voir ses
 n effroyables oracles contre tous les ennemis d'Israël (Babylone,
@@ -1374,7 +1374,7 @@ ouvrages. C'est pourquoi nous nous interdirons de sourire de son mauvais style p
 
 à la lignée des grands « justiciers » d'Israël.
 
-Cette esquisse de la vie d'Alexandre Weill, d'abord Ÿ
+Cette esquisse de la vie d'Alexandre Weill, d'abord
 accueillie par la Revue des Études juives, m'a procuré
 bien des lettres intéressantes, dont je voudrais faire un
 peu bénéficier les lecteurs des Cahiers de la quinzaine.
@@ -1393,7 +1393,7 @@ Puis, je recopie cette lettre charmante qu'a bien voulu, |
 M. Jacques de Boisjoslin :
 Je vous suis bien reconnaissant de votre Alexandre
 Weill. I me rappelle un temps bien curieux, où on n'était
-pas scientifique comme aujourd'hui, ni mystique non plus, É
+pas scientifique comme aujourd'hui, ni mystique non plus,
 
 encore comme aujourd'hui. On observait, on raisonnait. On
 expérimentait moins, on se mettait aussi moins en extase.
@@ -1485,9 +1485,9 @@ cause un veu absurde.
 Hé oui! on ne saurait mieux dire : l'essentiel n'est pas |
 ce qu'on prophétise, mais le grave est de prophétiser… |
 Le don et la verve prophétiques, voilà ce qui m'avait
-ce que j'avais soubaïté qu'on reconnût chez Alexandre ÿ
+ce que j'avais soubaïté qu'on reconnût chez Alexandre
 Weill. Mais le positif des prédictions, quelle duperie!
-Et c'est pourquoi je me suis permis (page 63) de È
+Et c'est pourquoi je me suis permis (page 63) de
 
 renvoyer aux cinquante ou soixante volumes et brochures +
 d'Alexandre Weill le lecteur qui, sur ce point-là, se sentirait de la patience et de la curiosité.
@@ -1537,7 +1537,7 @@ Une bibliographie complète des œuvres d'Alexandre Weill
 serait malaisée à établir. Mais on peut esquisser un essai
 de classement. $
 Romans. — Ce sont des histoires alsaciennes et juives À
-. (Emeraude, Couronne, Selmel, etc.) Alexandre Weill les a ÿ
+. (Emeraude, Couronne, Selmel, etc.) Alexandre Weill les a
 réunies en deux volumes /Mes Romans, Paris, 1886), avec
 une préface retrouvée de Henri Heine, assez moqueuse.
 TuéArre. — De même, il a réuni huit pièces, en prose ou
@@ -1588,9 +1588,9 @@ premier exemplaire de souche, exemplaire du gérant;
 
 deuxième exemplaire de souche, exemplaire de l'administrateur ;
 
-troisième exemplaire de souche, exemplaire de limprimeur ; è
+troisième exemplaire de souche, exemplaire de limprimeur
 
-neuf exemplaires d'abonnement, numérotés de I à 9
+neuf exemplaires d'abonnement, numérotés de I à
 
 et huit exemplaires d'auteur numérotés a, b, c, d,e,
 
@@ -1599,7 +1599,7 @@ Tous nos exemplaires sur whatman sont numérotés
 
 - tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque instant souscrits; nous ne vendons point d'exemplaires
 _ sur whatman en dehors de l'abonnement: l'abonnement
-sur whatman à cette neuvième série est de cent francs o
+sur whatman à cette neuvième série est de cent francs
 pour tous pays.
 
 Les Cahiers de la Quinzaine sont composés à la main,
@@ -1622,11 +1622,10 @@ Pour s'abonner à la neuvième série des cahiers, qui
 Bourgeois, même adresse, le prix de l'abonnement; on
 recevra les cahiers parus, et de quinsaine en quinzaine,
 ri à leur date, les cahiers à paraître de cette neuvième
-| 1
 
 rez-de-chaussée, Paris, cinquième arrondissement.
 
-Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi- ñ
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi-
 naires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions
 

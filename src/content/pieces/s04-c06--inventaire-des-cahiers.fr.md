@@ -14,21 +14,21 @@ paraissant vingt fois par an
 à Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
-8, rue de la Sorbonne, Paris, cinquième arrondissement. 3 é.
+8, rue de la Sorbonne, Paris, cinquième arrondissement.
 On recevra en spécimens six cahiers de la OUPS ARE.
 de la troisième série. à
 Nous mettons ce cahier dans le commerce; nous le
-vendons un franc 55
+vendons un franc
 
-2 0
+2
 5-4
 
 Courrier de Paris
 
 Les cahiers possédaient, le 31 août 1902, les valeurs
 un bougeoir ;
-une table de 1 mètre 26 X o mêtre 75;
-une table de 2 mètres 20 X o mètre 75;
+une table de 1 mètre 26 X o mêtre
+une table de 2 mètres 20 X o mètre
 une glace ;
 une armoire ;
 un appareil complet de cyclostyle ;
@@ -41,7 +41,7 @@ deux paires de ciseaux ;
 six chaises cannées et une en bois;
 un tabouret bois:
 
-Inventaire des cahiers 1
+Inventaire des cahiers
 un Bottin étranger; |
 un petit dictionnaire Larousse; |
 un annuaire des communes ;
@@ -54,7 +54,7 @@ papier d'emballage, lisse et ondulé;
 balai (un tiers, en commun avec Pages libres pour un
 tiers, Jean-Pierre et | Œuvre du Livre pour tous pour un
 échelle double (un tiers, même répartition) ;
-une toilette de libraire ; ï
+une toilette de libraire
 une brosse à habits;
 ® une brosse double ;
 une brosse à lustrer;
@@ -119,7 +119,7 @@ RomaiIN RozLanp. — Les Loups, trois actes, repré-
 senté pour la première fois au théâtre de l'Œuvre, le
 18 mai 1898, sous le titre de Morituri, épigraphe
 
-homo homini lupus, la scène à Mayence en 179,
+homo homini lupus, la scène à Mayence en
 éditions de Georges Bellais, un beau volume grand
 in octavo, carré, de 128 pages, avec une lithographie
 de HENRY DE GRoUx, fini d'écrire à Paris fin mars 1898,
@@ -160,7 +160,7 @@ La Laïcité de l'Enseignement ;
 
 Les libertés du personnel enseignant. — Znterpellation
 
-9 1.
+9
 
 Inventaire des cahiers Li
 L'Enseignement laïque et l'enseignement clérical; ji
@@ -176,7 +176,7 @@ France et Russie ;
 La France et le Socialisme;
 Armée et diplomatie ;
 Les marins russes à Paris ; |
-Aux pays annexés ; j
+Aux pays annexés
 La guerre de l'Indépendance crétoise ;
 L'alliance russe et la réaction;
 La guerre hispano-américaine ;
@@ -203,10 +203,10 @@ sentées par Gérault-Richard dans la Petite République
 du mercredi 20 décembre; chez Liebknecht, interview
 
 Inventaire des cahiers à
-de Liebknecht par M. Marcel Hutin, publiée dans l'Écho s
-de Paris du vendredi 22 décembre, l'affaire Dreyfus et L
-l'opinion allemande, — si Liebknecht avait été à la place s
-de M. Méline, — LA Lffaire est terminée, — seul contre l
+de Liebknecht par M. Marcel Hutin, publiée dans l'Écho
+de Paris du vendredi 22 décembre, l'affaire Dreyfus et
+l'opinion allemande, — si Liebknecht avait été à la place
+de M. Méline, — LA Lffaire est terminée, — seul contre
 tous; — chez Liebknecht, deuxième interview du même :
 au même, publiée dans l'Écho de Paris du samedi
 23 décembre ; le parti socialiste Jrançais et l'Affaire, le !
@@ -438,7 +438,7 @@ belge, datée de Gand, 14 juillet 99, chambre des repré-
 sentants, adressée mon cher Millerand, dans la Petite
 République du jeudi 20 juillet; dans la même Petite
 République une citation du Vorwaerts et une citation
-de l'Avanti: dans la Petite République du mercredi 19,
+de l'Avanti: dans la Petite République du mercredi
 une lettre de Hyndman, secrétaire général de la SocialDemocratic-Federation, datée de London, 17 juillet
 1899, adressée mon cher Gérault-Richard; une lettre
 d'un démocrate italien, D' Napoléon Colajanni, député
@@ -622,7 +622,7 @@ articie de M. Georges Deherme dans {a Coopération des
 Idées, samedi 7 avril 1900, le Correspondant et le Socialiste contre l'Université Populaire : un article du Temps,
 jeudi 12 avril 1900, rubrique au jour le jour, le projet
 
-de loi Waldeck-Rousseau sur les syndicats et les socia- È
+de loi Waldeck-Rousseau sur les syndicats et les socia-
 listes, interview de Jules Guesde où se trouve la phrase
 devenue fameuse : « Les universités populaires, elles
 ont autant d'importance que l'œuvre des petits teigneux »; un article de Henri Turot dans la Petite République, vendredi 13 avril 1900, Républicains; une rectification de Jules Guesde à Henri Turot, annoncée, commentée, insérée par Henri Turot dans la Petite
@@ -697,7 +697,7 @@ lundi 12 novembre 1900, pour l'inauguration des locaux
 et pour l'ouverture des cours ;
 
 cahier marqué un franc; en dehors des collections
-complètes, il n'en reste que P
+complètes, il n'en reste que
 
 Deuxième cahier de la deuxième série, un cahier de
 120 pages, fini d'imprimer le 17 décembre 1900 :
@@ -800,7 +800,7 @@ Librairie des cahiers ;
 cahier marqué un franc: en dehors des collections
 complètes, il n'en reste que
 
-du même, sans couverture, ï
+du même, sans couverture,
 
 Dixième cahier de la deuxième série, un cahier de
 72 pages, bon à tirer du jeudi 4 avril 1901 :
@@ -1039,7 +1039,7 @@ Deuxième cahier de la troisième série, un cahier de
 et le mouvement ouvrier :
 
 L'Université populaire institution ouvrière ; la lutte
-de classe pour la liberté; l'Église et les U. P.; l'U. P.
+de classe pour la liberté; l'Église et les U. P.; l'U.
 
 Les intellectuels dans les U. P.; l'enseignement;
 l'éducation artistique ;
@@ -1141,7 +1141,7 @@ JEAN HuGuEs. — La Grève, trois actes, pièce repré-
 sentée pour la première fois le samedi 3 novembre 1900,
 sur la scène de l'Émancipation, Université populaire du
 quinzième arrondissement, datée de Paris, août 1900;
-les rôles ont tous été tenus par des ouvriers; dédiée 4
+les rôles ont tous été tenus par des ouvriers; dédiée
 l'ouvrier Jean Allemane ;
 
 dans le même cahier, introduction du gérant ;
@@ -1219,7 +1219,7 @@ La Maison commune, dix-neuvième arrondissement,
 
 Fondation Universitaire de Belleville, dix-neuvième
 
-La Semaille, vingtième arrondissement, avril 1901 ; Û
+La Semaille, vingtième arrondissement, avril 1901
 
 L'Émancipation de Vincennes, Vincennes, mai 1901 ;
 
@@ -1269,7 +1269,7 @@ du mardi 15 avril 1902;
 JÉROME ET JEAN THARAUD. — Dingley, l'illustre écrivain; dédié à la mémoire de Mr. Cecil Rhodes, mort
 avant la consommation de son injustice; fini d'écrire à
 
-cahier marqué un franc; en dehors des collections l
+cahier marqué un franc; en dehors des collections
 complètes, il en reste
 
 493 exemplaires, à un franc, 295 francs
@@ -1277,7 +1277,7 @@ complètes, il en reste
 Quatorzième cahier de la troisième série, un cahier
 de 72 pages, bon à tirer du mardi 22 avril 1902 : ;
 
-Une citation; du Mouvement Socialiste, numéro 979,
+Une citation; du Mouvement Socialiste, numéro
 
 du samedi 15 février 1902, sous la signature de
 Etranger, Hollande, le Ministère et le militarisme ;
@@ -1295,7 +1295,7 @@ Quinzième cahier de la troisième série, un cahier de
 72 pages, bon à tirer du mardi 29 avril, fini d'imprimer
 du jeudi premier mai 1902 pour la première édition :
 
-4 La liberté par l'étude. discours prononcé par Anatole
+La liberté par l'étude. discours prononcé par Anatole
 France à l'inauguration de l'Emancipation, université
 populaire du quinzième arrondissement, texte reproduit d'après les journaux du jeudi 23 novembre 1899;
 
@@ -1400,14 +1400,14 @@ Au Mouvement Socialiste; citation de M. André
 Morizet ; numéro 73, du samedi 4 janvier 1902; numéro
 75, du samedi 18 janvier 1902; numéro 78, du samedi
 8 février 1902; numéro 80, du samedi 22 février 1902;
-numéro 81, du samedi premier mars 1902; numéro 85,
+numéro 81, du samedi premier mars 1902; numéro
 du samedi 29 mars 1902; numéro 87, du samedi
 lettre du même, parvenue le 31 mai, même en-tête que
 la première, intitulée fiche rectificative à joindre au
 dossier du Mouvement Socialiste (lettre de l'inculpé
 
 René Salomé, courrier de Belgique: grève dite géné-
-lundi 14, mardi 15, du mercredi 16 au vendredi 18;
+lundi 14, mardi 15, du mercredi 16 au vendredi
 envoi du 3 juin ;
 
 cahier marqué un franc ; en dehors des collections
@@ -1490,7 +1490,7 @@ auprès du gouvernement ottoman à Constantinople, au
 lendemain des massacres survenus dans la capitale les
 26 et 27 août 1896, signé La nation arménienne, daté de
 Constantinople, 7 septembre 1896: notes collectives des
-Ambassades, présentée le 27 août par le premier drogman de l'ambassade d'Autriche au nom des représentants des Grandes Puissances, Blue Book, Turkey, k
+Ambassades, présentée le 27 août par le premier drogman de l'ambassade d'Autriche au nom des représentants des Grandes Puissances, Blue Book, Turkey,
 deuxième note collective des Ambassades, le 31 août
 
 Annonces du Pro Armenia: comité de rédaction ;
@@ -1503,7 +1503,7 @@ Bruxelles pour la seconde ou la troisième semaine de
 juillet ; formule d'adhésion au congrès ; citations du Pro
 Armenia, numéro 1, première année, 25 novembre 1900;
 
-numéro 2, première année, 10 décembre 1900 ; numéro 3,
+numéro 2, première année, 10 décembre 1900 ; numéro
 première année, 25 décembre 1900 ; la presse des opprimés, liste des principaux journaux arméniens, jeunesturcs, macédoniens, arabes, albanais, kurdes: bibliographie sommaire des principaux ouvrages concernant
 la question arménienne ;
 
@@ -1534,7 +1534,7 @@ Bourges, l'Éducation mutuelle, avait été fondée l'été
 
 Brest, assemblée constitutive le premier décembre 1900,
 prit plus tard le nom de /a Solidarité, René Litalien,
-secrétaire de l'U. P.
+secrétaire de l'U.
 
 au mois de février dernier, le président Ledoux, le secré-
 
@@ -1680,7 +1680,7 @@ du jeudi 31 juillet 1902; un commentaire à cette circulaire ;
 
 Pour et contre les congrégations, dossier : un appel
 du Comité catholique pour la défense du droit, daté de
-Paris, 21 juillet, publié par les journaux du mardi 22,
+Paris, 21 juillet, publié par les journaux du mardi
 signé pour le Comité L. Chaine, J. Quincampoix, Paul
 Viollet, membre de l'Institut; une lettre de M. René
 Goblet, adressée monsieur le directeur de V'Éclair, dans

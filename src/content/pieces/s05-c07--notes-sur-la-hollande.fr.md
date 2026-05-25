@@ -35,9 +35,9 @@ _ forme de catalogue, un cahier de 72 pages, un franc
 Fa Nous publierons dans un cahier de la cinquième série
 Li le relevé sommaire des courriers publiés dans la
 mon V quatrième série de nos cahiers.
-148 0
+148
 
-notes sur la Holland 4
+notes sur la Holland
 et sur l'intimité +10
 
 M CL Nos abonnés ne confondront pas avec notre collabo_ rateur M. Henry Michel, qui fait en Sorbonne le cours
@@ -100,7 +100,7 @@ son industrie, dont la conservation lui coûte tant de
 Ë horizons fermés au loin par la blonde ondulation des
 dunes ou la ligne sérieuse d'une digue, la Hollande
 tout entière est comme une vaste demeure close, pleine
-| 6.
+|
 
 d'air, d'ombres et de lumière, de silence et de mouvement. Bien que l'espace y soit très libre etle payspartout découvert, l'homme ici a toujours l'impression
 d'être étroitement et doucement chez lui. Tous les
@@ -273,8 +273,6 @@ d'une belle couleur brune, fraîche et profonde,
 qu'adoucit encore l'ombre des grands arbres, hommes
 et femmes vont sans hâte et tournent la tête ou s'arrêtent un moment pour nous voir passer. Le hennissement d'un cheval ou le beuglement d'une vache répond
 par instants au sifflet du vapeur ; mais ces rares bruits
-
-| 4
 
 s'harmonisent au tableau de vie et ne paraissent pas
 en rompre le silence. Mouvement des voiles, glissement des nuages, routes passantes, ailes mobiles des
@@ -634,10 +632,10 @@ le comprend après l'avoir vue. Chaque maison est elle-
 à même un retrait. Le soir surtout, quand les lampes
 s'allument derrière les petits carreaux des fenêtres, on
 
-imagine qu'il doit y avoir là plus qu'ailleurs de ces 4
+imagine qu'il doit y avoir là plus qu'ailleurs de ces
 solitaires vies humaines, penchées sur quelque minu- À
 tieuse besogne, toutes retirées en elles-mêmes et |
-jalouses de leur huis clos. Le long des quais, dans les è
+jalouses de leur huis clos. Le long des quais, dans les
 rues populaires et surtout dans le quartier juif, s'ouvrent |
 de minuscules boutiques dont beaucoup sont de véri- :
 tables caveaux où l'on descend par un soupirail. Une
@@ -759,7 +757,6 @@ rais de lumière blanche perçaient à travers la pluie.
 | puis, furtivement, se glissait dans les labours et dans
 " les pâtures, parmi les ombres des nuages. Il y avait
 | alors comme un rapide scintillement aux menus dé-
-| 26
 
 tails du paysage, et ces frissons de la lumière, qui |
 semblaient élargir la plaine, y rendaient tout plus vif et
@@ -856,7 +853,7 @@ de tous ces petits tableaux des maîtres hollandais, des
 intérieurs de Peter Hooch, des joyeusetés de Jean
 Steen, des scènes bourgeoises de Metzu, de Terbug, de
 
-29 11.
+29
 
 À L Gaspard Netscher. Le sujet, ici, n'est rien, et peu
 É importe qu'il soit le plus souvent d'une familiarité qui
@@ -888,16 +885,16 @@ k table carrée, une chaise ; contre le mur, une vieille pein-
 ÿ est peu de chose à dire ; mais ce qu'on ne peut dire, c'est
 h à l'ndéfinissable quiétude répandue partout dans le petit
 ' tableau lumineux ; c'est la transparence et la circulation
-110 30
+110
 
-perspective ; le sentiment de calme et de paix qui enve- l
+perspective ; le sentiment de calme et de paix qui enve-
 loppe tout d'une discrète magie. Comme on sent que is
-rien, dans la maison silencieuse, n'est indifférent à ceux ü
-qui l'habitent ! Cette peinture contre le mur, cette délivrance d'Andromède, quel thème merveilleux elle a dû ÿ
-fournir aux étonnements de l'enfant! Les losanges s
+rien, dans la maison silencieuse, n'est indifférent à ceux
+qui l'habitent ! Cette peinture contre le mur, cette délivrance d'Andromède, quel thème merveilleux elle a dû
+fournir aux étonnements de l'enfant! Les losanges
 blancs et noirs du carrelage, si fidèlement dessinés
 qu'on en peut compter le nombre, la jeune femme, assu- |
-rément, les a plus d'une fois comptés, dans le désœuvrement des dimanches, au moment où la nuit tombante k
+rément, les a plus d'une fois comptés, dans le désœuvrement des dimanches, au moment où la nuit tombante
 interromptsa lecture et qu'elle a posé son livre sur l'ap- ;
 pui de la fenêtre. Les personnages tiennent peu de place
 dans l'étroit tableau; ils pourraient en tenir moins
@@ -943,11 +940,11 @@ rien détruit ? La foudre a grondé, la foudre n'a donc
 a donc pas de deuils ? On ne pleure donc jamais chez
 vous ? Vous avez tous été amoureux, comment le saïiton ? » C'est que l'écueil, c'est que le mensonge de l'inti32
 
-mité est précisément sa réussite même. Croire toucher î
+mité est précisément sa réussite même. Croire toucher
 le terme, c'est ne pas comprendre qu'il n'y a pas de ;
 terme ; penser tenir le bonheur, c'est en méconnaître &
 l'énigme. Le rythme de nos désirs est plus compliqué, |
-et le mouvement s'en produit en deux sens contraires. s
+et le mouvement s'en produit en deux sens contraires.
 Ramener à soi, posséder, connaître, avoir soif de repos,
 de tendresse fidèle, de certitude et de conclusion, c'est À
 le mouvement qui va du dehors vers le dedans. Mais la :
@@ -999,7 +996,6 @@ x enfermer et tenir? Comme le bruit de la mer se re-
 l puisse, sans en franchir le seuil, si l'on a le cœur
 ; attentif, écouter un murmure infini. Rien n'est si connu
 | qui ne soit encore à connaître; rien n'est si sûr qui ne
-| 3
 
 soit fragile et précaire; rien n'est si proche qui ne soit À
 lointain; rien n'est dit qui ne demeure à dire; rien Le
@@ -1059,7 +1055,7 @@ délaissé toute la partie du ciel au-dessus de l'île. D'un
 côté, on ne voyait devant soi que le sable désert, la
 mer toute sombre et sans une voile, rudement fouettée
 
-par le vent, et des nuages confus et rapides qui s'en- * JL 8
+par le vent, et des nuages confus et rapides qui s'en- * JL
 gorgeaient à l'horizon. De l'autre, c'était le contraste |
 de la campagne scintillante et rafraîchie, avec ses $
 détails de vie champêtre, et, tout au loin, sur l'azur du
@@ -1075,10 +1071,10 @@ A Sur les œuvres et les travaux de Jérôme et Jean :
 nu raud, — romans et contes, — publiés dans les édit
 RSC) des cahiers antérieures à la fondation des cahier
 ‘R dans les trois premières séries des cahiers, se référe
-À Ne Sixième cahier de la quatrième série, cahier de c
+À Ne Sixième cahier de la quatrième série, cahier de
 sr rier, courrier de Paris, inventaire des cahiers
 M: forme de catalogue, un cahier de 72 pages, un fi
-:S = Nous publierons dans un cahier de la cinquième s
+:S = Nous publierons dans un cahier de la cinquième
 2e le relevé sommaire des romans et des contes pu
 |. 758 dans la quatrième série de nos cahiers.
 
@@ -1116,7 +1112,7 @@ un refus, cessèrent le travail. Le lendemain, le mouvement s'étendit à deux a
 grève également ; 5 établissements d'Armentières et
 2 d'Houplines étaient en chômage, avec un total de
 
-40 0
+40
 Bulletin de l'Office du travail
 1.100 grévistes. Le 4 octobre, la grève était générale
 dans les 37 tissages d'Armentières (11.000 grévistes) et
@@ -1170,11 +1166,11 @@ de décréter la grève générale et le comité de la grève
 d'Armentières dut prendre seul la direction du mouvement.
 
 La grève se localisa alors dans la vallée de la Lys :
-dans les centres textiles où les ouvriers avaient cessé ï
+dans les centres textiles où les ouvriers avaient cessé
 le travail soit pour appuyer les revendications des gré-
 vistes d'Armentières, soit en formulant eux-mêmes des
 revendications, des négociations s'engagèrent. À Hazebrouck, les tissages rallumèrent leurs feux, le 12 octobre,
-après que les patrons eurent accordé, avec la réduction 5
+après que les patrons eurent accordé, avec la réduction
 immédiate de la durée du travail à 10 heures, une
 augmentation de tarif compensatoire. À la Gorgue-
 
@@ -1259,7 +1255,7 @@ applicable l'augmentation du tarif de 1889, promise par
 les patrons pour le premier avril 1904, réclamée immé-
 diatement par les ouvriers.
 
-Le préfet, par lettre adressée aux deux parties, proposa de recourir à un arbitrage. Ê
+Le préfet, par lettre adressée aux deux parties, proposa de recourir à un arbitrage.
 
 Les deux parties ont admis ensemble, et à l'unanimité, que
 les ouvriers devaient recevoir une augmentation corres-
@@ -1284,14 +1280,14 @@ La mission donnée à l'arbitrage unique ou aux arbitres
 désignés par les deux parties pourrait être ainsi définie :
 
 1. — YŸ a-t-il lieu d'accorder aux ouvriers à façon, dans
-les tissages, une augmentation immédiate ? f
+les tissages, une augmentation immédiate ?
 
 2, — Si le principe d'une augmentation immédiate est
 admis, quel doit en être le quantum par rapport à l'augmentation totale à fixer par la Commission mixte ?
 
 Cette proposition, acceptée par les ouvriers, fut à
-repoussée par les patrons. Après la publication du U
-procès-verbal, le 4 novembre, les délégués patronaux S
+repoussée par les patrons. Après la publication du
+procès-verbal, le 4 novembre, les délégués patronaux
 adressèrent au préfet une lettre par laquelle ils ajou- he
 taient à la promesse d'augmentation faite au cours de
 la conférence une clause restrictive, subordonnant
@@ -1303,11 +1299,11 @@ A la séance de la Chambre du 7 novembre, sur interpellation de M. Jaurès, dép
 jour suivant, déposé par l'interpellateur et accepté par ;
 le Gouvernement, fut adopté à l'unanimité de 5o2votants:
 
-La Chambre compte sur le Gouvernement pour renou- 4
+La Chambre compte sur le Gouvernement pour renou-
 veler, auprès des parties en lutte dans la grève de la vallée
 de la Lys, la proposition d'arbitrage ; — Elle décide d'instituer, dans les formes déjà adoptées pour les mines, une
 enquête parlementaire sur l'état de l'industrie textile et la Le
-condition des ouvriers tisseurs. s
+condition des ouvriers tisseurs.
 
 Le préfet du Nord, à qui cet ordre du jour fut communiqué par dépêche, adressa aussitôt aux patrons une
 lettre les invitant à déférer au vœu exprimé par la
@@ -1409,20 +1405,20 @@ filature et des tissages de la banlieue.
 
 é ÿ 10e année. — Ke 11 Prix du numéro : 20 centimes . Novembre 1993
 M 1 (Ministère du Commerce, de l'Industrie, des Postes et des Télégraphes)
-| Conciliation et arbitrage en octobre. . . . . . . . . 886
-Bordereaux de salaire et de durée du travail en 1902 . 888
-$ ; La grève des tisseurs d'Armentières et de la région. . 892
+| Conciliation et arbitrage en octobre. . . . . . . .
+Bordereaux de salaire et de durée du travail en 1902
+$ ; La grève des tisseurs d'Armentières et de la région.
 Application, en 1902, de la loi du 2 novembre 1892, sur
 | le travail des femmes et des enfants. (Deuxième
-Louage de service à durée déterminée; défaut de renouvellement. — Louage de service à durée indéterL minée; preuve de la légitimité de la résiliation . . . 907
+Louage de service à durée déterminée; défaut de renouvellement. — Louage de service à durée indéterL minée; preuve de la légitimité de la résiliation . .
 | Mouvement social à l'étranger
 Allemagne : Revue du travail. — Placement. — Grèves.
 — Les unions locales de syndicats en 1902. — Les
 Autriche : Placement. — Grèves. — L'inspection du
-Belgique : Revue du travail. — Placement. — Grèves. 920
+Belgique : Revue du travail. — Placement. — Grèves.
 
 Chine : Salaire et conditions du travail des ouvriers
-indigènes à Shanghaï et Hong-Kong. . . . . . . . . 922
+indigènes à Shanghaï et Hong-Kong. . . . . . . .
 Grande-Bretagne : Revue du travail. — Grèves. — La
 Actes et documents officiels
 Circulaire du 23 octobre 1903 relative aux déclarations
@@ -1430,14 +1426,14 @@ Chronique législative : Bureaux de placement. — Le
 budget du commerce. — L'interpellation sur la grève
 Analyse, par département, des renseignements fournis : 1° par les associations patronales, etc.; 2° par
 Analyse, par département, des renseignements fourmis par les associations ouvrières. : . . . .. 1.5.0
-rieur; transports; faillites; autorisations de bâtir. . 947
+rieur; transports; faillites; autorisations de bâtir.
 5, rue des Beaux-Arts (6° arr‘) 5, rue de Mézières (6° arr')
 Le Bulletin de l'Office du travail paraît tous les mois. On
 le trouve chez tous les libraires. On s'abonne également
 dans tous les bureaux de poste et à l'Imprimerie nationale.
 Les abonnements ne sont pas reçus au Ministère du Commerce.
 
-cahiers de la guinzai 5
+cahiers de la guinzai
 
 Nos Cahiers sont édités par des souscriptions men-
 - suelles régulières et par des souscriptions extraordi-
@@ -1461,7 +1457,6 @@ premier ordre d'opérations, à qui nous devons laisser
 .- dation des cahiers, ils ont donné leurs souscriptions
 -. aux cahiers dès avant la fondation des cahiers sans
 « aucun esprit de retour; les souscriptions sont exacte-
-| 113
 
 septième cahier de la cinquième série
 sens où donner et retenir ne vaut; ainsi nos souscripteurs sont littéralement avec nous les auteurs, les
@@ -1652,7 +1647,7 @@ des surévaluations, suivies des déceptions et des désillusions ; d'ailleurs j
 . deux sens également ; mais je m'étais trompé dans l'un
 et l'autre sens ; et nous eûmes des surprises dans le
 
-bon sens, ainsi que nous en eûmes dans le mauvais ; f
+bon sens, ainsi que nous en eûmes dans le mauvais
 : nous en eûmes autant et même plus dans le bon sens
 6 que dans le mauvais; je veux dire qu'autant et même
 plus d'abonnés sur qui je ne m'étais pas permis de
@@ -1736,7 +1731,7 @@ un gouvernement de demi-bourgeoïis demi-capitalistes,
 
 À est aussi, de tous les gouvernements, le gouvernement
 Ë le plus éloigné d'un gouvernement populaire.
-4 Quand vous allez trouver un capitaliste entrepreneur
+Quand vous allez trouver un capitaliste entrepreneur
 | et que vous lui parlez d'entreprise, de fonds de roule-
 | ment, de mouvement de fonds, de lancement, de mise en
 | train, de période de lancement, de publicité, de public,
@@ -1828,7 +1823,7 @@ Cette classe enfin commençait à se rassurer des
 inquiétudes qu'elle avait éprouvées pendant la crise
 de l'affaire Dreyfus ; et commençant à se rassurer, elle
 
-, 125
+,
 
 septième cahier de la cinquième série
 
@@ -1959,7 +1954,7 @@ entend les personnes, je dois déclarer qu'ayant longtemps et beaucoup vécu dan
 jy ai connu, jy connais, parmi les universitaires
 pauvres, de tels exemples de dévouement à l'idéal
 socialiste, si nombreux, d'un dévouement si intense,
-que je suis en mesure d'affirmer que si la même proportion, de nombre, d'intensité, se maintenait parmi e
+que je suis en mesure d'affirmer que si la même proportion, de nombre, d'intensité, se maintenait parmi
 les autres pauvres, surtout parmi les ouyriers, qui ne
 : sont pas tous pauvres, étant les uns pauvres, et les
 autres misérables, mais quelques-uns relativement
@@ -2209,9 +2204,9 @@ ne connaît pas toujours la fin de sa phrase, et qui
 n'est pas le maître impeccable de sa péroraison.
 
 Cahier de courriers.
-Henr: Micuer. — Notes sur la Hollande et sur l'intiRÉEL 0 ESANSRAMET N ANEREPREN e n 3
+Henr: Micuer. — Notes sur la Hollande et sur l'intiRÉEL 0 ESANSRAMET N ANEREPREN
 Bulletin de l'Office du travail. — La grève des tisseurs
-Bulletin de l'Ofjice du travail. — Couverture et sommaire d'un numéro, novembre 1903. . . . . . . . . 108
+Bulletin de l'Ofjice du travail. — Couverture et sommaire d'un numéro, novembre 1903. . . . . . . .
 Gers tdela Quinzaine Ne 42 eee Ce CPE
 Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce septième cahier
@@ -2227,7 +2222,7 @@ et des abonnements de propagande à douze francs.
 l service entre ces différents abonnements. Nous voulons
 seulement que nos cahiers soient accessibles à tout le
 monde également.
-4 Le prix de nos abonnements ordinaires est à peu près
+Le prix de nos abonnements ordinaires est à peu près
 . égal au prix de revient ; le prix de nos abonnements de
 propagande est donc sensiblement inférieur au prix de
 . » revient. Nous ne consentons des abonnements de propa-
@@ -2240,7 +2235,7 @@ Nous acceptons que nos abonnés paient leur abonnement par mensualités de un ou
 quatrième série normale ayant fini fin juin 1903, on
 . pouvait jusqu'au 30 juin 1903 avoir au prix de pro-
 …_ pagande les vingt premiers cahiers de cette série.
-1 L'abonnement ordinaire cesse de fonctionner pour
+L'abonnement ordinaire cesse de fonctionner pour
 - chaque série au plus tard le 3r décembre qui suit
 … l'achèvement de cette série; ainsi du premier juillet au
 …_ 31 décembre 1903 on pouvait avoir pour vingt francs

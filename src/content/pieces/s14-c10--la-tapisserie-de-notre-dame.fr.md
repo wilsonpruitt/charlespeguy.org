@@ -11,7 +11,7 @@ Dans les dix-sept cahiers de leur sixième série, année CAHIER PC
 1904-1905, nos cahiers ont publié :
 VI. — Cnanres Péeuy. — Texte sans commentaires. — Catalogue analytique sommaire, — 1900- : :
 VI-2.— Ausxis Brarnann.— L'égalité devant l'instruction, — crise de l'enseignement ….. FOURS
-VI4. — Cnances PéGux. — un essai de monopole. — Raour Autixn. — L'enseignement primaire des indigènes à Madagascar............ 3 50
+VI4. — Cnances PéGux. — un essai de monopole. — Raour Autixn. — L'enseignement primaire des indigènes à Madagascar............
 Vi-5. — Poncué; Giczer; TuanauD. — les primitifs
 français; contes de la Vierge. — cahier orné de
 trente belles reproductions de primitifs 20 »
@@ -35,24 +35,24 @@ jaune de 249 pages; in-18 grand jésus; nous le vendons trois francs cinquante
 
 4 la tapisserie fi]
 fe de Notre Dame
-périodique paraissant tous les deux dimanches % d l
-Sue | 8, rue de la Sorbonne, au rez-de-chaussée 4 4.
+périodique paraissant tous les deux dimanches %
+Sue | 8, rue de la Sorbonne, au rez-de-chaussée
 
 Dans les dix-sept cahiers de leur sixième série, année
 1904-1906, nos cahiers ont publié : RE
-VI-1. — CnaRLes Pécuy. — Texte sans commen- RE : L
-£ VI-4. — Cuances PÉGuy. — un essai de mono- 4
-pole. — RaouL ALLER. — L'enseignement pri- 3
+VI-1. — CnaRLes Pécuy. — Texte sans commen- RE
+£ VI-4. — Cuances PÉGuy. — un essai de mono-
+pole. — RaouL ALLER. — L'enseignement pri-
 maire des indigènes à Madagascar............... 350 CE |
-VI-5. — Le testament politique de Waldeck- 1
+VI-5. — Le testament politique de Waldeck-
 VI-5. — Porcué; GizLer; TuArAUD. — les primitifs . À
 français; contes de la Vierge. — cahier orné de À
 trente belles reproductions de primitils............ 20 » à
 VI-8. — Roman RozLanp. — Jean-Christophe. — e|
 — La délation aux Droits de l'Homme ............ 2 »
-VI-10. — Brenx. — Yves Madec professeur de col- Û
+VI-10. — Brenx. — Yves Madec professeur de col-
 Vi-11. — Suarès. — La tragédie d'Elektre et il
-VI:13. — Torsror. — l'Eglise et l'Etat; les évêne- 1:
+VI:13. — Torsror. — l'Eglise et l'Etat; les évêne-
 — la séparation des Eglises et de l'Etat ......... 6 » "1
 VI-15. — Enpy Manix. — La tragédie de Tristan à |
 phéties du comte de Gobineau.................. ÉPUISÉ
@@ -61,7 +61,7 @@ Pour tous renseignements sur les Cahiers de la
 Quinzaine et le prix de l'abonnement, demander à
 M. André Bourgeois, 8, rue de la Sorbonne, Paris, le
 : tableau synoptique de nos éditions antérieures et de A
-nos treize premières séries. Ê
+nos treize premières séries.
 Nous metlons le présent cahier dans le commerce ; |
 neuvième cahier de la quatorzième série; un cahier
 jaune de 240 pages; in-18 grand jésus; nous le ven- ..  :
@@ -73,7 +73,7 @@ de Notre Dame
 périodique paraissant tous les deux dimanches
 4 8, rue de la Sorbonne, au rez-de-chaussée
 
-4 14
+4
 
 : aux Cahiers de la Quinzaine
 
@@ -86,9 +86,9 @@ la tapisserie
 
 d cahier pour le dimanche de la Pentecôte : FT
 é, et pour le mois de mai ‘80
-k de la quatorzième série : 14
+k de la quatorzième série
 
-‘4% au Bulletin des Professeurs catholiques de l'Université * 24
+‘4% au Bulletin des Professeurs catholiques de l'Université
 
 | Présent: de Paris à Notre Dame | PAU:
 
@@ -105,7 +105,7 @@ ou présentation de Paris |
 
 Reine qui vous levez sur tous les océans,
 
-} Vous penserez à nous quand nous serons au large. ù
+} Vous penserez à nous quand nous serons au large.
 _ Aujourd'hui c'est le jour d'embarquer notre charge. |
 î = Voici l'énorme grue et les longs meuglements.
 
@@ -114,22 +114,22 @@ L Ce vaisseau s'en irait vers votre auguste seuil |
 _ Plus creux que la noisette après que l'écureuil \
 *k L'a laissé retomber de ses ongles pointus. |
 
-_  Nuis ballots n'entreraient par les panneaux béants, 1
-Et nous arriverions dans la mer de sargasse : 4
+_  Nuis ballots n'entreraient par les panneaux béants,
+Et nous arriverions dans la mer de sargasse
 Traînant cette inutile et grotesque carcasse |
 
-Et les Anglais diraient : Ils n'ont rien mis dedans. Ê
+Et les Anglais diraient : Ils n'ont rien mis dedans.
 Mais nous saurons l'emplir et nous vous le jurons.
 
-11 Sera le plus beau dans cet illustre port.
+Sera le plus beau dans cet illustre port.
 
 La cargaison ira jusque sur le plat-bord.
 
-Et quand il sera plein nous le couronnerons. 1
+Et quand il sera plein nous le couronnerons.
 Nous n'y chargerons pas notre pauvre maïs,
 Mais de l'or et du blé que nous emporterons. |
 Et il tiendra la mer : car nous le chargerons % |
-Du poids de nos péchés payés par votre fils. 1!
+Du poids de nos péchés payés par votre fils.
 
 Paris vaisseau de charge :. 4 AUS
 
@@ -137,19 +137,19 @@ Paris vaisseau de charge :. 4 AUS
 __ Vaisseau de blé, de seigle, et de justesse d'âme, 2040 RE ;
 __ D'humilité, d'orgueil, et de simple verveine ; 15 LUE
 | Nos pères t'ont comblé d'une si longue peine, 2 NA (FRE
-' Eu Depuis mille et mille ans que tu viens à la lame, RS ro ÿ
+' Eu Depuis mille et mille ans que tu viens à la lame, RS ro
 M Que nulle cargaison n'est si lourde à la rame, MU:
-_ Et que nul bâtiment n'a la panse aussi pleine. +2 \° 0
+_ Et que nul bâtiment n'a la panse aussi pleine. +2 \°
 
-Date . Mais nous apporterons un regret si sévère, F É
+Date . Mais nous apporterons un regret si sévère,
 ei pes Et si nourri d'honneur, et si creusé de flamme, TNA
-Que le chef le prendra pour un sac de prière, 18
+Que le chef le prendra pour un sac de prière,
 
 _ Et le fera hisser jusque sous l'oriflamme, A:
 y à _  Navire appareiïllé sous Septime Sévère, "
-9 Double vaisseau de charge aux pieds de Notre Dame. nt
+Double vaisseau de charge aux pieds de Notre Dame. nt
 
-ni Paris double galè LT 71
+ni Paris double galè LT
 
 | à pin le Point du Jour jusqu'aux cèdres bibliques
 Double galère assise au long du grand bazar,
@@ -162,7 +162,7 @@ Fidèlement courbés sur tes rames obliques.
 
 Et nous prenant leur place au même banc de chêne;
 ne Nous ramerons des reins, de la nuque, de l'âme, FT CE
-+ ‘+ 100 Pliés, cassés, meurtris, saignants sous notre chaîne; 4
++ ‘+ 100 Pliés, cassés, meurtris, saignants sous notre chaîne;
 
 Et nous tiendrons le coup, rivés sur notre rame, à
 AA. Forçais fils de forçats aux deux rives de Seine, Tr" ru
@@ -171,7 +171,7 @@ Mn |: Galériens couchés aux pieds de Notre Dame. "EN
 ; Paris vaisseau de guerre TA AR
 
 4 3 vaisseau de ligne au long des colonnades, LAURE
-4 Autrefois bâtiment au centuple sabord, 4 # ni:
+Autrefois bâtiment au centuple sabord, 4 # ni:
 _ Fermé sur le secret des sourdes canonnades. Fe 2 de
 Nos pères t'ont dansé de chaudes sérénades, , HERe # or
 | _ Ils L'ont fleuri du sang de la plus belle mort, #3 4 é js)
@@ -188,7 +188,7 @@ Monstres verts accroupis aux pieds de Notre Dame.
 
 Présentation de la Beauce à Notre Dame de Chartres
 
-1 1
+1
 
 ë ] pe de la mer voici la lourde nappe
 ; Et la profonde houle et l'océan des blés VLAAN
@@ -197,56 +197,56 @@ Et la mouvante écume et nos greniers comblés, L |
 Et voici votre voix sur cette lourde plaine a
 v Et nos amis absents et nos cœurs dépeuplés, no
 Voici le long de nous nos poings désassemblés 1,108
-Et notre lassitude et notre force pleine, n
+Et notre lassitude et notre force pleine,
 
-25 Voici que nous marchons vers votre illustre cour,
-Et voici le plateau de notre pauvre amour, 224
-Et voici l'océan de notre immense peine. \ v' 0
+Voici que nous marchons vers votre illustre cour,
+Et voici le plateau de notre pauvre amour,
+Et voici l'océan de notre immense peine. \ v'
 _ Un sanglot rôde et court par delà l'horizon. ;1#
 pue Fe à A peine quelques toits font comme un archipel. RE.
 _ Du vieux clocher retombe une sorte d'appel. +1
 __  L'épaisse église semble une basse maison. VE
 DR: Ainsi nous naviguons vers votre cathédrale. :
-ES _ De loin en loin surnage un chapelet de meules, 4
-__ Rondes comme des tours, opulentes et seules 4
-5 RES _ Comme un rang de châteaux sur la barque amirale. + 458
+ES _ De loin en loin surnage un chapelet de meules,
+__ Rondes comme des tours, opulentes et seules
+RES _ Comme un rang de châteaux sur la barque amirale. +
 5 2. __ Deux mille ans de labeur ont fait de cette terre nc:
 FR Un réservoir sans fin pour les âges nouveaux. ‘4
 _ Mille ans de votre grâce ont fait de ces travaux = LR
 * _ Un reposoir sans fin pour l'âme solitaire. 4"
 ee Vous nous voyez marcher sur cette route droite, el} |
 d: 4 Tout poudreux, tout crottés, la pluie entre les dents. a
-2 2 Sur ce large éventail ouvert à tous les vents 4
+2 2 Sur ce large éventail ouvert à tous les vents
 is ; La route nationale est notre porte étroite. +
 
-: Nous allons devant nous, les mains le long des poches, (ie ë
-à Sans aucun appareil, sans fatras, sans discours, A id 1
-L D'un pas toujours égal, sans hâte ni recours, i à Ÿ
+: Nous allons devant nous, les mains le long des poches, (ie
+à Sans aucun appareil, sans fatras, sans discours, A id
+L D'un pas toujours égal, sans hâte ni recours, i à
 
 D: Des champs les plus présents vers les champs les plus proches. …
 
 Vous nous voyez marcher, nous sommes la piétaille. ;
-Nous n'avançons jamais que d'un pas à la fois. M
+Nous n'avançons jamais que d'un pas à la fois.
 Mais vingt siècles de peuple et vingt siècles de rois, ba
-Et toute leur séquelle et toute leur volaille k
+Et toute leur séquelle et toute leur volaille
 É Et leurs chapeaux à plume avec leur valetaille {
-Ont appris ce que c'est que d'être familiers, Ÿ
+Ont appris ce que c'est que d'être familiers,
 ; Et comme on peut marcher, les pieds dans ses souliers, a
 Le Vers un dernier carré le soir d'une bataille, |
-4 Nous sommes nés pour vous au bord de ce plateau, Ad
-4 Dans le recourbement de notre blonde Loire, ) !
-. Et ce fleuve de sable et ce fleuve de gloire 33
-N'est là que pour baiser votre auguste manteau. ;? 0
-; Nous sommes nés au bord de ce vaste plateau, 4
-4 Dans l'antique Orléans sévère et sérieuse, de
-\ Et la Loire coulante et souvent limoneuse K
+Nous sommes nés pour vous au bord de ce plateau, Ad
+Dans le recourbement de notre blonde Loire, ) !
+. Et ce fleuve de sable et ce fleuve de gloire
+N'est là que pour baiser votre auguste manteau. ;?
+; Nous sommes nés au bord de ce vaste plateau,
+Dans l'antique Orléans sévère et sérieuse, de
+\ Et la Loire coulante et souvent limoneuse
 
 ] N'est là que pour laver les pieds de ce coteau. pa
 
 présentation de la Beauce À
 Nous sommes nés au bord de votre plate Beauce |
 Et nous avons connu dès nos plus jeunes ans |
-Le portail de la ferme et les durs paysans 4
+Le portail de la ferme et les durs paysans
 Et l'enclos dans le bourg et la bêche et la fosse. |
 Nous sommes nés au bord de votre Beauce plate
 Et nous avons connu dès nos premiers regrets à
@@ -272,7 +272,7 @@ Plus haut que tous les saints, plus haut que tous les rois,
 La flèche irréprochable et qui ne peut faillir.
 C'est la gerbe et le blé qui ne périra point,
 
-1 Qui ne fanera point au soleil de septembre,
+Qui ne fanera point au soleil de septembre,
 Qui ne gèlera point aux rigueurs de décembre,
 C'est votre serviteur et c'est votre témoin.
 C'est la tige et le blé qui ne pourrira pas,
@@ -290,19 +290,19 @@ L'image et le tracé de nos redressements,
 La laine et le fuseau des plus modestes sorts,
 
 CU Nous arrivons vers vous du lointain Parisis, LR SE UTE
-4 Nous avons pour trois jours quitté notre boutique, DE
+Nous avons pour trois jours quitté notre boutique, DE
 act Et l'archéologie avec la sémantique, ñ “4e
-7 Et la maigre Sorbonne et ses pauvres petits. :@
+Et la maigre Sorbonne et ses pauvres petits. :@
 ser _ D'autres viendront vers vous du lointain Beauvaisis. "
 M ne Nous avons pour trois jours laissé notre négoce, {
-(a L « _ Etla rumeur géante et la ville colosse, 4
+(a L « _ Etla rumeur géante et la ville colosse,
 Fe _ D'autres viendront vers vous du lointain Cambrésis. "
-“ Nous arrivons vers vous de Paris capitale. i
-#14 _ C'est là que nous avons notre gouvernement, : 4
+“ Nous arrivons vers vous de Paris capitale.
+#14 _ C'est là que nous avons notre gouvernement,
 À Et notre temps perdu dans le lanternement ;
 ‘1 Et notre liberté décevante et totale. 1]
 Ë Nous arrivons vers vous de l'autre Notre Dame, NE
-Hi De celle qui s'élève au cœur de la cité, 4
+Hi De celle qui s'élève au cœur de la cité,
 ! Dans sa royale robe et dans sa majesté, 11"
 , Dans sa magnificence et sa justesse d'âme. en
 Comme vous commandez un océan d'épis, Û |
@@ -324,37 +324,37 @@ Et leurs savants détours et leurs dégagements, er
 Et par les beaux châteaux et les longues allées. ox
 
 . D'autres viendront vers vous du noble Vermandois, FA
-Et des vallonnements de bouleaux et de saules. ù
-D'autres viendront vers vous des palais et des geôles. k
+Et des vallonnements de bouleaux et de saules.
+D'autres viendront vers vous des palais et des geôles.
 
-Et du pays picard et du vert Vendômois. 7
+Et du pays picard et du vert Vendômois.
 
-04 Mais c'est toujours la France, ou petite ou plus grande, 1 NS
+Mais c'est toujours la France, ou petite ou plus grande, 1 NS
 Le pays des beaux blés et des encadrements, “
 
 Le pays de la grappe et des ruissellements, ji
 
 Le pays de genêts, de bruyère, de lande. ie
 
-. Nous arrivons vérs vous du lointain Palaiseau P 4
+. Nous arrivons vérs vous du lointain Palaiseau
 Et des faubourgs d'Orsay par Gometz-le-Châtel, ! “4
 Autrement dit Saint-Clair ; ce n'est pas an castel ; DAME
 
 c. C'est un village au bord d'une route en biseau. ar
 
-Nous avons débouché, montant de ce coteau, 4
-Sur le ras de la plaine et sur Gometz-la-Ville è
+Nous avons débouché, montant de ce coteau,
+Sur le ras de la plaine et sur Gometz-la-Ville
 Au-dessus de Saint-Clair ; ce n'est pas une ville; "
 C'est un village au bord d'une route en plateau.
-Nous avons descendu la côte de Limours. 1 i
+Nous avons descendu la côte de Limours.
 Nous avons rencontré trois ou quatre gendarines. {
-Ils nous ont regardé, non sans quelques alarmes, ÿ
+Ils nous ont regardé, non sans quelques alarmes,
 Consulter les poteaux aux coins des carrefours. :
 Nous avons pu coucher dans le calme Dourdan.
 C'est un gros bourg très riche et qui sent sa province.
-Fiers nous avons longé, regardés comme un prince, ë
+Fiers nous avons longé, regardés comme un prince,
 Les fossés du château coupés comme un redan. :
-Dans la maison amie, hôtesse et fraternelle L
+Dans la maison amie, hôtesse et fraternelle
 On nous a fait coucher dans le lit du garçon. {
 Vingt ans de souvenirs étaient notre échanson. à
 Le pain nous fut coupé d'une main maternelle. |
@@ -368,10 +368,10 @@ Et même un bon vivant et d'aimer les voyages,
 Et d'avoir parcouru cent trente-et-un baïlliages,
 Et d'être accoutumés d'être sur le chemin.
 La clarté de la lampe éblouissait la nappe.
-On nous fit visiter le jardin potager. F
+On nous fit visiter le jardin potager.
 11 donnait sur la treiïlle et sur un beau verger.
 Tel fut le premier gîte et la tête d'étape.
-Le jardin était clos dans un coude de l'Orge. k
+Le jardin était clos dans un coude de l'Orge.
 Vers la droite il donnait sur un mur bocager
 Surmonté de rameaux et d'un arceau léger.
 En face un maréchal, et l'enclume, et la forge.
@@ -386,67 +386,67 @@ Et que c'est bien assez de se lever matin.
 
 Le jour était en route et le soleil montait Fin UE
 Quand nous avons passé Sainte-Mesme et les autres. Qi \
-1 _ Nous avancions déjà comme deux bons apôtres. 4
+1 _ Nous avancions déjà comme deux bons apôtres.
 ve % Nous sommes remontés par le Gué de Longroy. 14 \
-4 É: ÿ C'en est fait désormais de nos atermoiements, : k:
+É: ÿ C'en est fait désormais de nos atermoiements,
 
-_ Et de l'iniquité des dénivellements : 1 Ë
+_ Et de l'iniquité des dénivellements
 « 54 _ Voici la juste plaine et le secret effroi $
-Nbr: De nous trouver tout seuls et voici le charroi ï È
+Nbr: De nous trouver tout seuls et voici le charroi
 _ Et la roue et les bœufs et le joug et la grange, “
 Ë poussière égale et l''équitable fange Ÿ VF
-ni IS Et la détresse égale et l'égal désarroi. 54
+ni IS Et la détresse égale et l'égal désarroi.
 À tn .. Nous voici parvenus sur la haute terrasse Dh:
 ‘Æ _ Où rien ne cache plus l'homme de devant Dieu, %
 Fe _ Ne pourra nous sauver, Seigneur, de votre chasse. Pl |
 , + Voici la gerbe immense et l'immense liasse, ‘4h
 Le Et le grain sous la meule et nos écrasements, "4
-4 4) _ Et l'immense horizon que le regard embrasse. 14 4
+4 4) _ Et l'immense horizon que le regard embrasse.
 
-nm: Et notre indignité cette immuable masse, [ur k,
+nm: Et notre indignité cette immuable masse, [ur
 Aa Et notre basse peur en un pareil moment, A na
 L- De nous trouver tout seuls par devant votre face. Hu dti
-Mais voici que c'est vous, reine de majesté. Fe 1018 j
+Mais voici que c'est vous, reine de majesté. Fe 1018
 Fa Comment avons-nous pu nous laisser décevoir, PACE
-| Et marcher devant vous sans vous apercevoir. 4
-; Nous serons donc toujours ce peuple inconcerté. 4H 40
+| Et marcher devant vous sans vous apercevoir.
+; Nous serons donc toujours ce peuple inconcerté.
 F4 Ce pays est plus ras que la plus rase table. ; A
 be A peine un creux du sol, à peine un léger pli. 100 *
-14 C'est la table du juge et Le fait accompli, { ve HE
+C'est la table du juge et Le fait accompli, { ve HE
 ‘23 Et l'arrêt sans appel et l'ordre inéluctable. ? ACER
-14 Et c'est le prononcé du texte insurmontable, "1 A VW
-4 Et la mesure comble et c'est le sort empli, ses $ ta
+Et c'est le prononcé du texte insurmontable, "1 A VW
+Et la mesure comble et c'est le sort empli, ses $ ta
 ? Et c'est la vie étale et l'homme enseveli, ‘ot
 Et c'est le héraut d'arme et le sceau redoutable. re
 7% Mais vous apparaissez, reine mystérieuse. LA Fe Re
 # Cette pointe là-bas dans le moutonnement \ 4° SET
-_ Des moissons et des bois et dans le flottement ne 42
-De l'extrême horizon ce n'est point une yeuse, JA 02) 10
+_ Des moissons et des bois et dans le flottement ne
+De l'extrême horizon ce n'est point une yeuse, JA 02)
 
-_ présentation de la Beauce TR 4
+_ présentation de la Beauce TR
 Ni le profil connu d'un arbre interchangeable. ;
-C'est déjà plus distante, et plus basse, et plus haute, 4
+C'est déjà plus distante, et plus basse, et plus haute,
 Ferme comme un espoir sur la dernière côte, $
 , Sur le dernier coteau la flèche inimitable. : iN
-D'ici vers vous, Ô reine, il n'est plus que la route. 4
-_ Celle-ci nous regarde, on en a bien fait d'autres. 4
+D'ici vers vous, Ô reine, il n'est plus que la route.
+_ Celle-ci nous regarde, on en a bien fait d'autres.
 Vous avez votre gloire et nous avons les nôtres. ] À
 Nous l'avons entamée, on la mangera toute. %
 
 Nous savons ce que c'est qu'un tronçon qui s'ajoute à
 Au tronçon déjà fait et ce qu'un kilomètre <
-6 Demande de jarret et ce qu'il faut en mettre : È
+Demande de jarret et ce qu'il faut en mettre
 Nous passerons ce soir par le pont et la voûte À
 Et ce fossé profond qui cerne le rempart.
-Nous marchons dans le vent coupés par les autos. r.
-C'est ici la contrée imprenable en photos, 1
+Nous marchons dans le vent coupés par les autos.
+C'est ici la contrée imprenable en photos,
 La route nue et grave allant de part en part. Lo
 Nous avons eu bon vent de partir dès le jour. :
-Nous coucherons ce soir à deux pas de chez vous, E
+Nous coucherons ce soir à deux pas de chez vous,
 Dans cette vieille auberge où pour quarante sous %
-Nous dormirons tout près de votre illustre tour. 1
+Nous dormirons tout près de votre illustre tour.
 
-Nous serons si fourbus que nous regarderons, + 0
+Nous serons si fourbus que nous regarderons, +
 
 Assis sur une chaise auprès de la fenêtre, | |
 Dans un écrasement du corps et de tout l'être, |
@@ -455,16 +455,16 @@ Et les sourcils haussés jusque dedans nos fronts, fx
 L'angle une fois trouvé par un seul homme au monde, me:
 Et l'unique montée ascendante et profonde,
 Et nous serons recrus et nous contemplerons.
-Voici l'axe et la ligne et la géante fleur. ù
+Voici l'axe et la ligne et la géante fleur.
 Voici la dure pente et le contentement.
 Voici l'exactitude et le consentement.
-Et la sévère larme, à reine de douleur. ÿ
+Et la sévère larme, à reine de douleur.
 Voici la nudité, le reste est vêtement.
-Voici le vêtement, tout le reste est parure. ê
+Voici le vêtement, tout le reste est parure.
 Voici la pureté, tout le reste est souillure.
-Voici la pauvreté, le reste est ornement. è ù
+Voici la pauvreté, le reste est ornement.
 
-| Voici la seule force et le reste est faiblesse. v4
+| Voici la seule force et le reste est faiblesse.
 Voici l'arête unique et le reste est bavure. He
 Et la seule noblesse et le reste est ordure.
 
@@ -473,61 +473,61 @@ Et la seule noblesse et le reste est ordure.
 Voici la seule foi qui ne soit point parjure. BUS.
 _ Voici le seul élan qui sache un peu monter. +
 x Voici le seul instant qui vaille de compter. Fe
-_ Voici le seul propos qui s'achève et qui dure. D
-Net Voici le monument, tout le réste est doublure. *e
-OS Et voici notre amour et notre entendement. ñ
+_ Voici le seul propos qui s'achève et qui dure.
+Net Voici le monument, tout le réste est doublure.
+OS Et voici notre amour et notre entendement.
 Et notre port de tête et notre apaisement.
 , LA _ Et le rien de dentelle et l'exacte moulure. ‘à
-Voici le beau serment, le reste est forfaiture. 1
-DRE" $ Voici l'unique prix de nos arrachements, 4
+Voici le beau serment, le reste est forfaiture.
+DRE" $ Voici l'unique prix de nos arrachements,
 À à Le salaire payé de nos retranchements. |
 ‘E Voici la vérité, le reste est imposture. | | »h
-_ Voici le firmament, le reste est procédure. 4
-44 Et vers le tribunal voici l'ajustement. » F . . = g
-+ Et vers le paradis voici l'achèvement. L
+_ Voici le firmament, le reste est procédure.
+Et vers le tribunal voici l'ajustement. » F . . =
++ Et vers le paradis voici l'achèvement.
 nr: Et la feuille de pierre et l'exacte nervure.
-Nous resterons cloués sur la chaïse de paille. } h
+Nous resterons cloués sur la chaïse de paille. }
 Et nous n'entendrons pas et nous ne verrons pas
 Le tumulte des voix, le tumulte des pas, ; à
-Et dans la salle en bas l'innocente ripaille. L 4
+Et dans la salle en bas l'innocente ripaille.
 
 | Niles rouliers venus pour le jour du marché. AS
 3% Ni la feinte colère et l'éclat des jurons : s é PA
-4% Car nous contemplerons et nous méditerons ‘20 7h
+4% Car nous contemplerons et nous méditerons ‘20
 D'un seul embrassement la flèche sans péché. ‘A
 É Nous ne sentirons pas ni nos faces raïdies, 7 do
-4 Ni la faim ni la soif ni nos renoncements, nt:
+Ni la faim ni la soif ni nos renoncements, nt:
 ;. Ni nos raides genoux ni nos raisonnements, DRCUNS
 
 ; Ni dans nos pantalons nos jambes engourdies. 1: OR
 x Perdus dans cette chambre et parmi tant d'hôtels, ' ps
 | Nous ne descendrons pas à l'heure du repas, À 4 :
-#t Et nous n'entendrons pas et nous ne verrons pas 4
-4 La ville prosternée au pied de vos autels. &
+#t Et nous n'entendrons pas et nous ne verrons pas
+La ville prosternée au pied de vos autels. &
 _ Et quand selèvera le soleil de demain, # PTE
 g Nous nous réveillerons dans une aube lustrale, # :
 . A l'ombre des deux bras de votre cathédrale, {sf Fe
-Heureux et malheureux et perclus du chemin. de 54
-1 60
+Heureux et malheureux et perclus du chemin. de
+1
 ( Nous venons vous prier pour ce pauvre garçon Pa <
 . Qui mourut comme un sot au cours de cette année, es
-4 Presque dans la semaine et devers la journée 4 n: 12
-| | Où votre fils naquit dans la paille et le son. se an" V
+Presque dans la semaine et devers la journée
+| | Où votre fils naquit dans la paille et le son. se an"
 
 présentation de la Beauce ‘4
 à Vierge il n'était pas le pire du troupeau. |
-Il n'avait qu'un défaut dans sa jeune cuirasse. k
+Il n'avait qu'un défaut dans sa jeune cuirasse.
 Mais la mort qui nous piste et nous suit à la trace
 A passé par ce trou qu'il s'est fait dans la peau.
 
-Il était né vers nous dans notre Gâtinais. 1
+Il était né vers nous dans notre Gâtinais.
 Il commençait la route où nous redescendons.
 Il gagnait tous les jours tout ce que nous perdons. {
 Et pourtant c'était lui que tu te destinais, |
 : ô mort qui fus vaincue en un premier caveau.
-Il avait mis ses pas dans nos mêmes empreintes. F
+Il avait mis ses pas dans nos mêmes empreintes.
 Mais le seul manquement d'une seule des craintes |
-Laissa passer la mort par un chemin nouveau. 1
+Laissa passer la mort par un chemin nouveau.
 
 Le voici maintenant dedans votre régence. |
 Vous êtes reine et mère et saurez le montrer, {
@@ -571,34 +571,34 @@ D'un vaincu malheureux un malheureux vainqueur.
 Reine recevez-le dans votre amendement, :
 Où la mort a passé, passera bien la grâce.
 
-po Nous, nous retournerons par ce même chemin. AP) h 4
+po Nous, nous retournerons par ce même chemin. AP)
 à Ce sera de nouveau la terre sans cachette, RTE
-1e Le château sans un coin et sans une oubliette, : 4
-ÿa _ Etce sol mieux gravé qu'un parfait parchemin. F2
-2 Et nunc et in hora, nous vous prions pour nous ke
+1e Le château sans un coin et sans une oubliette,
+ÿa _ Etce sol mieux gravé qu'un parfait parchemin.
+Et nunc et in hora, nous vous prions pour nous ke
 + 14 Qui sommes plus grands sots que ce pauvre gamin, Me
-# è Et sans doute moins purs et moins dans votre main, K.
-" ÿ _ Et moins acheminés vers vos sacrés genoux. 14
+# è Et sans doute moins purs et moins dans votre main,
+" ÿ _ Et moins acheminés vers vos sacrés genoux.
 _ Quand nous aurons joué nos derniers personnages, ;
-1 le) Quand nous aurons posé la cape et le manteau, F
+1 le) Quand nous aurons posé la cape et le manteau,
 Quand nous aurons jeté le masque et le couteau, ‘à
-_ Veuillez vous rappeler nos longs pèlerinages. F
+_ Veuillez vous rappeler nos longs pèlerinages.
 ‘3 Quand nous retournerons en cette froide terre, :
 N ' Ainsi qu'il fut prescrit pour le premier Adam, &
-FA Reine de Saint-Chéron, Saint-Arnould et Dourdan, F
-4 Veuillez vous rappeler ce chemin solitaire. rt
+FA Reine de Saint-Chéron, Saint-Arnould et Dourdan,
+Veuillez vous rappeler ce chemin solitaire. rt
 
 Quand on nous aura mis dans une étroite fosse, "1
 Quand on aura sur nous dit l'absoute et la messe, A
-Veuillez vous rappeler, reine de la promesse, 3
+Veuillez vous rappeler, reine de la promesse,
 Le long cheminement que nous faisons en Beauce. £ |
 
-Quand nous aurons quitté ce sac et cette corde, LCR , É
-1 Quand nous aurons tremblé nos derniers tremblements, #ù we LA
-4 Quand nous aurons râlé nos derniers râclements, 1: NES
+Quand nous aurons quitté ce sac et cette corde, LCR
+Quand nous aurons tremblé nos derniers tremblements, #ù we LA
+Quand nous aurons râlé nos derniers râclements, 1: NES
 6: Veuillez vous rappeler votre miséricorde, V (1 FAR Us
 s Nous ne demandons rien, refuge du pécheur, ue, ‘à He
-Que la dernière place en votre Purgatoire, À 2
+Que la dernière place en votre Purgatoire, À
 Pour pleurer longuement notre tragique histoire, 7: À #:
 : Et contempler de loin votre jeune splendeur. 1 “AE
 
@@ -616,21 +616,21 @@ M Et linutilité de tout calcul humain; LAN
 Von 0 plus que le péché, la sagesse en déroute. pe RO +
 
 , la tapisserie de Notre Dame FR
-Voici le lieu du monde où tout devient facile, 1
+Voici le lieu du monde où tout devient facile,
 é Le regret, le départ, même l'événement, ;
 he Et l'adieu temporaire et le détournement,
-TR Le seul coin de la terre où tout devient docile, É
-INR Et même ce vieux cœur qui faisait le rebelle ; 4
-. Et cette vieille tête et sès raisonnements ; J
+TR Le seul coin de la terre où tout devient docile,
+INR Et même ce vieux cœur qui faisait le rebelle
+. Et cette vieille tête et sès raisonnements
 Et ces deux bras raïdis dans les casernements ; $
-" Et cette jeune enfant qui faisait trop la belle. 1
-Voici le lieu du monde où tout est reconnu, > » 14
-4 Et cette vieille tête et la source des larmes ;
+" Et cette jeune enfant qui faisait trop la belle.
+Voici le lieu du monde où tout est reconnu, > »
+Et cette vieille tête et la source des larmes ;
 \ Et ces deux bras raïdis dans le métier des armes ; ;
-RU, Le seul coin de la terre où tout soit contenu. 1
+RU, Le seul coin de la terre où tout soit contenu.
 Voici le lieu du monde où tout est revenu
 Après tant de départs, après tant d''arrivées.
-Voici le lieu du monde où tout est pauvre et nu L
+Voici le lieu du monde où tout est pauvre et nu
 Après tant de hasards, après tant de corvées.
 
 L Voici le lieu du monde et la seule retraite, |
@@ -639,16 +639,16 @@ Et les rameaux cueillis pour cette unique fête.
 
 Voici le lieu du monde où tout rentre et se tait, AR
 ne Et le silence et l'ombre et la charnelle absence, 140 }
-5 Et le commencement d'éternelle présence, 6 +370
+Et le commencement d'éternelle présence, 6 +370
 Le seul réduit où l'âme est tout ce qu'elle était. F1 ‘| à
-Voici le lieu du monde où la tentation Web. o
-. Se retourne elle-même et se met à l'envers. 118
-F- Car ce qui tente ici c'est la soumission ; ns k
+Voici le lieu du monde où la tentation Web.
+. Se retourne elle-même et se met à l'envers.
+F- Car ce qui tente ici c'est la soumission ; ns
 | Et c'est l'aveuglement dans l'immense univers. . 1208
-_ Et le déposement est ici ce qui tente, 5
+_ Et le déposement est ici ce qui tente,
 Et ce qui viént tout seul est l'abdication, Et
 : Et ce qui vient soi-même et ce qui se présente FR
-4 N'est ici que grandesse et présentation. (
+N'est ici que grandesse et présentation. (
 C'est la révolte ici qui devient impossible, NA ‘4
 | Et ce qui se présente est la démission. 1 à À
 Et c'est l'effacement qui devient invincible, FRE
@@ -658,7 +658,7 @@ N'est ici qu'un total et sourd abrasement. 1108
 bé: Ce qui partout ailleurs est un entassement Ris de
 N'est ici que bassesse et que dépression. ' « 0 de
 
-la tapisserie de Notre Dame i
+la tapisserie de Notre Dame
 Ce qui partout ailleurs est une oppression
 N'est ici que l'effet d'un noble écrasement. (
 Ce qui partout ailleurs est un empressement
@@ -704,19 +704,19 @@ Nous nous sommes lavés d'une telle amertume
 ANR Nous avons délavé nos malheureuses têtes LURPASE
 % SC Nous voici désormais, ô reine des prophètes, PLAT ; à
 HAT Plus clairs que l'eau du puits de l'ancien testament. +
-y # # Fa _ Nous avons gouverné de si modestes arches, 4
+y # # Fa _ Nous avons gouverné de si modestes arches,
 RE: ne _ Voile du seul vaisseau qui ne périra pas, +4
-1) Nous avons consulté de si pauvres compas, 1
-SEE Arche du seul salut, reine des patriarches. S: 80
-Fu à. Nous avons consommé de si lointains voyages, 4
-Nous n'avons plus de goût pour les pays étranges. 4
-CRE __ Reine des confesseurs, des vierges et des anges, l
-30 Nous voici retournés dans nos premiers villages. vi
-ie On nous en a tant dit, Ô reine des apôtres, 4
-19 a Nous n'avons plus de goût pour la péroraison. à L
+1) Nous avons consulté de si pauvres compas,
+SEE Arche du seul salut, reine des patriarches.
+Fu à. Nous avons consommé de si lointains voyages,
+Nous n'avons plus de goût pour les pays étranges.
+CRE __ Reine des confesseurs, des vierges et des anges,
+Nous voici retournés dans nos premiers villages. vi
+ie On nous en a tant dit, Ô reine des apôtres,
+19 a Nous n'avons plus de goût pour la péroraison. à
 à : _ Nous n'avons plus d'autels que ceux qui sont les vôtres, KL
-Le ee Nous ne savons plus rien qu'une simple oraison. Li L
-* V Nous avons essuyé de si vastes naufrages, . 4
+Le ee Nous ne savons plus rien qu'une simple oraison. Li
+* V Nous avons essuyé de si vastes naufrages,
 t TR Nous n'avons plus de goût pour le transbordement, Le
 x | Nous voici revenus, au déclin de nos âges, au
 SEP Étoile du seul Nord dans votre bâtiment. Al
@@ -725,16 +725,16 @@ Ce qui partout ailleurs est de dispersion ae :
 N'est ici que l'effet d'un beau rassemblement. Fe
 
 | Ce qui partout ailleurs est un démembrement | FRE
-_ N'est ici que cortège et que procession. 1
+_ N'est ici que cortège et que procession.
 | Ce qui partout ailleurs demande un examen per
 M N'est ici que l'effet d'une pauvre jeunesse. 1 k Re
-4 Ce qui partout ailleurs demande un lendemain "16
+Ce qui partout ailleurs demande un lendemain "16
 M N'est ici que l'effet de soudaine faiblesse. s Du
 Ce qui partout ailleurs demande un parchemin ja À
-à N'est ici que l'effet d'une pauvre tendresse. 4
+à N'est ici que l'effet d'une pauvre tendresse.
 
 Ce qui partout ailleurs demande un tour de main QRE
-3 N'est ici que l'effet d'une humble maladresse. |, : PF $
+N'est ici que l'effet d'une humble maladresse. |, : PF $
 
 ! Ce qui partout ailleurs est un détraquement LA ER
 
@@ -747,18 +747,18 @@ N'est ici qu'une épaisse et durable maison. de
 _ Ce qui partout ailleurs est la guerre et la paix ei
 N'est ici que défaite et que reddition. 0 NU
 
-L Ce qui partout ailleurs est de sédition 4 ; à 14
+L Ce qui partout ailleurs est de sédition 4 ; à
 
-= N'est ici qu'un beau peuple et des épis épais. C0
+= N'est ici qu'un beau peuple et des épis épais.
 
-la tapisserie de Notre Dame : 4
+la tapisserie de Notre Dame
 Ce qui partout ailleurs est une immense armée
 Avec ses trains de vivre et ses encombrements, ®
-Et ses trains de bagage et ses retardements, ÿ
+Et ses trains de bagage et ses retardements,
 - N'est ici que décence et bonne renommée. ;
 Ce qui partout ailleurs est un effondrement
 N'est ici qu'une lente et courbe inclinaison.
-4 Ce qui partout ailleurs est de comparaison
+Ce qui partout ailleurs est de comparaison
 Est ici sans pareil et sans redoublement.
 Ce qui partout ailleurs est un accablement
 N'est ici que l'effet de pauvre obéissance. $
@@ -776,14 +776,14 @@ Et les fils deviendront des hommes résolus,
 
 Les âges rentreront dans un âge absolu, “e
 Les fils retourneront vers le seuil paternel ES
-Et raviront de force et l'amour fraternel V3 0N
+Et raviront de force et l'amour fraternel
 Et l'antique héritage et le bien dévolu.
 Voici le lieu du monde où tout devient enfant,
-Et surtout ce vieil homme avec sa barbe grise, 7
-Et ses cheveux mêlés au souflle de la brise, j
+Et surtout ce vieil homme avec sa barbe grise,
+Et ses cheveux mêlés au souflle de la brise,
 Et son regard modeste et jadis triomphant.
 Voici le lieu du monde où tout devient novice,
-} Et cette vieille tête et ses lanternements, 2
+} Et cette vieille tête et ses lanternements,
 Et ces deux bras raïdis dans les gouvernements,
 Le seul coin de la terre où tout devient complice,
 Et même ce grand sot qui faisait le malin,
@@ -791,47 +791,47 @@ Et même ce grand sot qui faisait le malin,
 Et qui tournait en rond dans une orbe savante, À
 Et qui portait de l'eau dans le bief du moulin.
 Ce qui partout ailleurs est un arrachement
-N'est ici que la fleur de la jeune saison. L L
+N'est ici que la fleur de la jeune saison.
 Ce qui partout ailleurs est un retranchement i +
-; N'est ici qu'un soleil au ras de l'horizon. d
+; N'est ici qu'un soleil au ras de l'horizon.
 
 Ce qui partout aïlleurs est un dur labourage TU
 #4 _ N'est ici que récolte et dessaisissement.
-Ce qui partout ailleurs est le déclin d'un âge : 4
+Ce qui partout ailleurs est le déclin d'un âge
 à N'est ici qu'un candide et cher vieillissement. #
-4 Ge qui partout ailleurs est une résistance 1 ?
+Ge qui partout ailleurs est une résistance 1 ?
 ‘58 N'est ici que de suite et d'accompagnement ; {
-Ce qui partout ailleurs est-un prosternement 1
-: re N'est ici qu'une douce et longue obéissance. n
-3 Ce qui partout ailleurs est règle de contrainte ‘4
+Ce qui partout ailleurs est-un prosternement
+: re N'est ici qu'une douce et longue obéissance.
+Ce qui partout ailleurs est règle de contrainte ‘4
 N'est ici que déclenche et qu'abandonnement ; à
-4 Ce qui partout ailleurs est une dure astreinte 4
+Ce qui partout ailleurs est une dure astreinte
 f N'est ici que faiblesse et que soulèvement.
-Ce qui partout ailleurs est règle de conduite È
-ns N'est ici que bonheur et que renforcement ; 4
+Ce qui partout ailleurs est règle de conduite
+ns N'est ici que bonheur et que renforcement
 so Ce qui partout ailleurs est épargne produite nt
 Li N'est ici qu'un honneur et qu'un grave serment. “à
 Me Ce qui partout ailleurs est une courbature k |
 * N'est ici que la fleur de la jeune oraison ; #4
-ê DS Ce qui partout ailleurs est la lourde armature À J
+ê DS Ce qui partout ailleurs est la lourde armature À
 A N'est ici que la laine et la blanche toison. SAR
 
 Ce qui partout ailleurs serait un tour de force FR
 Ru. _ N'est ici que simplesse et que délassement; Av: À
-. Ce qui partout ailleurs est la rugueuse écorce Te k
+. Ce qui partout ailleurs est la rugueuse écorce Te
 F. __ N'est ici que la sève et les pleurs du sarment, l'E
-f. Ce qui partout aïlleurs est une longue usure + 18 k
-Ru N'est ici que renfort et que recroissement ; | 5
+f. Ce qui partout aïlleurs est une longue usure +
+Ru N'est ici que renfort et que recroissement ;
 k: Ce qui partout ailleurs est bouleversement #à a
 N'est ici que le jour de la bonne aventure. “1
 Ée . Ce qui partout aïlleuys se tient sur la réserve “ Ne.
-N'est ici qu'abondance et que dépassement; 4
-“À Ce qui partout ailleurs se gagne et se conserve 44
+N'est ici qu'abondance et que dépassement;
+“À Ce qui partout ailleurs se gagne et se conserve
 A N'est ici que dépense et que désistement, | AE
-Ce qui partout ailleurs se tient sur la défense y 07
-N'est ici que liesse et démantèlement ; \ KE 1
-; Et l'oubli de l'injure et l'oubli de l'offense ne è
-N'est ici que paresse et que bannissement, ‘2 n
+Ce qui partout ailleurs se tient sur la défense y
+N'est ici que liesse et démantèlement ; \ KE
+; Et l'oubli de l'injure et l'oubli de l'offense ne
+N'est ici que paresse et que bannissement, ‘2
 Ce qui partout ailleurs est une liaison 4 4 ve
 N'est ici qu'un fidèle et noble attachement; ca
 DE Ce qui partout ailleurs est un encerclement fs
@@ -839,34 +839,34 @@ DE Ce qui partout ailleurs est un encerclement fs
 
 la tapisserie de Notre Dame QE. |
 Ce qui partout ailleurs est une obédience !
-N'est ici qu'une gerbe au temps de fauchaison; ÿ
+N'est ici qu'une gerbe au temps de fauchaison;
 Ce qui partout ailleurs se fait par surveillance {
-N'est ici qu'un beau foin au temps de fenaison. - 4
-Ce qui partout ailleurs est une forcerie 3
+N'est ici qu'un beau foin au temps de fenaison.
+Ce qui partout ailleurs est une forcerie
 . N'est ici que la plante à même le jardin; à:
 Ce qui partout ailleurs est une gagerie #
 N'est ici que le seuil à même le gradin. #
-Ce qui partout ailleurs est une rétorsion k
+Ce qui partout ailleurs est une rétorsion
 N'est ici que détente et que désarmement;
 Ce qui partout ailleurs est une contraction ]
-N'est ici qu'un muet et calme engagement. ï
+N'est ici qu'un muet et calme engagement.
 
 Ce qui partout ailleurs est un bien périssable &
 N'est ici qu'un tranquille et bref dégagement; ?
 Ce qui partout ailleurs est un rengorgement %
-N'est ici qu'une rose et des pas sur le sable. 4
+N'est ici qu'une rose et des pas sur le sable.
 Ce qui partout ailleurs est un efforcement
 N'est ici que la fleur de la jeune raison;
 Ce qui partout ailleurs est un redressement
 N'est ici que la pente et le pli du gazon.
-82 2
+82
 
 Ce qui partout ailleurs est une écorcherie f à
 N'est ici qu'un modeste et beau dévêtement; “
 Ce qui partout ailleurs est une affouillerie
 N'est ici qu'un durable et sûr dépouillement.
-Ce qui partout ailleurs est un raidissement é
-N'est ici qu'une souple et candide fontaine; 14
+Ce qui partout ailleurs est un raidissement
+N'est ici qu'une souple et candide fontaine;
 Ce qui partout ailleurs est une illustre peine
 N'est ici qu'un profond et pur jaillissement.
 Ce qui partout ailleurs se querelle et se prend
@@ -875,7 +875,7 @@ N'est ici qu'un beau fleuve aux confins de sa source, |
 Comme un jeune guerrier retombé dans sa course.
 Ce qui partout ailleurs est la route gravie,
 ô reine qui régnez dans votre illustre cour,
-Étoile du matin, reine du dernier jour, 4
+Étoile du matin, reine du dernier jour,
 Ce qui partout ailleurs est la table servie, |
 Ce qui partout ailleurs est la route suivie
 N'est ici qu'un paisible et fort détachement, y
@@ -887,31 +887,31 @@ ASS 2. — prière de demande “22 #00
 L N° ne demandons pas que le grain sous la meule ut ii
 # Soit jamais replacé dans le cœur de l'épi, “pis
 Fe Nous ne demandons pas que l'âme errante et seule De ne.
-4 Soit jamais reposée en un jardin fleuri. nr ‘Le 3€
+Soit jamais reposée en un jardin fleuri. nr ‘Le 3€
 Nous ne demandons pas que la grappe écrasée LR
-Soit jamais replacée au fronton de la treille, UT 26 K:
+Soit jamais replacée au fronton de la treille, UT
 = Etque le lourd frelon et que la jeune abeille 2370
-_ Y revienne jamais se gorger de rosée, #4 rs 1x
+_ Y revienne jamais se gorger de rosée, #4 rs
 
 Hi rs _ Nous ne demandons pas que la rose vermeille Ne
 Aus D Soit jamais replacée aux cerceaux du rosier, Sy 140 $
-# É 4 Et que le paneton et la lourde corbeille 44
+# É 4 Et que le paneton et la lourde corbeille
 +3 _ Retourne vers le fleuve et redevienne osier. Li
-Nous ne demandons pas que cette page écrite 11
+Nous ne demandons pas que cette page écrite
 \ a _ Soit jamais effacée au livre de mémoire, À
 SA 4 Et que le lourd soupçon et que la jeune histoire :'
 _ Vienne remémorer cette peine prescrite, ‘4
-VENT = Nous ne demandons pas que la tige ployée 4
+VENT = Nous ne demandons pas que la tige ployée
 # PA _ Soit jamais redressée au livre de nature,
-_ Et que le lourd bourgeon et la jeune nervure 1
-2 _ Perce jamais l'écorce et soit redéployée. s
+_ Et que le lourd bourgeon et la jeune nervure
+2 _ Perce jamais l'écorce et soit redéployée.
 ‘4 Nous ne demandons pas que le rameau broyé ii
 _  Reverdisse jamais au livre de la grâce, ‘4
-Et que le lourd surgeon et que la jeune race 1
+Et que le lourd surgeon et que la jeune race
 ee Rejaillisse jamais de l'arbre foudroyé. #
 Nous ne demandons pas que la branche effeuillée "4 1 |
 , Se tourne jamais plus vers un jeune printemps, : ki.
-LA _ Et que la lourde sève et que le jeune temps É N 4
+LA _ Et que la lourde sève et que le jeune temps
 re __ Sauve une cime au moins dans la forêt noyée, De 1 |
 
 HE Nous ne demandons pas que le pli de la nappe # "4
@@ -920,19 +920,19 @@ FA Et que votre servante et qu'un malheureux être AT ‘
 ES Soient libérés jamais de cette lourde chape. % DNS :
 É Nous ne demandons pas que cette auguste table | OR Yi
 É Soit jamais resservie, à moins que pour un Dieu, +1) 1 De
-4 Mais nous n'espérons pas que le grand connétable LT à
+Mais nous n'espérons pas que le grand connétable LT à
 ; Chauffe deux fois ses mains vers un si maigre feu. ‘0100
 Nous ne demandons pas qu'une âme fourvoyée À 5740
 eu Soit jamais replacée au chemin du bonheur. : AI
 _ © reine il nous suffit d'avoir gardé l'honneur re
 # Et nous ne voulons pas qu'une aide apitoyée ARS: “1
-Nous remette jamais au chemin de plaisance, : Eur k
+Nous remette jamais au chemin de plaisance, : Eur
 : Et nous ne voulons pas qu'une amour soudoyée FN
 __ Nous remette jamais au chemin d'allégeance, NEA ‘à
-Ô seul gouvernement d'une âme guerroyée, È 14
+Ô seul gouvernement d'une âme guerroyée,
 _ Régente de la mer et de l'illustre port er
 # Nous ne demandons rien dans ces amendements < : FA
-; __ Reine que de garder sous vos commandements ir8 47 È
+; __ Reine que de garder sous vos commandements
 Une fidélité plus forte que la mort. en
 
 | N°? ne demandons pas que cette belle nappé
@@ -948,14 +948,14 @@ Vous seule vous savez, à grande notre Dame,
 
 Ce que c'est que la halte et le recueillement.
 
-la tapisserie de Notre Dame 0
+la tapisserie de Notre Dame
 à temple de sagesse et de jurisprudence, \
 | Vous seule connaissez, Ô sévère prudence, É.:
 Ce que c'est que le juge et le balancement.
-Quand il fallut s'asseoir à la croix des deux routes 4
-Et choisir le regret d'avecque le remords, 4
-* Quand il fallut s'asseoir au coin des doubles sorts 4
-Et fixer le regard sur la clef des deux voûtes, 1
+Quand il fallut s'asseoir à la croix des deux routes
+Et choisir le regret d'avecque le remords,
+* Quand il fallut s'asseoir au coin des doubles sorts
+Et fixer le regard sur la clef des deux voûtes,
 Vous seule vous savez, maîtresse du secret, ‘4
 ‘ Que l'un des deux chemins allait en contre-bas,
 Vous connaissez celui que choisirent nos pas,
@@ -965,8 +965,8 @@ Et non point par devoir car nous ne l'aimons pas,
 Mais comme un charpentier s'arme de son compas, |
 Par besoin de nous mettre au centre de misère,
 
-Et pour bien nous placer dans l'axe de détresse, Î
-Et par ce besoin sourd d'être plus malheureux, 4
+Et pour bien nous placer dans l'axe de détresse,
+Et par ce besoin sourd d'être plus malheureux,
 Et d'aller au plus dur et de souffrir plus creux, À
 Et de prendre le mal dans sa pleine justesse.
 
@@ -1020,9 +1020,9 @@ Ni pour la préfecture et pour la capitale,
 Nous n'avons plus de goût pour les embarquements,
 
 ÿ Nous ne respirons plus vers la terre natale.
-Nous avons encouru de si hautes fortunes, É 1
+Nous avons encouru de si hautes fortunes,
 à clef du seul honneur qui ne périra point, !
-Nous avons dépouillé de si basses rancunes, : L
+Nous avons dépouillé de si basses rancunes,
 Reine du témoignage et du double témoin.
 
 Nous n'avons plus de goût pour les forfanteries,
@@ -1044,9 +1044,9 @@ Nous avons tant failli par l'aête et la parole,
 Nous sommes ces soldats qui grognaient par le monde,
 Mais qui marchaient toujours et n'ont jamais plié,
 Nous sommes cette Église et ce faisceau lié, À
-. Nous sommes cette race internelle et profonde, ï
+. Nous sommes cette race internelle et profonde,
 
-| Nous ne demandons plus de ces biens périssables, k Î
+| Nous ne demandons plus de ces biens périssables,
 AH Nous ne demandons plus vos grâces de bonheur, %
 RES Nous ne demandons plus que vos grâces d'honneur,
 \3 Ÿ: $ Nous ne bâtirons plus nos maisons sur ces sables.
@@ -1054,26 +1054,26 @@ RES Nous ne demandons plus que vos grâces d'honneur,
 ne Nous ne savons plus rien de ce qu'on nous a dit.
 à | Nous ne connaissons plus qu'un éternel édit,
 Ç ; Nous ne savons plus rien que votre ordre absolu.
-: Nous en avons trop pris, nous sommes résolus. ) 4
+: Nous en avons trop pris, nous sommes résolus. )
 Nous ne voulons plus rien que par obéissance,
 * Et rester sous les coups d'une auguste puissance,
 Dee Miroir des temps futurs et des temps révolus.
 « j S'il est permis pourtant que celui qui n'a rien
 Puisse un jour disposer, et léguer quelque chose,
 ‘ S'il n'est pas défendu, mystérieuse rose, .
-| S Que celui qui n'a pas reporte un jour son bien; 1
+| S Que celui qui n'a pas reporte un jour son bien;
 S'il est permis au gueux de faire un testament,
 Et de léguer l'asile et la paille et le chaume,
 S'il est permis au roi de léguer le royaume, |
 , Et si le grand dauphin prête un nouveau serment;
 
 S'il est admis pourtant que celui qui doit tout $
-Se fasse ouvrir un compte et porter un crédit, 1
-| Si le virement tourne et n'est pas interdit, 5
+Se fasse ouvrir un compte et porter un crédit,
+| Si le virement tourne et n'est pas interdit,
 | Nous ne demandons rien, nous irons jusqu'au bout.
 Si donc il est admis qu'un humble débiteur
 | Puisse élever la voix pour ce qui n'est pas dû, '
-S'il peut toucher un prix quand il n'a pas vendu, r
+S'il peut toucher un prix quand il n'a pas vendu,
 Et faire balancer par solde créditeur ;
 Nous qui n'avons connu que vos grâces de guerre |
 | Et vos grâces de deuil et vos grâces de peine,
@@ -1088,5 +1088,5 @@ Nous qui n'avons connu que votre adversité, ,
 à veuillez reporter, merveille de largesse,
 Vos grâces de bonheur et de prospérité. |
 
-1" Et tresser pour ces fronts, reine du pur froment, : (Se S
+1" Et tresser pour ces fronts, reine du pur froment, : (Se
 2 _ Quelques épis cueillis dans la moisson des fêtes. ‘3

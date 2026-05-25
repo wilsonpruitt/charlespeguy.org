@@ -8,16 +8,16 @@ isAvertissement: false
 wordCount: 16636
 ---
 Nous n'avons pas annoncé beaucoup de livres depuis $
-lé commencement de la troisième série. Nous n'avons È
+lé commencement de la troisième série. Nous n'avons
 _ pas eu de place. Et il ne paraissait rien. Nous sommes
-… Nos abonnés en profiteront pour faire des commandes ê
-appliquée aux sciences sociales, un volume de la ê
+… Nos abonnés en profiteront pour faire des commandes
+appliquée aux sciences sociales, un volume de la
 _ Bibliothèque générale des sciences sociales, chez Alcan.
 _ Les volumes de cette collection sont cartonnés à RS
 _ l'anglaise et marqués 6 francs
 E Emre Ducraux. — L'hygiène sociale, un volume
 de la mème collection.
-_ GusrAve Laxsox. — L'Université et la Société s
+_ GusrAve Laxsox. — L'Université et la Société
 à Nous publierons au moins la préface et la table.
 1e Prerre KROPOTkINE. — Autour d'une Vie, mémoires $
 traduits par MM. A. Martin et F. Leray, un volume de à
@@ -31,15 +31,15 @@ Quelques-uns de nos abonnés ont pu étre indisposés à
 regrette qu'il y ait eu dans ce numéro cinq meurtres au à
 moins : un disciplinaire, deux petits cochons, un loup, et EE
 une oie. Mais nous répéterons pour Jean-Pierre ce que ÿ à
-nous avons dit si souvent pour le Mouvement Socialiste, 1e
-pour « Pages libres », pour la Bibliothèque Socialiste, L
+nous avons dit si souvent pour le Mouvement Socialiste,
+pour « Pages libres », pour la Bibliothèque Socialiste,
 . pour les cahiers. Aux hommes de bonne volonté qui se Re
 … proposent de travailler proprement, le public doit +4
 - owrir un large crédit. J'ai lu dans le deuxième numéro
-de Jean-Pierre un conte excellent d'Andersen. 3
+de Jean-Pierre un conte excellent d'Andersen.
 à Au moment où nous metlons sous presse, on nous a
-… annonce que M. Lapicque est suspendu pour six mois. ù
-… M. Leygues poursuit sur les universitaires l'avantage F
+… annonce que M. Lapicque est suspendu pour six mois.
+… M. Leygues poursuit sur les universitaires l'avantage
 … que les politiciens lui ont conféré. à ù Nous avons donné le bon àtirer après corrections pour
 _ deux mille six cents exemplaires de ce cinquième
 …_ cahier le jeudi 19 décembre 1901.
@@ -49,7 +49,7 @@ les livres d'étrennes suivants. Ces livres sont en vente à
 la librairie des cahiers.
 Contes de Perrault, un volume illustré.
 | SrEINLEXx. — Des chats, images sans paroles.
-| SreINLEX. — Contes enfantins, dessins. » Ë
+| SreINLEX. — Contes enfantins, dessins. »
 Curisropue. — La Famille Fenouillard. — L'idée fixe
 du savant Cosinus, albums humoristiques, en couleur. chaque album rehé 10 franes
 Hexni Hauser. — L'Or, illustré. broché 10 francs À
@@ -63,7 +63,7 @@ d'Andersen, illustrations de Haxs REGNXER.
 CnanLes D:cKExS. — Contes de Noël.
 | chaque volume 1 france
 ni Cuanses Nopier., — Trésors de fèves et fleur des …
-3 P. ve Musser, — Monsieur le Vent et Madame la
+P. ve Musser, — Monsieur le Vent et Madame la
 Tom Trrr. — Pour amuser les petits ou Les joujoux
 4 que l'on peut faire soi-même, texte et dessins en
 | Ton Trrr. — La science amusante, trois volumes. Se
@@ -75,7 +75,7 @@ paraissant vingt fois par an
 
 Are En vente à la librairie des cahiers
 K: ‘ représenté sur le théâtre de l'Œuvre le 3 mai 1898,
-À éditions de la Z?evue d'Art dramatique 3 francs ï
+À éditions de la Z?evue d'Art dramatique 3 francs
 M .… Romaix RorzAND. — Les Loups. — Morituri, drame
 4 y en trois actes, représenté sur le théâtre de l'Œuvre le *
 d 18 mai 1898, éditions de Georges Bellais 3 francs
@@ -88,11 +88,11 @@ j} représenté au Nouveau-Théâtre, le 29 décembre 1900,
 + le Théâtre Civique, sixième cahier de la deuxième
 ‘15 série, éditions des cahiers 3 francs
 dE Les cahiers publieront dans leur troisième série Je
-; Romaix ROLLAND. — Le Quatorze Juillet, drame r
+; Romaix ROLLAND. — Le Quatorze Juillet, drame
 Lu Les cahiers ont publié dans leur deuxième série
 +. Anronix LAVERGNE. — Jean Coste ou l'Instituteur
-Fe de village, un roman 3 francs 50.
-4 C'est par une erreur de jeunesse que le Coltineur
+Fe de village, un roman 3 francs
+C'est par une erreur de jeunesse que le Coltineur
 + À débile, de Jérôme et Jean Tharaud, a été marqué
 © d'abord un franc, et que les Loups, de Romain Rolland,
 En drame en trois actes, ont élé marqués deux francs.
@@ -109,7 +109,7 @@ En un temps où l'on veut nous faire accroire que le
 romantisme est plus avancé que le classique, nous
 devons en effet noter que cette pièce particulièrement
 contemporaine est exactement classique. J'entends par
-là que l'auteur n'a rien fait pour épater le bourgeois. j
+là que l'auteur n'a rien fait pour épater le bourgeois.
 Les personnages viennent quand ils ont à venir, et non
 quand ils ont à faire un effet de venue ; ils parlent pour
 dire, agissent pour faire, paraissent comme ils sont, ils
@@ -145,8 +145,8 @@ eux il s'en tient à quelques personnages, parce qu'aussitôt après on ne sait 
 Ga candidat à la révocation. Continuant son métier et
 1 4 publiant des œuvres sérieuses, il travaille plus utileTue ment pour la justice, pour la vérité, pour la liberté,
 À qu'en faisant du scandale, de l'agitation, de la politique.
-4 Il vient d'écrire un acte. Je lui ai demandé ce nouveau
-eds La preuve que la Grève est bien faite, classique, È
+Il vient d'écrire un acte. Je lui ai demandé ce nouveau
+eds La preuve que la Grève est bien faite, classique,
 ns sincère, c'est que tous les problèmes aujourd'hui posés
 n ; de la grève réelle se posent aussi bien de la grève ainsi
 , représentée. Les trois actes que l'on va lire ne compoï sent pas une pièce à thèse. Ils ne présentent que le
@@ -164,7 +164,7 @@ parlées ne sont désagréables à l'ouie. Les acteurs feront
 ÿ pas en vulgarisant le parler littéraire, mais en imitant
 | le parler populaire lui-même.
 
-3 A l'ouvrier Jean Allemane
+A l'ouvrier Jean Allemane
 
 8, rue de la Sorbonne, au rez-de-chaussée on a à
 : FADERS J des the
@@ -185,19 +185,19 @@ L'auteur est heureux d'avoir trouvé de tels collaborateurs.
 | 114708 Mapame LATOUR, femme de Latour.
 ‘1e Ouvriers et ouvrières personnages muets.
 
-| Le La pièce se passe dans une ville industrielle de province. 4
+| Le La pièce se passe dans une ville industrielle de province.
 Mi M De gauche à droite : au fond petit lit, armoire, lit, tapis
 ci devant ; au premier plan, à gauche la cheminée, à droitela
 Pa _ fenêtre, un peu à gauche table à repasser; chaises.
 
 Chambre d'ouvrier, ornée de quelques images et de
-boules de verre étamées. Haute cheminée de campagne L
+boules de verre étamées. Haute cheminée de campagne
 avec poêle. Au lever du rideau les mères Bajoie et Latour
 causent près de la fenêtre, à droite. La mère Bajoie est
 assise, un panier à ses pieds. La mère Latour met la table
 pour son mari et pour elle.
 
-saoul ; il était plein; plein comme une courge, avec ï
+saoul ; il était plein; plein comme une courge, avec
 des yeux! Quand il est arrivé, je me suis dit
 « Ma petite mère Bajoie, attention, gare au grain;
 plus souvent qu'il coucherait dans mon lit quand il
@@ -262,7 +262,7 @@ A Fe sortir, la porte s'ouvre et Latour entre.
 
 Es. Larour. — Salut, mère Bajoie.
 } 1e € Latour : je m'en vas, mon bonhomme m'attend.
-0 F: de: Larour. — S'il vous attend ! Il est comme moi, la
+F: de: Larour. — S'il vous attend ! Il est comme moi, la
 ; La soupe de ce matin lui est descendue dans les talons.
 ; L j'ai une soupe comme tu n'en as jamais mangé.
 is Larour, brusquement, lui donnant de l'argent, — Tiens,
@@ -281,14 +281,14 @@ qu'il y a quinze jours je gagnais cinquante centimes
 de l'heure, à présent plus que huit sous... pour le à
 même travail. Total vingt-huit francs au lieu de
 Mapame Latour. — Et le pain... les pommes de
-; terre qui raugmentent.… x:
+; terre qui raugmentent.…
 Larour. — Et nos quatre sous d'économies qui AU
 sont partis chez le médecin pour le petit... Tiens, il “4
-me prend des envies de me croiser les bras et de ne ü
+me prend des envies de me croiser les bras et de ne
 plus rien faire. Avoir sué sang et eau, n'avoir “
 jamais rigolé pour en arriver là.
 MapamE Larour. — Allons! mon gars, ne te
-laisse pas monter la tête, toi si raisonnable. Qu'est- j
+laisse pas monter la tête, toi si raisonnable. Qu'est-
 
 Jean Hugues. — la Grève
 Larour. — Les patrons veulent toujours gagner
@@ -356,7 +356,7 @@ ue: Guérin. — C'est pas de refus.
 
 14 #1 D. Larour.— Allons, ma bonne femme, va nous vo # chercher du vin; ça te donnera des couleurs. 11 sourit.
 Mapame Larour.— J'y vas, ivrogne. Elle sourit et sort.
-4 LAToUR, à Guérin. — Alors comme ça... 11 mange. d
+LAToUR, à Guérin. — Alors comme ça... 11 mange.
 ‘is Le: GuÉRIN, près de la fenêtre. — Voilà. C'est un com- F'
 ‘# pagnon frappeur qu'allait au magasin. Là, il ren-
 
@@ -367,7 +367,7 @@ __ quer avec nous. Ouvrant la fenêtre. Hé Lantier! monte
 
 _ donc boire un coup, je l'invite.
 
-Nu: LANTIER, dans la rue. — Bonjour, Latour; j'y vas à 4 ; tout de suite. d
+Nu: LANTIER, dans la rue. — Bonjour, Latour; j'y vas à 4 ; tout de suite.
 D: Larour. — Un gars avec lequel j'allais cueillir
 a des mûres quand il était pas plus haut qu'un marD. teau à devant. ge
 
@@ -375,14 +375,14 @@ GUÉRIN. — Ça va bien. — Il te racontera son affaire mieux que moi. Je ne s
 = LANTIER, entrant. — Bonjour la compagnie. His se
 serrent la main,
 Larour. — Eh bien? Quelle tuile! Te voilà
-débauché à cette heure, à cause que. è
-LANTIER, d'une voix concentrée. — A cause que le ai père Bizot est un cochon! s
+débauché à cette heure, à cause que.
+LANTIER, d'une voix concentrée. — A cause que le ai père Bizot est un cochon!
 GUÉRIN. — Ça, c'est la vérité vraie. Encore hier, $
 
 il m'a retenu une pièce de cinq sous pour être resté
-trop longtemps aux cabinets. Rires. Ah mais! c'est i
+trop longtemps aux cabinets. Rires. Ah mais! c'est
 comme je vous le dis.
-| LANTIER, un peu plus calme. — C'est un cochon, y a ï
+| LANTIER, un peu plus calme. — C'est un cochon, y a
 pas à sortir de là, celui qui dirait le contraire est un
 GUÉRIN. — Oui, oui, c'est la vérité, aussi vrai
 que je crache. 11 crache.
@@ -391,9 +391,9 @@ Lanrier. — Voilà l'histoire. — Vous connaissez À
 
 mon compagnon ? le père Mautard, un vieux de la
 vieille, solide au poste, qui dit toujours son mot,
-un forgeron fini, quoi. Signes d'assentiment. Il m'envoie :H
+un forgeron fini, quoi. Signes d'assentiment. Il m'envoie
 rechanger sa grosse lime d'Allemagne au magasin,
-rapport à quelques lopins qu'il avait à ébarber. s.
+rapport à quelques lopins qu'il avait à ébarber.
 
 Moi, tranquille comme Baptiste, j'y vas. On s'at- ne, tend pas toujours au malheur, pas vrai ?
 
@@ -417,7 +417,7 @@ voilà l'autre chien qui se met à crier : « Ta lime !..
 _ talime!.… Mais tu la changes tous les deux jours!
 | C'est pour flemmarder... et patati.. et patata… » Il
 f n'en finissait plus.
-4 GuÉRIN. — Il marronnait, le frère.
+GuÉRIN. — Il marronnait, le frère.
 LanTiER. — Quand il s'a tu, j'y ai dit tout sim-
 
 plem : « Tout ça, c'est des paroles en l'air; j'ai changé
@@ -505,7 +505,7 @@ entrées. Et pendant tout l'acte, leur attention doit se porter
 à montrer par des gestes l'intérêt qu'ils prennent aux
 différents récits qui vont suivre.
 
-S'il y a une figuration féminine, la scène aura plus de grandeur et de pittoresque. Les femmes seront assises, les ù
+S'il y a une figuration féminine, la scène aura plus de grandeur et de pittoresque. Les femmes seront assises, les
 hommes groupés, presque tous debout, les autres appuyés,
 accoudés ou assis sur la table à repasser. Le metteur en
 scène se proposera de former sur le théâtre des masses
@@ -560,7 +560,7 @@ que son maître — le nôtre, quoi — donne raison au
 contre-coup, qu'il connaît l'affaire, que Lantier est
 un voyou, que nous étions des révoltés imbus de
 
-4 W N _ Jean Hugues. — la Grève
+W N _ Jean Hugues. — la Grève
 #1 préjugés et que pour lors il ne voulait pas nous
 4 . entendre, n'ayant pas à traiter d'égal à égal avec
 a . Ux ouvrier. (2) — Il a fait dire tout ça, le capon;
@@ -571,12 +571,12 @@ RE - tout chambarder; à faire une révolution comme on
 à Fil ‘ dit. Les uns serraient les poings, les autres
 She ouvraient des mirettes comme des masses et flamb ue ._ bantes comme des braises. Le petit Vertillet a crié
 Li We ‘dans l'antichambre : « Le contre-coup est un
-00 UNE Femme. (1) — Ah! mon Dieu! Vertillet a
+UNE Femme. (1) — Ah! mon Dieu! Vertillet a
 Air Uxe remmx. (2) — Chez le patron ?
-17 Les nommes. — Chut, la mère ; allez, père MauÀ BL) tard.
+Les nommes. — Chut, la mère ; allez, père MauÀ BL) tard.
 hi. Il disait que le contre-coup était un assassin, à
 24 preuve qu'il avait engrossé la petite Louise Duflos…
-Uxe remuer. (2) — Oui, la pauvre mignotte.. É.
+Uxe remuer. (2) — Oui, la pauvre mignotte..
 
 Le PÈRE Maurarp. — Et qu'elle s'était suicidée
 de peur d'être la risée du monde. Puis voilà le bel ne.
@@ -584,8 +584,8 @@ Antoine qui crie à son tour : « On est traité comme
 des chiens, les chiens sauront mordre. » Alors on
 est parti, on s'est réuni. Eh bien, tu y étais, le Parisien, continue donc.
 
-regarde dans le blanc des yeux sans trop savoir c
-quoi faire. Alors pas, y a le père Violet qui propose Ô
+regarde dans le blanc des yeux sans trop savoir
+quoi faire. Alors pas, y a le père Violet qui propose
 de faire une réunion publique. À
 
 QueLques voix. — Une réunion publique!
@@ -593,7 +593,7 @@ QueLques voix. — Une réunion publique!
 jamais fait!
 père Violet, un bon à la côte, se met en colère, il à
 grimpe sur ses grands chevaux. « Tant mieux, %
-qu'il dit, c'est une raison. Vous en verrez une. S
+qu'il dit, c'est une raison. Vous en verrez une.
 Vous êtes des croquants, des lâches ! » Alors pas, le À
 voilà en colère : « On vous traite en chiens, qui
 nous crie, on vous en fait pas assez. Vous êtes des
@@ -601,7 +601,7 @@ brutes qu'on devrait mener à coups de pied dans les
 fesses, — du côté des dames : sauf votre respect. Oh
 alors! quel chabannais! On se lève, on proteste, on
 crie, un boucan épatant, quoi! Le père Mautard que
-voici se lève et dit tranquillement : « Taisez-vous È
+voici se lève et dit tranquillement : « Taisez-vous
 donc, tas d'imbéciles, vous êtes tous d'accord et
 vous vous disputez comme des députés. Rires. On ‘100
 
@@ -667,13 +667,13 @@ ge A Ux ouvrier. (3) — Le voilà, taisons-nous.
 1 ; tambour, voix d'homme disant :
 a De la part du Comité à tous les ouvriers de la
 
-1 Un des nôtres a été insulté, menacé, renvoyé par
+Un des nôtres a été insulté, menacé, renvoyé par
 un contremaître. Il a subi une injustice dégradante
 504 pour tous. À moins d'être des animaux, nous
 DEA Re, devons nous unir. Cet affront, nous le souffrons tous
 / E À comme si chacun de nous l'avait reçu. Nous devons
 te F* publique, salle du Zapin Blanc, à huit heures préTON cises du soir.
-4 HA Ordre du jour : La grève. Tambour.
+HA Ordre du jour : La grève. Tambour.
 
 À ne Rideau
 
@@ -681,7 +681,7 @@ te F* publique, salle du Zapin Blanc, à huit heures préTON cises du soir.
 4 “1% Le père MAUTARD, ouvrier forgeron. .:
 | M 0 Groupesd'ouvriersassez importants. .
 ‘4 Les MÊMES, moins les cinq ouvriers et les groupes
-‘140 qui étaient dans la salle. È
+‘140 qui étaient dans la salle.
 
 Au fond une estrade avec une table. — Sur l'estrade, un
 président, un assesseur. — A la table, le secrétaire. — Au
@@ -709,7 +709,7 @@ on veut, on peut toujours quand on veut ! ApplaudisseÀ ments. Est-ce que vos am
 # Auvergne, avaient jamais fait grève? Nese sontA ils point décidés ? N'ont-ils pas été payés de leur
 4 petit sacrifice par une victoire glorieuse et profif ; table ? Si! Vous aussi, camarades, vous réussirez...
 ; Uxe voix. (2) — Ne manquerait plus que Ça. Rires.
-46 L'ORATEUR. — Sachez ceci, camarades : vos
+L'ORATEUR. — Sachez ceci, camarades : vos
 à Ë patrons se sont formés en syndicat avant vous,
 “4 contre vous, vous qui n'osez pas vous syndiquer.
 É Réunis, vos maîtres escomptent votre peau, mais
@@ -740,7 +740,7 @@ mon tour... Les uns voulaient qu'on chôme; les
 autres pas. Moi, j'ai écouté avec toute mon intelli- $
 faut point : c'est à vous de Le savoir. Mouvements. Je
 : ne sais pas parler. Je ne suis point un orateur. Je A
-n'ai jamais été dans les écoles. Je suis un ouvrier, F
+n'ai jamais été dans les écoles. Je suis un ouvrier,
 quoi! Vous me connaissez bien, peut-être? Mais
 | enfin, tout ignare que je suis, j'ai mon entendement tout comme ceux de Paris et m'est avis que
 vous ne perdrez pas votre temps à entendre mes
@@ -774,7 +774,7 @@ d'être traité en chien! Mouvements. Nous sommes,
 1 voilà insulté avec lui ». Nous le sommes itou.
 i chose ne l'arrivera pas à toi, père Jean; 11 les désigne
 4 ; du doigt dans la salle — à toi, Chevet; à toi, Massard..
-44 Des voix. — C'est vrai.
+Des voix. — C'est vrai.
 
 cette injustice sans dire notre mot, nous serions
 donc des lâches.… Pause. Avec force : Mais nous serions
@@ -792,7 +792,7 @@ débauché, j'étais comme un lion. Ah! le contremaître a bien fait de ne pas v
 Il ne serait point sorti vivant de ces poings! Applaudissements. — Plus calme. Eh bien! mes petits amis, c'est
 pas tout ça; faut pas s'emballer. Vous êtes assez
 grands pour vous conduire. Vous avez entendu des
-parlottes pour et contre la grève. Vous allez v.
+parlottes pour et contre la grève. Vous allez
 
 Des voix. — La grève! la grève!
 Le Père MauranD. — Écoutez donc! vous allez
@@ -826,11 +826,11 @@ l UXE voix. — Ils ne sont pas des tas!
 % Des vorx. — Vivent les syndiqués!
 pu. Le PRÉSIDENT. — .. Maintenant, voulez-vous la
 jo grève, oui ou non?
-Presque Tous. — La grève! s.
-Le PRÉSIDENT. — Ceux qui ne sont pas d'avis? é
-L'ORATEUR, qui se substitue au Président. — A l'unani- À S
+Presque Tous. — La grève!
+Le PRÉSIDENT. — Ceux qui ne sont pas d'avis?
+L'ORATEUR, qui se substitue au Président. — A l'unani- À
 mité moins une voix, la grève est votée. he
-LE PRÉSIDENT, regardant autour de lui. — La séance w
+LE PRÉSIDENT, regardant autour de lui. — La séance
 est levée. Chacun se lève, tumulte, bruit de chaises, cris : Vive la grève! — Sortie en désordre. — Quête à la porte. Se
 réunissent sur le devant de la scène. Une ou deux femmes.
 L'orateur, le père Mautard les y rejoignent. Quelques petits dr:
@@ -855,7 +855,7 @@ Ux ouvrier. (3) — Où logent-ils ?
 Ux ouvrier. (1) — Où ils logent? Chez le patron,
 UX ouvRIER (3) riant. — En voilà un qui ne doit
 | pas être à son aise!
-* Ux ouvrier. (4) — Dame, il n'y a pas de quoi être N
+* Ux ouvrier. (4) — Dame, il n'y a pas de quoi être
 1 rassuré. Le contremaître, le père Bizot, a pris un À
 mauvais coup. Il a la tête en sang, à ce qu'il paraît.
 Vous pensez s'ils sont à la noce!
@@ -947,12 +947,12 @@ Fe pensez de notre pays?
 BE - L'oRATEUR. — Eh mais, ils marchent!
 # Larour. — Croyez-vous qu'on réussira ?
 cs L'ORATEUR, en souriant. — Mon ami, je vous réponË drai dans quelques jours.
-42 LE PaRistEN. — Voyez-vous la réponse du Normand ! On rit.
-4 Le PÈRE Maurarp. — C'est juste quand même. À
+LE PaRistEN. — Voyez-vous la réponse du Normand ! On rit.
+Le PÈRE Maurarp. — C'est juste quand même. À
 7e On rit. Je m''entends... Je les connais, vous savez,
 be ceux d'ici. Ils vont suivre pendant deux jours, puis
 ü après, bernique.. Ils vont rappliquer à l'abattoir » comme des moutons.
-3 L'orATEur. — Savoir. Je les connais aussi les
+L'orATEur. — Savoir. Je les connais aussi les
 È ouvriers, et ji Jougienpe: Mages cela, ilm'est
 K : toujours diflicile de prévoir l'issue d'une grève.
 ke C'est une affaire si compliquée. question d'argent.
@@ -1007,8 +1007,8 @@ de chez nous.
 Larour. — Je ne dis pas... Je ne dis pas... C'est
 bien parler... oui, oui...
 Guérin. — Eh bien! quoi ?
-1 Larour. — C'est bien parler... je ne dis pas,
-mais si j'avais su. Î
+Larour. — C'est bien parler... je ne dis pas,
+mais si j'avais su.
 L'ORATEUR , subitement en colère. — Nom de Dieu! Vous
 m'embêtez, vous ! Il est encore temps; si vous avez
 la trouille, fichez-moi le camp... Latour se tait et s'écarte
@@ -1203,7 +1203,7 @@ Ux ouvrier. (3) — Ni à moi.
 parce que t'as de l'instruction, mais c'est tout de
 | même à cause de toi que j'ai perdu quatre journées,
 | vingt balles, quoi!
-4 Boxrewrs, faisant taire le père Mautard. — A cause de
+Boxrewrs, faisant taire le père Mautard. — A cause de
 ; moi ? Et comment ça?
 Gros-JEAN. — Comment ça? Eh bien, elle est
 bonne celle-là! Mais parce que je ne les ai pas
@@ -1246,7 +1246,7 @@ Larour. — Sûr.. on devait, on doit lutter.
 | . LE PÈRE MAUTARD, à mi-voix à Latour lui serrant la main.
 Gare aux cafards. Haut. Tu parles bien, mais vois-tu,
 ; mon vieux, les gars de par ici n'ont pas plus de
-moelle que ce verre. l
+moelle que ce verre.
 : Boxremrs.—C'est vrai, ils ont eu peur d'attendre.
 Gros-JEAN. — Attendre! Attendre! pas vrai. Ils
 { sont tordants, ces clients-là. Attendre pour que les
@@ -1256,21 +1256,21 @@ Gros-JEAN. — Attendre! Attendre! pas vrai. Ils
 
 | employer, et avec du rabais encore! D'abord, ce sont
 des Juifs, tous ces Pruscots-là ! Signes d'assentiment.
-Le PÈRE MAurTaARD ». — Pense voir !... Tiens, c'est J
+Le PÈRE MAurTaARD ». — Pense voir !... Tiens, c'est
 idiot, ce que tu nous sors là!
 GRros-JEAN. — Idiot! idiot!... idiot toi-même, tu ‘
-sais, mon vieux père! e
+sais, mon vieux père!
 LE PÈRE MAUTARD, se levant, trés fort, avec fracas. Br B à
 Ah! bon Dieu de bon Dieu! je... On les arrête.
 GRos-JEAx.— Bonne réponse... Quand on a plus À
 rien à répondre. On rit. — Le silence se rétablit.
-Boxtemps.— Tu as parlé tout à l'heure d'Alle- J
+Boxtemps.— Tu as parlé tout à l'heure d'Alle-
 mands, d'Anglais? Crois-tu que ce soient des
 - hommes comme te voilà, toi?
-BoxremPrs. — Ils n'ont donc point le droit de K
-manger du pain ? e
+BoxremPrs. — Ils n'ont donc point le droit de
+manger du pain ?
 Gros-JEAN. — À manger du pain, je ne dis pas;
-mais le nôtre? Halte-là! Applaudissements. S
+mais le nôtre? Halte-là! Applaudissements.
 LE PÈRE MAUTARD, entre ses dents. — Bien, claquez
 des battoirs! Rira bien qui rira le dernier.
 BoNTEMPs, à Gros-Jean. — Bien répondu, mon gars. $
@@ -1305,7 +1305,7 @@ Bonremps. — Allons, allons, ma brave Irma,
 regarde donc autour de toi. Hermann, qu'est
 homme de peine, est Juif : est-il riche? Parisol qui
 | est riche est-il Juif ?
-4 Ux ouvrier. — Un homme en vaut un autre.
+Ux ouvrier. — Un homme en vaut un autre.
 
 BoNTEMPS, un peu emballé. — Eh bien alors! N'insultez donc jamais des hommes parce qu'ils sont
 d'une autre religion ou d'un autre pays... Est-ce
@@ -1361,7 +1361,7 @@ F Ux ouvrier. (4) — Bien sûr; avec vos pleurnichailleries. € Y a plus de pa
 $ entendre raison ; mais ceux qui sont les plus fautifs
 ù à mon avis, ce sont ceux qui sont rentrés les pre-
 | UK ouvrier. (3) — C'est pas moi, moi j'étais à
-1 È battre le blé avec Pierre Viard, mon beau-frère,
+È battre le blé avec Pierre Viard, mon beau-frère,
 ? . UX AUTRE oUvRIER. (4) — C'est Godefroy.
 
 matin, j'étais ici à boire un vin blanc, c'est-i vrai
@@ -1376,7 +1376,7 @@ UXxE FEMME. (4) — Eh bien, vous en menez une
 vie avec votre épouse ! Gros rires. Y
 entrés sans demander l'avis d'aucun et de personne,
 — sauf votre respect.
-Ux ouvrier. (4) — Y avait Chauvel, le grand s
+Ux ouvrier. (4) — Y avait Chauvel, le grand
 L'ouvrier. (1) — Oui, Chauvel, Gigol, Persot,
 Maignan, je les retiens, ceux-là !
 Gros-JEAN. — C'est à crever... Le matin, ils
@@ -1436,7 +1436,7 @@ pas m'en vouloir, Rires — toi qui sais tout.
 
 UxE FEMME. (3) — Par le fait, quasiment tout.
 
-1 Boxremes. — Heu! enfin! j'ai plus souffert aussi.
+Boxremes. — Heu! enfin! j'ai plus souffert aussi.
 J'ai étudié au collège et dur.
 Larour. — Pour passer des examens, quoi.
 BonremPs. — À ce moment, le père est mort. Il a
@@ -1478,7 +1478,7 @@ K de bons petits gosses que j'aime et qui m'aiment
 Le Père MAUTARD. — Quoi? des rentes?
 BoxrEemPs.— Qu'on soit tous à peu près heureux.
 il a bon cœur... il pense aux autres; moi, il me
-plaît, Bontemps! On rit. j
+plaît, Bontemps! On rit.
 UNE AUTRE. (4) — Dommage qu'il soit marié,
 hein, la petite mère? On rit.
 Bonremps. — Oui, je voudrais bien vous faire
@@ -1491,7 +1491,7 @@ C'est bon, on vous les expliquera, ces questions,
 Les OUVRIERS, avec étonnement, — La prochaine
 Le PÈRE MauTARD. — Mais oui, celle-ci, c'est le
 Bonremps. — A la prochaine grève, on ne vous
-fera plus agir, vous agirez... comme des hommes. È
+fera plus agir, vous agirez... comme des hommes.
 Le père MauTARD. — Oui, et vous ne ferez plus
 ce que vous avez fait.
 Les ouvriers. — Et quoi?
@@ -1547,10 +1547,10 @@ bien. On se cause, on se connaît.
 
 we Des voix. — Oui, oui, c'est ça, il a raison, c'est
 Po BoNTEMPS, plus grave. — Serrons-nous les coudes.
-18 D'ici quelque temps, des coupes noires seront faites
+D'ici quelque temps, des coupes noires seront faites
 Fe en nos rangs. Ce sera le moment. Le patron
 Ève donnera le signal, il faudra marcher.
-2 Ux ouvrier. (4) — C'est ça.
+Ux ouvrier. (4) — C'est ça.
 C2 Boxremps. — Et dans cette grève, nous pourrons
 Mr. réussir, nous réussirons.….
 E.. BoxTEMPs, souriant, — Elles ont raison aussi elles.
@@ -1575,7 +1575,7 @@ pleinement suflisante pour que l'on songe enfin à remiser
 sérieusement cet encombrant et superflu guignol qui porte
 ombre au monument du grand Corneille.
 
-3 M. Camille de Sainte-Croix nous avait habitués à de
+M. Camille de Sainte-Croix nous avait habitués à de
 la tenue. Il est fort aimable pour tous les contemporains.
 Il ne néglige, il ne maltraite aucun vaudeville. On
 pouvait espérer qu'il n'endossait pas sans réserve les
@@ -1617,9 +1617,9 @@ revues, tambours et marches militaires, les amateurs
 de décorations vont précipiter leurs platitudes aux
 pieds du radicalisme ofliciel, héritier politique de Victor
 Hugo. Qu'il nous soit donc permis de dire aujourd'hui
-que nous aimons, que nous respectons un grand poète Ë
+que nous aimons, que nous respectons un grand poète
 
-(1) Je descends-au-peuple; tu descends-au-peuple; il descend-au- L
+(1) Je descends-au-peuple; tu descends-au-peuple; il descend-au-
 
 Plusieurs de nos abonnés nous demandaient que jouer
 de bref dans une représentation populaire. Nous nous
@@ -1651,7 +1651,7 @@ Nous publierons de Romain Rolland un cahier sur le théâtre populaire.
 * Plusieurs de nos abonnés, pour se former en connaissance de cause un jugement raisonné, juste, nous ont
 Er demandé de publier l'article Wagram, sur lequel s'est
 : portée l'attention dans l'affaire Hervé. J'ai transmis
-| aussitôt leur demande à Hervé. Cet article est postéù rieur à l'ouverture des poursuites, au commencement L
+| aussitôt leur demande à Hervé. Cet article est postéù rieur à l'ouverture des poursuites, au commencement
 de l'affaire. J'espère que nous en recevrons le texte .
 à temps pour le publier dans le septième cahier. Il faut
 noter que, conformément à la méthode que nous avons
@@ -1661,7 +1661,7 @@ liberté, sous sa responsabilité. Je ne suis intervenu
 aussi que sous ma responsabilité. Je continuerai.
 Les événements sont trop avancés pour que l'on puisse
 “6 plus longtemps se taire. J'apporterai dans le prochain
-0 cahier mon*témoignage. Non pas que j'aie à faire des s
+0 cahier mon*témoignage. Non pas que j'aie à faire des
 L révélations sensationnelles. Je n'ai pas découvert un
 Le crime inouï. Je reproche au contraire à M. Gustave Téry
 | d'avoir commis les fautes usuelles dans une affaire où à
@@ -1732,7 +1732,7 @@ Boutade inexacte : Je ne l'ai pas accusé d'intolérance
 formellement. J'ai noté ton article comme un symptôme
 inquiétant d'intolérance croissante. Je ne suis pas
 volontiers accusateur, ni condamneur, ni flétrisseur.
-Tout le monde n'est pas des congrès. Î
+Tout le monde n'est pas des congrès.
 
 Réellement tu as contribué à supprimer sous des
 clameurs la parole d'un adversaire. J'ai dit et je maintiens que, dans les circonstances où nous sommes, -

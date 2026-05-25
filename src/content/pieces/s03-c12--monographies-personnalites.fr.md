@@ -15,7 +15,7 @@ verront que nous ne faisons dans ces cahiers aucune
 réclame. Ce qui suit n'est donc en aucun sens de Ru
 
 Je me permets d'insister pour que nos abonnés di page 249, le coupon qui leur permet d'aller avec un Ne
-ami assister à une représentation dù 14 Juillet. Moi e
+ami assister à une représentation dù 14 Juillet. Moi
 qui ne mets jamais les pieds au théâtre, j'y suis allé.
 J'y retourne. Il y a un intérêt considérable, comme je
 lexpliquerai dans un prochain cahier, à soutenir très
@@ -87,7 +87,7 @@ Pendant que les personnages continuaient à s'adresser
 des paroles subtiles ou dures, soudain et lentement
 le chœur s'émouvait. Ce chœur n'était pas composé à
 de vieillards thébains, mais de citoyens français,
-hommes libres amis de la droiture. Aussi le chœur Ë
+hommes libres amis de la droiture. Aussi le chœur
 ; ne laissait-il pas échapper des soupirs, des sanglots et
 des paroles de lâcheté, mais il prononçait des paroles
 dures et libres et droites, audacieux et lui-même étonné À
@@ -132,7 +132,7 @@ cahier, comme vous dites un peu avaricieusement, j'en
 suis heureux pour vous, car ce cahier est ainsi devenu
 l'image plus fidèle de la réalité. La réalité même, citoyen,
 a été dangereusement envahie par ces personnalités.
-Vous m'avez exposé, un peu verbeusement, comme un L
+Vous m'avez exposé, un peu verbeusement, comme un
 auteur qui a manqué sa pièce, un plan de cahier en
 trois parties bien disposées et bien composées : ces
 personnalités ont dérangé beaucoup de plans d'action
@@ -234,7 +234,7 @@ propos ; donc il pensaït que l'on doit parler induction
 et déduction quand il faut, ainsi que le menuisier parle
 tenons et mortaises.
 
-4 Dans l'ordre de la connaïssance, continua le docteur,
+Dans l'ordre de la connaïssance, continua le docteur,
 faire des personnalités ne peut avoir qu'un sens : attribuer à certaines personnalités une action donnée. Je
 
 suppose que tel événement se produise : on dira que
@@ -258,12 +258,12 @@ Vaillant, de Lafargue et de Guesde la plupart de cet
 de personnalités ?
 
 — C'est ce que je me demande en vain, et j'en arrive
-ici à ne plus même saisir le sens de la question que ù
+ici à ne plus même saisir le sens de la question que
 vous m'avez posée.
 
 — Pourtant, citoyen docteur, au moment où je vous
 l'ai posée il me semblait bien qu'elle avait un sens. Dans
-toutes les discussions publiques, aussitôt qu'onréplique F
+toutes les discussions publiques, aussitôt qu'onréplique
 à un orateur : « vous faites des personnalités », ‘ou
 bien : « ne faites pas de personnalités », l'orateur se
 tait et s'excuse ; il recommencera l'instant d'après, mais,
@@ -397,7 +397,7 @@ démagogues. Mais il se peut aussi que les démagogues
 soient pour un temps les plus forts, et je n'ignore pas qu'à force d'avoir été mis en interdit par tout le monde
 on finit par se trouver tout seul, et que les amitiés
 se font rares, et qu'en face d'un parti commode à
-ses partisans celui qui est seul et malheureux finit toujours par avoir tort. R
+ses partisans celui qui est seul et malheureux finit toujours par avoir tort.
 
 Le docteur continuait lentement et bassement; il regardait en soi et parlait tristement; je le laissais
 continuer; il avait abandonné la consultation qu'ilavait
@@ -555,7 +555,7 @@ s nous présente.
 — Enrègle générale nos cahiers ne seront pas réimprimés. Jusqu'à ce que nous y soyons morts, et tout fait
 croire que ce ne sera pas de sitôt, nous regarderons le
 travail à faire et non pas le travail fait. Je me permets
-4 de reproduire aujourd'hui ces anciens entretiens parce Û
+4 de reproduire aujourd'hui ces anciens entretiens parce
 qu'il ne nous reste plus de la première série que cinq
 collections complètes, parce que ces collections valent
 cent francs chaque, parce que la région de nos abonnés À
@@ -758,7 +758,7 @@ imaginaire. Quelqu'un à qui je n'ai jamais rien fait,
 M. Beaulavon, m'écrivit une lettre injurieuse. Les gens
 de lettres furent presque aussi effrayés que les universitaires.
 
-Depuis plusieurs mois beaucoup de nos abonnés veulent bien regretter que nous n'ayons pas continué nos ner | < ù
+Depuis plusieurs mois beaucoup de nos abonnés veulent bien regretter que nous n'ayons pas continué nos ner | <
 anciens entretiens. Pourquoi, me disent-ils, pourquoi
 n'allez-vous plus trouver ce docteur socialiste révolutionnaire moraliste internationaliste, qui vous donnait
 de si fructueuses consultations ? Pourquoi n'êtes-vous
@@ -791,14 +791,14 @@ Je dois avouer que survenant aprèstrois semainesau
 moins de maladie et de fatigue, au milieu des soucis
 que j'ai, l''émoi causé parmi certains universitaires par
 le septième cahier m'a fait beaucoup de peine. Je suis .
-profondément heureux que nos abonnés me communiquent aussi sincèrement, aussi entièrement, sans È
+profondément heureux que nos abonnés me communiquent aussi sincèrement, aussi entièrement, sans
 réserve, sans déperdition, en toute probité, aussi sévèrement, aussi instantanément, leurs impressions. Mais
 je fus profondément peiné que certains de nos cahiers
 eussent été lus aussi vainement.
 Je suis frappé de ceci : aucun de nos abonnés non
 universitaires, aucun de nos abonnés non intellectuels,
 aucun de nos abonnés peuple, aucun de nos nouveaux
-abonnés ne s'est plaint que nous eussions fait des personnalités. L
+abonnés ne s'est plaint que nous eussions fait des personnalités.
 Le peuple, qui met sa peau tous les jours dans les
 batailles où nos chefs r'exposent pas même leurs commodités, le peuple entend très bien que dans lesredoutables batailles civiques on y aïlle corps pour corps.
 Le peuple entend, quand on se bat, qu'on reçoive des
@@ -859,23 +859,23 @@ commence à recevoir la fausse culture, on lui enseigne
 la politesse, et que la bataille humaine est une cérémonie. En même temps qu'on lui apprend à danser, on
 lui apprend qu'il ne faut pas se commettre à faire des
 personnalités. Les vertus salonnières font commettre h)
-plus de crimes par plus de lâchetés que tous les vices t
+plus de crimes par plus de lâchetés que tous les vices
 n'en font commettre par toutes les faiblesses de droit
 L'automatisme intellectuel a une incroyable force.
 Vieillis avant l'âge par la fausse culture, les esprits
-automatiques ne répondent plus au perpétuel rajeunis- H
+automatiques ne répondent plus au perpétuel rajeunis-
 sement de la réalité universelle. Je suis frappé de ceci:
 que ce ne sont pas, à beaucoup près, les universitaires,
 comme tels, qui lisent le mieux nos cahiers. Ce sont les
 esprits inhabitués, c'est-à-dire neufs, les esprits inha- :
-bituables, c'est-à-dire poètes, perpétuellement neufs, - w
+bituables, c'est-à-dire poètes, perpétuellement neufs,
 puis les esprits universitaires laborieusement déshabitués, rafraîchis, qui nous entendent comme il nous
 Ce qui me navre, ce n'est évidemment pas que l'on
-ne soit pas de mon avis. J'aime toute liberté. Ce qui î
+ne soit pas de mon avis. J'aime toute liberté. Ce qui
 m'attriste, c'est que nos cahiers servent si peu, au
 moins auprès d'un certain public. Le jour où quelqu'un '
 m'enverra une réfutation sérieuse de la démonstration
-que je viens de reproduire, je serai heureux de publier U
+que je viens de reproduire, je serai heureux de publier
 cette réfutation. Mes opinions n'ont jamais eu dans nos ‘1
 
 cahiers une hégémonie économique sur les opinions
@@ -906,7 +906,7 @@ contradictoires, les plus inconciliables peuvent juxtaexister. Les élèves sont
 que la vie. De là sans doute le perpétuel émoussement
 des universitaires. Ceux qui sont restés âpres le doivent à leur génie et non à leur métier. Nous qui sommes affrontés à la rude pauvreté, nous qui avons à
 faire nos budgets mensuels, nos budgets quotidiens, la
-vie se charge de nous rafraichir l'âpreté native. Et nous n'avons pas pour les personnalités dangereuses l'émous- ù
+vie se charge de nous rafraichir l'âpreté native. Et nous n'avons pas pour les personnalités dangereuses l'émous-
 sement indulgent des universitaires accoutumés, des
 Le métier universitaire en cela ressemble au métier
 politique. Dans la politique aussi les idées les plus inconciliables peuvent juxtaexister. Comme les élèves,
@@ -920,8 +920,8 @@ aurions les reins cassés en moins d'une législature.
 
 On obtient ce résultat: j'ai publié au commencement
 de ces cahiers la démonstration que nous avons dû
-reproduire aujourd'hui. Tous mes camarades et tous l
-mes amis lurent la démonstration. Pas un ne fit d'objection. Je pensai qu'ils tombaient d'accord. Je f
+reproduire aujourd'hui. Tous mes camarades et tous
+mes amis lurent la démonstration. Pas un ne fit d'objection. Je pensai qu'ils tombaient d'accord. Je
 pensai que c'était entendu. Je n'avais pas fait ma
 démonstration pour mon usage personnel. J'avais depuis longtemps noté que le préjugé des personnalités !
 était un des plus fréquents et des plus dangereux. Je ki
@@ -929,7 +929,7 @@ constatais que ce préjugé portait le préjudice le plus
 grave à l'action socialiste. Je fis ma démonstration
 pour un usage universel.
 Quelques mois plus tard, le malheur des temps, à
-l'injustesse et l'injustice des hommes, voulut que ma j
+l'injustesse et l'injustice des hommes, voulut que ma
 démonstration précédente universelle me servit pour
 ma défense personnelle et pour la défense personnelle
 de nos cahiers. Toutse passa dès lors commesi je
@@ -987,7 +987,7 @@ n'y exercent. Il ne suflit pas que ce contingent soit
 formé d'amis que j'avais avant la fondation des cahiers
 et qui ont bien voulu me redevenir amis dépuis le commencement de cette série. N'étant pas catholique, je
 n'ai pas autant de joie pour un abonné qui revient que
-pour cent abonnés demeurés solides. Pour les mêmes L
+pour cent abonnés demeurés solides. Pour les mêmes
 raisons que j'aime la modestie et non l'humilité, pour
 
 _ la même raison nous aimons mieux la solidité continue
@@ -1036,7 +1036,7 @@ sur les devoirs de peine et de désagrément, sur les
 devoirs ingrats. Je n'ai jamais promis que ces cahiers
 seraient un jardin délicieux, fleuri d'aisance et de
 béatitude. Nous sommes ici pour travailler. Nés dans
-une société ingrate et laide, il n'est pas étonnant que F
+une société ingrate et laide, il n'est pas étonnant que
 nous ayons des devoirs ingrats et laids. Car c'est
 justement en déblayant les ingratitudes et les laideurs
 proposées que nous courons le risque suivant: que .
@@ -1109,8 +1109,8 @@ comme tout mensonge, mensonge aussi de mentalité,
 comme toute erreur volontaire de jugement et d'attitude. Je la nomme la loyauté réelle.
 Je prétends que la paix n'est ferme, dans son genre,
 que si la guerre précédente a été ferme, dans son genre.
-Ici l'amertume est salubre. Et c'est la tiédeur, la fadeur, E
-la quiétude et la moiteur des complaisances moisies i
+Ici l'amertume est salubre. Et c'est la tiédeur, la fadeur,
+la quiétude et la moiteur des complaisances moisies
 
 qui est pernicieuse. Loin que l'amertume et l'aigreur,
 comme on le croit communément, soient deux degrés,
@@ -1223,7 +1223,7 @@ Pour cette raison, et pour des raisons que je dirai
 ailleurs, nos cahiers sont variés, libres. Jusqu'à présent,
 parmi tant de malheurs, nous avons eu ce bonheur que
 ce régime a parfaitement convenu aux auteurs des
-cahiers indépendants. Épuisant eux-mêmes leur liberté, l
+cahiers indépendants. Épuisant eux-mêmes leur liberté,
 ils admettaient, ils demandaient que le voisin de droite
 ou de gauche, d'avant ou d'arrière, d'envers ou d'endroit épuisât la sienne. Ce régime a parfaitement convenu aux auteurs, matériellement plus engagés, des
 articles indépendants. Je dis matériellement plus
@@ -1400,7 +1400,7 @@ cours de M. Bergson est un cours parmi tant de
 Nous avonsraison où nous avons tort, et nous demandons qu'on nous examine et qu'on nous critique. Mais
 nous savons que notre méthode est nouvelle. Non pas
 nouvelle en imagination, car on y a pu penser avant
-nous, mais nouvelle en réalisation, car nous sommes L
+nous, mais nouvelle en réalisation, car nous sommes
 les premiers en date qui ayons réussi à publier la vérité !
 
 que nous savons de ce qui tient à la révolution sociale,
@@ -1449,13 +1449,13 @@ Ou Le Mouvement n'a aucune institution, ou il est fait
 parmi nous pour ne pas laisser avachir le sens du socia- (l
 lisme, pour garder au mot même, et pour exiger qu'on
 lui garde son intégrité.
-Nous ne pouvons compter que sur nous-mêmes. Partout ailleurs les opinions des hommes varieront, et il y Ë
-aura des retours imprévus. Nous n'aurons pas seulement contre nous les démagogues affirmés que nous F
+Nous ne pouvons compter que sur nous-mêmes. Partout ailleurs les opinions des hommes varieront, et il y
+aura des retours imprévus. Nous n'aurons pas seulement contre nous les démagogues affirmés que nous
 attaquerons. Nous aurons contre nous, plus encore sans
-doute, les complaisants, les faïbles, qui ne veulent pas é
+doute, les complaisants, les faïbles, qui ne veulent pas
 se battre, et qui ne pardonnent pas que l'on se batte ‘À
 sans eux. à
-Nous aurons souvent avec nous des auxiliaires momentanés. Nous les accueillerons toujours sincèrement. J
+Nous aurons souvent avec nous des auxiliaires momentanés. Nous les accueillerons toujours sincèrement.
 Nous leur accorderons toujours le crédit le plus long
 que nous pourrons. Nous travaillerons loyalement avec (4
 eux. J'ai une théorie du crédit moral que j'exposerai
@@ -1515,7 +1515,7 @@ ainsi : Mon cher Péguy, je ne connais pas Téry, mais...
 un an, mais il ne faut pas faire de personnalités. Enfin
 pour qui me prend-on ? Que diraient nos professeurs,
 Jlevait et disait : Monsieur, je n'ai jamais lu un mot de
-Pierre Corneille, mais je persiste à croire qu'il était un J
+Pierre Corneille, mais je persiste à croire qu'il était un
 alcoolique invétéré, — de géométrie si un élève d'abord
 se levait et disait : Monsieur, je n'ai aucune idée de ce
 que c'est qu'un triangle isocèle, mais je puis vous
@@ -1537,7 +1537,7 @@ préparaient un chabut ?
 N'oublions pas que je lis scrupuleusement tout ce que
 Téry publie dans la Petite République.
 
-Le peuple, avant la culture, a les proverbes, qui sont Ç
+Le peuple, avant la culture, a les proverbes, qui sont
 déjà dangereux, mais qui ne sont pas tout à fait dangereux, parce que l'on ne croit pas tout à fait que c'est
 de la pensée. Certains intellectuels, après la fausse
 culture, ont les formules, qui sont grossières comme les
@@ -1567,7 +1567,7 @@ M. Waldeck-Rousseau. Je le demande. Y eut-il deux
 
 Je ne demande pas si la constitution de ce ministère
 fut heureuse ou non; je ne demande pas si le gouvernement de ce ministère fut bon ou mauvais : nous
-examinerons en son lieu. Je demande si le gouverne- ï
+examinerons en son lieu. Je demande si le gouverne-
 ment de ce ministère fut ou ne fut pas le gouvernement
 personnel de M. Waldeck-Rousseau. Et sous l'aspect à
 des institutions parlementaires je demande si nous
@@ -1575,7 +1575,7 @@ n'avons pas subi, ou eu un gouvernement personnel.
 Je vais plus loin. Non seulement le gouvernement des
 différents ministères particuliers fut sous la personna- À
 lité de M. Waldeck-Rousseau un gouvernement souspersonnel de personnalités secondes ou d'individualités,
-mais l'opposition de gauche faite au ministère Waldeck- j
+mais l'opposition de gauche faite au ministère Waldeck-
 Rousseau ne fut pas plus que l'opposition de droite
 faite par des mouvements du peuple, par des mouve- !
 ments de masse, par des mouvements d'ensemble, par '
@@ -1631,11 +1631,11 @@ déshonoré le débat? Et la tension nerveuse de M.Gohier
 n'est-elle pas devenue un pouvoir constitué en ce pays?
 Je ne dis pas que cela soit bon; mais que cela soit
 niable, je le nie. Moi aussi j'aimerais mieux que ce
-peuple regorgeât de sève, de santé, de personnalité. Û
+peuple regorgeât de sève, de santé, de personnalité.
 Moi aussi j'aimerais mieux que de ce pays montât un
 peuple si abondant de sa personnalité propre que les
-un peuple de luxuriance, une race copieuse, de grande F
-croissance, de poussée drue et de production harmo- j
+un peuple de luxuriance, une race copieuse, de grande
+croissance, de poussée drue et de production harmo-
 
 nieuse. Moi aussi j'aimerais mieux que de la terre
 grasse il vint un regorgement de moissons sans fils de
@@ -1749,12 +1749,12 @@ trompé que ceux qui ne savaient pas voir, et que les
 faux langages parlés n'ont jamais trompé que ceux qui
 n'entendaient pas. Quand donc on m'opposerait que
 Challaye et que Landry n'ont pas besoïn de personnalités étrangères qui les recommandent, pour cette …
-raison que leur style même les recommande,ilnes'en w
-suit pas qu'ils n'aient besoin d'aucune personnalité, il W
+raison que leur style même les recommande,ilnes'en
+suit pas qu'ils n'aient besoin d'aucune personnalité, il
 s'ensuit au contraire qu'ils sont eux-mêmes une personnalité, que cela se lit. C'est parce qu'ils sont une personnalité qu'ils n'ont pas besoin de recevoir de la
-Ce qui m'intéressait dans les courriers que Landry M
-nous envoyait de Chine, ce qui m'intéresse dans le W
-courrier que Challaye nous apporta d'Indo-Chine, c'est w
+Ce qui m'intéressait dans les courriers que Landry
+nous envoyait de Chine, ce qui m'intéresse dans le
+courrier que Challaye nous apporta d'Indo-Chine, c'est
 justement que ces deux personnes, ayant voyagé dans
 
 _ ces deux pays, et y étant demeurées, nous contèrent ce
@@ -1811,7 +1811,7 @@ je crois que tout ce que nous faisons intéresse l'humanité entière. Par sa fo
 l'avant-garde, comme on le dit, de la démocratie; par
 sa forme mentale elle est et demeure la terre de plus
 grande liberté. Il importe à l'humanité que la démocratie française ne se pourrisse pas en démagogie, que
-la liberté française ne se pervertisse pas en viceeten w
+la liberté française ne se pervertisse pas en viceeten
 autorité. Il importe en particulier aux cinquante
 millions de sujets français, aux vingt-cinq millions de
 sujets français gouvernés en Indo-Chine, que le
@@ -1869,11 +1869,11 @@ nous donnaient et nous donnent régulièrement quatre,
 cinq, dix, vingt francs par mois, qui nous ont sauvés
 de la mort initiale, qui nous ont soutenus patiemment,
 solidement, laborieusement, dans ces premiers mois
-d'enfance et de tendresse, dans ces premiers temps de l
-croissance enfantine, si difliciles, pénibles, si dangereux, où nous étions abandonnés de tous, les vingt per- M
-sonnalités pauvres qui nous ont soutenus pendant la ï
+d'enfance et de tendresse, dans ces premiers temps de
+croissance enfantine, si difliciles, pénibles, si dangereux, où nous étions abandonnés de tous, les vingt per-
+sonnalités pauvres qui nous ont soutenus pendant la
 première et la deuxième série, les quarante ou soixante
-personnalités pauvres qui nous soutiennent aujourd'hui M
+personnalités pauvres qui nous soutiennent aujourd'hui
 ont fait et auront fait dans l'histoire de cetemps une
 action plus efficace, plus durable, que tous les groupes
 
@@ -1893,7 +1893,7 @@ dans les bureaux de l'Assistance publique.
 
 Ainsi de l'abonnement, qui est en un sens une souscription. Je m'étais imaginé sottement que les groupes
 s'abonnaïient aux publications. Un ami nous avait
-communiqué une longue liste où il avait relevé consciencieusement, noms et adresses, tous les groupes importants de la France et des colonies: groupes de LibrePensée, loges maçonniques, Sou de la bibliothèque, F
+communiqué une longue liste où il avait relevé consciencieusement, noms et adresses, tous les groupes importants de la France et des colonies: groupes de LibrePensée, loges maçonniques, Sou de la bibliothèque,
 d'adultes, Groupes d'études, sociales ou non, — je ne
 parle pas des comités politiques. Une expérience de
 deux ans, et qui nous a coûté cher, me permet d'affirmer
@@ -1935,7 +1935,7 @@ lui dit pas : Pardon, monsieur, voulez-vous commencer À
 
 par nous répéter ce que c'est qu'une éprouvette.
 Je demande qu'on ne me fasse pas répéter. La vie est
-brève, et la tâche est immense. Le temps que nous w
+brève, et la tâche est immense. Le temps que nous
 
 passerions à piétiner serait dérobé à l'action. Nos
 cahiers sont faits sérieusement. Ils valent qu'on les
@@ -1993,7 +1993,7 @@ artificielle. Nous refusons d'incliner la loi morale devant
 cet artifice de politique. Dire qu'il ne faut pas faire de
 personnalités parce qu'il y a l'adversaire, aussi longtemps qu'il y a l'adversaire, c'est dire qu'il faut mentir
 aussi longtemps qu'il y a l'adversaire, et comme il est
-évident par définition qu'il y aura l'adversaire aussi ù
+évident par définition qu'il y aura l'adversaire aussi
 longtemps qu'il y aura la bataille, et réciproquement
 qu'il y aura la bataille aussi longtemps qu'il ÿ aura
 l'adversaire, mais qu'aussitôt après qu'il ny aura À

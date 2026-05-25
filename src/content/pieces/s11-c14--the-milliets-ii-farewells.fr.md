@@ -12,8 +12,6 @@ ocrSource: "Existing charlespeguy.com vision OCR (raw/s11-c14-ocr.txt); ingested
 
 Nostalgie. — Bataille d'écoliers. — Un prix de bonnes notes. — Joli début pour un futur philosophe. — Nouvelles chansons. — Nouvel exil.
 
-1
-
 A peine arrivé en Suisse, F. Milliet reçut des francs-maçons le plus cordial accueil. Le colonel Humbert, en particulier, ne tarda pas à devenir un de ses amis les plus dévoués.
 
 Les proscrits français étaient nombreux à Genève et mes parents eurent le plaisir d'y trouver plusieurs de leurs amis du Mans. Ces féroces républicains, ces prétendus buveurs de sang, que les bonapartistes représentaient comme mangeant tout crus les petits enfants, étaient, je vous l'assure, les hommes les plus doux du monde, instruits pour la plupart et aussi distingués par le cœur que par l'intelligence.
@@ -36,8 +34,6 @@ Ceux qui n'ont pas connu l'exil auront peine à comprendre ces sentiments peu ra
 
 Qui dira combien de souffrances inavouées, combien d'existences brisées doivent peser sur la mémoire des criminels auteurs du coup d'État!
 
-2
-
 Nous avions pour voisins d'autres exilés : M. Plissonnier, grand corps sec et maigre, sorte de Don Quichotte loyal et franc. Un camarade maladroit lui avait, à la chasse, envoyé dans l'œil un grain de plomb, et il était
 resté borgne, ce qui ne l'empêchait pas d'être un excellent ouvrier horloger. Sa jeune femme, charmante de visage, avec ses yeux bruns et ses cheveux châtains ondulés, avait la physionomie la plus avenante. Douce et ferme, d'une humeur enjouée et toujours égale, elle élevait très bien ses deux fils. L'aîné, Julien, grand ami de Fernand, avait profité des leçons de dessin que nous donnait mon père; il est devenu un sculpteur de talent et un excellent professeur. Le temps n'a pas eu de prise sur lui; il a conservé cette bonne gaîté communicative qui est l'expression spontanée et irrésistible de l'esprit naturel. A cette époque, l'aimable garvoche avait une verve intarissable; il inventait mille drôleries imprévues, comme de pêcher à la ligne avec des hameçons, du haut de la promenade de Saint-Antoine, les chapeaux des paysans venus au marché.
 
@@ -46,8 +42,6 @@ Il y avait alors à la Servette de vastes chantiers de construction. De grandes 
 Quelle inconséquence dans les jeunes esprits! Aie confiance en moi, dit le père, tu le sais, je ne veux que ton bien. L'enfant se laisse diriger. Ne mange pas de ceci, il est indigeste et te rendrait malade. L'enfant obéit. Prends garde à ce bâton, il est insuffisamment poli, tu t'écherais les mains! L'enfant obéit encore. Ne lis pas ce livre, ne regarde pas cette image, ils saliraient ton imagination, ils corrompraient ton jugement. L'enfant n'obéit plus. Il guette avec impatience la première occasion de lire en cachette le livre défendu, de regarder à la dérobée l'image maléfique. Quel inconcevable attrait le pousse à rechercher pour son esprit une nourriture malsaine? La propreté de l'âme est-elle donc moins importante que celle des habits?
 
 Quelques familles genevoises ou d'origine française, les Baud, les Darier, les Reynaud, accueillirent nos parents avec une cordialité dont je leur garde un reconnaissant souvenir.
-
-3
 
 Genève était encore une toute petite ville, enserrée dans ses vieilles fortifications que l'on commençait seulement à démolir, et les mœurs de la cité de Calvin conservaient aussi toute la rigidité puritaine. Nous habitions hors de la ville, à la Servette, et quatre fois par jour, nous devions faire, mon frère et moi, un assez long trajet pour nous rendre au Collège.
 
@@ -70,8 +64,6 @@ Le cœur très gros, je racontai à Fernand cette triste nouvelle. Aussitôt le 
 
 Nous sommes reçus très paternellement; Fernand, très digne, raconte avec feu; il dit ma longue existence de travail assidu, ma douceur, mon innocence; il laisse entrevoir le prix glorieux auquel aspire ma juste ambition; il s'indigne qu'on ait osé me demander une délation : nous sommes Français, nous sommes des proscrits, mais non des jésuites, nous n'avons jamais dénoncé personne, est-il juste d'être puni pour cela? J'écoutais étonné, ravi d'admiration, ému de reconnaissance pour mon excellent frère. De son côté le bon M. Bétant souriait, touché lui aussi de l'ardeur persuasive qu'apportait mon éloquent avocat à la défense d'un aussi
 belle cause. Il promit que la mauvaise note serait effacée. Et c'est ainsi que, grâce à mon frère, je possède encore un superbe livre rouge, où sont expliqués tous les jeux des écoliers.
-
-4
 
 De toutes les personnes amies restées en France, celle qui nous regrettait le plus était assurément madame de Tucé. Elle avait une tendre affection, bien partagée d'ailleurs, pour ma mère, en qui semblait revivre et Louis de Tucé qu'elle avait perdu trop jeune et qu'elle n'avait jamais cessé de pleurer. C'était bien son charmant visage, sa vive intelligence et sa rare bonté. Très active et très économe, madame de Tucé avait trouvé dans sa fille une collaboratrice dévouée, mais il lui fallait maintenant suffire seule à la gestion de ses propriétés, et la charge commençait à lui sembler lourde. La vieillesse approchait; une aide deviendrait nécessaire, et pourtant elle était trop jalouse de son autorité pour consentir aisément à la partager. Lorsque sa fille cadette serait mariée, elle se trouverait dans un isolement absolu, à l'âge où l'on a besoin de se sentir entouré de soins et d'affection. Le plus grand désir de ma grand mère eût été de garder auprès d'elle ses petits-enfants. Elle eût pris volontiers un précepteur pour nous faire continuer nos études chez elle. Lorsque ma mère nous conduisait à Fleurigny, elle n'épargna rien pour nous rendre le séjour agréable. A Fernand, elle donna une petite voiture avec un âne; à Alix, une jolie génisse noire; à Paul, un chevreau et un pigeon. Ne voulant pas se laisser oublier, elle nous écrivait souvent; voici une de ses lettres :
 
@@ -99,8 +91,6 @@ Fernand et moi nous avions trouvé à ces liqueurs un goût exquis. Un jour que 
 son : Venez vite! Paul est mort! — Quel émoi! On me transporte dans mon lit, où je restai longtemps gravement malade.
 
 J'étais trop puni pour qu'on me grondât. J'avais vu le désespoir des miens. Toute ma vie j'ai conservé une invincible répugnance pour les boissons alcooliques.
-
-5
 
 Le métier de chansonnier est rarement avantageux. Mon père avait eu l'exil pour toute récompense, mais cela ne l'empêcha pas de continuer. — A Genève, les cœurs des réfugiés étaient encore saignants des malheurs et des hontes de la Patrie; mon père se fit leur interprète dans un petit recueil de chansons qu'il publia sans nom d'auteur. Ces chansons eurent un réel succès; on les chantait dans les rues de Genève. Leur style violent était bien d'accord avec les sentiments qui animaient alors tous les proscrits. L'histoire jette sur les événements un voile qui en atténue l'horreur, mais la force régnait seule : Hugo était à Jersey, Quinet à Bruxelles, Michelet chassé de sa chaire du Collège de France, la presse bâillonnée; le pays semblait décapité. Il est facile d'envisager le calme égoïste de ceux qui assistèrent avec résignation à de pareilles hontes. Mon père n'était pas de ceux-là.
 
@@ -225,8 +215,6 @@ Alors, alors ils pourront répéter :
 Va, Némésis, jette loin tes lanières,
 Car il n'est plus de méchants à fouetter.
 
-6
-
 Comment la ville de Genève qui se glorifie d'une longue et généreuse tradition d'hospitalité, eut-elle le triste courage de renoncer au droit d'asile, et de repousser cette famille de républicains qui vivait chez elle si paisiblement? Des chansons! Quel grand crime! Les francs-maçons de Genève avaient fait à Félix Milliet un fraternel accueil; les Jésuites du Mans le dénoncèrent au gouvernement impérial qui exigea un nouvel exil; et les autorités genevoises, trop faibles pour résister à l'empereur des Français, crurent devoir lui obéir. — De grand matin des agents de police entrèrent chez nous, saisirent les papiers qui se trouvaient dans le secrétaire, et emmenèrent mon père en prison. Le Journal de Genève publia un article perfide dans lequel F. Milliet était représenté à la fois comme un conspirateur dangereux et comme un agent provocateur, « allié à la noblesse française ». On cherchait à le rendre suspect à ses amis.
 
 Le colonel Humbert était indigné. Il menaçait de délivrer le proscrit et de faire une émeute. On fit partir mon père en secret.
@@ -286,8 +274,6 @@ Chanter encor l'hymne de liberté.
 (De Mayence à Cologne, à bord du Gutenberg, le 16 mai 1853)
 
 1853-1854
-
-1
 
 Ma mère était revenue à Genève en grande hâte, mais elle n'avait nulle envie de nous emmener en Angleterre. Elle redoutait la nostalgie; l'Anglais était resté pour elle l'ennemi héréditaire. Dès son enfance on lui avait fait lire, dans une rue du Mans, l'inscription gravée sur la pierre de Tucé; la province du Maine avait été délivrée autrefois du joug de l'étranger par un de ses ancêtres.
 
@@ -369,8 +355,6 @@ Laissons-le l'éteignoir,
 Qui l'empêche de voir
 La vie en rose.
 
-2
-
 L'hiver était venu; l'aspect de la vallée est en cette saison d'un caractère étrange et saisissant. On se croirait transporté dans le voisinage du pôle. Le manteau de neige qui recouvre la terre a souvent plus de deux mètres d'épaisseur et, sur cette blancheur immaculée, le soleil brille, sans parvenir à la fondre, à cause des gelées de la nuit.
 
 C'est par un étroit sentier de neige tassée qu'Alix et moi nous nous rendions chaque matin à l'école; elle, chez les sœurs, moi chez le jeune vicaire qui essayait d'inculquer quelques notions de grammaire à une douzaine de petits paysans peu dégourlis. Il avait fallu nous séparer de mon frère Fernand, envoyé comme interne au Collège Royal de Bonneville.
@@ -391,8 +375,6 @@ A l'époque du carnaval, M. Pollet organisa un grand bal masqué. Les vastes sal
 intermèdes comiques. Je n'en raconterai qu'un seul : Une grosse cloche sonne et carillonne. A ce signal, la musique s'arrête, les danseurs se rangent en cercle; une plaque de tôle fait entendre à la cantonade les roulements d'un tonnerre lointain. Vêtu d'un maillot écarlate, un grand diable fait son entrée : ses yeux flambent sous d'énormes sourcils noirs, il allonge ses griffes et brandit un trident, dont il menace les fillettes effarouchées.
 
 Mais voici que l'orchestre commence une marche mystérieuse. Un magicien à grande barbe blanche s'avance avec solennité. C'est le docteur, revêtu d'une longue robe noire, semée de signes cabalistiques en papier doré. Le diable et le magicien sont rivaux et commencent par se disputer. Mais au plus fort de la querelle la musique devient lugubre, un moine amène brutalement une pauvre vieille chargée de chaînes, encapuchonnée dans un grand manteau. Le magicien explique au diable que cette brave femme a été ensorcelée par le méchant moine; il lui propose de la délivrer. Saisi de pitié, le bon diable se réconcilie avec le sorcier; à eux deux, ils briseront les chaînes de l'infortunée captive. Scènes de magnétisme, exorcismes du moine, etc... Enfin, tandis que le diable lutte contre le moine, le magicien pose sa baguette sur la tête de la vieille. Le manteau tombe avec les chaînes, et la fraîche madame Pollet apparaît sous un pimpant costume de Liberté, en satin rouge. La musique prend un rythme joyeux et triomphal, la Liberté danse avec le sorcier, le bon diable avec le moine effaré, qu'il fait tournoyer dans une valse folle, et qu'il entraîne par l'escalier de la cave jusqu'en enfer.
-
-3
 
 Plus robustes que nous sans doute, nos pères n'avaient pas encore constaté les tristes conséquences de l'alcoolisme. A l'exemple de Béranger et de Désaugiers qui célébraient le doux jus de la treille et l'ivresse enchanteresse, mon père avait composé quelques chansons à boire, à l'occasion de banquets patriotiques. Cette poésie-là nous semble aujourd'hui bien démodée. Un feu grâce pourtant à quelques couplets écrits en l'honneur du docteur Pollet :
 
@@ -423,8 +405,6 @@ Mais moi je dis : Le camarade
 N'est qu'un savant de belle humeur,
 Ah, qu'il est bon d'être malade,
 Quand on a Pollet pour docteur.
-
-4
 
 Les joyeuses fêtes du Bérouze ne nous faisaient pas oublier notre cher Fernand, le pauvre interne, qui aurait été si heureux de participer à nos plaisirs. Sa mère lui écrivait :
 
@@ -503,8 +483,6 @@ Si je trouve une occasion, je t'enverrai du miel, mais renvoie-moi les deux pots
 
 Adieu, cher enfant, travaille et porte-toi bien. Tu sais ce que je t'ai promis si ton maître d'allemand est content de toi. (1) Je te préviens que je ne me paierai d'aucune mauvaise raison, donnant, donnant...
 
-5
-
 J'avais dix ans, lorsque naquit ma sœur Louise (1854). A cette époque, en Savoie, il n'y avait pas de registres spéciaux pour l'état-civil; les déclarations de naissance se confondaient avec les actes de baptême. Il fallait donc faire baptiser l'enfant. L'orgue était tenu de magistrale façon par M. Pasquier. Louise fit son entrée dans l'église aux sons de la Marseillaise. Quand le prêtre lui versa l'eau bénite sur le front, elle poussa des cris perçants, comme pour manifester d'avance ses opinions violemment anticléricales.
 
 Les idées religieuses de mes parents étaient celles de Victor Hugo, de Michelet, de George Sand, de Victor Considérant. Pour eux, Dieu s'identifiait avec l'Idéal. Dans un cahier de notes écrites par ma mère, je trouve cette citation de Lamartine : « Une conscience sans Dieu, c'est un tribunal sans juge. La lumière de la conscience n'est autre chose que la réverbération de l'idée de Dieu dans l'âme du genre humain. Éloignez Dieu, il fait nuit dans l'homme. »
@@ -527,8 +505,6 @@ L'abbé fut envoyé au loin en disgrâce, sa carrière était brisée. Trompé p
 
 Que ne s'est-il trouvé là un honnête homme pour lui dire : Ne pleure pas, ami, ta faute est excusable, tu as obéi aux lois éternelles de la nature, plus fortes que les conventions sociales. Épouse la femme que tu as choisie. Élevez vos enfants dans l'amour de la justice, et vivez en paix.
 
-6
-
 Mes parents auraient prolongé volontiers leur séjour à Samoëns, mais cette bourgade ne présentait pas des ressources suffisantes pour notre instruction. Le Collège de Bonneville venait d'être réorganisé, et le Conseil municipal y avait appelé toute une pléiade de jeunes professeurs français qui devinrent nos maîtres et nos amis.
 
 Le 4 novembre 1853, M. Milliet recevait la lettre suivante :
@@ -542,8 +518,6 @@ Recteur du Collège.
 Mon père accepta avec grand plaisir ces nouvelles fonctions; mais ce ne fut pas sans regrets que nous quittâmes le Bérouze et nos excellents amis qui savaient exercer d'une façon si cordiale l'hospitalité.
 
 1853-1857
-
-1
 
 La direction du Collège de Bonneville avait été confiée à M. Héguin de Guerle, un lettré, qui avait traduit pour la collection Nisard quelques auteurs latins. (1) C'était un homme du monde, un homme de goût, un spirituel causeur, mais il ne semble pas avoir eu les qualités d'ordre, nécessaires à un administrateur.
 
@@ -567,8 +541,6 @@ S'il manquait un peu de bon sens, M. Mazon n'en faisait pas moins beaucoup de bi
 Autant M. Mazon était exalté et excentrique, autant M. Morizot montrait de calme sagesse et de méthodique raison. Les beautés de l'art échappaient à son esprit positif, mais sa manière d'enseigner les sciences était pleine d'intérêt et de vie.
 
 Extraire une racine carrée ou même faire une simple division, cela devenait une sorte de drame, dont nous suivions avec émotion les péripéties, les alternatives de doute et d'espérance. La vérité doit toujours se défendre contre de multiples erreurs; il s'agit de passer adroitement entre le trop grand et le trop petit, tel un navire entre Charybde et Scylla. C'était avec joie que nous assistions au triomphe de la lumière sur les ténèbres, quand la racine ou le quotient brillait enfin, comme le soleil de la certitude.
-
-2
 
 Ce qui nous paraissait bien dur, c'était l'obligation où se trouvait notre mère de se rendre alternativement auprès de madame de Tucé, ou à Valence pour ses affaires. Dans ces nombreux voyages, elle était accompagnée, tantôt d'un seul de ses enfants, tantôt des trois aînés.
 
@@ -668,8 +640,6 @@ Mais écartons ces tristes idées; le moment de la séparation n'est pas encore 
 
 Ton fils,
 
-3
-
 Un chagrin bien cruel allait frapper notre famille. Ma mère avait ramené à Bonneville sa fille Jeanne. C'était la plus ravissante enfant que j'aie jamais vue. Ses cheveux blonds, son admirable teint, frais comme une rose, ses yeux vifs et doux, d'un bleu de pervenche, sa petite mine ouverte et bonne nous faisaient prévoir qu'elle deviendrait le vivant portrait de sa mère. Je ne saurais dire quelle grâce exquise avait notre Jeanne dans tous ses mouvements, quel charme dans son sourire, quelle intelligence précise et quelle bonté dans son regard. Elle faisait notre admiration et notre joie.
 
 L'inquiétude fut grande quand elle tomba malade, quand nous la vîmes dépérir rapidement!
@@ -682,8 +652,6 @@ Notre chagrin fut profond. Mon père n'a rien écrit sur la mort de sa fille. Je
 Cette première vision de la mort me hanta longtemps. Je ne pouvais passer d'un convoi funèbre sans un serrement de cœur. Je voyais ma petite sœur pâle et inanimée dans son berceau. Il me semblait que quelque chose en moi s'était brisé... Assurément si Jeanne eût vécu, elle m'aurait aimé comme je l'aimais, nous nous serions protégés réciproquement; elle ne m'aurait pas abandonné.
 
 Une consolation nous restait, notre petite sœur Louise âgée d'un an. Pendant toute sa première enfance, son visage d'était extraordinaire : un grand front proéminent, démesuré, à la Victor Hugo, de grands yeux sombres, d'un bleu profond, une mine grave et méditative. Son calme ne se démentait jamais, mais elle manifestait déjà une volonté de fer.
-
-4
 
 Quel est le socialiste qui a proposé à notre pays cet admirable programme de travail et de paix?
 
@@ -948,8 +916,6 @@ Malheur à celui qui doute,
 Il suit à tâtons la route
 Qui nous conduit au tombeau.
 
-5
-
 Ma sœur Alix, de deux ans plus âgée que moi, recevait les mêmes leçons que ses frères. Gaie, spirituelle et moqueuse, elle trouvait moyen d'introduire dans ses devoirs de style quelques descriptions de choses et de gens dessinés d'après nature, avec une verve caricaturale qui nous divertissait par la malicieuse de l'observation. Pour donner une idée de sa tournure d'esprit, je copie quelques fragments de ses compositions; elles amuseront les enfants de son âge, s'il s'en trouve qui lisent ces lignes :
 
 J'ai à faire une narration sur la variété infinie des aspects de la nature. Commençons par une invocation : Divine inspiration, viens seconder mes vains efforts, tu connais le cœur dévoué qui t'implore; hélas, ne laisse pas tomber les sévères remontrances de mon digne professeur sur mon front pensif! Mes yeux ardents regardent par la fenêtre si tu ne viens pas... Mais je ne vois que la vieille Prospère qui branle la tête en tricotant. L'inspiration est sourde, elle ne vient pas. En revanche, la transpiration accourt, car, toujours douce et compatissante, voyant mes gestes et mes efforts, elle répand le baume et la sueur sur mes membres fatigués.
@@ -974,8 +940,6 @@ Madame Mazon fut obligée de partir pour la France et d'abandonner sa basse-cour
 Madame Mazon revint, mais les oies lui en voulaient de leur abandon. On en tua une, ce qui mit l'autre dans une grande fureur. Elle s'acharna contre sa maîtresse, la meurtrit de ses coups d'ailes et la piqua de son bec. M. Mazon était persuadé que c'était l'âme d'un de ses ennemis qui poursuivait sa femme, et il nous pria d'abattre la bête féroce. Le marché conclu, il s'attendrit, s'apitoye sur le sort de son oie, il nous prie de ne pas la faire souffrir et de la manger aux olives. Ma mère aussi voulut l'engraisser, mais comme elle refusait de manger, sa perte fut résolue. La cuisinière en avait peur; la bonne n'était pas plus brave; elle allèrent donc chercher un aide, et à eux trois, ils lui coupèrent la tête. Ainsi finirent ces deux pauvres bêtes qui, après avoir vaillamment gardé la maison, furent mangées par des maîtres carnivores, peu reconnaissants.
 
 Priez pour leurs âmes! Ainsi soit-il!!
-
-6
 
 M. Fleury, notre jeune professeur de rhétorique, composait péniblement des vers corrects, ce qui ne veut pas dire qu'il fût poète. Ses collègues se moquaient un peu de son style à la Delille. Dans une description des arbres en hiver, je trouve par exemple :
 

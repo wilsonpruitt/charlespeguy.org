@@ -57,8 +57,6 @@ I. — jusqu'au seuil de l'exil
 
 1811-1852
 
-1
-
 A l'époque de Louis-Philippe, orateurs, journalistes, romanciers et poètes avaient la manie des « grandes synthèses » où l'emphase se mêlait à la naïveté. On faisait la « philosophie de l'histoire » dont on croyait connaître les lois; le moindre rimailleur était persuadé qu'il fallait remonter aux origines du monde pour expliquer la genèse de son talent. Monsieur Prudhomme est resté la personnification de la bourgeoisie de ce temps; il en a le ton solennel et les grands mots drapés autour de maigres idées. On reconnaît quelque chose de cette tournure d'esprit même chez des hommes très éminents; l'on en découvrait des traces chez Guizot, chez Quinet, et jusque dans la préface de Cromwell.
 
 Félix Milliet était trop modeste pour ne pas éviter ce travers. Son improvisation facile reste toujours sans prétention. Elle a des négligences, des faiblesses; les formules alors à la mode sont aujourd'hui démodées. Mais ne vous y trompez pas, regardez de plus près, écoutez bien, et vous reconnaîtrez la loyauté de l'accent et la sincérité de l'émotion.
@@ -68,8 +66,6 @@ Oh! vous trouverez aisément de plus habiles ciseleurs de vers : nos jeunes poè
 La poésie de Félix Milliet est toute simple, elle ne pose pas; ce qu'elle dit, elle le sent vivement et profondément. Ayant à choisir au milieu de productions nombreuses, — elles rempliraient aisément vingt volumes — nous avons pris de préférence celles où le poète, sans le vouloir et sans le savoir, se trouve avoir raconté sa vie. Aucun événement ne l'a frappé ou touché, sans qu'aussitôt il ait éprouvé un impérieux désir d'exprimer en vers son émotion. Il a cédé à ce besoin instinctif et probablement héréditaire; il a chanté ses peines et ses joies; en cela il est bien un véritable poète lyrique.
 
 Le fantastique n'a pas de place dans son imagination. Ici, rien n'est arrangé à plaisir, rien n'est enjolivé, rien n'est fardé. C'est la vérité toute simple et toute nue, le portrait fidèle d'une âme.
-
-1
 
 Jean-Joseph-Félix Milliet naquit à Valence (Drôme) le 19 juillet 1811. Orphelin dès l'âge de neuf ans, il fut élevé par des amis de sa famille, ainsi que sa sœur Celle, âgée de quatorze ans. M. et madame de la Croix entourèrent les deux enfants de soins et de tendresse. Leur oncle, M. Vialet, colonel d'artillerie, puis Directeur de la manufacture d'armes de Saint-Étienne, s'était retiré dans sa propriété de Saint-Flour, sur la rive droite du Rhône.
 
@@ -90,8 +86,6 @@ Hardi et habile cavalier, il excellait à dresser les chevaux les plus rétifs, 
 Il avait commencé l'étude du dessin et de la peinture. Bientôt l'amour le rendit poète. Équitation, art et poésie, telles furent les occupations, ou pour mieux dire, les passions qui se partagèrent son existence.
 
 A ces goûts paisibles il allait bientôt en ajouter un autre plus dangereux, celui de la politique.
-
-2
 
 Félix Milliet était en garnison à Montoire, lorsqu'il vit pour la première fois mademoiselle Louise de Tucé, dont il devint éperdument amoureux. Dès que le service lui laissait un instant de liberté, il venait caracoler devant les fenêtres de la jeune fille, alors dans tout l'éclat de sa première floraison.
 
@@ -195,8 +189,6 @@ Brillants comme les fleurs, comme elles éphémères,
 Et qu'on voit s'envoler, hélas! tristes chimères,
 Sur l'aile froide des autans.
 
-3
-
 Jeudi 12 juillet 1838. — Visite à madame de Marescot, confidence proposée et « reçûte ».
 
 Dimanche 15 juillet. — Cet après-midi, de une heure à deux, madame de Marescot a rendu visite à madame de Tucé. Moment décisif! A quatre heures visite à madame de Marescot. On colore le refus en disant qu'elle est trop jeune pour qu'on songe à la marier. Elle n'a que seize ans et demi.
@@ -228,8 +220,6 @@ Mardi, sept heures un quart. — Je suis au quartier. Je porte souvent mes regar
 sa fenêtre fermée. Elle se regarde le miroir. Elle peigne ses cheveux qui tombent des deux côtés le long de ses joues. Mon cœur bat violemment dans ma poitrine. Je me reproche presque de la regarder ainsi. — Elle n'est pas seule. Est-ce madame de Tucé qui est avec elle? Non. C'est mademoiselle Louise Mousseron. Les deux jolies cousines lissent leurs cheveux. Elles rient, les heureuses filles!
 
 La pluie commence à tomber. Elles viennent regarder à travers les vitres. Mon-t-elles vu? La fenêtre est ouverte. Mademoiselle Louise a fait deux ou trois pirouettes, puis elle m'a vu, et a disparu soudain. — Elles viennent de partir en voiture pour Fleurigny.
-
-4
 
 Bientôt le jeune officier dut quitter Montoire pour aller en garnison à Vendôme. La distance entre ces deux petites villes n'est que de quelques lieues, cependant les occasions de voir mademoiselle de Tucé allaient devenir plus rares.
 
@@ -314,8 +304,6 @@ La droiture et la probité de Félix Milliet séduisirent mademoiselle Louise de
 
 Si je passe sur le grave inconvénient de marier Louise avant ses dix-huit ans accomplis, c'est à cause des bons renseignements que vous me donnez de la conduite de M. Milliet, auquel du reste ses chefs et ses camarades rendent justice. Pour moi, je le connais peu, mais j'ai su apprécier sa discrétion vis-à-vis de ma fille, je lui en sais gré...
 
-5
-
 Décembre est venu, mais l'amoureux brave la pluie et la neige. Le poète écrit à un ami :
 
 Vois-tu, si tu n'as pas, une fois en ta vie,
@@ -391,8 +379,6 @@ Avec mon cœur pour tout trésor.
 Mais hélas, je suis peu de chose,
 Ni grand peintre, ni sylphe rose.
 
-6
-
 En janvier 1839, fut enfin accordé le consentement si ardemment attendu. La joie du poète déborde et il y mêle déjà la gravité d'un serment solennel. Il promet à Louise d'embellir et bâtir sa nouvelle existence.
 
 Qu'elle ne puisse pas faire la différence
@@ -422,11 +408,9 @@ Et les vœux insensés que j'adressais au ciel.
 Enfin tu m'entendras dire que je t'adore,
 Te le dire cent fois, puis te le dire encore.
 
-Félix Milliet avait 27 ans au moment de son mariage, Louise de Tucé en avait 17.
+Félix Milliet avait 27 ans au moment de son mariage, Louise de Tucé en avait
 
 1840-1851
-
-1
 
 Mon père, dont la famille était originaire de Savoie, rappelait par ses traits l'ancien type des Allobroges : cheveux châtains, qui ne blanchirent jamais, et grande moustache d'un blond roux. Sa taille était un peu au-dessous de la moyenne; son teint coloré et ses yeux gris extrêmement vifs marquaient un tempérament à la fois sanguin et nerveux. Son caractère présumait était sensible, passionné, bouillant, irascible, mais sans rancune, franc, loyal, affectueux et bon. La probité lui était si naturelle qu'il ne concevait même pas la possibilité de la moindre atteinte à la délicatesse. Son désintéres-
 sement absolu et son dévouement à ses principes lui attirèrent de nombreuses et durables sympathies.
@@ -566,15 +550,11 @@ Dis-moi tout ton bonheur, je t'en prie à genoux,
 Car je te porte envie et, si j'étais moins tendre,
 Et si je t'aimais moins, j'en deviendrais jaloux.
 
-2
-
 Ma sœur Alix naquit le 18 mai 1842. Elle était toute fluette, et l'ordonnance de M. Milliet, un colosse, la portait à bras tendu dans le creux de sa main.
 
 M. Milliet, atteint d'une maladie du larynx, qui l'empêchait de bien faire entendre les commandements militaires, se décida un peu étourdiment à donner sa démission. Les connaissances spéciales qu'il possédait auraient pu lui procurer, dans les haras, une place qui lui eût permis d'attendre sa retraite. Il préféra s'installer au Mans. C'est là que je vins au monde, le 6 mars 1844. (1)
 
 J'étais un gros blondin paisible, facile à élever, comme tous les enfants bien portants. On me confia aux soins affectueux d'une jolie et excellente petite bonne de quinze ans, Émilie, que nous appelions Mélotte. Je ne crois pas que celle-là ait oublié une seule fois sa tâche de gardienne, même lorsque, à la promenade, elle rencontrait — oh, bien par hasard! — un beau gars de vingt ans, Charles Delaporte, habile ouvrier décorateur, qu'elle ne tarda pas à épouser. J'ai conservé un vague mais charmant souvenir de cette idylle, à laquelle j'assistais sans la comprendre.
-
-3
 
 En vieillissant, j'ai oublié bien des choses intéressantes et utiles, qui m'avaient cependant coûté de longs efforts pour les apprendre, mais je me souviens encore des bizarres chansons dont Mélotte nous berçait le soir. Comme beaucoup de musiciennes, elle n'attachait aucune importance aux paroles et les estropiait si bien, qu'elles finissaient par n'avoir plus aucun sens.
 
@@ -611,15 +591,11 @@ Ma mère, en nous montrant quelques belles images, nous avait décrit l'Égypte 
 
 Ces réalités nous paraissaient aussi intéressantes que les légendes les plus fantastiques.
 
-4
-
 L'instruction reçue par Louise à Montoire ne pouvait être que celle des jeunes filles catholiques, mince bagage assurément. Elle fut heureuse de trouver chez son mari un esprit plus ouvert et plus cultivé. Quel plaisir de s'initier ensemble aux questions d'art, de littérature, de philosophie et de politique, à une époque où fermentaient tant d'idées nouvelles et généreuses. Malgré son calme apparent, sa sympathie souffrait des misères inhérentes à notre mauvaise organisation sociale. Elle apportait une ardeur juvénile à toutes les nobles causes. — Un savant professeur de mathématiques, M. Chassevant, avait communiqué à nos parents son admiration enthousiaste pour les doctrines de Fourier, cet utopiste de génie. Le phalanstère, avec l'harmonieuse organisation du travail attrayant, au moyen des séries, leur semblait être le remède qui allait régénérer le monde. Avec la logique d'une conviction profonde, ils mirent toujours en pratique les doctrines et laissèrent à leurs enfants la plus entière liberté dans le choix des travaux et des plaisirs. Si mon frère fut soldat, si je fus peintre, c'est parce que « les attractions sont proportionnelles aux destinées ».
 
 Nous habitions au Mans, rue Marengo, une jolie maison entre cour et jardin, construite sur les plans de mes parents. Dans ce nid paisible, entre mon grand frère et ma petite sœur dont j'étais la poupée, choyés entre trois de nos parents, nous eûmes le bonheur de recevoir, sans nous en douter, la meilleure des éducations, celle des exemples quotidiens d'affection dévouée, de respect mutuel et d'accord constant.
 
 Les jeunes plantes poussent bien dans cette douce chaleur du foyer domestique. J'apprenais que l'union de la famille est la condition principale du bonheur, et je me berçais de cet espoir enfantin que ma vie tout entière ne serait qu'une longue joie. Ces douces illusions font un douloureux contraste avec les amertumes dont j'ai été depuis abreuvé.
-
-5
 
 Ma mère m'apprit de bonne heure à lire et à écrire, sans fatigue, en jouant. Je récitais déjà quelques vers, que je ne comprenais qu'à moitié; mais ce qui me remplissait d'orgueil, c'était d'avoir pénétré les mystères de l'addition. J'aimais à me glisser sous une petite chiffonnière en bois de rose, derrière laquelle on rangeait mon tableau noir, et là, gravement accroupi comme un petit Bouddha, je me posais à moi-même de difficiles problèmes, avec des nombres de deux et même de trois chiffres! Quand j'avais réussi à trouver le total qui, chose dominante, avait parfois jusqu'à quatre chiffres, j'étais émerveillé de ma science et aussi content qu'Archimède. On me complimentait, et j'aimais beaucoup cela. J'avais, comme disaient alors les phrénologues, la bosse de l'approbativité.
 
@@ -633,8 +609,6 @@ Nous allions souvent goûter chez ma grand mère dont la maison était voisine d
 d'une petite blouse de velours noir, une cravate de soie rouge nouée autour d'un grand col blanc rabattu, je m'avançais d'un air important, je me croyais un voyageur partant en mission pour un long voyage, et j'étais persuadé que je contribuais un peu à la fabrication du chef-d'œuvre.
 
 Ma mère encourageait ces illusions. L'enfant qu'on a félicité pour un petit service, cherche l'occasion d'en rendre d'autres; il prend l'habitude d'être obligeant et de penser à autrui. Qui donc, d'ailleurs, n'est pas été heureux de rendre service à sa mère?
-
-6
 
 Pendant les vacances, et il y en avait souvent, nous allions chez ma grand mère à Fleurigny, près de Montoire. La villa, bâtie à mi-côte d'une colline boisée, a pour dépendances des caves voûtées très spacieuses, creusées dans le tuf, comme les habitations des anciens Troglodytes. (1) — Le voisinage de la ferme nous
 
@@ -657,8 +631,6 @@ Je dormais profondément, quand un baiser sur mon front vint m'éveiller : j'ent
 J'étais en extase, ce fut une vision du ciel! Depuis ce moment-là, je sais très nettement ce que veulent dire ceux qui parlent du Beau idéal.
 
 Et je connus aussi en cet instant ce que c'est que le bonheur d'être aimé. Cette jeune femme, merveilleusement belle et admirablement parée, c'était ma mère. Elle se penchait vers moi, elle souriait, et son sourire exprimait à la fois la joie d'être admirée et la tendresse maternelle. — Elle m'embrassa et disparut... Je m'endormis de nouveau, mais des rêves divins berçaient mon sommeil.
-
-7
 
 Je ne voudrais pas donner à entendre que des méditations profondes sur la destinée des êtres ou sur
 l'esthétique fussent l'état ordinaire de ma pensée. Pour un futur ascète, j'étais bien gourmand, et ma plus grande ambition était de devenir pâtissier. (1)
@@ -695,8 +667,6 @@ Madame hard, ouvrez bas,
 Pâtiras ne v'viendra pas.
 par d'autres coups, aux calomnies par d'autres mensonges, raviver sans cesse les haines par de perpétuelles vendettas?
 
-8
-
 Mes parents élevaient leurs enfants sans sévérité, comme sans faiblesse. Montaigne leur semblait être le véritable initiateur de l'éducation moderne : la plupart des réformes proposées par Rousseau et par Fourier lui-même se trouvent en effet, tout au moins en germe, dans les Essais.
 
 Ce serait perdre son temps que de diriger un enfant vers un but qu'il n'est pas capable d'atteindre. Fernand, par exemple, n'avait aucun goût pour le dessin ni pour la musique. Il fallait donc chercher à reconnaître les vocations ou « propensions naturelles ». « On ne loge rien dans la tête par simple autorité. — Qui suit un autre, il ne trouve rien, voire il ne cherche rien. — Savoir par cœur n'est pas savoir. »
@@ -723,9 +693,7 @@ Peut-être quelques-uns des éducateurs modernes vont-ils un peu loin dans leur 
 
 Quant à l'optimisme de Rousseau et à la bonté native de l'homme, il a bien fallu reconnaître que c'est une erreur. A de longs siècles de barbarie ont succédé des siècles de civilisation factice qui ont déformé pour longtemps la nature humaine. Dans quel pays, d'ailleurs, à quelle époque trouverons-nous cette âme vierge de tous les préjugés, de toutes les superstitions, de tous les mauvais instincts qu'ont enracinés en nous les fautes ancestrales? — La théorie de l'évolution nous montre l'humanité continuant avec effort de génération en génération des essais d'adaptation de moins en moins imparfaits. C'est l'enfant actuel, malade et parfois méchant, l'enfant réel, qu'il faut prendre, pour essayer de le guérir et de l'amender, et non pas un homme idéal qui n'exista jamais. La tâche est difficile, les obstacles sont grands; ils ne sont pas insurmontables.
 
-(1) Tantôt on essaie d'arracher les passions, tantôt on néglige d'apprendre à l'enfant à les dominer. » Ellen Key, Le Siècle de l'Enfant, page 84.
-
-9
+(1) Tantôt on essaie d'arracher les passions, tantôt on néglige d'apprendre à l'enfant à les dominer. » Ellen Key, Le Siècle de l'Enfant, page
 
 Fernand était plus batailleur que moi; d'ailleurs, excellent camarade, très gai, très liant, il se faisait aimer de tous. Il se laissait aussi facilement entraîner par l'exemple. Pour faire l'homme, il essaya de fumer, ce qui lui donna mal à la tête et mal au cœur. Cependant il finit par s'aguerrir et, fier de ce beau succès, il crut me faire beaucoup d'honneur en m'offrant de tirer quelques bouffées de son cigare. J'essayai, cela me fit tousser, et le goût acre du tabac me parut aussi déplaisant que son odeur. C'est la seule fois de ma vie où j'aie fumé.
 
@@ -759,8 +727,6 @@ Nous étions si jeunes alors que l'action héroïque (1) de notre mère nous sem
 
 1848-1851
 
-1
-
 Mes parents avaient de nombreux amis qui leur sont restés fidèles dans le malheur; je citerai M. Choinet qui, plus d'une fois, prouva son dévouement à la cause républicaine; M. Fontana, réfugié polonais; M. et madame Trahan, phalanstériens; de la Boussinière, que mon père retrouva à Genève et qui, depuis, fut le très honnête héros d'un très bizarre procès; le savant M. Silly; Napoléon Gallois, historien et journaliste de talent; M. Chassevant, professeur de mathématiques.
 
 Ce dernier avait un fils et une fille à peu près du même âge que mon frère, et qui tous deux montraient déjà de remarquables dispositions pour la musique. (1)
@@ -774,8 +740,6 @@ Souvent, le dimanche, les familles Chassevant, Milliet et Barbier se réunissaie
 Le docteur Barbier était un homme d'une haute valeur intellectuelle et morale. Il possédait une qualité qui devrait rare chez les médecins, l'ardeur dans la lutte contre la maladie. La sûreté et la promptitude de son diagnostic ressemblaient à de la divination. Il questionnait peu ses malades, un coup d'œil lui avait suffi pour savoir ce qu'ils éprouvaient et... il les guérissait.
 
 Son jugement droit et la finesse de son sens littéraire en faisaient un critique à la fois sévère et bienveillant. Mon père, très modeste, tenait grand compte de ses avis. Tous deux s'étaient affiliés à la franc-maçonnerie, où leur avancement fut rapide; tous deux collaboraient avec zèle à un vaillant journal républicain, le Bonhomme manceau et au Jacques Bonhomme, auquel Joigneaux donna d'intéressants articles sur l'agriculture.
-
-2
 
 C'est là que parurent d'abord les chansons que F. Milliet improvisait au jour le jour. Lorsqu'elles furent réunies en un petit recueil, Napoléon Gallois leur fit une charmante préface qui mérite d'être rappelée ici :
 
@@ -840,8 +804,6 @@ Chantez encore, ô Béranger.
 « J'ai une réponse bien simple à faire à vos couplets, double inspiration du cœur et de l'esprit. J'ai soixante-neuf ans, monsieur, et quand vous serez arrivé à cet âge, la raison qu'on a alors de se taire ne vous apparaîtra que trop clairement.
 
 « Heureusement pour vous et pour vos amis, vous avez longtemps à chanter encore. Profitez-en, monsieur, et conservez bon souvenir au vieux chansonnier qui vous prie de croire à sa considération bien cordiale.
-
-3
 
 Nous ne donnons ici que quelques spécimens des nombreuses chansons composées par Félix Milliet. D'un bout à l'autre de ce recueil, ce sont les mêmes sentiments qui animent le poète : la haine de la tyrannie, la pitié pour ceux qui souffrent, l'aspiration vers une orga-
 nisation plus équitable de la société, la foi dans un avenir de paix et d'harmonie mondiale.
@@ -1204,9 +1166,7 @@ Dont la rouille éteindra l'éclair;
 Et l'enfant qui joue et qui rêve
 Dira : Mère, à quoi sert ce fer?
 
-(1) « L'erreur où sont tombés nos philosophes civilisés, c'est de croire qu'il faut travailler au bonheur des pauvres, sans rien faire pour les riches. On est bien loin des voies de la nature quand on n'a travaillé pas pour tous. » Manuscrit de Fourier, page 45.
-
-4
+(1) « L'erreur où sont tombés nos philosophes civilisés, c'est de croire qu'il faut travailler au bonheur des pauvres, sans rien faire pour les riches. On est bien loin des voies de la nature quand on n'a travaillé pas pour tous. » Manuscrit de Fourier, page
 
 Au Mans, l'artillerie de la garde nationale était acquise tout entière aux opinions avancées; elle élut mon père capitaine. Mais un vent de réaction commen-
 çait à souffler. Dans une revue, Félix Milliet, défilant à la tête de sa compagnie, leva son sabre et parut un instant guéri de son extinction de voix, tant il cria avec conviction : Vive la République! Tous les artilleurs et la foule entière firent retentir la place des Jacobins d'une formidable acclamation.
@@ -1449,8 +1409,6 @@ Des tyrans je me ris.
 
 1851 - 1852
 
-1
-
 Ceux qui désirent connaître la tournure d'esprit particulière aux hommes de 1848 feront bien de consulter la Revue comique, spirituelle publication à laquelle mes parents étaient abonnés, et qui fit longtemps nos délices. Elle mérite son sous-titre « à l'usage des gens sérieux », parce qu'elle reflète, sans trop la déformer, l'opinion publique de ce temps-là.
 
 A toutes les époques de l'histoire, on observe la même lutte éternelle entre deux tendances opposées : L'une aspire au repos, et cherche l'ordre dans le maintien immuable des institutions établies, ou même dans un vain effort vers le retour à d'antiques traditions; l'autre, sachant bien que le mouvement est la condition nécessaire de la vie, nous porte à croire que tout changement est un progrès, et rêvant de réformes possibles ou chi-
@@ -1467,8 +1425,6 @@ Celui-ci réalise sa fortune placée en mauvaises rentes 5 0/0 et verse le monta
 Pour utiliser ses loisirs, M. Réac invente le bousepain, et jette les bases de la grande Société philanthropique pour l'exploitation de la farine de crottin de cheval. — Une commission de savants est nommée par le ministre : Attendu que le bousepain renferme moins de parties nutritives que le pain ordinaire; attendu qu'en raison des difficultés d'extraction, le prix de revient est plus élevé, elle décide qu'il y a lieu d'adopter le bousepain pour le service des hôpitaux...
 
 Précurseur des opportunistes et des modernes pragmatistes, M. Réac passe par toutes les nuances d'opinion politique; les scrupules de conscience ne le gênent pas; il n'a pas d'autre morale que celle du succès. Candidat à la députation, nous le voyons plein de bonhomie et de déférence auprès de ses électeurs, puis hautain et dédaigneux après l'élection. Toute cette satire n'a pas beaucoup vieilli, et il faut reconnaître que, pour faire d'amusantes caricatures, il suffit bien souvent de tracer d'après nature des portraits ressemblants.
-
-2
 
 Pour tout homme clairvoyant, les projets de cet autre M. Réac, qui avait nom Louis Napoléon, étaient faciles à deviner : Aux paysans, il promettait de diminuer les impôts; aux ouvriers, il rappelait habilement les tendances socialistes qu'il avait manifestées dans sa jeunesse; mais combien les actes étaient loin des paroles! M. de Falloux venait de livrer les instituteurs à l'autorité des préfets et la direction de l'instruction publique aux Jésuites. Toute réunion politique était sévèrement interdite. Soutenu déjà par les tendances rétrogrades du clergé et d'une bourgeoisie pusillanime, Napoléon gagnait à sa cause quelques-uns des chefs de l'armée. Il se peut que des naïfs se soient laissé tromper par ses belles promesses, mais la véritable force du parti bonapartiste, ce fut le triomphe des âmes vénales.
 
@@ -1541,8 +1497,6 @@ Ce fut un grand désastre. Quelques républicains, ne pouvant supposer que leurs
 
 Un de nos amis, M. Pierre, qui cherchait à se cacher, fut pris, traîné menottes aux mains, attaché par les gendarmes à la queue d'un de leurs chevaux. Sa faible constitution ne put résister aux mauvais traitements qu'il subit en Afrique, à Lambessa. Il succomba, laissant dans la misère sa femme et ses enfants.
 
-3
-
 Félix Milliet souffrait d'être obligé de se cacher comme un criminel; il se serait constitué prisonnier, si ma mère, très sagement, ne l'en eût dissuadé.
 
 De courageux amis lui offraient alors une hospitalité qui n'était pas pour eux-mêmes sans danger; aussi changeait-il fréquemment d'asile.
@@ -1579,8 +1533,6 @@ Quel soupir de soulagement quand ces visiteurs peu sympathiques monteraient enfi
 Les commissions mixtes expédiaient vivement leur méprisable besogne. L'abbé Lottin, ennemi personnel de notre famille, était secrétaire général de l'évêché; il eut assez de crédit sur monseigneur Bouvier, évêque du Mans, pour faire exiler mon père. Le 27 mars 1852, un passeport était remis à M. Milliet, avec un itinéraire obligatoire et une mention spéciale à l'encre rouge qui plaçait le condamné sous la surveillance de la haute police. Mon père fut envoyé à Nice, qui faisait alors partie du Royaume de Sardaigne; il eût préféré Genève, mais le gouvernement impérial lui avait refusé ce séjour, craignant de voir se former, près de la frontière et dans un pays libre, un centre important d'opposition, un foyer de révolte.
 
 Cependant, après quelques jours passés à Valence où ses affaires l'avaient appelé, le proscrit se dirigea secrètement vers Genève. Des francs-maçons l'avaient confié au conducteur d'une diligence qui transmit à un autre la recommandation, si bien que M. Milliet, échappant à la police impériale, parvint à gagner la frontière suisse. Il était à l'abri.
-
-4
 
 J'allais avoir sept ans et je suivais une classe enfantine au Collège du Mans. Un jour, à propos de géographie, le professeur nous racontait un voyage en Suisse. Il décrivait avec admiration la belle situation de Genève au bout du Léman, la pureté des eaux bleues du Rhône, quand il sort du lac, et le panorama grandiose dont on jouit du haut du Mont Salève. — J'écoutais de toutes mes oreilles, et mon sourire inconscient disait : « Je verrai bientôt tout cela. »
 

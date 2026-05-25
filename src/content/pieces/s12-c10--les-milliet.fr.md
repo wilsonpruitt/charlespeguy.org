@@ -16,8 +16,6 @@ les Milliet
 L'affaire Jecker. — La plus grande pensée du règne. —
 Catholicisme et monarchie. — L'avenir des races latines.
 
-1
-
 Au Mexique, depuis de longues années, deux partis
 rivaux se disputaient le pouvoir : les catholiques et les
 libéraux. Les révolutions se succédaient avec une
@@ -159,8 +157,6 @@ lutte injuste, à laquelle il a été provoqué à son corps
 La traversée. — Tempête. — La Martinique : Fort-de-France.
 — La Vera-Cruz. — Cordova. — Orizaba. — San Agus-
 
-1
-
 Le général de Mirandol commandait la brigade de
 cavalerie qui fut envoyée comme renfort à l'armée du
 Mexique. Soldats et chevaux furent embarqués, non
@@ -247,7 +243,7 @@ mais elle inspirait à tous ceux qui l'ont connu une
 
 *M. de Tucé à madame Milliet*
 
-Fort-de-France, 10 octobre 62.
+Fort-de-France, 10 octobre
 
 Nous sommes à la Martinique depuis trois jours. Notre
 voyage a été charmant dans la Méditerranée ; nous avons
@@ -356,8 +352,6 @@ pars demain matin, je continuerai ma lettre à bord. Je me
 porte toujours très bien et, quoique la chaleur soit très
 forte et accablante, je me sens frais, dispos et vigoureux.
 
-2
-
 *M. de Tucé à madame Alix Payen*
 
 La Vera-Cruz, novembre 1862.
@@ -433,8 +427,6 @@ bord d'un petit ruisseau fangeux et, tout en dînant, nous
 voyions les petits crocodiles prendre leurs ébats sous l'œil
 vigilant de leurs parents.
 
-3
-
 Le 17 novembre, nous sommes partis de la Vera-Cruz,
 quittant les *terras calientes* pour les *terras templadas* et
 nous dirigeant sur Orizaba où se trouve le quartier général
@@ -475,8 +467,6 @@ reuse ; le remède consiste à couper de suite le membre
 attaqué, c'est le seul moyen d'échapper à la mort ; d'autres,
 gros comme ma cuisse, pétrissent leur proie dans leurs
 plis et la gobent comme une cerise, mais ils ne sont pas
-
-4
 
 *M. de Tucé à madame Alix Payen*
 
@@ -613,8 +603,6 @@ tions et auquel je présente mes civilités, voudra bien laisser
 passer celle-ci, en raison de ma discrétion, et qu'elle t'arri-
 vera avec toutes mes amitiés pour ton mari et tes parents.
 
-5
-
 *M. de Tucé à madame Milliet*
 
 ... Nous marchons très lentement en avant, séjournant
@@ -703,14 +691,8 @@ camarades et le consoler un peu de n'être pas avec moi.
 
 Adieu, mes bons amis, je vous aime et vous embrasse
 
-1863
-
-1863
-
 Devant Puebla. — Combat de Cholula. — Combat d'Atlixco.
 — Bataille de San Lorenzo. — Prise de Puebla.
-
-1
 
 Au début de la campagne, une proclamation faisant
 appel à de beaux sentiments d'honneur et d'humanité
@@ -754,8 +736,6 @@ ici, et pourquoi, pour qui ? Pour les réclamations injustes
 de vils agioteurs, qui ne sont pas même Français, pour
 rétablir ce que vous avez renversé dans votre immortelle
 
-2
-
 *M. de Tucé à madame Milliet*
 
 Nous sommes devant Puebla depuis le 18 de ce mois et
@@ -768,7 +748,6 @@ environ six kilomètres, sur un beau plateau, d'où nous
 découvrons toute la ville et tous les accidents du siège.
 Nous ne sommes pas oisifs ; nous montons tous les jours à
 
-1863
 cheval pour protéger des convois et nous opposer à une
 armée extérieure qui cherche à inquiéter les assiégeants.
 Nous venons de faire (1) une reconnaissance à Cholula,
@@ -855,12 +834,8 @@ vois un tas de chevaux renversés les uns sur les autres,
 parmi lesquels j'en figure un. Adieu, je t'embrasse de tout
 mon cœur.
 
-1863
-
 puis on décachète les lettres et, si je t'adressais un mot, celui-ci ne te parviendrait pas.
 Adieu, je vous embrasse tous et vous écrirai lorsque Puebla sera prise. Tout à vous.
-
-3
 
 La Puebla de los Angeles occupe le centre d'une vaste plaine qu'entourent au loin de très hautes montagnes couronnées de neiges éternelles. (1) C'est une des plus belles villes du Mexique. Dans ses soixante églises s'entassent d'immenses richesses; elle a un évêché, un séminaire, des collèges, de nombreux et beaux monuments.
 Lorsque l'armée française, repoussée en 1862, revint, l'année suivante, devant Puebla, les troupes du général Douay tournèrent la ville sur la droite, celles du général Bazaine sur la gauche, et la place se trouva rapidement investie.
@@ -876,8 +851,6 @@ Un beau matin, on barre toutes les rues d'une ville; on arrête tous les hommes 
 
 (1) Il fit fusiller sept médecins occupés à panser des blessés. Le 17 novembre 1860, sur l'ordre de Miramon, il enfonçait les portes de la légation anglaise et y volait 660.000 piastres, soit 3.300.000 francs. (Voir de Montluc, page 53)
 
-1863
-
 troupeau tous les bipèdes en état de porter les armes. On les attache solidement les uns aux autres, et on les dirige sur les dépôts des régiments. (1)
 Ce qui étonne, c'est que les soldats ainsi recrutés se défendent très bien derrière des remparts. Il faut dire qu'en rase campagne, un ennemi, même inférieur en nombre, les met aisément en fuite.
 Marquez n'était pas parvenu à débarrasser son armée de ces nombreuses femmes qui, de tout temps, ont suivi les armées mexicaines : Le soldat indien ne sait ni faire la cuisine, ni blanchir, ni raccommoder ses vêtements. Il ne peut se passer de l'élément féminin.
@@ -891,8 +864,6 @@ Marquez, qui connaissait bien les fortifications de
 
 Puebla, conseillait d'attaquer la place par le Sud et par le fort Carmen. Forey préféra diriger ses efforts contre le fort San Xavier, du côté de l'Ouest. Il était dupe des affirmations mensongères de M. de Saligny, assurant que « la population tout entière attendait impatiemment sa délivrance, prête à tomber aux genoux du vainqueur ».
 
-4
-
 *Deux escadrons à cheval, demain à 6 heures; deux jours de vivres; n'emmener que des chevaux en très bon état, laisser au camp les indisponibles et les mulets de bât ; colonne légère ; absence présumée de quatre à cinq jours. Le commandant de Tucé prendra le commandement et ira se mettre à la disposition du colonel de Brincourt, qui va en ravitaillement à Atlixco. (1)*
 
 M. de Tucé à madame Milliet
@@ -901,8 +872,6 @@ Je viens d'être très heureux. J'ai livré avec mes Chasseurs un combat de cava
 
 (1) M. du Barail explique dans ses *Souvenirs* pourquoi il n'était pas ce jour-là à la tête de ses troupes. Le général Forey avait voulu que l'opération fût dirigée par le colonel de Brincourt, et M. du Barail, plus ancien que ce dernier, ne pouvait pas marcher sous ses ordres. C'est pour cela que les Chasseurs d'Afrique se trouvèrent commandés par M. de Tucé, simple chef d'escadrons.
 
-1863
-
 J'ai eu la chance de n'être pas blessé et ma santé se maintient très bonne. Je n'ai pas le temps de te donner des détails sur le combat ; tu en trouveras le récit dans quelques journaux et le dessin dans l'*Illustration* ; je connais celui qui doit l'envoyer.
 Le siège de Puebla n'avance pas et menace de traîner en longueur. Les habitants et les 15.000 hommes de troupe que renferme cette ville se défendent avec une énergie très remarquable et les fortifications sont habilement faites... Cependant il est temps d'en finir, car la saison des pluies approche et il ne reste que quatre à cinq mois pour entrer en campagne à cette époque. — Depuis huit jours je suis dehors, manquant des choses les plus indispensables.
 
@@ -910,7 +879,7 @@ Le silence trop modeste de M. de Tucé m'oblige à résumer ici le récit offici
 
 Tandis que les troupes commandées par Etchegaray, chef d'état-major de Comonfort, descendaient dans la vallée, huit escadrons mexicains, aux ordres de Carbajal, furent vigoureusement attaqués par le commandant de Tucé, et forcés de faire un changement de front en arrière. Chargé de nouveau pendant sa manœuvre, l'ennemi fut complètement culbuté ; il se rallia cependant derrière une *barranca*, sous la protection de deux bataillons d'infanterie accourus à son secours. Une troisième charge acheva sa déroute, et les fuyards, battus d'autre part par le feu de notre infanterie et de notre artillerie, tombèrent encore sous le sabre de nos Chasseurs. L'honneur de la journée revient à la cavalerie française, qui ne montra jamais plus d'entrain et de vigueur. Environ deux cents Mexicains étaient
 
-(1) *Expédition du Mexique*, page 268.
+(1) *Expédition du Mexique*, page
 
 couchés sur le champ de bataille, et parmi les morts se trouvait le général Porfirio Garcia. Ce succès ne coûta cependant que trois chasseurs tués, deux officiers et sept chasseurs blessés. La cavalerie mexicaine alliée, qui se comporta bravement, eut dix-sept tués et trente-deux blessés.
 Le capitaine Paul Laurent, dans son *Journal de marche du 3e Chasseurs d'Afrique*, ajoute à ce récit quelques détails pittoresques :
@@ -918,8 +887,6 @@ Le capitaine Paul Laurent, dans son *Journal de marche du 3e Chasseurs d'Afrique
 Je suis de très mauvaise humeur. J'avais découvert un établissement de bains, j'en profitais, et mon ordonnance avait emporté, pour la raccommoder, mon unique chemise, nos bagages étant restés au camp. On sonne à cheval par alerte : me voilà forcé de mettre mon spencer sans chemise et de partir ainsi. Il paraît que cela presse. Les cavaliers, à mesure qu'ils sont prêts, rejoignent au galop. Le commandant de Tucé est déjà en avant, à un kilomètre de la ville, avec ce qu'il a trouvé sous la main. Nous prenons le trot dans un chemin couvert, dont les berges, arrivant à la hauteur de nos têtes, nous cachaient à l'ennemi. Aux premiers coups de feu, le commandant de Tucé nous donna l'exemple, et d'un bond de son cheval, il fut sur la berge. Chaque cavalier l'imita individuellement, et nous sortîmes du chemin creux comme des diables d'une boîte. Mais la plaine, déserte d'ordinaire, est aujourd'hui occupée par douze escadrons mexicains formés en échelons. (1) Heureusement l'ennemi n'eut pas l'idée de nous charger avant que notre formation fût achevée. Nous y sommes, tout le monde a passé, et ces maladroits-là se sont contentés de nous opposer un feu de tirailleurs. Le commandant de Tucé nous montre le premier échelon du bout de son sabre et nous dit avec son air bonhomme : « A fond ! et dans le tas ! »
 
 (1) Il n'y en avait que huit; les chiffres donnés par le capitaine Laurent ne sont pas toujours exacts.
-
-1863
 
 Nous entrons comme un coin dans ce qu'il appelle le tas. Je vois encore dans la poussière ce premier escadron. C'étaient des dragons ! Ils avaient des casques, les malheureux ! Je ne sais quel pacotilleur européen leur avait fourni cette ferblanterie mince comme du papier, — de vrais casques de théâtre ; — nos hommes s'en donnaient à cœur joie. La poussière abattue, le premier échelon... supprimé, nous voyons les onze autres qui, désirant se conserver pour des temps meilleurs, s'en vont par où ils étaient venus.
 
@@ -942,8 +909,6 @@ Cholula, le 17 avril 1863.
 
 *Je n'ai pas à blâmer ce que vous avez fait, vous aviez*
 
-1863
-
 *le commandement, et par conséquent vous avez agi suivant votre conscience. — Mais moi, je sais par expérience que les officiers, s'ils donnent l'exemple, ont besoin d'être vigoureusement soutenus par la troupe, qu'il est juste de récompenser dans de bonnes proportions.*
 
 *Voilà encore l'affaire du chasseur Guyot. — Je me rappelle que déjà M. de Kératry a fait passer au conseil de guerre (et fusiller) à Constantine un chasseur, exactement pour le même motif (probablement une injure à un officier). — Assez d'un. — D'ailleurs les instructions du général en chef sont formelles à cet égard. — Je laisserai Guyot en prison assez longtemps pour qu'il se le rappelle ; mais l'effectif du régiment devient de jour en jour plus faible ; on ne le renforce pas, comme on le fait pour les trois autres régiments dans de larges proportions. Ma foi, je n'irai pas, dans les conditions où nous sommes, perdre encore un cavalier.*
@@ -957,20 +922,14 @@ Resté en Afrique, le général Desvaux écrivait au colonel du Barail :
 *officiers et soldats. Témoignez aux blessés la part que nous prenons à leurs souffrances. Laissez-moi vous serrer cordialement la main et comme chef et comme ami. Tout à vous.*
 *Le général commandant la division de Constantine,*
 
-5
-
 M. de Tucé à madame Milliet
 
 Je suis actuellement à Cholula, où un grand nombre de familles se sont réfugiées pour fuir le siège de Puebla. C'est l'ancienne ville des Aztèques et on y voit les restes de plusieurs pyramides ou *Téocalis*, sur le sommet desquelles les Mexicains offraient les sacrifices humains. Sur l'une d'elles, assez bien conservée, on a bâti une jolie église.
 Sans avoir toutes nos aises, nous ne sommes pas trop mal ici. On loge dans les maisons et le service n'est pas pénible : quelques reconnaissances du côté de l'armée mexicaine qui tient la campagne sous les ordres du général Comonfort, et dont les avant-postes sont à 6 kilomètres de nous. On a converti une église en hôpital où l'on transporte les fiévreux du corps de siège.
 Puebla est à 10 kilomètres de Cholula ; le siège n'avance pas. La ville est fortifiée au delà de toute prévision, et nos moyens d'attaque sont tout à fait insuffisants. Les rues tirées au cordeau et se croisant à angle droit, forment des pâtés de maisons ou *cadres*, et chacun est converti en citadelle, dont il faut entreprendre le siège. Les édifices publics, églises, couvents, etc... sont également devenus des forteresses. Sur 89 cadres, nous en avons pris 7, et sur 73 édifices publics, nous en avons 3. Nous perdons beaucoup de monde. Le 1er Zouaves a eu un bataillon presque détruit, il n'y reste qu'un officier. — La saison des pluies approche et va encore compliquer les difficultés. Comment sortir de
 
-1863
-
 là sans renforts ? et ils ne sont guère possibles avant le mois d'octobre, à cause de la fièvre jaune qui sévit tout l'été à Vera-Cruz. — On prétend que Mexico veut imiter la défense de Puebla et se fortifie également. *Si* nous entrons à Puebla, la ville sera complètement détruite. C'est cependant une grande et bien belle ville.
 Je pense souvent à vous et ne tiens pas le gouvernement quitte à moins de six mois de congé en rentrant. Ce n'est pas trop pour vous raconter toutes mes aventures. En attendant, je vo[u]s embrasse. Ton frère et ami.
-
-6
 
 Malgré l'énergie de ses défenseurs, « l'arrogante Puebla » ne pouvait plus résister bien longtemps. Le fort San Xavier tombait en ruines, une quatrième parallèle avait été ouverte à 70 mètres du bastion attaqué ; le 29 mars, Bazaine commandait l'assaut. Chasseurs à pied et zouaves s'élancèrent sur les parapets malgré une vive fusillade. Balles, boulets, bombes et mitraille, rien n'arrêta leur élan et le drapeau tricolore flotta bientôt sur le fort.
 On crut le siège terminé, c'était une erreur. Chaque îlot de maisons ou *cadre* avait été fortifié très habilement. Chaque monument formait un réduit garni d'artillerie. « Quant aux prétendus cléricaux qui devaient nous accueillir comme des sauveurs, ils n'étaient que dans l'imagination de M. de Saligny. » (1)
@@ -979,8 +938,6 @@ Le 8 mai 1863, le général Bazaine livra une importante bataille à San Lorenzo
 A quatre heures et demie du matin, raconte le capitaine Niox, (1) les éclaireurs rencontrèrent un avant-poste ennemi. Fait assez rare, le général Bazaine répondit lui-même au *« Qui en viva? »* de la vedette mexicaine. Le petit groupe de cavaliers fut enlevé vivement ; cependant l'un d'eux renforça aussitôt la division qui défendait San Lorenzo et fit éloigner rapidement le convoi de ravitaillement. San Lorenzo est situé sur la rive droite de l'Atoyac. Le général Bazaine lança son aile gauche en avant, afin de déborder l'ennemi et de lui couper la retraite. La cavalerie devait prolonger ce mouvement tournant et rejeter sur l'Atoyac tout ce qu'elle rencontrerait. Ces ordres donnés, il fit battre la charge ; les cris enthousiastes des soldats y répondirent et les troupes s'élancèrent en bon ordre sur San Lorenzo, l'arme sur l'épaule, malgré un feu violent de mitraille et de mousqueterie. La défense fut opiniâtre dans le village, plus énergique encore dans le réduit occupé par un bataillon de *Zapadores* ; mais la vigueur de l'attaque triompha de toutes les résistances. Comonfort lui-même fut entraîné par les fuyards. — Pendant ce temps, une partie de la cavalerie française, sous les ordres du commandant de Tucé, se rabattait vers l'Atoyac en sabrant ceux qui cherchaient à gagner les gués. La première division de l'armée de Comonfort et la plus grande partie de la deuxième division furent détruites. — Le général Marquez était en position sur les hauteurs. Dès qu'il vit l'ennemi lâcher pied, il descendit dans la plaine et poursuivit son arrière-garde
 
 (1) Dont je résume le récit.
-
-1863
 
 jusqu'à Santa Inès Zacatelco. A neuf heures et demie du matin, les débris de l'armée mexicaine disparaissaient dans la direction de Tlaxcala.
 
@@ -996,8 +953,6 @@ De jour, de nuit, dans la tranchée, au bivouac, on voyait perpétuellement Baza
 
 Jaloux de son subordonné, le général Forey lui refusa l'autorisation de poursuivre l'ennemi en déroute.
 
-7
-
 Juarez, par des proclamations qu'animait un ardent patriotisme, s'efforçait de relever les courages. Il fit incendier toutes les récoltes autour of Puebla, afin d'affamer les assiégeants. Le général Ortega, avec vingt mille hommes de garnison, était décidé à se défendre jusqu'à la dernière extrémité, et devant cette résistance imprévue, le général Forey s'apprêtait à lever le siège. Le général Douay lui-même était assez découragé pour approuver cette idée. « Une pareille reculade, écrit M. du Barail, aurait rallié toute la nation à Juarez, en nous couvrant de honte et de ridicule. » (1)
 Le commandant Capitan parvint à convaincre le général Douay qu'il fallait, coûte que coûte, s'emparer de « l'arrogante Puebla ». Forey convoqua un conseil de guerre, et le siège continua.
 
@@ -1008,8 +963,6 @@ Hacienda de San Cristoral, près San Martin, 29 mai 1863.
 ... Le 17 mai, Puebla s'est enfin rendue à discrétion. Il était temps. Nous commencions tous, l'infanterie surtout, à trouver ce siège un peu long. Toute l'armée ennemie a été faite prisonnière. Avant de se rendre, les Mexicains ont brisé leurs fusils, noyé les poudres, scié les affûts des
 
 (1) Au moment où la situation des assiégeants était le plus difficile, le général Forey recevait une lettre de l'empereur l'informant qu'il savait de source certaine « que nous ne rencontrerions pas de défense sérieuse, ni à Puebla, ni à Mexico ».
-
-1863
 
 canons, puis au lever du jour, la garnison est sortie de la ville sans armes. Nous avons installé un bivouac pour les prisonniers.
 
@@ -1038,8 +991,6 @@ Je complète le récit sommaire de M. de Tucé par quelques mots empruntés à l
 *« Pendant trois jours, les églises vomirent dans les rues un flot de reliques, de statues de saints, de papes, d'abbés, de confesseurs et de martyrs, escortés par des*
 
 (1) Pour éviter les évasions pendant le trajet, on avait pris une précaution ridicule et peu efficace ; on avait coupé les boutons de tous les pantalons. Généraux et simples soldats, tous étaient forcés de tenir à deux mains leur culotte, ce qui les gênait pour courir. Plus d'un pourtant parvint à s'échapper, et parmi eux, le général Ortega, « qui n'avait pris aucun engagement et n'était pas prisonnier sur parole ».
-
-1863
 
 *nuées de chérubins en costumes de danseuses de l'Opéra. »*
 
@@ -1071,19 +1022,11 @@ Nous avons reçu des nouvelles de Fernand qui enrage de ne pas être au Mexique.
 
 Le 18 mai, un décret impérial confirmait la nomination de M. de Tucé au grade d'officier de la Légion d'honneur, avec la mention suivante : 26 ans de services,
 
-1863
-
 6 campagnes, chevalier du 29 décembre 1860, a très vaillamment conduit ses escadrons à la charge du combat de cavalerie de Cholula ; prendra rang au 26 mars.
 Le *Moniteur* du 17 juin publia un rapport du général commandant en chef à S. Ex. le Ministre de la Guerre, citant la brillante affaire d'Atlixco, qu'avaient eue, le 14 avril, les escadrons du commandant de Tucé.
 Le 9 juillet, décret impérial qui le nomme à l'emploi de lieutenant-colonel au 12e régiment de Chasseurs à cheval.
 
-1863
-
-1863
-
 Entrée à Mexico. — Les trois Caciques. — Une bande de brigands. — Départ du maréchal Forey.
-
-1
 
 M. de Tucé à madame Milliet
 
@@ -1095,8 +1038,6 @@ Des officiers d'état-major se sont rendus à Mexico pour s'assurer des subsista
 
 Nous faisions partie de l'avant-garde ; l'armée n'est arrivée que le 10, et le général Forey a fait une entrée solennelle, où nous avions notre place.
 Quelle différence avec l'entrée du duc de Puebla vaincue ! Ici la ville était en fête. Les cloches sonnaient à toute volée, répondant à nos joyeuses fanfares. Nos jeunes chasseurs défilaient fièrement à cette occasion, tandis que les manolas, richement parées, leur souriaient du haut des balcons. Des fleurs jonchaient les rues en telle abondance qu'elles formaient sous nos pas un tapis moelleux et les maisons étaient pavoisées de splendides étoffes. L'enthousiasme paraissait sincère de la part des gens riches et des commerçants étrangers, mais je n'ai pas grande confiance dans ces dispositions. On nous assure ce soir ; cependant on a organisé des patrouilles, et, grâce à la police, la ville sera sûre maintenant. Je crois que nous ne ferons guère qu'un service de
-
-1863
 
 sûreté contre les bandes de brigands qui pillent les haciendas et les villages...
 ... Nos officiers ont offert un grand bal aux dames de la ville dans la salle du théâtre. Les loges étaient pleines de jeunes Mexicaines, en riches toilettes décolletées, toutes couvertes de bijoux, et pour la plupart jolies. (1)
@@ -1116,20 +1057,16 @@ Almonte, bien que fils d'un célèbre curé libéral, se montra l'un des plus r�
 
 (1) Le Triumvirat rétablit les titres de noblesse et l'ordre de Guadalupe, institué autrefois par Iturbide, avec de somptueuses pensions.
 
-1863
-
 arriérées, « un mulet obstiné dans l'immobilité ; il regrettait le Tribunal du Saint-Office et les autodafés ». (1)
 Ce qu'il regrettait par-dessus tout, c'étaient ces beaux biens de mainmorte dont une loi avait dépouillé le clergé et que ni Forey, ni l'empereur lui-même n'auraient pu lui rendre. (2)
 Dès que la Junte eut décrété le rétablissement de la monarchie, Napoléon III s'empressa d'offrir la couronne du Mexique à son protégé, l'archiduc Maximilien d'Autriche.
-
-2
 
 M. de Tucé à madame Milliet
 
 La Junte mexicaine vient de proposer à Maximilien le titre d'Empereur du Mexique. S'il refuse, on s'en remettra à l'empereur Napoléon pour trouver quelqu'un qui veuille de cette place. Celui qui la prendra aura de la besogne et en laissera encore à son successeur, si longtemps qu'il ait à régner. J'espère que Maximilien acceptera, et qu'il amènera ici assez d'Autrichiens pour nous remplacer et nous permettre d'aller passer un petit congé en France.
 Je ne vais pas souvent à Mexico, j'y ai pourtant passé toute la journée d'hier dimanche et j'ai assisté à une course de taureaux. Ces spectacles, que l'on dit cruels et barbares, sont très attrayants : la bravoure du taureau, l'adresse et l'agilité des hommes, ainsi que leur audace, font qu'on se
 
-(2) « Ces biens étaient si considérables qu'ils immobilisaient une valeur d'un milliard environ. La captation et les abus d'autorité n'avaient pas été étrangers à cette accumulation de richesses si contraire à l'esprit de renoncement. » — DE KÉRATRY, page 36.
+(2) « Ces biens étaient si considérables qu'ils immobilisaient une valeur d'un milliard environ. La captation et les abus d'autorité n'avaient pas été étrangers à cette accumulation de richesses si contraire à l'esprit de renoncement. » — DE KÉRATRY, page
 
 passionne malgré soi à cette lutte. — On nous promet un beau bal que doivent nous rendre les habitants de Mexico. S'il ne faut que de l'argent, on n'en aura jamais vu de plus magnifique, car la richesse de la plupart des particuliers est quelque chose d'inouï. Un monsieur qui demeure à côté de moi possède une mine qu'il loue 50.000 piastres, (1) et plusieurs Mexicains possèdent des fortunes semblables. Tu dois penser qu'un pays où il y a tant d'argent, sa valeur n'est pas la même qu'en France : tous les objets de consommation et de luxe sont à un prix exorbitant : 100 fr. un pantalon, 350 une tunique d'officier d'infanterie, etc...
 J'ai visité le Musée de Mexico ; il y a deux ou trois choses curieuses et belles, telles que le Zodiaque et la Pierre des sacrifices, qui servait au culte des anciens Aztèques, mais on est étonné de voir qu'il n'existe pas plus de traces du passé d'un peuple qui avait sa civilisation, sa religion et ses arts. Probablement les Espagnols ont détruit toutes ces images pour y substituer les leurs ; c'est seulement changer d'idolâtrie.
@@ -1139,12 +1076,8 @@ Un décret punit de 50 piastres celui qui travaille le dimanche sans avoir enten
 
 (1) A 5 francs 37 la piastre.
 
-1863
-
 d'après ce qu'on en dit, je le considère comme un coquin très fin et très adroit qui se joue du général Forey. Celui-ci n'est pas plus malin diplomate que fameux général. Mais je ne veux pas en dire de mal, s'il me fait passer lieutenant-colonel...
 De la Vera-Cruz les lettres arrivent, mais les paquets n'arrivent pas. — Pour la nourriture, excepté le vin, rien ne nous manque et nous vivons plus ou moins bien, selon les chefs de popote qui font chacun leur mois. Il y en a qui ont même le talent de faire paraître quelquefois sur la table l'entremets sucré ; ce sont de beaux jours que ceux-là, et la crème au chocolat est fêtée comme tu peux le penser. Notre popote est toujours de cinq : le médecin, le vétérinaire, le payeur, l'adjudant-major et moi. Nous nous entendons très bien et vivons fort agréablement.
-
-3
 
 ... Je suis encore à Tacubaya, faisant de temps à autre des excursions contre des bandes de voleurs. J'en ai arrêté et pris une de trois cents, il y a quelques jours, de concert avec des troupes mexicaines.
 
@@ -1157,15 +1090,11 @@ Le capitaine Laurent a raconté avec beaucoup de verve cette petite expédition.
 « Buitron avait demandé au général Marquez de la solde pour un nombre d'hommes double de celui qu'il avait. Nous allons les compter : Un trompette sonne l'appel. Tous les hommes viennent, l'oreille basse et sans armes, se mettre au rang. Ainsi, sans avoir brûlé une cartouche, nous tenons prisonniers les trois cent cinquante bandits qui désolaient la vallée de Mexico.
 « Trois cents magnifiques chevaux (1) — les bandits,
 
-(1) M. de Tucé n'en a compté que 160.
-
-1863
+(1) M. de Tucé n'en a compté que
 
 ayant le choix, prennent toujours les meilleurs — tombent entre nos mains avec une quantité considérable d'armes, de munitions et deux petits canons de campagne. La colonne des prisonniers défile lentement au milieu des acclamations de la population de San Angel, heureuse d'être délivrée de ses bourreaux. Les chasseurs à pied sont montés sur les chevaux des voleurs et se donnent toutes les joies du fantassin à cheval. Notre étape est une marche triomphale jusqu'à Mexico.
 « Buitron, condamné à mort par la cour martiale, a été fusillé le 15 octobre. Il est mort en lâche, il a fallu le traîner sur le terrain d'exécution, ses jambes refusaient de le porter. »
 « Les officiers, écrit M. de Tucé, ont été envoyés prisonniers à Mexico et les brigands sont incorporés dans les troupes qui les ont arrêtés. Je les vois qui font l'exercice avec les camarades, mais quelle confiance pouvons-nous avoir dans de pareils soldats ? »
-
-4
 
 M. de Tucé à madame Milliet
 
@@ -1180,15 +1109,11 @@ Tu me demandes si le service des ambulances est bien organisé. Oui, il l'est au
 
 (1) Bazaine faisait répandre habilement cette idée.
 
-1863
-
 à la disposition de son médecin qui ne le quitte pas. Nous avons même dans chaque régiment de cavalerie une pharmacie vétérinaire, mais l'état sanitaire est excellent en dehors des Terres-Chaudes.
 Malgré les pluies, les matinées sont très belles toujours, et il ne pleut jamais, jamais, avant deux heures.
 Paul me demande s'il y a ici quelques tableaux de l'École espagnole. Je n'ai pas pu visiter l'École des Beaux-Arts de Mexico, où je vais très rarement... J'ai vu un Murillo dans la chapelle d'une hacienda, à Nopaluca, très beau ; d'autres tableaux qui doivent être d'un maître, à la chapelle de l'hacienda de Zopiapian ; dans l'église de Puebla, il y a de fort belles copies de Rubens : *Le Triomphe de la Foi*, par exemple ; tous les autres tableaux ont été enlevés pendant le siège. Il y a quelques statues, entre autres celle d'un roi d'Espagne, dont M. de Humboldt fait grand cas ; je ne partage pas son opinion ; rien de plus lourd et de plus laid que le cheval.
 Ton rêve qui t'a fait voir une belle ville avec de magnifiques monuments en ruines peut parfaitement s'appliquer à Mexico, et mieux encore à Vera-Cruz ou à Puebla. Nulle part au monde on ne peut voir autant de ruines qu'ici. Ce devait être bien beau il y a une centaine d'années ; il en faudra bien autant pour rendre au pays toute sa splendeur.
 J'ai écrit à Fernand pour lui faire prendre un peu patience. Je pense qu'on va le nommer maréchal des logis. — Je ne sais pas encore si on fera de moi un lieutenant-colonel ; je ne saurai cela qu'après vous, si je suis nommé. Quant au colonel du Barail, il a l'assurance formelle de sa nomination au grade de général.
-
-5
 
 Le 20 août, le courrier de France, si impatiemment attendu, apporta la liste officielle des récompenses ; le général Forey recevait le bâton de maréchal, le colo-
 
@@ -1199,8 +1124,6 @@ Quant au maréchal Forey, ce fut pour lui une amère déception, quand il apprit
 Le maréchal Forey avait le droit d'en vouloir à cet astucieux diplomate auquel il avait obéi aveuglément et qui, jésuitiquement, se plaignait toujours qu'on n'eût pas suivi ses conseils. Il se remémorait tous les services qu'il avait rendus à Napoléon III en 1852, et la bataille de Montebello, où il avait soutenu victorieusement l'effort de l'armée autrichienne. Ne pouvant croire à l'ingratitude de l'Empereur, il espérait toujours un contre-ordre, et ne se décidait pas à partir. Il finit pourtant par comprendre qu'il fallait se résigner.
 
 (1) M. de Saligny avait épousé mademoiselle Luz Ortiz, de famille mexicaine, ultra-cléricale. « Il était plus occupé de ses propres affaires que des intérêts de la France. » — MONTLUC.
-
-1863
 
 Le ministre de la guerre écrivait au général Bazaine :
 « M. le Maréchal Forey sera déjà bien loin du Mexique, quand vous recevrez cette lettre. Vous avez dû être frappé des fautes qui ont été commises depuis l'entrée à Mexico. Je ne doute pas que vous vous soyez déjà mis à l'œuvre pour réparer les fâcheuses mesures ordonnées par votre prédécesseur. » (1)
@@ -1224,8 +1147,6 @@ M. de Tucé à madame Milliet
 C'est maintenant M. Bazaine qui commande l'expédition et qui a aussi les pouvoirs diplomatiques. On compte beaucoup sur lui, peut-être trop, car il lui sera difficile de satisfaire à tant d'intérêts divers. On dit que nous sommes ici pour longtemps. Je ne vois pas encore clairement le but de l'expédition. S'il faut régénérer le pays et faire d'honnêtes gens de tous les coquins qui l'habitent, ce sera long. On n'a pas idée d'une démoralisation pareille.
 Mes nouvelles fonctions n'ont rien changé à mes habitudes ni à mes occupations, seulement je suis président du Conseil de guerre, ce qui me fait aller plus souvent à Mexico pour siéger. Il y a des causes assez importantes et le code militaire est sévère. Il y va parfois de la vie d'un homme.
 
-1863
-
 Tu diras à Louise que Manière lui élève une petite perruche verte qu'il a dénichée. J'espère pouvoir l'emporter; elle est très apprivoisée et baragouinera tout ce qu'on voudra.
 J'oubliais de vous dire que j'ai reçu le *Loir*, journal de Vendôme et l'*Avenir*, journal de Blois, dans lesquels il y a un article sur moi, signé de M. Chauvin, mais je crois que c'est d'Harcourt qui l'a fait. Il y est dit que je suis un grand homme et que Montoire est fier de m'avoir vu naître !!! Il y en a une grande page. J'ai peur qu'on ne m'élève une statue sur la place. Il n'y a que d'Harcourt capable d'avoir écrit cela.
 
@@ -1234,8 +1155,6 @@ J'oubliais de vous dire que j'ai reçu le *Loir*, journal de Vendôme et l'*Aven
 1863-1864
 
 Expédition dans le nord : Témascaltépec. — Toluca. — Célaya. — Saint-Juan de Lagos. — Zacatécas. — Téocatliche. — Les contre-guérillas.
-
-1
 
 Le général Bazaine s'était fait une réputation de bravoure en Crimée et en Italie. Très populaire dans l'armée et sympathique même aux Mexicains, il montrait une impassibilité absolue au plus fort du danger, affectant, pour ainsi dire, « la coquetterie de l'indifférence. Sous des allures de bonhomie, auxquelles se prêtaient un corps replet et une bonne grosse figure éclairée par des yeux très intelligents, mais qui ne s'ouvraient jamais qu'à demi, il cachait un esprit très fin, trop fin peut-être ». (1)
 Les Mexicains aimaient à entendre un général français parler la langue espagnole. Malheureusement il se plaisait à nouer mille intrigues dont il savait profiter sans jamais paraître s'y mêler.
@@ -1305,8 +1224,6 @@ ses que les bonnes gens de France élèvent dans de petits pots et qui atteignen
 Plusieurs de nos officiers photographient les différents points de vue et envoient des clichés au Ministère de la Guerre. Il y aura de quoi faire un bel album, mais, pas varié, car toutes les villes sont bâties sur le même modèle.
 Puisque ton mari est chasseur, envoie-le un peu faire un tour ici ; les lièvres vont par troupeaux ; nous sommes fatigués de manger du gibier ; il y en a de toute espèce, excepté des perdrix qui sont très rares et ne ressemblent pas à celles de France.
 
-2
-
 L'archiduc Maximilien hésita longtemps avant d'accepter la couronne du Mexique. Le gouvernement français promettait de mettre à son service « sa diplomatie, ses finances et ses soldats ». Mais la majorité des Mexicains gardaient leur préférence pour les institutions républicaines, et d'autre part, les États-Unis affirmaient avec énergie leur volonté de faire respecter strictement la doctrine de Monroë et de ne pas tolérer sur la terre d'Amérique un seul soldat européen. A Pittsburg, à Philadelphie et à New-York, on laissait Ortega enrôler librement des volontaires pour l'armée mexicaine. (1)
 Après le triomphe des Fédéraux du nord sur les Confédérés du sud, l'exemple et le voisinage d'une république qui se maintenait glorieusement à la tête du
 
@@ -1322,7 +1239,7 @@ Beaucoup de riches propriétaires avaient formé à leurs frais des corps francs
 *vaqueros* qui vivaient sur leurs terres. (1) Quelques-uns combattaient avec les Libéraux et faisaient la guerre de partisans. Ces guérillas, réunies la veille, se dispersent le lendemain ; elles sont insaisissables ; quelques jours après on les retrouve reformées un peu plus loin.
 Les militaires de profession se défient des corps francs, de toutes les troupes indisciplinées dont l'initiative n'est pas toujours sans danger. Cependant Bazaine comprit qu'au Mexique il fallait nécessairement s'organiser des contre-guérillas, et pour les commander, il nomma colonel un certain Dupin. C'était l'un de ces déclassés qui, pouvant plus trouver en France une position avouable, étaient accourus en foule au Mexique pour y chercher fortune. M. de Saligny s'était entouré de ces intrigants, leur avait distribué des places lucratives et favorisait leurs affaires. Bazaine ne se montra pas plus scrupuleux dans le choix de ses protégés. Déjà en Chine pendant le pillage du Palais d'Été, Dupin avait raflé une superbe collection d'œuvres d'art. De retour en France, et ayant bien vite dissipé au jeu tout son argent, il chercha à se défaire avantageusement des trésors qu'il avait volés. Avec une inconscience inouïe, il fit annoncer cette vente par les journaux ! Gros scandale ! Le gouvernement, pour donner satisfaction à l'opinion publique, crut devoir mettre Dupin en retrait d'emploi. Et cet homme auquel Bazaine confia le commandement des contre-guérillas des Terres-Chaudes.
 
-(1) Les *vaqueros* sont les gardiens des troupeaux de chevaux ou de bétail vivant en liberté sur les grandes haciendas : hardis cavaliers, ils passent leur temps à dresser des chevaux sauvages. — NIOX, page 533.
+(1) Les *vaqueros* sont les gardiens des troupeaux de chevaux ou de bétail vivant en liberté sur les grandes haciendas : hardis cavaliers, ils passent leur temps à dresser des chevaux sauvages. — NIOX, page
 
 Lorsqu'on demanda dans l'armée française des soldats de bonne volonté pour former les corps francs, on n'eut que l'embarras du choix. « L'imprévu, le débraillé de cette vie aventureuse, sa quasi-indépendance, de sérieux avantages de solde, la perspective de bénéfices à récolter et de coups à faire, séduisaient, tournaient les têtes et enlevaient ainsi à nos régiments quelques-uns de leurs meilleurs éléments. » Voici la description que trace M. de Kératry de la troupe qu'il commandait :
 « Dans cette guérilla, toutes les nations du monde semblent s'être donné rendez-vous : négriers, écumeurs de mer, chercheurs d'or, chasseurs de bisons... Cette bande d'aventuriers ignorait la discipline. Officiers et soldats se grisaient sous la même tente ; les coups de revolver sonnaient souvent le réveil. »
@@ -1331,8 +1248,6 @@ De tels hommes valaient-ils mieux que les brigands qu'ils étaient chargés de c
 1864-1866
 
 1864-1866
-
-1
 
 *M. de Tucé à madame Milliet*
 
@@ -1465,7 +1380,7 @@ Ton frère et ami.
 
 *M. de Tucé à madame Milliet*
 
-San Luis de Potosi, 1ᵉʳ septembre 65.
+San Luis de Potosi, 1ᵉʳ septembre
 
 Voici encore un chapitre de mon Odyssée terminé. Je suis parti de mon commandement de Santa Rosa le 22 juillet et suis arrivé ici il y a deux jours. J'ai fait un voyage très ennuyeux. Je conduisais un convoi de voitures avec des malades. Les routes sont très mauvaises, et les ravins, où l'on passait à pied sec il y a quelques mois, sont maintenant des rivières qui ont cent mètres de large et dix pieds de profondeur ; il faut cependant passer. J'ai été très heureux de ne pas avoir d'accidents dans ces mauvais passages.
 Je suis fort content d'avoir quitté mes fonctions de commandant supérieur, et d'être rentré dans la première division que commande le général Donay. C'est un excellent chef avec lequel il est agréable de servir.
@@ -1478,7 +1393,7 @@ Beaucoup d'Américains du Sud ont émigré. Ils arrivaient en assez grand nombre
 
 *M. de Tucé à madame Milliet*
 
-San Luis de Potosi, 1ᵉʳ nov. 65.
+San Luis de Potosi, 1ᵉʳ nov.
 
 Je ne sais pas encore si Fernand est arrivé. Je le tiens à Vera-Cruz au bureau de la place, le colonel du Preuil, de mon régiment, va à Mexico, où il doit prendre provisoirement les fonctions de général de brigade de cavalerie. Je m'occuperai de Fernand, et je peux qu'il pourra lui rendre facile son passage au 1ᵉʳ Chasseurs. Pendant l'absence du colonel, je prends le commandement de ce régiment et je le garderai probablement longtemps, car il est plus que probable que M. du Preuil quitte Mexico avant d'être général. Sera-ce moi qui le remplacerai ? On peut parfaitement envoyer quelque officier de France et cela ne me surprendrait pas beaucoup.
 Nos escadrons sont fort dispersés... Nous avons ramené des Terres-Chaudes un bataillon d'infanterie d'Afrique (zéphirs). Rien ne peut donner idée de l'état dans lequel ces malheureux hommes sont rentrés. On les a tous ramenés en voiture, depuis l'endroit où elles peuvent rouler. Sur environ mille hommes, dont se compose ce bataillon, il y en a 75 en état, je veux dire, de faire du service, tout le reste est à l'hôpital. Le bataillon de zouaves qui est seulement allé les chercher, laisse 118 hommes à l'hôpital, et nos chasseurs qui ont ramassés, en partie sur leurs che-
@@ -1502,15 +1417,13 @@ Il ne faudra pas vous étonner si Fernand ne vous écrit pas de suite en débarq
 Ton fils est arrivé ici depuis quelques jours ; il était temps qu'il me rejoignît, car je me mets en route après-demain. Nous nous dirigeons vers le Nord, où les Américains, tout en protestant de leur neutralité, se sont emparés de la ville mexicaine de Bagdad, à l'embouchure du Rio del Norte.
 Fernand est entré comme fourrier au 6ᵉ escadron, cela ne peut que lui être avantageux, mais il faut une certaine aptitude de bureau, je ne sais si cela lui conviendra. Il n'a accepté probablement que pour me faire plaisir. Je l'ai trouvé changé de toutes manières à son avantage. Il a une apparence de santé et de vigueur, son raisonnement est celui d'un garçon de bon sens et de bonne volonté. J'espère que j'en ferai quelque chose.
 
-2
-
 Fernand Milliet ne put prendre part qu'à la fin de l'expédition. Ses lettres ne nous renseignent guère que sur des faits d'armes peu importants. Elles ajoutent cependant aux notes de M. de Tucé certains détails sur les usages du pays. Elles laissent aussi entrevoir les progrès de la démoralisation dans l'armée française. Nos soldats, fatigués d'une lutte trop prolongée, qu'aucun but élevé ne venait ennoblir, s'abandonnaient peu à peu à imiter les mœurs des brigands qu'ils étaient venus combattre.
 
 1864-1866
 
 *Fernand Milliet à sa mère*
 
-San Luis de Potosi, 7 janvier 66.
+San Luis de Potosi, 7 janvier
 
 Enfin, je viens de rejoindre mon oncle ; tu ne saurais croire le plaisir que cela m'a fait de le revoir. Il est toujours le même, très bien portant, seulement ses cheveux et sa barbiche commencent à grisonner. Il m'a remis deux lettres de toi que j'aurais dû recevoir à Mexico, l'une contenait cent francs dont je te remercie bien, chère mère, et l'autre un portrait de Louise qui m'a fait grand plaisir. Je ne reconnaissais plus cette grande demoiselle.
 
@@ -1619,8 +1532,6 @@ Nous sommes maintenant à Mexico, mais pour peu de temps. Je commence à croire 
 
 Maximilien et Bazaine. — Un conseil de Victor Considérant. — Cruautés. — Lettres du général Douay. — Dénouement.
 
-1
-
 Lorsque Bazaine eut été promu au grade de maréchal (5 septembre 1864) et que Maximilien lui eut confié la direction militaire, tous deux espéraient rétablir prochainement la paix dans le nouvel empire du Mexique. Prenant l'offensive, Bazaine rejeta Doblado dans l'extrême Nord et Uraga dans les provinces du Sud. Après avoir ainsi séparé en deux tronçons l'armée des Libéraux, il écrivait joyeusement au Ministre de la Guerre : « On ne parle plus de Juarez ni de son gouvernement ambulant, et je ne sais pas, quant à présent, où ils sont. »
 
 Mazatlan fut occupé le 13 novembre 1864. L'année suivante, Bazaine fit le siège d'Oajaca, que défendait Porfirio Diaz, et parvint à s'en emparer (8 février 1865). Partout les Français étaient vainqueurs. Comment expliquer le brusque arrêt de ces triomphes et la fin humiliante de l'expédition ?
@@ -1650,8 +1561,6 @@ Il avait été convenu que l'effectif de l'armée française au Mexique serait r
 1865-1867
 
 « *Si je ne montre pas mon mépris, c'est par égard pour mon meilleur ami, pour l'empereur Napoléon, par respect pour cette grande nation à laquelle nous devons tant. J'avale bien des injustices, bien des humiliations auxquelles je n'étais pas accoutumé… Du reste je me console de recevoir des rapports inexacts du quartier général, puisque le même malheur arrive à l'empereur des Français. On se joue de deux empereurs, voilà la situation ; mais elle ne durera pas longtemps. Les deux empereurs commencent à voir clairement. Le Mexique et la gloire de l'armée française triompheront de toutes les intrigues méprisables.* »
-
-2
 
 La situation était critique, mais non désespérée. Un conseil hardi fut donné à Maximilien par un homme qu'on ne s'attendrait pas à rencontrer dans cette désastreuse aventure guerrière, par Victor Considérant. Un profond sentiment de pitié et de justice inspirait notre éminent ami, lorsqu'il proposa des mesures de rénovation sociale qui auraient pu sauver le malheureux empereur.
 
@@ -1719,8 +1628,6 @@ Je crois retrouver encore l'influence de Considérant, dans la tentative faite p
 
 « Juarez doit reconnaître la décision de la majorité effective de la nation qui veut la paix. Il faut qu'il se décide à collaborer, avec son énergie inébranlable et son intelligence reconnue, à l'œuvre difficile que j'ai entreprise… Je suis prêt à recevoir Juarez dans mon conseil et parmi mes amis. »
 
-3
-
 Mais Maximilien n'avait ni assez de générosité pour persévérer dans la voie de la conciliation, ni assez d'énergie pour résister aux mauvais conseillers qui allaient causer sa perte. Déjà, le 17 juillet 1864, lorsque la municipalité de Vera-Cruz avait imploré la grâce de trois condamnés à mort, il n'osa pas l'accorder. C'est peut-être à l'instigation de Bazaine que M. Loysel lui avait écrit : « Il faut se défier de la sensiblerie. »
 
 Ce qui souleva une réprobation générale, ce fut de voir Maximilien signer le cruel décret du 3 octobre 1865 :
@@ -1763,8 +1670,6 @@ obéissaient, mais en protestant tout bas contre l'usage abominable que faisait 
 
 Ces mesures cruelles, Maximilien allait bientôt les payer de sa vie.
 
-4
-
 Cependant, Bazaine continuait à manœuvrer habilement pour se créer des partisans. Plus d'un officier eut à repousser ses tentatives d'embauchage. Ces intrigues furent démasquées par le général Douay.
 
 Caractère énergique, passionné pour son métier, Félix Douay jouissait de l'estime de ses officiers et de la confiance de ses soldats. Les lettres confidentielles qu'il écrivit à son frère sont d'une extrême violence. Interceptées par le cabinet noir de Napoléon III, elles contribuèrent probablement à motiver le rappel du maréchal Bazaine. Nous en donnerons quelques extraits :
@@ -1797,11 +1702,9 @@ Une lettre du général mexicain Porfirio Diaz à M. Matias Romero, ministre de 
 
 *Le maréchal Bazaine, par l'intermédiaire d'une tierce personne, m'a fait offrir de mettre entre mes mains les villes occupées par les Français, et de me livrer Maximilien, Marquez, Miramon, etc…, si j'acceptais une proposition qu'il me faisait et que j'ai repoussée, parce que je ne l'ai point trouvée honorable. Une autre proposition, venant également de l'initiative du maréchal Bazaine, avait trait à l'acquisition de 6.000 fusils et de 4 millions de capsules ; si je l'avais désiré, il m'aurait vendu aussi des canons et de la poudre, mais j'ai refusé d'accepter ces propositions.* (1)
 
-5
-
 Dès le 22 octobre 1866, Napoléon III envoyait à Maximilien M. de Castelnau, avec mission de lui faire
 
-(1) A. Allenet. *La Jeune France*, page 87.
+(1) A. Allenet. *La Jeune France*, page
 
 comprendre que son abdication était devenue nécessaire. L'empereur semblait avoir eu déjà lui-même cette intention, lorsqu'il avait adopté le petit-fils d'Iturbide.
 
@@ -1843,9 +1746,9 @@ contient sa correspondance avec Juarez, dressait ainsi le bilan de l'expédition
 
 « Cette guerre d'intervention au Mexique a coûté neuf cents millions de francs au Trésor français, vingt-cinq mille hommes, deux maréchaux, deux sénateurs : marquis de Montholon, Corta. Cette funeste expédition a été le Waterloo de Napoléon III. Elle a amené Sadowa qu'il n'a pu empêcher. Sadowa nous a valu la guerre avec toute l'Allemagne, l'envahissement de la France et le siège de Paris. »
 
-une famille de républicains fouriéristes ............    1
-VII. — Adrien de Tucé. — cinq ans au Mexique ..    5
-1862-1867 ...............................................    7
+une famille de républicains fouriéristes ............
+VII. — Adrien de Tucé. — cinq ans au Mexique ..
+1862-1867 ...............................................
 
    L'affaire Jecker. — La plus grande pensée du règne. — Catholicisme et monarchie. — L'avenir des races latines.
 
@@ -2031,7 +1934,7 @@ cation « le verbe *augeo* « accroître, enrichir » est
 employé dans les sens les plus divers. Ainsi dans la
 langue religieuse il signifie « honorer par des dons » :
 *augere aram donis.* On dit de même : *augere aliquem
-ratoris. Augeo* signifie aussi « créer ». Lucrèce, v, 322.
+ratoris. Augeo* signifie aussi « créer ». Lucrèce,
 debet.* — Ces différents sens se retrouvent dans *auctor.* Il
 signifie « fondateur, père ». Virgile, vii, 49. *Isque paren-
 tem Te, Saturne, refert, tu sanguinis ultimus auctor.* —

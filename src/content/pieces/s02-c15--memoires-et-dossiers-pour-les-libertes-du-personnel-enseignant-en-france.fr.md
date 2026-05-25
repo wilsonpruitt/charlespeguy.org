@@ -70,7 +70,7 @@ graves par le Comité d'administration, le membre intéressé
 ayant été préalablement appelé à fournir des explications,
 sauf recours à l'Assemblée générale ; ou par l'Assemblée
 générale sur le rapport du Comité d'administration.
-- ARTICLE 30. — Tout ancien membre de l'Association qui, M
+- ARTICLE 30. — Tout ancien membre de l'Association qui,
 ayant été rayé pour quelque cause que ce soit, demandera
 sa réintégration, sera soumis aux mêmes formalités que le
 candidat qui se présente pour la première fois.
@@ -102,7 +102,7 @@ Dans une commande égale ou supérieure
 du même auteur : “4
 Le Trésor des Humbles
 - Sagesse et Destinée
-pour paraître prochainement : $ 2.
+pour paraître prochainement : $
 le Mystère de la Justice
 
 Le correspondant spécial des cahiers s'est montré
@@ -147,7 +147,7 @@ diverses qualités, politesse, tolérance, courtoisie que
 l'on attribuait autrefois à la race. De même, peu .
 d'hospitalité. Un esprit de corps étroit, des rivalités
 et des jalousies d'arme à arme — telle est la masse, ‘4
-ou plutôt, car la masse est inerte et aveugle là *} É
+ou plutôt, car la masse est inerte et aveugle là *}
 comme partout, telle est la direction et l'impulsion
 que suit la masse.
 Un certain nombre d'officiers, plus nombreux que
@@ -192,7 +192,7 @@ et les plus féroces (Cf. Blagovestchenk). Ils ont en
 tête leur programme de pillage lorsqu'ils arrivent à 3 ss
 un village ; les uns doivent aller aux chevaux, les
 autres aux fourrures, etc. Je crois que leur puissance se
-militaire est un grand bluff: la guerre de 1877 le e.
+militaire est un grand bluff: la guerre de 1877 le
 Les individualités les plus intéressantes se rencon-
 treraient, je crois, parmi les Américains. C'est aussi
 chez eux que j'ai trouvé le plus d'idée, le plus de
@@ -202,9 +202,9 @@ de l'an VI. Ils discutent librement leur impérialisme,
 beaucoup plus tolérant et moins profond que les
 nationalismes français, allemand et anglais. % à
 Quant aux Japonais, je n'en parlerai pas. J'aurais
-aimé approfondir l'état d'âme des vieux comman- x
+aimé approfondir l'état d'âme des vieux comman-
 dants à cheveux blancs, qui Samouraïs autrefois
-avaient porté le double sabre et s'étaient plus ou e
+avaient porté le double sabre et s'étaient plus ou
 moins ouvert le ventre; mais je n'ai pu causer x. ‘#4
 qu'avec de jeunes officiers sortis de Polytechnique “4
 et parlant argot qui manquaient de couleur locale.
@@ -299,7 +299,7 @@ cherché les avis de ceux qui connaissent le pays, et
 tâché d'éliminer ce que pouvaient leur suggérer “2
 leurs préjugés ou leurs intérêts. Des géns de bonne
 foi, préoccupés de la même question, sont arrivés
-des conclusions analogues. s
+des conclusions analogues.
 Comme toujours, je vous écrirai au hasard des
 circonstances et sur le point qui me paraîtra le plus
 Salut et fraternité.
@@ -385,24 +385,24 @@ a l'est, et l'envers de l'est à l'ouest.
 rue de la Sorbonne, au second
 
 Je me réserve de dire dans le mémoire indépendant
-que je ferai quand j'aurai du temps de reste pour quelle j
+que je ferai quand j'aurai du temps de reste pour quelle
 raison profondément triste et profondément grave ce
 quinzième cahier n'est pas plus que le quatorzième un
 mémoire ni un dossier du récent mouvement pour la
 liberté en Russie. Nous avons dû au dernier moment en
 faire un cahier — mémoires et dossiers — pour les -
 libertés du personnel enseignant en France.
-Des atteintes plus graves de jour en jour et plus j
+Des atteintes plus graves de jour en jour et plus
 générales sont portées aux libertés privées, — publiques, — civiques, — politiques, — du personnel
 Préparées par des circulaires, ces atteintes ont porté
 sur des personnes. A la rentrée nous publierons un
 dossier de ces circulaires. Mais nous n'avons pas voulu .
-tarder jusque-là pour présenter les mémoires et les s
+tarder jusque-là pour présenter les mémoires et les
 dossiers que nous avons prêts des persécutions injustes
 récemment exercées contre les personnes.
 Les exemples abondaïent. Nous en avons choisi quel- “10
 ques-uns, ceux que nous connaissions le mieux ou qui
-nous paraissaient les plus caractéristiques. (' d
+nous paraissaient les plus caractéristiques. ('
 « Une atteinte particulièrement grave aux libertés élé-
 mentaires, à La liberté privée a été commise par l'auto-
 
@@ -430,22 +430,22 @@ les accusations de l'interpellateur et les défenses du
 De _ ministre. La réponse de M. Leygues intéressera ceux
 
 Fi qui savent ce que veut dire parler ministériel et ce que
-vaut une enquête officielle. j
+vaut une enquête officielle.
 
 M. LAVERTUION. — J'en arrive, messieurs, à l'affaire dite
 du Cénacle, qui motive principalement cette interpéllation.
 Il y a depuis quelques années, à Limoges, des cours, des
-conférences littéraires et scientifiques pour les jeunes filles s
+conférences littéraires et scientifiques pour les jeunes filles
 et les femmes du monde, Cette œuvre — je m'empresse de
 le reconnaître — est une œuvre cléricale, et la place denos
-institutrices n'était nullement là, bien que, cependant, e
+institutrices n'était nullement là, bien que, cependant,
 tous les cours ne fussent pas des cours religieux et que
 tous les conférenciers ne fussent pas des ecclésiastiques.
 Parmi ces derniers, je relève les noms de MM. René Bazin,
-Mais enfin nos institutrices, un peu curieuses, comme le - L
+Mais enfin nos institutrices, un peu curieuses, comme le
 sont généralement les femmes /Exclamations et rires}, se
 rendirent à ces conférences.
-M. Le PRÉSIDENT (1). — C'est une opinion toute person- * E
+M. Le PRÉSIDENT (1). — C'est une opinion toute person-
 Messieurs, nos institutrices ou directrices d'écoles eurent
 le tort de se rendre à ces conférences ; une d'entre elles eut
 même l'imprudence de se faire présenter au conférencier,
@@ -480,12 +480,12 @@ deux directrices qui, depuis dix ou douze ans déjà, étaient
 dévouement, ce titre de directrice d'école dans le chef-lieu
 du département, et de plus, elles étaient, au point de vue
 professionnel, admirablement notées l'une et l'autre, et au
-point de vue républicain, solidement apparentées dans le s:
+point de vue républicain, solidement apparentées dans le
 département même.
 
 Mais l'une n'était défendue que par un conseiller général
 opportuniste /Rires), et l'autre par un fonctionnaire, vieux
-serviteur de la République, mais qui n'est pas radical. k
+serviteur de la République, mais qui n'est pas radical.
 Elles furent sacrifiées.
 Et cependant ces deux dames avaient — je vous le disais
 tout à l'heure — des états de service tout à fait remarquables.
@@ -497,10 +497,10 @@ congrézanistes voisins, ce qui prouve bien, il me semble, pe
 que cette institutrice luttait pour l'esprit laïque.
 Je n'ai pas les chiffres pour l'autre institutrice, mais la
 proportion est la même.
-C'est alors que j'ai annoncé mon intention d'interpeller. x
+C'est alors que j'ai annoncé mon intention d'interpeller.
 
-M. Monteil, un peu inquiet, sentit — car il n'est point sot, 4
-loin de là — que la punition qu'il avait infligée à ces insti- è
+M. Monteil, un peu inquiet, sentit — car il n'est point sot,
+loin de là — que la punition qu'il avait infligée à ces insti-
 tutrices était un peu disproportionnée avec la faute qu'elles
 
 avaient commise etqu'elles pouvaient si bien croire oubliée
@@ -512,7 +512,7 @@ primaire ; il commença par lui dire qu'il n'était pas content
 de lui, lui reprochant de ne pas insufller suflisamment l'es- ,
 prit laïque à ses instituteurs ; il l'invita à demander son
 changement. M. Gourdon, qui depuis longtemps est
-Limoges où il est estimé de tout le monde, fut un peu aba- f
+Limoges où il est estimé de tout le monde, fut un peu aba-
 sourdi de la sortie que lui faisait le préfet. Il se réclama
 des appréciations infiniment flatteuses des prédécesseurs de
 
@@ -554,8 +554,8 @@ M. GotTERoONX. — Dans sa chambre à coucher! Appelez
 les choses par leur nom.
 M. LAVERTUION. — .… sans y trouver d'ailleurs le livre
 qu'il y cherchait.
-Quand M. Gourdon revint à la préfecture, le préfet lui dit 1 3
-- qu'il avait été joué, et que mademoiselle Marsat avait été ÿ: 4
+Quand M. Gourdon revint à la préfecture, le préfet lui dit
+- qu'il avait été joué, et que mademoiselle Marsat avait été
 plus fine que lui.
 ke Le lendemain, mademoiselle Marsat, inquiète de son
 sort, se rend elle-même à la préfecture. Le préfet la reçoit
@@ -563,7 +563,7 @@ très bien; et comme elle parlait de ses livres, le préfet, ee
 dans un sourire, lui dit: « Mais, mademoiselle, vous avez
 le droit d'avoir chez vous tous les livres que vous voulez. » ee.
 « Mais alors, répond mademoiselle Marsat, pourquoi Le.
-a-t-on fait chez moi, hier, cette perquisition ? » — « Cette k.
+a-t-on fait chez moi, hier, cette perquisition ? » — « Cette
 perquisition, c'est moi qui l'ai ordonnée, c'est moi quien
 ai donné l'ordre à l'inspecteur primaire », a répondu M. le ‘3
 Dans cette affaire dite du Cénacle, approuvez-vous le
@@ -572,10 +572,10 @@ Approuvez-vous la perquisition ordonnée par le préfet “3
 chez une institutrice pour y rechercher des livres religieux ?
 Approuvez-vous M. Edgar Monteil d'avoir rabaissé un
 honorable inspecteur primaire à ce misérable rôle de policier, d'inquisiteur ? Le
-s M. ze Ministre. — Messieurs, je passe aux incidents qui É: E
+s M. ze Ministre. — Messieurs, je passe aux incidents qui
 ont été la cause véritable de l'interpellation que M. Lavertujon vient de développer devant vous.
 
-la date du 13 mars dernier, paraissait un mouvement 5:
+la date du 13 mars dernier, paraissait un mouvement
 dans le personnel de l'enseignement primaire de la HauteVienne. Aussitôt des protestations s'élevaient dans certains
 milieux ; une certaine émotion se produisait à Limoges, des
 polémiques très vives s'engageaient dans la presse locale et
@@ -630,7 +630,7 @@ directement à nos institutrices. Il les invita par des circu-
 laires habiles, sous prétexte de littérature, d'histoire ou de
 pédagogie, à suivre ses cours.
 Une propagande des plus actives fut menée dans ce sens.
-On espérait, après avoir embrigadé nos institutrices, E
+On espérait, après avoir embrigadé nos institutrices,
 s'emparer de nos élèves.
 L'inspirateur et le directeur de l'œuvre du Cénacle est le
 P. Dublanchy, supérieur du collège Saint-Martial. Or, le
@@ -645,7 +645,7 @@ il fallait être bien peu avisé pour ne pas s'en apercevoir. ‘4
 Des tentatives nombreuses furent faites auprès des “2
 institutrices et des instituteurs pour les entraîner au
 Elles ne réussirent pas : presque partout elles furent
-J'ai le regret de constater cependant que quelques x
+J'ai le regret de constater cependant que quelques
 maîtresses, les unes peut-être par curiosité, comme le
 disait l'honorable M. Lavertujon, les autres par un autre
 s sentiment, répondirent aux invitations qui leur étaient “4
@@ -658,7 +658,7 @@ des conseils ou à puiser des inspirations sur les hautes
 questions d'éducation, de pédagogie, de philosophie ou'
 d'histoire, ce n'est pas aux adversaires de nos institutions
 
-et de notre enseignement qu'elles devaient aller les deman- j
+et de notre enseignement qu'elles devaient aller les deman-
 
 Elles n'avaient qu'à regarder autour d'elles dans la
 famille universitaire à laquelle elles appartiennent pour
@@ -720,7 +720,7 @@ religieuse ou pour avoir suivi tel ou tel exercice religieux.
 Elles ont été déplacées pour avoir assisté à des conférences
 organisées par les ennemis de l'enseignement universitaire et des institutions républicaines.
 ze MINISTRE. — J'ai à examiner une dernière question.
-M. Lavertujon vous a dit qu'à un moment donné M. le & È
+M. Lavertujon vous a dit qu'à un moment donné M. le &
 préfet dela Haute-Vienne avait donné l'ordre à M. l'inspecteur Gourdon de procéder à une perquisition au domicile
 particulier de mademoiselle Marsat.
 La presse s'est emparée de l'incident qui n'a pas tardé
@@ -766,7 +766,7 @@ qu'il en reste.
 Mais ces incidents ont provoqué de l'émotion et donné
 lieu à de violentes campagnes de presse, Les esprits sesont
 échauffés. Afin de ramener chacun à une idée précise de
-- son devoir et pour éviter des malentendus dans l'avenir, x
+- son devoir et pour éviter des malentendus dans l'avenir,
 j'ai adressé à M. l'inspecteur d'académie une lettre que je
 vous demande la permission de vous lire. La voici
 &A la suite des incidents qui se sont produits récemment
@@ -798,19 +798,19 @@ les membres du corps enseignant rompent la neutralité scolaire, entrent dans de
 non autorisées et aillent s'y inspirer d'un esprit violem-
 ment hostile à l'esprit laïque qui doit seul animer notre
 enseignement public. /Très bien! très bien! et applaudissements à gauche et au centre)
-M. Jean Jaurès, professeur agrégé de philosophie, 5
+M. Jean Jaurès, professeur agrégé de philosophie,
 en congé, mis en Cause par ses ennemis, qui Sont nombreux, parce qu'il a permis que sa fille fit sa première
 communion, a répondu très fortement dans la Petite
-République du jeudi 11 courant. Nous publions cette C4
+République du jeudi 11 courant. Nous publions cette
 réponse. Elle est très loin de satisfaire celui qui examinerait ce conflit au nom de la conscience privée
 — et au regard.de cette conscience. Mais elle est bonne
 au sens — et däns la mesure — où elle défend contre ;.
 les autorités sociales et politiques les libertés de la vie
-privée. Nous souhaitons que les nombreux collabora- x
+privée. Nous souhaitons que les nombreux collabora-
 teurs de Jaurès à la Petite République lisent la défense se.
-à de Jaurès et constants avec lui-même cessent de dénon- : Ÿ
-cer les petits fonctionnaires, les petites gens quise sont *È
-mis dans la même situation que lui. 3 4
+à de Jaurès et constants avec lui-même cessent de dénon-
+cer les petits fonctionnaires, les petites gens quise sont
+mis dans la même situation que lui.
 
 Sous ce titre, j'ai dit, il y a trois ans, aux lecteurs de
 la Petite République, qui j'étais, ce qu'étaient les miens.
@@ -904,7 +904,7 @@ négation même de tout ce qu'enseignaient depuis plus
 L'Universitaire a déplacé, resserré, supprimé, sans
 nous en prévenir; le texte qu'il cite n'est plus de M. Brunetière, mais du journaliste. Or, si innocente que soit
 à mes yeux la phrase incriminée, elle l'est bien moins ‘4
-que la phrase vraie. ÿ
+que la phrase vraie.
 Un peu plus bas, je rencontre une inexactitude nou-
 velle. sa
 Et M. Brunetière ajoute : De l'obscurité de RabeC'est peut-être une question  lais; — et que là où il est re
@@ -953,7 +953,7 @@ endroit, qu'il se borne à juxtaposer de menues citations.
 Il n'ignore pas, cependant, que de pareilles juxtapositions ne manquent jamais de déformer la pensée de
 
 l'auteur — surtout quand elles sont prises, comme ici,
-à des pages assez éloignées les unes des autres (1). r
+à des pages assez éloignées les unes des autres (1).
 
 Voici les exemples les plus probants de cette inexactitude qui est comme perpétuelle. Il s'agit de Voltaire,
 
@@ -1022,10 +1022,10 @@ dire sa pensée sur Rabelais et sur Voltaire; ou bien il
 faut que l'on déclare Voltaire et Rabelais intangibles.
 Je ne vois pas de moyen terme.
 
-Et puis, à quoi bon ces réquisitoires ? Ils ne sont pas j
+Et puis, à quoi bon ces réquisitoires ? Ils ne sont pas
 
 plus vrais que des plaidoiries. Avec des citations bien
-choisies et sans même y opérer des suppressions avanta- Ë
+choisies et sans même y opérer des suppressions avanta-
 geuses, je pourrais prouver tout aussi bien que M. Bru
 netière est libre-penseur.
 Je lis, pages 404-405, petit texte : à
@@ -1055,12 +1055,12 @@ Il est difficile, j'imagine, d'être plus net dans le blâme,
 
 et pourtant, c'est bien M. Brunetière qui a écrit ces €
 Plaisanterie, sans doute, que cette méthode de cita-
-tion : mais ne pourrait-on pas dire aussi que les arti- D.
+tion : mais ne pourrait-on pas dire aussi que les arti-
 cles de l Universitaire sont une plaisanterie prolongée.
 Entre les deux sans doute se trouve la vérité, toute
 simple et même naïve. Quand M. Brunetière publie un
 Manuel d'histoire littéraire, nous pouvons penser qu'il
-s'efforce d'être historien : c'est donc en historien ou du n
+s'efforce d'être historien : c'est donc en historien ou du
 moins en lettré que l'on doit critiquer son ouvrage.
 Quand il publie des discours de combat, il se donne
 lui-même pour un orateur ou pour un polémiste catho- Llique, et par suite c'est en citoyen que nous devons les
@@ -1093,7 +1093,7 @@ irrévérence, mais où l'idée de patrie elle-même, une
 idée sacrée pourtant entre toutes, était analysée,
 discutée et même condamnée avec cynisme, comme
 s'il ne devait pas y avoir certains dogmes intangibles
-devant lesquels la Raison n'avait qu'à s'incliner hum- j
+devant lesquels la Raison n'avait qu'à s'incliner hum-
 blement. Le Sans-Patrie s'oubliait au point de traiter
 le patriotisme de religion imbécile et sanglante.
 disait que les patries actuelles sont des agglomérations
@@ -1102,7 +1102,7 @@ de gens réunis sous les mêmes lois, par le hasard ou
 ait demandé leur consentement; que dans toutes les
 patries il y a, quel que soit le nom du gouvernement, -
 une classe de gras, qui jouit, parfois sans travailler, de
-tous les avantages d'une civilisation raffinée, et une x
+tous les avantages d'une civilisation raffinée, et une
 classe de maigres, très nombreuse, qui vit dans la gêne
 ou la misère après avoir accompli toutes les besognes
 
@@ -1183,7 +1183,7 @@ Monsieur l'Archiprêtre y prononcera une allocution de
 Vous êtes particulièrement invité, Monsieur, ainsi que
 votre Famille, à assister à cette religieuse et patriotique
 cérémonie, où une place spéciale vous sera réservée.
-Pour la Conférence : s
+Pour la Conférence
 Je me suis rendu immédiatement chez M. l'Archi- « prêtre, avec qui je suis dans les meiïlleurs termes, »
 De comme avec tout le clergé sénonais, du reste, etila
 bien voulu, par sympathie pour le Travailleur socialiste, « : me donner copie de l'allocution qu'il compte prononcer
@@ -1195,13 +1195,13 @@ caserne, il est de mon devoir de prêtre chrétien de vous
 
 révéler quelle est la pure doctrine évangélique à l'égard de
 toutes les violences, et de cette violence qui est la pire de
-toutes : la guerre, qui est la fin et le but du service mili- o
+toutes : la guerre, qui est la fin et le but du service mili-
 La doctrine de Jésus à cet égard est claire et ne souffre cs
 pas de réplique : dans son immortel sermon sur la montagne, que nous a transmis saint Mathieu, notre divin
 maître s'exprime en ces termes
 « Vous avez appris qu'il a été dit : œil pour œil et dent
 pour dent.
-« Et moi je vous dis : ne résistez point au mal, mais siquelqu'un te frappe à la joue droite, présente-lui aussi x
+« Et moi je vous dis : ne résistez point au mal, mais siquelqu'un te frappe à la joue droite, présente-lui aussi
 l'autre.
 « Et si quelqu'un veui plaider contre toi et t'ôter ta robe, DE
 laisse-lui encore le manteau.
@@ -1314,7 +1314,7 @@ pour se garder vaillants et forts, invulnérables et invulnérés ; car, düt-on
 en main, c'est la religion qui fait les soldats complets, qui
 inspire et soutient la fidélité chevaleresque, qui est comme
 s un rayon de soleil sur le drapeau national, qui jette sur
-l'armée entière je ne sais quelle pourpre magnifique, quelle « 4
+l'armée entière je ne sais quelle pourpre magnifique, quelle «
 pompe solennelle que rien n'égale, que rien ne remplace, à
 que rien n'éclipse. C'est la foi, en effet, qui enseigne que le €
 patriotisme est une vertu, que le Dieu qui a pleuré sur sa Le
@@ -1322,10 +1322,10 @@ cité, qui est mort pour le monde les bras en croix, le cœur
 Nr ouvert, nous commande d'aimer comme lui notre patrie
 jusqu'au sang, que quiconque depuis, vit et combat au serre ATTENTATS DANS L'YONNE
 vice de son pays est un être sacré; il ne fait pas seule-
-ment métier de soldat, il fait métier de christ, de sauveur, 3
+ment métier de soldat, il fait métier de christ, de sauveur,
 et s'il vient à mourir, ce n'est pas une victime simplement,
 cest un martyr, car il a combattu pour les foyers et les
-autels, pro aris et focis. Vous donc, chers jeunes gens, qui, 4
+autels, pro aris et focis. Vous donc, chers jeunes gens, qui,
 lorsque l'ange de la France feuilletant les registres où sont
 inscrites les réserves saintes de la nation, a fait l'appel, LS
 n'avez pas imité ceux qui se cachent, se terrent et se dérobent, ni ceux qui blasphèment la patrie, par dépit de la
@@ -1440,7 +1440,7 @@ camarade Sans-Patrie nous a d'ailleurs demandé avec
 instance d'imprimer toute cette prose, nous lui laissons
 maintenant la parole :
 à Qui je suis ?
-Sans doute un salarié, salarié de l'État, d'une Com1e pagnie ou d'un particulier, à qui son patron défend, E
+Sans doute un salarié, salarié de l'État, d'une Com1e pagnie ou d'un particulier, à qui son patron défend,
 j sous peine de mise à pied, d'écrire sous sa signature
 ce qu'il pense de l'état social actuel et des puissants du
 jour. Ah! si je voulais, moi aussi, prêcher aux pauvres
@@ -1458,7 +1458,7 @@ suivre; ma poltronnerie — puisque poltronnerie il y a
 — a d'ailleurs des limites : si mes articles contenaïient
 jamais une diffamation à l'égard d'un particulier, ou
 des propos subversifs et immoraux suséeptibles detom-
-ber sous le coup des justes lois, qu'on me poursuive; S
+ber sous le coup des justes lois, qu'on me poursuive;
 on verra que je ne me terrerai pas, que je ne me déro- ss
 berai pas derrière notre camarade gérant. Je connais
 un anarchiste que j'estime et que je respecte autant que
@@ -1529,7 +1529,7 @@ Mais peut-être, comme un simple faussaire du
 deuxième bureau de l'état-major, ai-je altéré sciemment le texte sacré pour lui faire dire le contraire de
 ce qu'il dit? Peut-être aï-je cité saint Mathieu d'après
 une Bible protestante qui aura déformé le texte authentique? Ce songe creux de Sans-Patrie, « totalement
-étranger aux leçons de l'histoire nationale », ne connaît ÿ:
+étranger aux leçons de l'histoire nationale », ne connaît
 peut-être rien non plus aux choses de l'Écriture sainte!
 l'archiprêtre n'est pas loin de le croire et de le dire. De
 - Il trouve que ma traduction « trop libre et très fantaisiste
@@ -1571,15 +1571,15 @@ aucun contre-sens, pas même le moindre faux-sens.
 Notre administrateur-gérant, le camarade Dupore, tient
 mon texte à la disposition de M. l'abbé Olivier, ou de
 tout autre lecteur connaissant un peu le latin. Si ma
-traduction n'est pas, comme je l'affirme, exacte, fidèle, 4
+traduction n'est pas, comme je l'affirme, exacte, fidèle,
 littérale, je consens à mettre vingt sous dans le tronc ke
 a donner autant pour l'œuvre des messes en faveur des
 ‘ âmes du Purgatoire.
 
 Nous recevons de M. l'abbé Olivier la lettre suivante: A
 Monsieur l'Administrateur-Gérant
-Oui, vous l'avez dit, je suis satisfait, deux fois satisfait, k
-et de votre seconde insertion et de votre troisième envoi, ; É
+Oui, vous l'avez dit, je suis satisfait, deux fois satisfait,
+et de votre seconde insertion et de votre troisième envoi,
 et je veux que vos lecteurs en soient au plus vite informés; Fe
 je vous prie donc et vous requiers au besoin de le leur dire
 en publiant cette lettre dans votre prochain numéro, au : “4
@@ -1592,7 +1592,7 @@ et de l'égalité des procédés, si vous accordez à ma prose les Le
 mêmes caractères d'imprimerie qu'à celle de mon hono-
 s A la faveur de votre aimable complicité, je veux dire Le
 aussi à tous ceux qui nous lisent que je me trouve comblé, ge
-archi-comblé par votre correspondant. Je ne lui fais qu'un : s
+archi-comblé par votre correspondant. Je ne lui fais qu'un
 reproche, un reproche d'ami; c'est de m'accuser de l'avoir
 dénoncé jésuitiquement, moi, qui « ne le connais non plus ‘
 ni de vue ni de nom », quand il se dénonce lui-même
@@ -1665,11 +1665,11 @@ du quae sunt Caesaris, Caesari; et un autre, qu'il trouvera
 sets 2 et 4 : qui resistit potestati, Dei ordinationi resistit…
 est, vindex in iram ei qui malum agit. Priez-le de relire Se.
 en saint Mathieu, chapitre vi, l'histoire du centurion
-qui se flatte, si je comprends le latin, d'avoir des soldats , ñ
-sous ses ordres : Habens sub me milites; de leur com- e
-mander et d'en être obéi: et s'il trouve, dans ses textes, é
+qui se flatte, si je comprends le latin, d'avoir des soldats
+sous ses ordres : Habens sub me milites; de leur com-
+mander et d'en être obéi: et s'il trouve, dans ses textes,
 dans cet épisode, un seul mot du « révolutionnaire Jésus »
-ou du plus qualifié de ses disciples et de ses interprètes, F
+ou du plus qualifié de ses disciples et de ses interprètes,
 qui autorise, qui engage à ne pas tirer au sort, à ie
 refuser de porter les armes et d'en user au besoin, à con- ee
 damner le recrutement des milices régulières ; s'il n'y trouve Fa
@@ -1680,7 +1680,7 @@ solennelle de la loge maçonnique. Belle et unique occasion; )
 dont il voudra profiter, en faveur des frères et amis, pour
 faire pleuvoir sur le temple une manne inattendue et pour g=
 prélever sur un profane, en faveur des chers afliliés, un
-Archiprètre de Sens s
+Archiprètre de Sens
 Nous constatous d'abord que M. l'archiprètre ne con- cs
 teste plus l'authenticité des textes évangéliques, cités
 par notre camarade Sans-Patrie, ni l'exactitude de sa ve
@@ -1713,8 +1713,8 @@ décidément un genre où les ecclésiastiques réussissent -
 assez bien), ni les grosses malices, M. l'abbé Olivier
 renonce à contester l'authenticité de mon texte évangé-
 lique et l'exactitude de ma traduction. Celle-ci, « trop
-libre et très fantaisiste », qui n'avait « à première vue ÿ
-Le aucun air véridique », à une seconde lecture plus minu- È F
+libre et très fantaisiste », qui n'avait « à première vue
+Le aucun air véridique », à une seconde lecture plus minu-
 tieuse de M. l'abbé Olivier, lui aura semblé, comme je
 l'affirmais, exacte, fidèle et littérale. M. l'abbé n'en
 s souffle plus mot. J'aurais voulu que franchement, carré
@@ -1733,7 +1733,7 @@ Dieu, pour les catholiques, ou est-ce l'apôtre Paul, qui
 n'a même pas connu personnellement Jésus, et qui a pu
 ne pas comprendre toute la pensée du maître ? Mais
 que dit donc Paul dans le passage cité ? Il dit en substance qu'il faut obéir aux puissances, car elles viennent
-toutes de Dieu ; que leur résister, c'est résister à l'ordre ; Ë
+toutes de Dieu ; que leur résister, c'est résister à l'ordre
 de Dieu lui-même. Si Paul entend par là qu'on doit
 tuer, massacrer l'étranger et l'ennemi de l'État quand le
 gouvernement l'ordonne, il se met tout simplement en
@@ -1820,18 +1820,18 @@ le texte du sermon sur la montagne que je lui ai objecté
 est inexact, tant qu'il n'aura pas trouvé des paroles du
 Christ approuvant la violence et le massacre, dans certains cas déterminés, j'ai le droit de dire que le chris-
 tianisme primitif est bien une religion douce, ennemie
-de toute violence, les condamnant toutes sans excep- F
+de toute violence, les condamnant toutes sans excep-
 tion, la religion de la fraternité universelle.
 La beauté et l'honneur du christianisme évangélique,
 sa supériorité sur les religions étroites, locales, nationales du paganisme re consistent-elles pas justement
-en cette affirmation que tous les hommes, sans distinc- É
+en cette affirmation que tous les hommes, sans distinc-
 tion de pays, sont fils d'un même dieu, qu'ils doivent se
 traiter en frères, refréner par l'amour et la fraternité »
 leurs passions égoïstes et violentes? Otez du christianisme cet admirable sermon sur la montagne qui, même
 aux yeux des athées épris d'idéal, est une des pages les
 é plus belles de l'histoire de l'humanité, parce qu'elle
 marque une étape capitale dans son évolution vers la
-fraternité universelle, et dites-moi ce qui reste de 4 4
+fraternité universelle, et dites-moi ce qui reste de
 grand dans le christianisme ?
 
 La quatrième et dernière de M. l'Archiprètre
@@ -1892,14 +1892,14 @@ cussion loyale », tout au plus « une grosse malice » comme
 vous dites si finement. Eh bien! moi, j'appelle cela, en bon
 français, et en toute vérité évangélique : un mensonge, DE
 une lâcheté, une infamie. Aussi, c'est le tribunal, si j'en 55)
-crois les intéressés, qui prendra soin de nous départager, 34
+crois les intéressés, qui prendra soin de nous départager,
 qui se chargera de commenter lui-même ce texte vraiment
-trop libre et très fantaisiste, et d'appliquer la loi qui protège jusqu'à présent, grâces à Dieu, l'honneur des citoyens: 5
+trop libre et très fantaisiste, et d'appliquer la loi qui protège jusqu'à présent, grâces à Dieu, l'honneur des citoyens:
 En déposant la plume, je lui laisse donc la parole, et, en
 vous adressant ma carte p. p. c. je vous donne un rendez
 vous prochain dans l'enceinte de la justice, où nous assis- a we
 teront l'un et l'autre nos amis respectifs, assis sur des
-bancs divers, les miens à celui des calomniés, les vôtres à … 54
+bancs divers, les miens à celui des calomniés, les vôtres à …
 celui des calomniateurs. ÿ : Fe
 Archiprêtre de Sens
 Cette fois, ce n'est plus une retraite, c'est une
@@ -1915,7 +1915,7 @@ ses lourdes insinuations et ses pénibles efforts pour
 faire dégénérer une discussion purement théorique en
 une question de personnes. Aujourd'hui, pour couvrir “
 sa piteuse défaite, n'imagine-t-il pas de greffer sur sa
-polémique avec Sans-Patrie une discussion sur un en- F
+polémique avec Sans-Patrie une discussion sur un en-
 trefilet auquel celui-ci est entièrement étranger et qui, ect
 d'ailleurs, n'a absolument rien à voir avec le débat
 institué sur le christianisme primitif et le catholicisme
@@ -1950,7 +1950,7 @@ d'autres choses encore plus précises et plus crous
 tillantes, si le procès dont on nous menace vient au
 Hélas! nous tremblons que les intéressés, les calom- Ee
 niés, ne soient comme M. Olivier que des matamores
-qui menacent tout d'abord d'aller jusqu'au bout et qui, s
+qui menacent tout d'abord d'aller jusqu'au bout et qui,
 au bon moment, se dérobent prudemment. Allons, ne.
 messieurs les Vicaires, allons, monsieur le Curé de V...-
 traînez-nous devant les tribunaux, sans peur des écla- #4
@@ -1970,7 +1970,7 @@ notre longue reconnaissance.
 Monsieur l'Archiprêtre
 Indélicatesse n'est pas assez dire; c'est un véritable faux
 que j'ai commis en vous attribuant ironiquement un
-sermon de ma composition : le faux du colonel Henry — j
+sermon de ma composition : le faux du colonel Henry
 que nous pleurons tous — était véniel auprès du mien.
 Pour la première fois, je comprends aujourd'hui votre -
 . Sainte et légitime colère.
@@ -2005,7 +2005,7 @@ Tout ce que j'écris est signé — d'un lâche et honteux
 pseudonyme, c'est vrai, — mais enfin c'est signé
 Dans sa lettre d'aujourd'hui — sa dernière lettre,
 hélas! — M. l'abbé Olivier, au lieu d'essayer de réfute
-les objections graves que je faisais, il y a huit jours, E.
+les objections graves que je faisais, il y a huit jours,
 aux textes qu'il invoquait, se borne pour toute réponse
 à qualifier mon dernier article de « discussions byzannes » et de « subtilités chinoises ». M. l'abbé Olivier
 - me permettra de ne pas prendre ces qualificatifs amers
@@ -2025,7 +2025,7 @@ biquée et entortillée signifie simplement que ma tra=
 duction est exacte, mais que mon commentaire, mon
 interprétation du texte évangélique ne l'est pas. Autrement dit, l'Évangile dit bien : « Ne résiste point à la
 violence, mais si quelqu'un te frappe à la joue droite,
-présente-lui aussi l'autre »; l'Évangile dit bien encore : æ.
+présente-lui aussi l'autre »; l'Évangile dit bien encore
 « Aimez vos ennemis et bénissez ceux qui vous maudissent; faites du bien à ceux qui vous haïssent et
 priez pour ceux qui vous frappent et vous persécutent »,
 l'Évangile dit bien tout cela, mais je n'ai pas le droit,
@@ -2061,7 +2061,7 @@ C'est celle que j'attribuais ironiquement à M. l'abbé
 Olivier dans le sermon fantaisiste que je lui ai prêté
 avec une si vilaine indélicatesse. Ah! certes, cette
 interprétation n'est pas à la portée des âmes vulgaires
-ni des gens de petite foi, comme dirait Jésus. Il est s
+ni des gens de petite foi, comme dirait Jésus. Il est
 plus facile de débiter tout un chapelet ou de lire du
 bout des lèvres, pendant deux heures consécutives par
 jour, des litanies et des prières, que de faire violence
@@ -2083,7 +2083,7 @@ a”: sans violence, passivement, de contribuer à la défense
 ÿ : autre secte protestante encore nombreuse en Amérique,
 
 s'est obstinément refusée et se refuse encore au service
-militaire; enfin, en notre siècle, en Russie, des villages l
+militaire; enfin, en notre siècle, en Russie, des villages
 entiers ont refusé au nom de l'Évangile de servir dans
 larmée du tsar. Ces doux réfractaires, les Doukhobors, ont répondu aux policiers et aux soldats du tsar:
 « Faites de nous ce que vous voudrez; nous rendrons
@@ -2117,7 +2117,7 @@ humaine. Elle consiste à dire ceci: « Dans le sermon
 sur la montagne, Jésus a seulement voulu nous propo- ke
 ser un idéal élevé, sublime, mais qu'il savait fort bien
 s être hors d'atteinte pour le commun des hommes;ilne
-faut donc pas prendre à la lettre la parole évangélique; n.
+faut donc pas prendre à la lettre la parole évangélique;
 nous devons l'interpréter en ce sens qu'il faut nous
 efforcer d'être doux, humains et pacifiques. Jésus ne ‘4
 saurait en vouloir à des hommes bons et justes qui, ‘4
@@ -2143,7 +2143,7 @@ peut seule justifier une violation des principes de .
 l'Évangile; mais que toute guerre offensive, toute guerre
 qui tend à détruire par la violence les foyers et les
 autels d'un autre peuple est une abomination à laquelle
-- un chrétien, si dégénéré qu'il soit, ne doit point se i
+- un chrétien, si dégénéré qu'il soit, ne doit point se
 soumettre, même sous la menace de la prison ou de la
 mort. Avec la crédulité des ouailles catholiques, si
 confiantes dans la parole de leurs prêtres, en cinquante
@@ -2241,7 +2241,7 @@ des chevaux, à quelques pas de l'endroit où avait été
 “304 -_ crucifié celui qui avait apporté au monde l'Évangile de
 ge fraternité universelle. Rappellerai-je les massacres
 x d'Albigeois, les milliers de victimes de l'Inquisition, les
-horreurs de la Saint-Barthélemy allumées par les prédi- n
+horreurs de la Saint-Barthélemy allumées par les prédi-
 cations des moines? A quoi bon puisqu'il n'y a pas un
 seul de nos lecteurs — sauf M. l'abbé Olivier peut-être
 — qui ne sache que chaque page de l'histoire de l'Église

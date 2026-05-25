@@ -14,15 +14,7 @@ X. — la Commune
 
 et le second siège de Paris
 
-1871
-
-1871
-
-1871
-
 Les ruraux. — Premières manifestations. — Les canons de la Garde nationale. — Le Comité Central. — Le 18 mars, proclamation de la Commune. — Les droits de Paris. — Sortie du 3 avril. — Mort de Flourens. — Premiers succès de Dombrowski. — Réformes : l'Assistance publique, les Finances, le Travail, la Fédération des artistes, l'Enseignement. — Les délégués à la Guerre.
-
-1
 
 L'Assemblée de Bordeaux fut élue sous l'œil des Prussiens, alors que la province mal informée et trop crédule ajoutait foi aux calomnies des monarchistes. Ceux-ci représentaient les Parisiens comme des fanfarons et des traîtres, qui avaient voulu livrer la ville le 31 Octobre.
 
@@ -66,13 +58,11 @@ Lorsqu'il eut à donner son opinion sur les actes de la Commune, Louis Blanc vie
 
 « Il ne faut pas confondre les révolutions qu'enfantent l'ambition, la colère, la cupidité, les passions envieuses d'un ou de plusieurs hommes, avec les révolutions qui sont des évolutions, et qui naissent du développement historique de la vie sociale, contrarié par des pouvoirs aveugles ou tyranniques ; les premières méritent toute réprobation, mais il n'en est pas de même des secondes. Quant à celles-ci, il est vrai qu'elles apportent, hélas !
 
-(1) Arthur Arnould, I, page 116.
+(1) Arthur Arnould, I, page
 
 avec elles trop souvent un mélange de bien et de mal, mais leurs effets s'expliquent par leurs causes ; l'intensité des maux qu'elles produisent, se mesure à la gravité des abus qui les rendirent inévitables, et lorsque au prix de souffrances passagères, une révolution met au monde une vérité libératrice, il est aussi vain de s'en plaindre, qu'il le serait de maudire cette loi de la nature qui associe les douleurs de l'enfantement à l'entrée d'un homme dans la vie. » (1)
 
 Louis Blanc a raison : c'est grâce à la Commune que certaines réformes fécondes sont parvenues à maturité. Cette révolution fut à la fois politique et sociale.
-
-2
 
 Jules Favre avait solennellement promis que la France ne céderait « pas un pouce de son territoire, pas une pierre de ses forteresses » ; — et notre chère Alsace était livrée à l'ennemi, avec Metz et une partie de la Lorraine.
 
@@ -112,8 +102,6 @@ Ancien représentant de Paris, Victor Considérant publia le 10 avril une adress
 
 une paix fondée « sur le caractère libre et juridique de toute société, de toute coopération » ; il réclamait, lui aussi, « l'autonomie absolue des communes urbaines et des cantons-communes ». Il faisait même le rêve d'étendre un jour cette paix « absolue, européenne, définitive... par la Confédération juridique de tous les Peuples unis ».
 
-3
-
 Le 28 février, les Parisiens s'aperçurent avec indignation que, par une impardonnable négligence, le gouvernement avait abandonné les canons de la garde nationale, près de la place Wagram, dans la zone accordée à l'occupation des Allemands. (1) Sans attendre les ordres officiels, chaque bataillon se rendit au parc et enleva les pièces qui lui appartenaient. Les femmes s'attelèrent aux canons, escortées par les gardes nationaux en armes. Un officier à cheval sur la pièce, tenait le drapeau déployé. (2)
 
 « C'était vraiment un spectacle grandiose et rappelant les plus beaux jours d'enthousiasme de la première Révolution. Un certain nombre de marins et de soldats, gagnés par la fièvre générale, se joignirent à ces cortèges. »
@@ -121,15 +109,13 @@ Le 28 février, les Parisiens s'aperçurent avec indignation que, par une impard
 « Paris n'avait plus de gouvernement. Les hommes de l'Hôtel de Ville étaient partis à Bordeaux. L'armée était sans armes. Aucune police dans les rues. La Commune existait déjà de fait. Paris, livré à lui-même,
 
 (1) Trente mille Allemands allaient entrer aux Champs-Élysées le 1er mars.
-(2) Les canons furent transportés aux Batignolles, à Montmartre, à Belleville et place des Vosges. Voir Vuillaume, Mes cahiers rouges, IV, 107.
+(2) Les canons furent transportés aux Batignolles, à Montmartre, à Belleville et place des Vosges. Voir Vuillaume, Mes cahiers rouges, IV,
 
 vivait de sa vie propre. Il y avait bien, quelque part, un général de décembre, nommé Vinoy, mais sans autorité ; personne ne s'en occupait. » (1)
 
 Dans les faubourgs, on était résolu à recevoir les Prussiens à coups de fusil. Heureusement, les chefs, comprenant l'impossibilité de la résistance, s'employèrent à calmer les esprits. Ils chargèrent les gardes nationaux de former un cordon autour des quartiers concédés à la courte occupation de l'ennemi. C'est en leur remettant à eux-mêmes le soin de se contenir, que l'on empêcha les violences redoutables de leur désespoir.
 
 Se rendant compte de cette effervescence, les maires conseillaient avec sagesse de laisser provisoirement à la garde nationale son artillerie. Les généraux eux-mêmes appuyaient cette proposition, et la guerre civile aurait pu être évitée. Mais Thiers, aveugle et obstiné, donna à l'armée l'ordre d'aller reprendre de vive force les canons.
-
-4
 
 Le 18 mars, les soldats de ligne chargés de cette opération fraternisaient avec le peuple, et Paris se couvrait de barricades. Place Vendôme, le général Vinoy, avec quatre mille hommes, se repliait devant quelques centaines d'insurgés.
 
@@ -150,13 +136,11 @@ les injustes accusations portées contre lui. Ce pouvoir, il ne l'avait pas cher
 
 18 mars. — « Derrière un cercueil qui vient de la gare d'Orléans, un vieillard, tête nue, que suit un long cortège ; Victor Hugo mène au Père-Lachaise le corps de son fils Charles. Les Fédérés présentent les armes et entr'ouvrent la barricade pour laisser passer la gloire et la mort. » (1)
 
-5
-
 Les maires et les députés de Paris ne surent malheureusement se mettre d'accord ni entre eux ni avec le Comité central. Les uns, comprenant la nécessité urgente d'élire un nouveau Conseil municipal, estimaient que le peuple de Paris avait le droit de se convoquer lui-même et de fixer la date du vote. Les autres, esclaves d'une légalité stricte qui n'était guère de saison, voulaient attendre qu'une convocation régulière des électeurs eût été faite par l'Assemblée. Ils n'avaient pas fait tant de façons le 4 Septembre.
 
 J'accompagnais le capitaine Delbrocck lorsque, le 19 mars, il se rendit à la mairie de Montmartre pour s'entendre à ce sujet avec Clemenceau. Le jeune maire, dont l'autorité était déjà grande, se montra très irrité des meurtres accomplis la veille. Et, en effet, ces exécutions sommaires allaient servir de prétexte à d'abomi-
 
-(1) Lissagaray, Histoire de la Commune de 1871, librairie Dentu, page 104.
+(1) Lissagaray, Histoire de la Commune de 1871, librairie Dentu, page
 
 nables représailles. Malgré les efforts de Babick et de quelques autres, le Comité central ne les désavoua pas assez hautement et refusa d'en rechercher les auteurs.
 
@@ -166,13 +150,11 @@ Cependant, dans la séance de nuit, la majorité, comprenant la grave responsabi
 
 L'Assemblée de Versailles prétendait s'immiscer comme au temps de l'Empire dans nos affaires municipales. Paris défendit ses droits. On ne saurait méconnaître la justice de ses revendications : Comment les pauvres gens qui avaient bravement combattu pendant le siège, auraient-ils pu économiser sur leur maigre solde le prix de leur loyer ? Ne fallait-il pas imposer aux propriétaires un léger sacrifice et accorder tout au moins aux locataires un délai ? Les commerçants demandaient aussi la prorogation des échéances et la revision nécessaire d'une loi dite « des cent mille
 
-(1) Élie Reclus, page 36.
+(1) Élie Reclus, page
 
 faillites », parce qu'elle eût fait de tous les négociants parisiens autant de banqueroutiers.
 
 La ligue d'Union républicaine des droits de Paris fut fondée par les députés Ranc, Clemenceau, Floquet, Lockroy, Corbon, Laurent Pichat. Son manifeste du 5 avril réclamait : la reconnaissance officielle de la République ; puis pour la capitale, la libre gestion de ses affaires municipales, de ses finances, de l'assistance publique, de l'enseignement primaire. Un conseil élu organiserait la garde nationale et la police urbaine. (1)
-
-6
 
 En désorganisant tous les services, Thiers avait contraint les Parisiens à s'emparer du gouvernement. En attaquant nos forts, il obligea la garde nationale à les défendre. Toutefois les Fédérés commirent une imprudence folle lorsque, sans ordre de la Commune et contre l'avis formel de la Commission exécutive, ils tentèrent un coup de main sur Versailles. S'imaginant peut-être que les soldats mettraient la crosse en l'air comme à Montmartre, ils sortirent de Paris le 3 avril.
 
@@ -192,7 +174,7 @@ Thiers n'en écrivit pas moins à l'archevêque de Paris pris comme otage : « J
 
 (1) Lissagaray, page 181. — Vuillaume, IV, page 180 et suivantes.
 (2) Ancien officier de marine, Lullier avait une certaine instruction militaire et « quand il n'était pas brûlé par l'alcool, des moments de lucidité à faire illusion. »
-(3) Camille Pelletan, la Semaine de mai, page 14.
+(3) Camille Pelletan, la Semaine de mai, page
 
 Cependant, par la route d'Asnières, Flourens s'avançait avec un millier d'hommes dans la direction de Rueil. Dix mille fantassins et deux brigades de cavalerie envoyés contre eux les mirent en déroute.
 
@@ -204,7 +186,7 @@ Il descendit de cheval et suivit tristement le rivage de la Seine, ne répondant
 
 Les généraux Eudes et Duval durent aussi se retirer devant des forces supérieures. Des gardes nationaux
 
-(1) Je résume le récit de Lissagaray, page 182.
+(1) Je résume le récit de Lissagaray, page
 
 étaient cernés. « Rendez-vous, vous aurez la vie sauve », leur fait dire le général Pellé. Ils se rendent. « Aussitôt les Versaillais saisissent les soldats qui combattaient dans les rangs fédérés et les fusillent. Les autres prisonniers sont acheminés sur Versailles. Leurs officiers, tête nue, les galons arrachés, marchent en tête du convoi. » (1)
 
@@ -221,8 +203,6 @@ Le 6 avril, les Versaillais s'avancèrent jusqu'à l'ancien parc de Neuilly. Ber
 (2) Cette simplicité contrastait avec le luxe de dorures qui avaient rendu ridicules Bergeret et son état-major.
 
 L'énergie de la garde nationale pendant le second siège de Paris, dans cette lutte follement disproportionnée, est la réfutation la plus éclatante des reproches dédaigneux de Trochu et de Vinoy, la preuve d'un courage que des chefs incapables n'avaient pas su employer contre les cuvalisseurs. Mais c'est étrangement intervertir les rôles et fausser la vérité que de rejeter sur Paris la responsabilité du sang versé. En Russie, quand les prisonniers politiques sont injustement maltraités, ils se laissent mourir de faim, et, comme leurs geôliers sont des hommes, ils sont pris de pitié. Ce sentiment-là était inconnu aux ennemis de la République.
-
-7
 
 Une des mesures les plus odieuses dont Thiers porte la responsabilité, ce fut la désorganisation de l'Assistance. (1) La situation des indigents était exceptionnellement dure, et Treilhard, nommé directeur par la Commune, eut une lourde tâche. Il s'en acquitta avec conscience et probité, et s'efforça de réorganiser promptement les services. Le personnel de l'hôpital Beaujon fut laïcisé.
 
@@ -282,8 +262,6 @@ A la Bibliothèque Nationale, J. Vincent, administrateur incapable, fut remplac�
 
 Dans un moment où l'on ne songeait guère à se divertir, Vaillant comprit l'importance éducative des fêtes publiques. — Quant aux théâtres, il voulait supprimer les subventions qui créent des privilèges, et remplacer les directeurs officiellement imposés par de libres associations entre les acteurs.
 
-8
-
 La Commune fut moins heureuse dans le choix des délégués à la Guerre. Elle avait supprimé le titre de général en chef, mais en un pareil moment, l'unité de
 
 (1) La question fut posée dès le 27 avril.
@@ -318,7 +296,7 @@ Après la sortie désordonnée de Bergeret, de Flourens, d'Eudes et de Duval, on
 
 Aucun de ces chefs ne fut à l'abri des dénonciations jalouses qui paralysèrent toute action. M. Bourgin semble avoir eu raison d'écrire que Félix Pyat et le Comité central furent, au point de vue militaire, « les mauvais génies de la Commune ».
 
-« Cluseret était grand ; il avait peut-être quarante ans, le teint blanc, les cheveux et la barbe noirs, une figure bellâtre. Son écriture est très nette, sa rédaction beaucoup moins ; ce qui dément les analystes qui prétendent juger l'homme sur son écriture. Le caractère de Cluseret manquait surtout de netteté, et son esprit de décision... C'était peut-être un bon et intelligent capitaine d'infanterie... Jeune homme distingué, il était devenu un homme médiocre... Délégué à la guerre, il n'a pas su vouloir, ni continuer ce qu'une fois il avait voulu ; il n'a pas su se soumettre au rôle secondaire que lui donnait l'intelligence de la Commune ; il n'a pas eu non plus la seconde... Cluseret allait en feu très carrément. Il n'a pas mis l'uniforme une seule fois ; il marchait devant, en chapeau rond et en veston, et on le suivait... Il n'a pas su choisir les hommes ; tous ceux qu'il a favorisés étaient des médiocrités parfaites. Rossel, son chef de génie et le colonel Mayer ont été les plus désastreusement médiocres de tous. » Rossel, Papiers posthumes, page 205.
+« Cluseret était grand ; il avait peut-être quarante ans, le teint blanc, les cheveux et la barbe noirs, une figure bellâtre. Son écriture est très nette, sa rédaction beaucoup moins ; ce qui dément les analystes qui prétendent juger l'homme sur son écriture. Le caractère de Cluseret manquait surtout de netteté, et son esprit de décision... C'était peut-être un bon et intelligent capitaine d'infanterie... Jeune homme distingué, il était devenu un homme médiocre... Délégué à la guerre, il n'a pas su vouloir, ni continuer ce qu'une fois il avait voulu ; il n'a pas su se soumettre au rôle secondaire que lui donnait l'intelligence de la Commune ; il n'a pas eu non plus la seconde... Cluseret allait en feu très carrément. Il n'a pas mis l'uniforme une seule fois ; il marchait devant, en chapeau rond et en veston, et on le suivait... Il n'a pas su choisir les hommes ; tous ceux qu'il a favorisés étaient des médiocrités parfaites. Rossel, son chef de génie et le colonel Mayer ont été les plus désastreusement médiocres de tous. » Rossel, Papiers posthumes, page
 
 Flourens avait 32 ans. Il était fils du secrétaire perpétuel de l'Académie des Sciences, qu'il suppléa
 
@@ -328,7 +306,7 @@ Sous ce titre l'Orient, justice pour tous, il écrivit dans le Courrier de Const
 
 Pendant une année, au milieu de ces braves montagnards, il souffrit la faim, le froid, toutes les fatigues et tous les dangers d'une guerre insurrectionnelle, couchant dans la neige et se nourrissant de racines et d'herbes sauvages bouillies. Il envoyait des correspondances aux journaux d'Europe, afin d'intéresser les esprits à la cause de l'indépendance crétoise, et soutenait les espérances des insurgés. En 1868, des élections ayant été faites en Grèce pour le parlement hellénique, la Crète, qui voulait s'y faire représenter, envoya une députation dont Flourens fut nommé président. — A Athènes, il fut arrêté de nuit et jeté sur un paquebot qui le ramena à Marseille. A peine en liberté, il retourna à Athènes et là, caché, continua une polémique violente
 
-(1) Les renseignements suivants sont extraits de notes biographiques écrites par Flourens lui-même et reproduites dans l'ouvrage d'Élie Reclus, la Commune au jour le jour, page 17.
+(1) Les renseignements suivants sont extraits de notes biographiques écrites par Flourens lui-même et reproduites dans l'ouvrage d'Élie Reclus, la Commune au jour le jour, page
 
 contre le ministère Bulgaris. Obligé de partir pour Naples, il fut incarcéré par le gouvernement italien pour un article paru dans le Popolo d'Italia. De retour en France en 1869, il fut condamné à trois mois de prison pour avoir continué deux réunions à Belleville, malgré la dissolution prononcée par le commissaire de police. Ayant fini sa peine au mois d'août, il se battit en duel avec Paul de Cassagnac qui, dans le Pays, avait violemment attaqué les orateurs des réunions publiques. Après 45 minutes d'assaut, il fut blessé d'un coup d'épée en pleine poitrine. Quand Victor Noir fut assassiné par le prince Bonaparte, Flourens et Rochefort conduisaient le cortège et avaient le commandement de la journée. Flourens voulait marcher contre la police, mais le peuple désarmé eût été mitraillé. Rochefort eut le bon sens de mener le cercueil au cimetière de Neuilly.
 
@@ -348,8 +326,6 @@ Devant les rois, devant le mal et ses ministres,
 Devant ce grand besoin du monde, être sauvé,
 Il sait qu'il doit combattre après avoir rêvé. »
 
-1
-
 Dans la Légion du Génie auxiliaire, Delbrouck n'accepta pas le commandement en chef qui lui fut offert après le départ de Viollet-le-Duc et de nombreux officiers supérieurs, mais il y conservait une influence considérable, parce qu'il était aimé et vénéré de tous. Persuadés qu'en continuant leurs travaux de fortification, ils défendaient non seulement Paris, mais la République menacée, presque tous nos soldats et quelques-uns de nos officiers se rallièrent à la Commune. Je fis comme eux.
 
 Delbrouck ne se lassait pas de répéter : « Il faut à
@@ -367,9 +343,7 @@ gestion de notre capitaine était si grande que nous la subissions avec la certi
 
 Pacifiste en théorie, j'aurais voulu atténuer à mes propres yeux la contradiction apparente entre mes principes et mes actes. — Je ne suis pas de ceux qui se résignent facilement à être illogiques. — J'ai la satisfaction de n'avoir pas tué de ma main ; je n'ai pas tiré un coup de fusil et je n'ai poursuivi personne. Cependant, il faut l'avouer, la distinction est subtile entre la légitime défense et l'attaque meurtrière. Les embrasures que nous construisions pour les canons, les tranchées derrière lesquelles s'abritaient les tirailleurs nous rendaient complices d'odieuses mais nécessaires boucheries. On trouvera singulière notre façon de comprendre la conciliation, mais il y a des circonstances plus fortes qu'une volonté individuelle.
 
-2
-
-dame Pape-Carpentier à Paul M.
+dame Pape-Carpentier à Paul
 
 Pardonnez-moi cette insistance, (1) cher monsieur Paul, et voyez-y moins la marque d'une amitié pourtant très réelle, qu'une preuve du prix que j'estime votre existence et votre action pour le triomphe même de l'idée que vous croyez servir. L'heure n'est pas venue ou le sang des justes est fécond. Elle n'est pas venue, ou plutôt elle est passée. C'est par la vie et la pensée qu'il faut désormais combattre pour la justice, non par l'homicide, sans quelque drapeau qu'il s'accomplisse. Un coup de canon n'est pas une raison, et le
 
@@ -399,8 +373,6 @@ Si vous pouviez nous envoyer quelques journaux sous enveloppe, cela nous ferait 
 
 Ma mère répondit à madame Pape. Pour moi, je ne crois pas avoir écrit une lettre à cette époque ; nous avions autre chose à faire. Il ne me reste que mes souvenirs.
 
-3
-
 Le 17 avril, la Commune de Lyon avait envoyé à Paris M. Barodet « pour offrir ses bons services aux patriotes de la conciliation ». — Cent sept chambres syndicales de patrons et d'ouvriers, représentant plus de cent mille citoyens, déléguèrent dans le même but une commission de dix-huit membres au gouvernement de Versailles.
 
 Dufaure, ministre de la Justice, répondit avec une dureté ironique « qu'il adorait la conciliation, mais après le triomphe ».
@@ -426,8 +398,6 @@ Mais Thiers, résolu à ne rien accorder, ne voulait pas même admettre la dépu
 A son tour, l'Alliance républicaine des départements vint adhérer à la Commune. Millière présenta à l'Assemblée une foule nombreuse de citoyens originaires de la province.
 
 Un congrès réuni à Lyon déclara responsable devant la nation souveraine celui des deux partis qui repousserait la conciliation. — Thiers menaça d'envoyer vingt-cinq mille hommes contre la ville rebelle.
-
-4
 
 « Quand Thiers eut lancé sa première bombe contre Paris, nous pensions que tous les députés de Paris qui étaient encore à Versailles protesteraient solennellement contre cette infamie et viendraient prendre avec nous leur part du danger. Nous avions rêvé que Louis Blanc, que Langlois, que Dorian, que Farcy, que Brisson, que Victor Schœlcher, qu'Edgar Quinet iraient se poster à la porte Maillot, et, devant les Vinoy, les Charette, les Cathelineau, les Gallifet, ils étendraient la main : « Nous défendons de toucher à Paris ! » Oui, nous rêvions cela. Nous nous trompions. Un seul a agi, un seul s'est employé pour la conciliation : Victor Schœlcher. Il publia avec Floquet et Lockroy la proposition de l'Assemblée d'un traité de paix. » (1)
 
@@ -475,8 +445,6 @@ Le Comité central considérait toute tentative de conciliation comme une trahis
 
 Cet ordre me fut remis, à moi simple sergent, vers quatre heures du matin. Pas un de nos lieutenants à la caserne ! Réunissant à la hâte les quinze ou vingt hommes de la compagnie, que nous avions sous la main, (1) je partis aussitôt.
 
-5
-
 Dombrowski avait installé ce jour-là son état-major dans une serre, au fond d'un jardin, entre le boulevard Inkermann et la rue Borghèse. Notre petit détachement, placé avec quelques autres sous les ordres d'un capitaine
 
 (1) Notre effectif était loin d'être au complet et, après de longues fatigues, les hommes mariés avaient parfois la permission de passer la nuit dans leur famille.
@@ -519,7 +487,7 @@ Le lendemain, ma mère, visitant l'ambulance du Luxembourg, apprit de nos bless�
 
 Louise M. à son père
 
-Paris, lundi 24 avril 71.
+Paris, lundi 24 avril
 
 Je voudrais bien aller te rejoindre à la Colonie, mais nous ne pouvons pas laisser Paul et Alix, car ils sont continuellement exposés. Alix s'est faite ambulancière et suit Henri partout. Elle a été au fort d'Issy, elle est maintenant au fort de Vanves. La vie qu'elle mène est très fatigante et pleine de dangers ; elle est vraiment courageuse ; quel dévouement ! mais on doit être bien heureuse de se rendre utile.
 
@@ -554,8 +522,6 @@ J'espère que tu ne crois pas un mot de tous les mensonges débités par les jou
 Alix est à Levallois-Perret, toujours bien exposée, mais remplie d'entrain et même de gaieté, autant qu'il est possible d'en avoir dans d'aussi pénibles circonstances.
 
 Le cimetière d'Issy. — Vanves. — Le Couvent des Oiseaux. — Abandon du fort d'Issy. — La porte Bineau. — Levallois-Perret. — Neuilly. — La fin du drame. — Lettres.
-
-1
 
 Bien qu'ils ne fussent pas au courant des intrigues, des jalousies, des dissentiments qui paralysaient l'action du haut commandement, les soldats de la Commune manquèrent toujours de discipline et ne connurent guère l'obéissance passive. Il fallait leur expliquer les raisons de chaque ordre et le but que l'on se proposait. Mais ce défaut était en partie racheté par l'intelligence et l'initiative souvent heureuse de ces hommes dévoués à leur cause et animés d'une foi robuste dans le succès de leurs efforts.
 
@@ -663,8 +629,6 @@ On doit relever le bataillon ce soir ; il sera caserné dans le village d'Issy, 
 
 Après un court séjour à Paris, Alix Payen se rendit au Couvent des Oiseaux.
 
-2
-
 Tu t'imagines sans doute qu'en te quittant je suis paisiblement rentrée aux Oiseaux. Eh bien, pas du tout. Le
 
 bataillon était parti de la veille et avait passé la nuit aux tranchées du fort de Vanves. Un petit détachement avait été envoyé pour chercher des vivres, Henri en faisait partie, et j'ai rejoint dans le fourgon des vivres. Ce petit voyage n'a pas été sans émotion, car personne ne savait conduire et nous ignorions le chemin. Mais en fin de compte nous sommes arrivés au fort de Vanves sans accidents.
@@ -704,7 +668,7 @@ Je viens de jeter un coup d'œil à mon gourbi. Il est superbe, plus beau que ce
 
 Notre dernier blessé, le caporal Moulin, est à l'ambulance du Luxembourg. Tu pourras aller le voir.
 
-Couvent des Oiseaux, 24 avril 71.
+Couvent des Oiseaux, 24 avril
 
 Chère mère,
 
@@ -768,8 +732,6 @@ Presque toute la compagnie a obtenu la permission de venir à l'enterrement. La 
 
 Le cortège était de huit corbillards.
 
-3
-
 Les chances d'apaisement diminuaient de plus en plus. La situation de Neuilly et des communes suburbaines, Asnières, Clamart, Bellevue, Châtillon, était terrible. Placés entre deux feux, les habitants ne savaient comment se dérober aux projectiles. « Ils ne pouvaient pas même porter tranquillement leurs morts au cimetière. A Bellevue, la belle-mère de Charles Edmond fut traînée jusqu'à sa dernière demeure, la nuit, par sa fille et une domestique, obligées d'improviser une bière avec la première caisse venue, de
 
 creuser elles-mêmes un trou et d'y enfouir le cadavre à fleur de terre. » (1)
@@ -781,8 +743,6 @@ Le 30 avril, le fort d'Issy, qui depuis le début du second siège, servait de c
 Pendant plusieurs jours, les Versaillais n'osèrent pas entrer dans le fort. Repris par les Fédérés, il ne fut abandonné qu'après une défense héroïque, le 9 mai.
 
 Le Comité avait nommé Éd. Moreau, commissaire civil auprès de Rossel. Ces deux hommes avaient des vues entièrement opposées, et malgré leur remarquable intelligence, ne parvinrent jamais à s'entendre.
-
-4
 
 Chère mère,
 
@@ -833,8 +793,6 @@ nous, il y a un homme tué depuis quatre jours. Nous voudrions aller le relever,
 
 Ce matin j'ai écrit pour un soldat une lettre à sa bonne amie ! Lorsque j'ai eu fini, un autre s'approche et me dit d'un air de pitié : « Comment peut-on ne pas savoir écrire ? Moi, j'ai une écriture qui devrait me valoir le grade de major ; voyez plutôt. » Et il me montre une lettre qu'il se disposait à remettre au vaguemestre ; je lis en écriture moulée : « A mademoiselle Clarisse, dame du monde. »
 
-5
-
 Tout espoir était perdu pour la Commune. Thiers tenait la victoire ; « il exultait. En vain le pressait-on d'épargner les horreurs du bombardement aux populations de Montrouge, d'Issy et de Vanves, les batteries de l'armée tiraient toujours.
 
 « Ce fut seulement le 9 mai que les Versaillais osèrent occuper le fort d'Issy, ce qui leur permit d'attaquer le fort de Vanves. Ils commencèrent à écraser la Muette
@@ -867,8 +825,6 @@ monuments : il laisse ces procédés aux barbares. Il juge son histoire et il ju
 
 La colonne Vendôme fut jetée bas le 16 mai. (1)
 
-6
-
 Alix Payen à madame Milliet
 
 Neuilly, dimanche 13 mai.
@@ -881,7 +837,7 @@ Nous sommes installés dans les écuries d'un splendide hôtel. Les jardins sont
 
 Bien que nous soyons en seconde ligne, nous distinguons très bien les ruraux. Ceux de la première tranchée ont été interpellés par les Versaillais. Un d'eux a crié : « Payez-vous
 
-(1) Voir Maxime Vuillaume, Mes cahiers rouges, V, page 179.
+(1) Voir Maxime Vuillaume, Mes cahiers rouges, V, page
 
 la goutte ? » Et les gardes nationaux de répondre : « Viens la chercher, cochon ! »
 
@@ -903,8 +859,6 @@ Je crois que cette nuit ce sera encore très chaud. J'espère que notre bataillo
 
 Adieu mère. Je vous aime et vous embrasse tous bien tendrement.
 
-7
-
 Chère mère,
 
 Je viens de ramener mon pauvre Henri sérieusement blessé. Un éclat d'obus lui a enlevé un doigt et bien atimé un autre ; puis il est entré dans le côté et a traversé la cuisse de part en part. On voulait l'envoyer à Beaujon, mais il a préféré rentrer chez lui, où il sera soigné par le major de notre bataillon, lequel revint aussi ce matin. Je t'écrirai dans la voiture d'ambulance, je ne sais si tu pourras me lire. — Je t'embrasse et compte sur ta visite.
@@ -923,8 +877,6 @@ Je sais à peine ce qui se passe, puisque je ne sors pas. Notre bataillon est re
 
 Je vous embrasse tous bien tendrement.
 Ta fille qui t'aime.
-
-8
 
 Le 21 mai la porte du bastion 64 près de la porte de Saint-Cloud ayant été ouverte par trahison, les troupes des généraux Douay, de Cissey, Ladmirault et Vinoy entraient dans Paris.
 
@@ -976,8 +928,6 @@ Le présent laissez-passer n'est valable que pour la journée du 1er juin 1871.
 
 Le Général Commandant la Place,
 
-9
-
 A la nouvelle du coup qui venait de nous frapper, Fernand écrivit d'Algérie à sa sœur :
 
 Jemmapes, le 13 juin 1871.
@@ -1005,8 +955,6 @@ Nos morts. — La guerre des rues. — L'ordre règne. — Le docteur Faneau. �
 Leur sang fait une mare affreuse sur la terre...
 O morts pour mon pays, je suis votre envieux.
 
-1
-
 En 1840, Thiers, présentant son projet de fortifications, repoussait avec indignation l'idée que ses canons pussent être jamais tournés contre les Parisiens : « C'est calomnier un gouvernement quel qu'il soit, disait-il, de supposer qu'il puisse un jour chercher à se maintenir en bombardant la capitale. »
 
 Le 5 août 1871, le même M. Thiers déclarait à l'Assemblée Nationale : « Nous avons écrasé tout un quartier de Paris », et le 24 mai : « J'ai versé des torrents de sang ». (1)
@@ -1028,14 +976,12 @@ Ce sont principalement des membres de l'Internationale qui s'opposèrent courage
 La guerre des rues dura huit jours. « La tuerie commença dès les premiers moments. Rien ne l'expliquait alors, ni l'horreur des incendies, que personne ne pré-
 
 (1) Signé : Trochu, Jules Favre, Ernest Picard, Jules Simon, Jules Ferry, Emmanuel Arago, Garnier-Pagès, Pelletan.
-(2 et 3) Georges Bourgin, pages 178 et 179.
+(2 et 3) Georges Bourgin, pages 178 et
 (3) Incendié par Pindy, gouverneur du monument.
 
 voyait, ni l'exécution des otages, encore éloignée, rien, dis-je, sauf des ordres précis. » (1)
 
 « Un marquis de Gallifet, arrêtant une colonne de prisonniers, arrachait des rangs, sur la simple inspection des physionomies, quatre-vingts malheureux dont les têtes ne lui revenaient pas, les alignait suivant la crête extérieure d'un rempart, de manière que leurs cadavres, en pirouettant, tombassent de haut dans le fossé au bas du mur, et les faisait fusiller à bride-vêtement par ses chasseurs. L'ancien officier de l'Empire se croyait encore au Mexique sous les ordres de Bazaine le félon. » (2)
-
-2
 
 L'infamie des Prussiens fut grandement dépassée par celle des Versaillais. Peu de temps avant l'explosion probable de la poudrière du Luxembourg, on avait transporté au séminaire de Saint-Sulpice les deux cents malades et blessés qui se trouvaient dans les baraquements de la Pépinière. La direction de l'ambulance avait été confiée à l'un de nos amis, comme nous disciple de Fourier, au jeune et distingué docteur Faneau. Aussitôt que les Versaillais furent entrés dans Paris, il fit faire une perquisition sévère dans l'ambulance et les quelques armes qui y restaient encore furent déposées à la mairie. Le mercredi matin, après les terribles combats de la rue de Vaugirard et du Vieux-Colombier, un sergent de la ligne, aidé par des ambulanciers, abattit le drapeau rouge qui flottait sur
 
@@ -1059,7 +1005,7 @@ On avait fait espérer une médiation de la Presse, mais les Fédérés refusèr
 
 « Delescluze, s'il n'avait pas été affaibli par l'âge et par la maladie, aurait peut-être été l'homme de la révolution. Il a marqué son arrivée au ministère de la guerre par plusieurs mesures heureuses... Une longue déportation avait ruiné sa santé ; il ne parlait plus, il respirait à peine ; c'était un cadavre ambulant. L'acceptation du pouvoir était le sacrifice des misérables restes de sa vie, et cependant il accepta. Il accepta de
 
-(1) Georges Bourgin, page 177. — Vuillaume, IV, pages 35 et 41 ; VII, page 47.
+(1) Georges Bourgin, page 177. — Vuillaume, IV, pages 35 et 41 ; VII, page
 
 la majorité de la Commune, dont il ne faisait pas partie, mais qu'il dominait de la grandeur de son passé, un rôle impossible, condamné d'avance, et dans lequel il ne fut pas soutenu. Il est tombé derrière une barricade, mais déjà il avait succombé à la tâche... Delescluze s'est fait tuer, après l'abandon de la barricade où il se trouvait. Il a été frappé d'une balle au cœur. On a trouvé son corps défiguré par une affreuse brûlure que lui avait faite au coin une poutre tombée d'une maison voisine. Les vainqueurs trouvent des paroles pour insulter sa mort. » (1)
 
@@ -1073,11 +1019,9 @@ La lutte s'acheva le dimanche 31 mai dans le cimetière du Père-Lachaise :
 Des bandits ont tué soixante-quatre otages.
 On réplique en tuant six mille prisonniers. (3)
 
-(1) Rossel, Papiers posthumes, page 301.
+(1) Rossel, Papiers posthumes, page
 (2) Voir Vuillaume, II. La Vérité sur la mort des otages.
 (3) Georges Bourgin évalue à plus de 20.000 le nombre des victimes. « On fit 38.568 arrestations dont 1.058 femmes et 651 enfants. Les dénonciations s'accumulèrent au nombre de 399.823 dont un vingtième signé, sur le registre de la police. » Ce registre est un des plus honteux souvenirs de la lâcheté humaine.
-
-3
 
 Si j'avais eu alors des ennemis personnels, il ne leur eût pas été difficile de découvrir ma retraite. C'est de la Colonie que j'écrivis à mon ami Nicole la lettre suivante, qui résume les principaux faits dont je venais d'être témoin. (1)
 
@@ -1095,8 +1039,6 @@ Parlera-t-on de quelques arrestations arbitraires ? Du moins, elle n'a pas eu le
 
 (1) Je croyais que la peine de mort avait été abolie en matière politique.
 
-4
-
 Peu de temps après notre départ de Paris, le général de Tucé écrivait de Clermont-Ferrand à madame Milliet :
 
 J'ai reçu avec grand plaisir la lettre qui m'annonce que vous êtes enfin à la campagne. Il manque, il est vrai, ce pauvre Henri. Je comprends tout le chagrin que doit éprouver sa petite femme, car il l'aimait beaucoup. Si dans la conduite de ses affaires, il a risqué des opérations hasardeuses, c'était pour acquérir plus vite un bien-être auquel il pensait plus pour elle que pour lui. Heureusement vous êtes autour d'elle et pouvez lui apporter bien des consolations.
@@ -1111,13 +1053,11 @@ pas pour moi, chère mère, bien d'autres sous-lieutenants vivent avec leurs app
 
 Madame Alix Payen n'étant pas mariée sous le régime de la communauté de biens, aurait pu sauver sa dot ; elle l'abandonna entièrement aux créanciers de son mari. Complètement ruinée, elle accepta courageusement sa nouvelle position et, de retour chez ses parents, elle voulut gagner sa vie par son travail. Elle entra d'abord chez Nadar, puis chez Goupil, pour retoucher des photographies. Plus tard, elle parvint à vendre quelques copies de tableaux qu'elle peignait à l'aquarelle dans les musées.
 
-5
-
 Bien peu, je crois, parmi nos camarades de la Légion du Génie ont survécu aux massacres. Ceux qui restaient se trouvèrent dispersés au loin ; je n'en ai revu aucun. L'un d'eux, cependant, échappé miraculeusement à la mort, a raconté à nos amis de Vesly et Léon C... son émouvante histoire. (1)
 
 Dollé c'était un jeune serrurier, maigre petit blondin à l'œil éveillé, très crâne dans le danger comme beaucoup de nos loustics parisiens. On assurait qu'il avait été fusillé ; des témoins l'avaient vu tomber. Grand fut
 
-(1) Voir pour plus de détails l'intéressant article publié par M. de Vesly dans la Normandie, 1899, page 202.
+(1) Voir pour plus de détails l'intéressant article publié par M. de Vesly dans la Normandie, 1899, page
 
 donc l'étonnement du lieutenant de Vesly lorsqu'il vit le prétendu mort entrer chez lui, un des premiers jours de juin 1871.
 
@@ -1155,8 +1095,6 @@ Mais le rire cessa, car soudain l'enfant pâle
 Brusquement reparu, fier comme Viala,
 Vint s'adosser au mur et leur dit : Me voilà. (1)
 
-6
-
 Dans la nuit du 21 mai, le capitaine Delbrouck, toujours sans armes, dirigeait les travaux de sa compagnie sur les remparts de Passy, lorsqu'il se trouva entouré à l'improviste par les troupes versaillaises entrées dans Paris par trahison. Fait prisonnier, il fut emmené à Versailles. Il défilait sous les insultes de la foule avec ses compagnons de captivité, quand une belle dame le montrant du doigt s'écria : « Voyez donc cette tête d'assassin ! » — Il avait une tête de Christ. —
 
 Et la féroce mégère le frappa d'un coup d'ombrelle. (2)
@@ -1165,7 +1103,7 @@ Sa santé minée par les fatigues ne devait pas se rétablir dans la prison. (3)
 
 (1) Il faut lire les commentaires admirables dont Hugo accompagne ce récit.
 (2) Ce fait a été fait par madame Mazard, mère adoptive des enfants de M. Delbrouck.
-(3) « Les mauvais traitements tuèrent 1.179 prisonniers. » Georges Bourgin, page 188.
+(3) « Les mauvais traitements tuèrent 1.179 prisonniers. » Georges Bourgin, page
 
 efforts libérateurs, le plus souvent heureux, mêlés aux noms de M. Bonjean, de M. Claude, des Sœurs de Boutibné, de Piépus, de Sainte-Marie, du Père Caubert, du concierge de M. Thiers, etc... Un arrêt de non-lieu le rendit libre », (1) mais seulement lorsqu'on fut bien sûr qu'il n'avait plus que quelques jours à vivre.
 
@@ -1233,11 +1171,11 @@ Désobéit ! la mer envahit mon refuge !
 
 Tu me crois la marée et je suis le déluge.
 
-une famille de républicains fouriéristes ..................            1
+une famille de républicains fouriéristes ..................
 
         et le second siège
 
-1871 ........................................................           9
+1871 ........................................................
 
     Les ruraux. — Premières manifestations. — Les
     canons de la Garde nationale. — Le Comité

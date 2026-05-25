@@ -311,7 +311,6 @@ seulement il n'a aucune portée socialiste, mais on
 pourrait dire qu'il est antisocialiste. Faut-il rappeler ce qu'écrivait Proudhon en 1851 (1) : « .… La
 centralisation gouvernementale, en matière d'instruction publique, est impossible dans le ré-
 (1) Idée générale de la Révolution, pages 290-291.
-| 13
 
 gime industriel, par la raison décisive que l'instruction est inséparable de l'apprentissage, l'éducation scientifique de l'éducation professionnelle.
 Il répugne que l'école soit séparée de l'atelier,
@@ -783,7 +782,7 @@ qu'il y a de plus sûr, c'est que la liberté ne s'en-
 
 ‘ seigne pas; et c'est par dérision sans doute qu'on a
 
-(1) Voir à ce sujet l'essai de Sorel sur l'Église et l'État, page 56.
+(1) Voir à ce sujet l'essai de Sorel sur l'Église et l'État, page
 
 liberté se conquiert par un contact incessant avec le
 réel, la vie, le mouvement des choses et des idées;
@@ -931,8 +930,6 @@ les états les plus contradictoires. Des savants
 comme Pasteur, des philosophes comme Lachelier,
 des observateurs sociaux comme MM. Paul Bureau
 et Paul de Rousiers, sont catholiques : ont-ils
-
-| 39
 
 l'esprit moins moderne que n'importe quel député
 du « Bloc républicain » ? La vie religieuse, c'est la
@@ -1088,7 +1085,7 @@ On ne raisonne plus, on frappe; on ne discute
 plus, on court sus à l'Infâme. L'arrêt critique est |
 complet : la haine domine, furieuse, grossière, impérieuse, terrible à tout empêcheur de hurler en )
 rond. Nous avons connu les débordements sauvages
-(4) Voir le vingt-et-unième Cahier de la troisième série (août 1902). s
+(4) Voir le vingt-et-unième Cahier de la troisième série (août 1902).
 
 de la rage nationaliste : nous connaissons aujourd'hui ceux de la rage anticléricale; ils ne nous
 changent guère : dent pour dent, œil pour œil; pour
@@ -1359,12 +1356,12 @@ tout arbitraire, tout monopole, tout privilège et
 porter la liberté à son plus hautpoint. Lutter contre
 le cléricalisme, c'est lutter contre l'esprit de domination. Dans l'affaire Dreyfus, les ouvriers ont lutté
 contre la domination de la caste militaire; dans
-cette révolte tragique de toutes les consciences s
-libres contre le plus odieux des jougs, ils ont été au L
+cette révolte tragique de toutes les consciences
+libres contre le plus odieux des jougs, ils ont été au
 premier rang. Ils veulent y être aussi dans la révolte |
 contre la domination de la caste ecclésiastique et |
-sont prêts à s'associer à toute politique anticléricale. j
-Mais ils pensent avec Proudhon que, pour s'opposer ÿ
+sont prêts à s'associer à toute politique anticléricale.
+Mais ils pensent avec Proudhon que, pour s'opposer
 
 véritablement aux intérêts cléricaux, il faut développer l'intérêt politique et économique, c'est-à-dire
 anticlérical, et que par conséquent la véritable politique anticléricale, ce n'est pas une politique jacobine et pseudo-démocratique, mais une politique
@@ -1383,7 +1380,7 @@ jamais passer à celles d'une autorité centrale », (1) et
 qui, par conséquent, ajouterons-nous, constitue la
 décisive résorption dans le corps même de la société de ces deux oppresseurs de la conscience et de
 la liberté, l'Église et l'État.
-(1) Du Principe fédératif, page 121.
+(1) Du Principe fédératif, page
 
 Sur les documents, renseignements, contributions et
 
@@ -1403,7 +1400,7 @@ Le courrier que l'on va lire laisse une impression
 
 pénible ; mais nous savons de longtemps que la misère
 
-nest pas un exercice de vertu, qu'elle est laide. ï
+nest pas un exercice de vertu, qu'elle est laide.
 
 Notre correspondant est un instituteur ; non pas un
 
@@ -1570,17 +1567,17 @@ D'autre part, sans vouloir calomnier les femmes de
 que l'économie.
 
 Elles gaspillent l'argent que leurs maris ont tant de |
-peine à gagner : les pâtissiers, les crépières en savent ë
+peine à gagner : les pâtissiers, les crépières en savent
 quelque chose. Jamais ces derniers ne font faillite, |
-tandis que les boulangers et les autres commerçants ÿ
+tandis que les boulangers et les autres commerçants
 font, trop souvent, de mauvaises affaires. ;
 
 Il faut voir, dans les ports de pêche, à Audierne et
 Douarnenez, le luxe des femmes et des jeunes filles de +
 pêcheurs et d'ouvriers. Vêtues plus richement que ne :
-le comporte leur condition et leur état de fortune, 4
+le comporte leur condition et leur état de fortune,
 chaussées et gantées comme des personnes très riches, Fe
-on peut affirmer qu'elles prodiguent inutilement le petit É
+on peut affirmer qu'elles prodiguent inutilement le petit
 
 pécule de la famille, sans souci de la misère qui les
 ‘ attend pendant les mauvais jours.
@@ -1676,14 +1673,14 @@ Il dira ce qu'il jugera bon de dire en toute matière et sur « toute personne. 
 feuilles ne voudraient ou ne pourraient pas dire.
 __ Il criera les vérités que les « hommes d'ordre et de gouvernement » s'efforcent d'étouffer. £
 Les citoyens qui l'ont déjà vu à l'œuvre savent s'il est À
-capable d'amnistier un crime, de pardonner un mensonge F
-ou de reculer devant un coquin. e
+capable d'amnistier un crime, de pardonner un mensonge
+ou de reculer devant un coquin.
 Ils savent aussi combien de parasites politiciens ont ;
 gagné des places en exploitant ses idées, ou ramassé des ve
 mandats en récitant ses écrits. On le pille, on le gruge, on
 l'excommunie, on l'insulte. Maïs il a quelquefois son
 Le Vieux Cordelier se moque des pharisiens et des tar- :
-70 5
+70
 
 tufes. Il suit les avis de sa sensibilité, les élans de sa passion, plus sage que la sagesse des pleutres.
 
@@ -1725,7 +1722,7 @@ suelles ‘régulières et par des souscriptions extraordi-
 | naires; La souscription ne confère aucune autorité sur
 . la rédaction ni sur l'administration : ces fonctions ;
 a 4 _ des abonnements de souscription à cent francs;
-DE des abonnements ordinaires à vingt francs; j
+DE des abonnements ordinaires à vingt francs;
 LL et des abonnements de propagande à douze francs.
 _ service entre ces différents abonnements. Nous vouJ 1 lons seulement que nos cahiers soient accessibles à tout
 4. le monde également.

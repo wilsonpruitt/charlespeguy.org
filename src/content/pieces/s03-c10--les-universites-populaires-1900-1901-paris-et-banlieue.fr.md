@@ -14,11 +14,11 @@ les Universités Populaires
 
 les U. P. Paris-Banlieue 1900-1901
 
-LR Toute la copie de ce cahier nous a été fournie par la L
+LR Toute la copie de ce cahier nous a été fournie par la
 Société des Universités Populaires. PNR te
 
-nie: . les Universités Populaires, 1900-1901. — Départeoise 1 1 F
-14% ments. Un fort cahier d'au moins cent pages. 4 M
+nie: . les Universités Populaires, 1900-1901. — Départeoise
+14% ments. Un fort cahier d'au moins cent pages.
 
 Les notices que nous publions dans ce Bulletin ont
 été rédigées par les secrétaires des U. P. qu'elles concernent ; elles constituent par leur seule réunion un
@@ -107,21 +107,21 @@ F peuple sincèrement, sans arrière-pensée, parce que,
 
 eux aussi, ont besoin de lui, parce qu'ils veulent lui ‘
 confier ce qu'ils ont de plus précieux, les biens sans
-lesquels il ne vaudrait plus la peine de vivre. Ils voient î
-parti-pris, au sein d'une société, une armée de barbares Ë
+lesquels il ne vaudrait plus la peine de vivre. Ils voient
+parti-pris, au sein d'une société, une armée de barbares
 qui peut l'emporter d'assaut dans un jour de fureur et .
 d'ivresse. Pour sauver de la civilisation ce qui pour
 eux vraiment la constitue, tout ce que l'homme a ajouté
 d'humain à la nature, l'art, la science, la moralité, la
 grande œuvre collective de tous ceux qui depuis des
-siècles travaillent et pensent, ils la mettent sous la sau- F
+siècles travaillent et pensent, ils la mettent sous la sau-
 vegarde du peuple, en s'efforçant de lui en donner l'in- $
-telligence et l'amour. Ainsi se scelle l'alliance du tra- ï
+telligence et l'amour. Ainsi se scelle l'alliance du tra-
 vail qui réussira sans doute un jour à subordonner les La
 forces qui l'exploitent et l'oppriment.
 
 L'esprit des U. P. répond à ce qu'attendent d'elles Le
-É ceux qui les fréquentent, c'est un esprit positif et laïque. Ÿ
+É ceux qui les fréquentent, c'est un esprit positif et laïque.
 La curiosité ne se porte pas d'abord sur l'inconnaissable.
 On se refuse aux dogmes qui ne reposent que sur l'autorité de ceux qui les affirment, on entend ne se soumettre qu'à la raison; on exige des faits ou des preuves.
 Le peuple découvre ce que Bacon proclama dès le
@@ -130,14 +130,14 @@ savoir pour prévoir et pour pouvoir. Il en vient à com- À
 prendre le danger de prendre ce qu'on désire pour ce $
 qui est, il voit que toute action sur la nature suppose
 l'intelligence des lois nécessaires qui déterminent le al
-possible, et il demande à la science ce qu'elle seule e
-peut donner, la méthode qui permet d'accorder l'effort L
+possible, et il demande à la science ce qu'elle seule
+peut donner, la méthode qui permet d'accorder l'effort
 aux lois des choses. La nature est une machine redoutable qui broie les ignorants et les maladroïts, mais
 qui porte ceux qui savent prendre la direction de ses
 
 forces et les faire concourir dans le sens même où ils
 veulent aller. L'ouvrier n'accumule pas des connaissances pour le plaisir ou pour la gloire, il demande à la
-science une éducation de l'esprit et de la volonté, des :e
+science une éducation de l'esprit et de la volonté, des
 vertus intellectuelles, et des vérités qui éclairent la nn
 route où il veut marcher; il ne sépare pas la pensée de
 l'action.
@@ -166,8 +166,8 @@ multiples, sérier les questions et les efforts; ils calculent leurs forces, ils
 ils s'instruisent au contact des faits, ils apprennent que
 
 L ces faits ont des lois qu'on ne viole pas impunément, et
-ils veulent la science qui permet l'action efficace. D'ailï leurs ils ne renient ni ne trahissent leur foi ancienne, L:
-ve ils ne renoncent à aucune de leurs espérances, ils pas- È
+ils veulent la science qui permet l'action efficace. D'ailï leurs ils ne renient ni ne trahissent leur foi ancienne,
+ve ils ne renoncent à aucune de leurs espérances, ils pas-
 \ ‘sent seulement du rêve à la science et à l'action, de
 Le: l'utopie à l'idéal, s'il est vrai que l'idéal soit l'idée conçue dans son rapport au possible, c'est-à-dire aux con-
 : ditions qui permettent de la réaliser.
@@ -193,7 +193,7 @@ YUE éternelles qu'on lui offre généreusement. Habitué à ne
 
 # devoir qu'à lui-même son pain quotidien, il prend pour aQ sa part la tâche qu'aucun Dieu ne s'est encore soucié x | d'accomplir, la justice dans les rapports des hommes.
 
-26, Pour accomplir cette tâche, il n'a que faire de théolo- de . 1:
+26, Pour accomplir cette tâche, il n'a que faire de théolo- de
 
 gie, de métaphysique, de foi aveugle, il a besoin d'une
 intelligence lucide et d'une volonté ferme, des méthodes
@@ -295,7 +295,7 @@ A Les U. P. de Paris et banlieue diffèrent beaucoup
 ( F logies aussi, étant nées et s'étant développées dans un
 
 “Ce milieu défini sous l'influence de préoccupations intellec- ÿ ; tuelles presque identiques.
-4 On ne trouvera pas ci-après des renseignements Ü
+On ne trouvera pas ci-après des renseignements
 ke spéciaux sur toutes les U. P. La Société des Universités
 Populaires n'a reçu de notices que des U. P. qui dési- ‘
 F raient faire connaître quelque particularité de leur
@@ -313,7 +313,7 @@ Nous avons un local spécialement affecté à VU. P. du
 troisième; sa situation est assez bonne, puisque nous
 sommes dans le quartier le plus populeux, et le plus avancé
 du troisième arrondissement; malheureusement, nous -
-| sommes petitement logés, les loyers étant très chers, et nos û
+| sommes petitement logés, les loyers étant très chers, et nos
 | l'école libertaire qui nous sous-loue son local pour 600 francs
 | par an, nous arrivons à couvrir les frais de loyer, sans
 trop de peine. L'administration a été réduite à sa plus
@@ -321,7 +321,7 @@ trop de peine. L'administration a été réduite à sa plus
 4 pas de statuts proprement dits, ceux qui existent n'ayant
 qu'une valeur très minime; les membres actifs sont ceux qui
 : suivent régulièrement les conférences, et les membres adhéht rents sont, en somme, ceux qui viennent quand ça leur plaît.
-4 Ceux qui font partie du conseil appartiennent à la catéJ gorie des actifs, et nous nous sommes arrangés de telle façon
+Ceux qui font partie du conseil appartiennent à la catéJ gorie des actifs, et nous nous sommes arrangés de telle façon
 } qu'il n'y a aucune autorité, aucune domination; chacun a
 X. sa fonction déterminée; à lui de se débrouiller, mais pas un
 me de ceux qui sont du conseil n'a de droit plus qu'un autre.
@@ -356,7 +356,7 @@ mois, une soirée ou une matinée littéraire et musicale; la
 \ première, fastueuse, eut lieu à la salle des fêtes de la
 , mairie du troisième arrondissement, une autre eut lieu à
 l'ancien local de l'U. P., 14, rue de la Corderie, on y lut
-i la tragédie d'Andromaque, avec un talent et un mérite par- j
+i la tragédie d'Andromaque, avec un talent et un mérite par-
 faits. Enfin, au mois de mars dernier, la rue de Montmorency F'
 | voyait s'éclore une phalange nouvelle qui interpréta supérieurement le Bourgeois gentilhomme ; cette série de succès À
 nous a encouragés, et nous préparons une autre soirée À
@@ -376,7 +376,7 @@ d'U. P., où chacun apporterait quelque chose de beau et de
 vraiment artistique, d'une façon anonyme, rien que pour
 | créer justement le musée social; et en excitant ainsi le sens
 de l'esthétique chez chacun, peut-être pourrions-nous arriver à un très beau résultat. Ce serait, en somme, le
-musée des U. P.
+musée des
 
 L'Union Mouffetard est installée, 76, rue Mouffetard, dans
 un local qui lui est spécialement affecté. IL comprend : une
@@ -395,7 +395,7 @@ L'expérience d'une première année avait montré le peu
 conférenciers étrangers à la maison. Le Conseil d'adminis4 tration a réussi cette année à organiser un enseignement
 ( méthodique dirigé par des professeurs de la Sorbonne et de
 Ÿ l'École normale, qui ont accepté les fonctions de délégués.
-À Chaque délégué a assuré le service hebdomadaire de son à » è : « 4 At 2. 2% ‘4 L
+À Chaque délégué a assuré le service hebdomadaire de son à » è : « 4 At 2. 2% ‘4
 groupe d'études, en collaboration avec un membre ouvrier.
 5 : Autant que possible les sujets appartenant à une science
 déterminée, à un même ordre de recherches, ont été traités
@@ -422,10 +422,10 @@ J architecture à Paris (7 causeries); la sculpture française au
 | dix-neuvième siècle (5 causeries); les fouilles de Myeènes ‘4
 et de Troie. Tous les mois a lieu une promenade dans un
 musée. Une soirée par moisest réservée à l'audition d'œuvres
-à musicales, précédée d'une brève causerie : une a été con- d
+à musicales, précédée d'une brève causerie : une a été con-
 sacrée à Schumann, une à Berlioz, une à Pierre Dupont,
 A3 Le jeudi (délégué : Louis Lapicque, maitre de conférences
-D à la Sorbonne) est consacré aux sciences physiques et natu- L
+D à la Sorbonne) est consacré aux sciences physiques et natu-
 Î relles, considérées dans leurs applications. Ces causeries
 “ sont autant que possible accompagnées d'expériences. Siy gnalons les sujets suivants : Comment doit-on se nourrir
 
@@ -449,14 +449,14 @@ La loi sur les associations et les questions qui s'y rattachent
 4 les jugements du président Magnaud, la mission Foureau,
 y, le coup d'État finlandais, la question du blanc de céruse,
 à ont été l'objet de causeries et de discussions.
-4 Le dimanche est consacré à des soirées littéraires et mu-
+Le dimanche est consacré à des soirées littéraires et mu-
 ; sicales. Le programme en est infiniment varié. Nous y
 ik relevons, par exemple : Philoctète, de Sophocle; Orphée, de
 é Glück; l'Article 330 et le Client sérieux, de Courteline.
 E 51 Ajoutons qu'un groupe de lecture dramatique s'est formé
 v parmi les membres de l'Union. Son développement assurera
 à d aux soirées du dimanche des concours précieux et fidèles.
-1 L'Union a fait plus et mieux que de fonder un enseigne-
+L'Union a fait plus et mieux que de fonder un enseigne-
 ; ment. Il n'y a pas à l'Université Populaire des élèves et des
 té professeurs, mais des camarades qui discutent et vivent
 EX ensemble. On a favorisé à l'intérieur de l'Union l'associal'A tion sous toutes ses formes. Des groupes très divers se
@@ -473,11 +473,11 @@ garçons et filles, un patronage du jeudi.
 | propagande démocratique. La Fédération de la Jeunesse
 , ” laïque a donné dans nos salles plusieurs de ses conférences; les sections de la Ligue des Droits de l'Homme du
 1 cinquième arrondissement y sont venues s'organiser;
-n l'École socialiste, qui exerce en ce moment une action si L:
+n l'École socialiste, qui exerce en ce moment une action si
 puissante, est venue s'installer dans notre maison. C'est ÿ)
 | assez indiquer les tendances de l'Université Populaire. A
 ; L'assemblée générale du 16 décembre 1900 a voulu aflirmer
-N le caractère rigoureusement laïque de l'œuvre en émettant Î
+N le caractère rigoureusement laïque de l'œuvre en émettant
 le vœu suivant : « Dans aucun cas, le conseil d'administra- À
 | tion ne pourra admettre à prendre la parole comme confé- FA
 , rencier un homme qui, professionnellement, est revêtu
@@ -533,20 +533,20 @@ ps prochain notre organisation nous permettra de faire
 ES associer largement l'élément ouvrier manuel; c'est le but
 ja Ceci ne peut encore être qu'un simple avis de naissance.
  ” L'enfant se porte bien, à nous de le faire vivre!
-} Au mois de novembre 1900, un appel fait à tous les F
+} Au mois de novembre 1900, un appel fait à tous les
 a démocrates du douzième arrondissement, réunissait, dans
 S une salle de la rue Rondelet, une nombreuse assistance,
 EH venue pour étudier la convenance et les moyens de fonder
 CA une Université Populaire.
-| Dès le début de la réunion, on put voir que l'œuvre était f
+| Dès le début de la réunion, on put voir que l'œuvre était
 fondée, car l'unanimité des citoyens et citoyennes en
-Be adopta le principe et, de plus, manifesta sa volonté de faire Ê
+Be adopta le principe et, de plus, manifesta sa volonté de faire
 ; vite et bien. Séance tenante, des statuts furent votés, un
 Conseil d'administration fut nommé et la date de la soirée
 fà ; d'ouverture fixée au dernier dimanche de novembre. à
-3 À La première pensée de la jeune Université Populaire fut A
+À La première pensée de la jeune Université Populaire fut A
 | d'être chez elle. Dans ce but, elle sous-loua, 8, rue Rondelet,
-$ un local assez vaste pour contenir trois cents personnes, et n
+$ un local assez vaste pour contenir trois cents personnes, et
 k } s'y installa immédiatement dans ses meubles. Des cotisaÇ tions volontaires, des souscriptions, des dons, émanant à
 Rv soit de particuliers, soit de sociétés démocratiques, lui
 \ permirent non seulement d'acquérir le mobilier indispensable, mais encore d'installer une véritable petite scène
@@ -564,7 +564,7 @@ _ cotisation mensuelle, souleva un tel mouvement d'enthou4 siasme, que l'on dut 
 Sous ces heureux auspices, la jeune Université se développa ; maintenant, elle vit et assurera, par le recouvrement
 de la cotisation de o franc 50 par mois, ses frais généraux,
 é lorsque, complètement connue, elle aura pu rassembler
-k autour d'elle tous ceux qui recherchent ce genre d'orga- t
+k autour d'elle tous ceux qui recherchent ce genre d'orga-
 Ë Des conférences y sont données trois fois par semaine
 - (mardi, jeudi et samedi), par des savants, des philosophes
 à et des hommes de lettres.
@@ -576,7 +576,7 @@ plaisir qui, tout en étant peu coûteux, les éloigne de l'hor__ rible café-co
 Une des causes du succès de la Société fut également son
 * caractère absolument démocratique. Tous les adhérents
 _ participent à l'administration et à la gestion de l'Université.
-4 Un Conseil d'administration, nommé pour un an, est, il est
+Un Conseil d'administration, nommé pour un an, est, il est
 …._ vrai, chargé de la besogne matérielle, mais chaque mois,
 —_ dans une réunion générale, il rend compte de son mandat,
 —_ moral et financier, Cette action commune des administra_ teurs et des sociétaires crée entre eux des liens constants
@@ -585,7 +585,7 @@ _ participent à l'administration et à la gestion de l'Université.
 … férences et de fêtes, une bibliothèque avec salle de lecture
 sur place et de travail, et d'autres services destinés à facil liter à tous l'acquisition des connaissances utiles pour
 l'émancipation de la pensée.
-F4 Peut-être même certaines conférences, devenant pério_ diques, constitueront-elles un enseignement d'un caractère à Les Universités Populaires 1900-19017 F
+F4 Peut-être même certaines conférences, devenant pério_ diques, constitueront-elles un enseignement d'un caractère à Les Universités Populaires 1900-19017
 véritablement universitaire, peut-être même des cours
 seront-ils fondés, cours d'enseignement élémentaire ou professionnel.
 h C'est le secret de l'avenir.
@@ -642,7 +642,7 @@ A Les travailleurs de l'atelier font des veillées, quittent
 + leur travail fort tard, et ne peuvent par conséquent assister
 _ à nos réunions, ou alors nous leur demanderions beaucoup
 trop, et leur dévouement à la cause ne peut aller jusqu'à
-- faire abnégation de leurs fatigues ou de leurs peines. n
+- faire abnégation de leurs fatigues ou de leurs peines.
 \ Le Comité espère que malgré l'habitude des intellectuels ‘
 __ de finir leurs travaux au mois de juillet pour rentrer en
 “ vacances, et aller se reposer de leurs études, soit à la
@@ -650,11 +650,11 @@ A campagne, soit aux bains de mer, que certains d'entre eux
 FI rompront avec l'usage et viendront en été discuter avec
 … le travailleur beaucoup plus heureux, car les journées sont ‘4
 
-# longues, le soleil est chaud, et le chômage beaucoup moins Ÿ
+# longues, le soleil est chaud, et le chômage beaucoup moins
 À Et c'est là que nous serons heureux de constater que les
 à intellectuels ont aussi bien la volonté pratique quel'énergie
 A L'Éducation sociale de Montmartre
-He: La marche de notre U. P. qui a été créée en mars 1900, Ë
+He: La marche de notre U. P. qui a été créée en mars 1900,
 4 à s'est poursuivie très régulièrement.
 * À Le nombre de nos adhérents s'est notablement élevé, car …
 ni aux cartes personnelles sont venues se substituer peu à
@@ -665,18 +665,18 @@ A" cartes de famille. Si l'on compte que la carte de famille
 FA Des conférences suivies ont été organisées; elles ont
 ro parfaitement réussi, et nous persistons à penser que c'est
 A là la méthode qu'il y a lieu d'appliquer généralement dans
-5 l'organisation des conférences. ; h
+5 l'organisation des conférences.
 f Les conférences ont lieu les mardis, jeudis et samedis.
 Le Tous les quinze jours, le samedi, la conférence est rem.
 placée par une soirée musicale et littéraire. de
-5 Les lundis et vendredis ont lieu des cours de photograDS phie et de sténographie auxquels viendra s'ajouter bientôt …
+Les lundis et vendredis ont lieu des cours de photograDS phie et de sténographie auxquels viendra s'ajouter bientôt …
 ee un cours de musique.
-7 À Quelques sections de syndicats ouvriers ont établi des
+À Quelques sections de syndicats ouvriers ont établi des
 4 réunions hebdomadaires dans nos locaux. SA
 RE La bibliothèque est ouverte tous les soirs, sauf le.
 en Nous avons organisé le mardi de chaque semaine, l'après--
 A: midi, des réunions consacrées à des questions intéressant.
-Re particulièrement les femmes. Les conférences, faites € D
+Re particulièrement les femmes. Les conférences, faites €
 
 général par des femmes, sont suivies de lectures et de À
 musique. La réunion se termine à l'heure où les enfants
@@ -688,7 +688,7 @@ Elles resserrent les liens d'intimité qui unissent tous les “4
 Nous n'avons rien à ajouter aux indications données à
 dans la notice de l'année dernière en ce qui concerne *
 La Maison commune, XIX° arrondissement à
-Notre U. P. doit sa naissance à la collaboration de quelques ouvriers socialistes et de quelques bourgeois du B.
+Notre U. P. doit sa naissance à la collaboration de quelques ouvriers socialistes et de quelques bourgeois du
 « modèle » qu'on a coutume d'appeler désormais des intellectuels.
 Pendant les hésitations et les lenteurs inséparables de
 la création d'une œuvre que nous voulons forte et durable, nous eùmes la bonne fortune de rencontrer le concours
@@ -732,7 +732,7 @@ faveur du public a jusqu'ici récompensé nos efforts d'une
 
 | façon presque inespérée.
 
-Le nombre de nos adhérents est resté à peu près de 250,
+Le nombre de nos adhérents est resté à peu près de
 
 | dont 100 familles. Celui des auditeurs varie considérablement suivant la nature des conférences. Les fêtes du
 samedi seules remplissent régulièrement notre salle qui
@@ -751,11 +751,11 @@ La libre discussion des opinions a créé entre nous une estime mutuelle, et le 
 
 Û tous, traduit bien la cordialité des relations qui règne dans
 
-Fondation Universitaire de Belleville F
+Fondation Universitaire de Belleville
 | La F.U. B. n'est pas à proprement parler une U. P.:
 Créée par un groupe d'étudiants, organisée d'ailleurs bien- ,
 tôt par la collaboration progressive des adhérents ouvriers
-— elle s'est proposé un double but : 1° créer des relations Ÿ
+— elle s'est proposé un double but : 1° créer des relations
 | decamaraderie entre ceux qu'on est convenu d'appeler trai vailleurs manuels, travailleurs intellectuels; 2° créer un
 enseignement populaire universitaire, c'est-à-dire fondé sur
 les principes mêmes de l'Université: études méthodiques et
@@ -792,8 +792,8 @@ LE nouveaux arrivants, leur fait visiter le local, les présente
 10 aux camarades présents, les renseigne sur la vie et l'orgaà nisation de l'association.
 hi « Le résident enfin est cette figure connue et bien vite
 Ds amie, que nos camarades ouvriers retrouvent chaque soir,
-ÿ que nos camarades étudiants connaissent pour la plupart. à »? Le résident va voir ceux de nos adhérents qui sont malades; î
-ô ilrencontre les autres ici ou là, à l'heure des repas, dans i
+ÿ que nos camarades étudiants connaissent pour la plupart. à »? Le résident va voir ceux de nos adhérents qui sont malades;
+ô ilrencontre les autres ici ou là, à l'heure des repas, dans
 + ses courses ; tel ou tel d'entre eux l'invite à venir causer
 | ÿ | chez lui. Il est l'âme de notre association. » Depuis la
 4 création de la F. U. B., les résidents se sont succédé {|
@@ -802,7 +802,7 @@ $ impressions durables; aucun n'a quitté sa chambre sans
 ù une profonde émotion. Mais parmi eux l'un des plus atta-
 | chés à la Fondation est certainement un camarade ouvrier
 La qui, sur la lecture d'un journal parlant de la F. U. B., était
-Ve venu de Londres, où il travaillait, chercher parmi nous une J
+Ve venu de Londres, où il travaillait, chercher parmi nous une
 4 solide éducation intellectuelle qui en lui donnant la possi-
 : bilité d'entrer dans le métier des lettres auquel il se sentait
 “400 destiné, lui permit de remplir le rôle social qu'il ambition-
@@ -816,13 +816,13 @@ ns * isolé, la F, U. B. aurait trouvé là une de ses meilleures
 ” jour fixe par semaine de tous les camarades qu'intéresse un
 Æ ordre particulier de questions. Les sujets sont passés en
 
-__ revue méthodiquement suivant un programme fixé à n.
+__ revue méthodiquement suivant un programme fixé à
 L Javance et discuté par chaque groupe dans sa première “#4
 É séance. Quelques jours avant chaque réunion un résumé %
 4 autographié de la conférence est remis aux camarades, à
 ù ce qui permet aux auditeurs peu familiers avec l'ordre des
 be questions qu'on traite tel soir de suivre plus aisément
-4 la conférence, et, à ceux qui ont déjà une certaine prépa- e
+4 la conférence, et, à ceux qui ont déjà une certaine prépa-
 Le ration, d'étudier la question au préalable, de faire quelques :
 F: lectures spéciales et d'apporter à la discussion qui suivra à
 …_ l'exposé des arguments müris. Les groupes d'études de la
@@ -834,19 +834,19 @@ _ Il convient de noter ici que tous les groupes n'ont pas eu À
 A côté des groupes d'études, il importe maintenant de
 signaler une initiative qui s'est produite cette année : un
 j groupe de camarades — six ou sept — conviennent de se
-à réunir une fois par semaine pour étudier à fond, soit un L
+à réunir une fois par semaine pour étudier à fond, soit un
 , sujet qui les touche particulièrement mais qui est trop spé-
 + cial pour intéresser tous les membres de l'association et
 ._ rentrer dans le programme d'un groupe d'études, soit,
 …—. comme il est arrivé pour le groupe dont je parle, une
 + œuvre dont il était brièvement question et qui a été simplement signalée dans-une conférence.
-4 Un groupe de ce genre n'a pas nécessairement une durée
+Un groupe de ce genre n'a pas nécessairement une durée
 permanente : il se dissout de lui-même quand il a achevé
 - l'étude en vue de laquelle il s'est constitué. Et c'est là très
 ÿ exactement ce qui se passe dans ces « University's sett-
 —_ lements » qui ont servi de modèle à la F. U. B., et notam-
 | +1 ment à Toynbee-Hall, où nous trouvons une « Toynbee
-| à Elizabethan Society » (groupe pour l'étude de la littérature k
+| à Elizabethan Society » (groupe pour l'étude de la littérature
 - du règne d'Élisabeth), une « Toynbee Shakespeare Society »
 | - (groupe pour l'étude de Shakespeare), etc.
 | % Conférences. — Un jour par semaine est réservé aux KE
@@ -866,7 +866,7 @@ Jeudis scolaires. — Fondés l'an passé par un de nos
 ÿ 20 centimes par mois pour chaque enfant; — des leçons de
 F lecture, de chant, occupent l'après-midi; on apprend à faire
 : des fleurs en papier, on regarde des projections et... on
-4& goûte. Les jeunes membres actifs sont au nombre de 59.
+4& goûte. Les jeunes membres actifs sont au nombre de
 É Groupe d'aide mutuelle. — Ce groupe a pour but de pro- j : curer à ses membres un secours en cas de maladie; con-
 ; stitué par des camarades au sein de l'association, il s'admiy nistre lui-même et possède naturellement un budget
 4 indépendant. Créé le premier janvier 1901, il compte actuel-
@@ -876,7 +876,7 @@ E4 réserve les adhérents ont versé 1 franc par mois, puis la
 4 cotisation a été abaissée à o franc 50. Voici son bilan
 A4 3 versements ont été faits : l'un de 10 francs 60, l'autre
 Eu de 52 francs 50, le troisième de 31 francs 50 — ce qui fait
-w: un total de 9% francs 50.
+w: un total de 9% francs
 à Local, — La F. U. B. est « chez elle » : une maison avec
 d jardin. Au rez-de-chaussée : salle de conférences (150 places)
 fi # buvette, une chambre de résident. Au premier : bibliothèque,
@@ -909,7 +909,7 @@ financières : 1° Création d'un journal périodique, soit spécial
 L Résultats acquis. — La F. U. B. dont l'élaboration
 ] remonte à la fin de 1898 a ouvert ses portes le 5 no- À
 vembre 1899. Le 28 mai 1900, trop à l'étroit dans le petit
-? pavillon du 151 de la rue de Belleville, elle s'installe au 19,
+? pavillon du 151 de la rue de Belleville, elle s'installe au
 à dans le local actuel. Aujourd'hui, à la fin d'avril 1901, elle
 N . compte 753 membres (dont 470 ouvriers, 181 étudiants et
 122 membres honoraires) et 59 enfants. Deux réunions
@@ -918,20 +918,20 @@ latin : l'une, organisée avec le concours d'artistes de la
 Comédie-Française, de l'Opéra, de l'Opéra-Comique, de
 l'Odéon, etc., et précédée d'une causerie de M. Chantavoine,
 ‘M a réuni plus de 300 Bellevillois. L'autre, dans l'amphithéâtre
-4 Descartes de la Sorbonne, a groupé 500 étudiants qui, après
+Descartes de la Sorbonne, a groupé 500 étudiants qui, après
 l'appel de notre camarade Ch. Charpentier exprimant avec
 | une simplicité noble et forte le sens de l'action que nous
 ù prétendions exercer à Belleville, la grandeur des leçons
 1 que nous y recueillions, ont applaudi l'allocution de
 
-7 M. Ernest Lavisse disant, en des paroles que la plupart des
+M. Ernest Lavisse disant, en des paroles que la plupart des
 nv journaux ont reproduites, la « nécessité d'un progrès vers
 4 un moyen d'y tendre efficacement.
 de C'était là un précieux encouragement : il en est un
 x meilleur encore pour les membres de la F. U. B., c'est de
 W se savoir amis, de l'être devenus peu à peu, par le contact
 NE incessant et la diseussion loyale, de le devenir chaque jour .
-5 LE, plus intimement. C'est là la raison de notre confiance en
+LE, plus intimement. C'est là la raison de notre confiance en
 # à / l'avenir : la fondation universitaire vivra, parce qu'elle est
 ns” une maison de travail et d'amitié, et n'est que cela.
 l ! La Semaille, XX° arrondissement
@@ -968,12 +968,12 @@ _ , enfantines ou amicales réunissent souvent tous les cama- &
 + temps que nous pouvons consacrer à la Semaille ne nous ont pas permis d'établir des projets pour l'hiver prochain.
 | Mais que les camarades se rassurent, nous tächerons tou- jours de faire mieux. Déjà nous organisons une petite
 troupe théâtrale qui pourra bientôt divertir en instruih saut
-4 Tout notre dévouement est acquis à cette œuvre qui
+Tout notre dévouement est acquis à cette œuvre qui
 … nous est chère, et de ne pas nous sentir seuls dans notre
 1 marche vers l'émancipation nous donnera le courage pour
 _ la mener à bien.
 
-4 L'Émancipation de Vincennes, Vincennes
+L'Émancipation de Vincennes, Vincennes
 4 « L'Émancipation de Vincennes » a ouvert ses portes dans
 « une saison assez peu propice aux conférences, en plein
 - été, au mois de juillet 1900. Cette raison, jointe à ce que nous nous trouvons dans un local maçonnique, n'a pas peu
@@ -981,12 +981,12 @@ _ la mener à bien.
 À Bien qu'au début le nombre des cotisants s'élevät à cin-
 …_ quante environ, chaque samedi une dizaine d'auditeurs se
 …_ pressaient dans la salle qui précède le grand local de la
-- Loge où nous avons depuis donné des matinées. Ÿ
+- Loge où nous avons depuis donné des matinées.
 "4 La fête d'inauguration, qui eut lieu au mois de novembre,
 “ a été un grand succès pour les idées avancées, succès auquel %
 
-* il était assez difficile de s'attendre au milieu d'une popu- j
-—…_ lation cléricale et militariste comme celle de Vincennes. L
+* il était assez difficile de s'attendre au milieu d'une popu-
+—…_ lation cléricale et militariste comme celle de Vincennes.
 
 vs Depuis nous avons toujours été en augmentant, sauf pen-
 % dant la période de mauvais temps.
@@ -1012,7 +1012,7 @@ j les dépenses, soit en demandant un local à la munici-
 | de chauffage, soit en faisant les conférences moins frér quentes.
 k Mais ce n'est pas tout de vivre, il faut progresser. Nous
 d avons pour l'hiver prochain un projet de décentralisation
-x que pourraient adopter aussi nos camarades d'autres U. P.
+x que pourraient adopter aussi nos camarades d'autres
 A de banlieue, — s'ils se trouvent, comme nous, au milieu
 à d'une population indifférente qu'il faudrait presque aller
 k chercher à domicile. Nous avons l'intention, au lieu de
@@ -1047,7 +1047,7 @@ b deux mois de recherches que nous réussimes enfin à trouÉ: ver une maison en
 k petit jardin d'agrément devant, un grand jardin derrière,
 … enfin un sous-sol de plain pied avec le jardin de derrière
 ‘ complétaient l'immeuble.
-3 Un camarade sous-loua le premier étage pour lui et sa famille, et nous pûmes ainsi nous établir d'une façon jusqu'à un certain point coopérative; notre camarade bé- néficiant d'un loyer très modeste pour l'emplacement dont il disposait, et nous, ayant l'avantage d'avoir quelqu'un à
+Un camarade sous-loua le premier étage pour lui et sa famille, et nous pûmes ainsi nous établir d'une façon jusqu'à un certain point coopérative; notre camarade bé- néficiant d'un loyer très modeste pour l'emplacement dont il disposait, et nous, ayant l'avantage d'avoir quelqu'un à
 … demeure qui pût entretenir le local, et dont la femme d ! #“
 
 it voulüt bien s'occuper du service de la bibliothèque et du th prêt à domicile.
@@ -1093,7 +1093,7 @@ rades de « Germinal ».
 Le côté qui laisse certainement le plus à désirer de notre
 m0 | petit groupement, c'est le point de vue budgétaire, car nos
 
-” 1 frais d'installation et l'augmentation de nos frais de loyer 3e
+” 1 frais d'installation et l'augmentation de nos frais de loyer
 we _ sont durs à couvrir, mais nous avons bon espoir et bonne
 ? confiance et sommes persuadés qu'avec ces deux facteurs “EN
 fe on arrive à tout.
@@ -1103,10 +1103,10 @@ k: de novembre 1900, date à laquelle le développement de ces BE
 }: : _ Quelques camarades s'étaient entretenus à ce sujet, et
 À _._ J'avis était général que la création d'une U. P. à Puteaux À.
 à avait toutes chances d'aboutir à un bon résultat.
-1 Une grande réunion fut organisée dans la salle des Fêtes
+Une grande réunion fut organisée dans la salle des Fêtes
 À de la Revendication, Société coopérative de-consommation,
 pit. pour recevoir les adhésions. Sans donner les résultats que
-" nous étions en droit d'espérer, nous recueillimes néanPEN moins une trentaine d'adhérents. C'était, à notre avis, plus S
+" nous étions en droit d'espérer, nous recueillimes néanPEN moins une trentaine d'adhérents. C'était, à notre avis, plus
 que suffisant, et l'U. P. était fondée avec cette nuance, tou_ tefois, que nous étions, comme les vagabonds, sans domi-
 $ cile connu, les lois fondamentales de la propriété ne nous
 4 permettant pas de considérer comme tel la salle à manger
@@ -1120,7 +1120,7 @@ fi Après lui avoir fait subir de nombreux lavages et passé
 ni Nos ressources financières se composent purement et
 de. simplement de nos cotisations, notre U. P. ne comprenant
 7 jusqu'ici que des ouvriers; les quelques éléments bourÆ: geois qui peuvent exister à Puteaux sont d'un cléricalisme
-4 Toutefois, nous sommes convaincus que nous pouvons
+Toutefois, nous sommes convaincus que nous pouvons
 
 | Les Universités Populaires 1900-1907 its
 vivre, étant donnée l'agglomération ouvrière à Puteaux, par
@@ -1128,13 +1128,13 @@ vivre, étant donnée l'agglomération ouvrière à Puteaux, par
 « V2 que nous trouvions un local convenable où nous pourrons
 \:4+088 donner des fêtes et matinées le dimanche après-midi, pour
 ce k attirer à nous les dames et les enfants. Au sujet de ces
-" en. derniers, l'institution d'un patronage laïque par l'U. P.
+" en. derniers, l'institution d'un patronage laïque par l'U.
 es. nous paraît strictement nécessaire.
 pie A, En résumé, nous regardons l'avenir avec confiance. L'es-
 ‘48 prit dominant dans l'U. P. est très large; on y diseute
 YF toutes les questions, et des opinions bien des fois contrans dictoires sont émises sans se départir de la plus entière
 #| à courtoisie et avec la volonté d'arriver à s'entendre.
-08 Le Nous sommes d'ailleurs tous convaincus que parmi les
+Le Nous sommes d'ailleurs tous convaincus que parmi les
 1” *% 1 organisations existantes, seules, les Universités Populaires,
 01 dégagées de toutes coteries politiques et de tout sectarisme,
 14 peuvent préparer des hommes véritablement dignes de la
@@ -1147,12 +1147,12 @@ x; da et pensant qu'il n'y avait pas de raison pour que Levallois_ - Perret rest
 Le social créé dans la grande cité parisienne, entre quelques À
 1e camarades que les événements de ces dernières années
 A ; avaient fait se connaître et s'estimer, nous avons fondé en
-11 La longue période électorale qui survint peu de temps
-: 254 après retarda beaucoup notre première organisation, si ü
+La longue période électorale qui survint peu de temps
+: 254 après retarda beaucoup notre première organisation, si
 È bien qu'en été étant encore trop peu nombreux pour solliPNR citer le concours de conférenciers, nous fimes appel aux à
 Mar. amis de bonne volonté, et à tour de rôle, pour intéresser
 € À la séance, une causerie était faite par l'un d'eux, toujours
-SR très écoutée, et motivant même parfois un échange d'idées L
+SR très écoutée, et motivant même parfois un échange d'idées
 hs 44 général. En automne, après notre belle matinée d'inauguLu ration, à laquelle assistaient plus de sept cents personnes,
 à Que, bon nombre d'adhésions nous furent acquises et, de plus,
 = i ln] , nous étant fait connaître d'un bon publie, nous commen
@@ -1174,7 +1174,7 @@ Fe Rte cotisations sont fixées à 50 centimes par membre et ; à:
 … guère compter que sur quatre-vingts pour la régularité du !
 _ Voilà donc l'état de nos ressources; si elles ne sont pas
 | élevées, du moins elles suffisent présentement à couvrir y:
-on, nos frais. d
+on, nos frais.
 Nous n'avons jusqu'à présent qu'un jour de conférence
 par semaine, le mercredi. Nous devons nous réunir en
 % ssemblée générale tous les deux mois. Puis nous organi_ sons des matinées littéraires et musicales, le plus artistiques
@@ -1189,14 +1189,14 @@ _ dé ployer l'action désirable pour cela. Aussi avons-nous à
 . l'intention de redonner une grande fête en automne dans ‘4
 le nouvel immeuble de l'Alliance des Travailleurs, société
 | coopérative de Levallois-Perret. à
-LE ais nous désirons donner un second jour de conférence h
-dans la semaine, quand même nous devrions rester où nous k é
+LE ais nous désirons donner un second jour de conférence
+dans la semaine, quand même nous devrions rester où nous
 
 ;. ip sommes actuellement, mais nous espérons bien d'ici là
 Rs trouver un local, ce qui nous permettrait de nous installer
 te chez nous et d'atteindre par cela même le but que nous
 “E poursuivons tous, qui est, nous croyons, d'offrir à nos amis
-1 un lieu de réunion où l'on trouve le bon enseignement qui d
+1 un lieu de réunion où l'on trouve le bon enseignement qui
 ul": réconforte la raison, et la saine distraction si nécessaire à
 Nous regrettons infiniment que les idées de solidarité et
 Le d'humanité ne suscitent pas dans l'élément laïque des
@@ -1259,7 +1259,7 @@ LS de nos concitoyens, en interprétant quelques-unes de ces
 nt + belles poésies qui prédisposent à comprendre et à aimer la
 ‘4 vie en la voulant rendre meilleure à tous.
 
-PUR Les principales difficultés que rencontrent les U. P.
+PUR Les principales difficultés que rencontrent les
 
 :\ de Paris sont d'ordre budgétaire. Ces mêmes difficultés
 
@@ -1280,14 +1280,14 @@ DE. L'U. P. parisienne a besoin pour vivre d'un budget qui
 Ée est installée.
 de: Pour la réalisation de cette somme, elle dispose aujour- ‘
 
-suc d'hui des cotisations de ses membres, des dons et des J
+suc d'hui des cotisations de ses membres, des dons et des
 
 à 1 subventions. Dons et subventions deviendront de moins
 
 # ‘ en moins fréquents, et il apparaît clairement que d'ici
 4 quelque temps, l'U. P. ne devra plus compter pour vivre
 « 4 que sur ses propres forces.
-# La cotisation ordinaire commune à presque toutes les U, P.
+# La cotisation ordinaire commune à presque toutes les
 \ est de 50 centimes par mois ; ce qui indique pour un budget
 W minimum de 2.000 francs une moyenne de 300 à 350 cotisants
 
@@ -1310,9 +1310,9 @@ _ à domicile par exemple? je ne le crois pas, avec l'orga
 | payer un terme, sans un sou en caisse, réaliser la somme
 “He des cotisations arriérées. 1 Le mie
 nn _ Cest là une précieuse indication qu'on aurait tortde
-__ Mais la cotisation à l'U. P. est une dépense qui n'est point 1:
+__ Mais la cotisation à l'U. P. est une dépense qui n'est point
 1 encore prévue au budget familial. Il me semble bien difficile
-no: _ de présenter à la ménagère un reçu de cotisation pour une NE F6
+no: _ de présenter à la ménagère un reçu de cotisation pour une NE
 7200 œuvre dont elle ignore le fonctionnement, à laquelle me
 , 2380 surtout elle ne voit pas de but immédiat. Qu'on ne se
 __ méprenne pas sur le sens de ce que j'écris ; j'entends dire EE
@@ -1324,7 +1324,7 @@ _ elle? les conférences pour la plus grande partie ne sont FR
 arr on rien faire. On a créé des cartes de famille : je ne sais pas !
 ._ si elles ont été beaucoup utilisées en dehors des matinées Le
 du dimanche. ue,
-Me: | 1: Cest la lutte pour la vie. L'organisation de l'enseignens M ment dans l'U. P. a absorbé toutes les forces vives. Les À t:
+Me: | 1: Cest la lutte pour la vie. L'organisation de l'enseignens M ment dans l'U. P. a absorbé toutes les forces vives. Les À
 a el plus actifs parmi les membres ont été tour à tour secrétaires ke
 . de l'association. On a choisi le caissier parmi les plus ol
 __ pondérés, car c'est ainsi qu'on se représente ordinairement (1
@@ -1342,7 +1342,7 @@ NI et dont le produit serait versé dans la caisse de l'U. P.; en
 1 . de ne crois pas qu'il faille rechercher une solution type
 F applicable à toutes les U. P. Ceci a été maintes fois répété
 4% une U. P. ne ressemble pas à une autre U. P.; qui ,
-À L ; connaît une U. P., ne connaît pas toutes les U, P.
+À L ; connaît une U. P., ne connaît pas toutes les
 “ Une U. P. a pu obtenir d'une coopérative de son quartier, tn. dont certains membres étaient communs aux deux groupeLe ments, une subvention annuelle renouvelable, Ce serait
 Lun une grande faute pour cette U. P. si elle tablait ses pré-,
 S visions budgétaires sur le renouvellement annuel de cette
@@ -1354,21 +1354,21 @@ Ga subvention ne peut être légalement accordée que par
 # Je comprendrais mieux un groupement de coopérateurs
 D A adhérant à une U. P. qui fonctionnerait au sein même de
 
-45 la coopérative, chacun abandonnant à la caisse de l'U. P.
+45 la coopérative, chacun abandonnant à la caisse de l'U.
 pe sa part de ristourne. Je m'étonne que dans les coopératives,
 Ù où les avis sont si partagés, cette solution n'ait pas encore
-j. ë Une certaine U. P. s'est constituée au sein même d'une s
-s sh coopérative ; les membres nouveaux ont adhéré aux deux L
+j. ë Une certaine U. P. s'est constituée au sein même d'une
+s sh coopérative ; les membres nouveaux ont adhéré aux deux
 4 associations. La coopérative qui végétait a, de ce fait, conÿ sidérablement augmenté son chiffre d'affaires. La coopéraà tive reconnaissante abrite l'U. P. ; elle tient gracieusement
 je un local à la disposition de celle-ci, lui enlevant par cela
 4 même tout souci matériel. Voilà, ce me semble, un excel
-4 Les membres de l'U. P. peuvent-ils fonder la coopérative
+Les membres de l'U. P. peuvent-ils fonder la coopérative
 NE qui doit leur fournir les moyens de faire vivre V'U. P.?
 #4 C'est, à mon avis, la solution la plus difficile à réaliser.
 
 En L'U. P. ne possède pas, en général, d'adhérents ayant le
 
-(+ temps de s'occuper d'une coopérative de consommation. Un È
+(+ temps de s'occuper d'une coopérative de consommation. Un
 #, administrateur de coopérative doit être bon administra-
 & A leur, bon comptable, bon épicier. Puis la fondation d'une
 
@@ -1426,7 +1426,7 @@ he. « Néanmoins, afin d'assurer un noyau, recueillir de nou-
 V4 velles adhésions, et maintenir le chiffre de ses membres,
 
 : 1 ne pensez-vous pas qu'il faudrait créer à côté une œuvre
-A __ nouvelle, qui en serait le complément, en assurerait la vie? e
+A __ nouvelle, qui en serait le complément, en assurerait la vie?
 « Les membres des U. P. sont en majorité des petits
 | employés ou des ouvriers. Lust LANCE
 « Leurs appointements sont modestes, et pour subvenir
@@ -1435,21 +1435,21 @@ faut quelquefois faire des sacrifices.
 « Quand par malheur la maladie entre au foyer, c'est
 + De, souvent la misère et toutes ses conséquences. Ter
 _ « On n'a pas été prévoyant, par négligence si ce n'est par
-ignorance, on ne s'est pas aflilié à une société de secours Û
+ignorance, on ne s'est pas aflilié à une société de secours
 __ mutuels, et dans les moments douloureux et difficiles, on à
-178 se trouve seul pour lutter contre l'adversité. ï
+178 se trouve seul pour lutter contre l'adversité.
 vi « Ne pensez-vous pas qu'il y aurait là une question à À
-« Ne pourrait-on pas établir une société de secours mu- L:
+« Ne pourrait-on pas établir une société de secours mu-
 _ tuels, entre les membres actifs des U. P.?... » “4
 SN Peut-être pourrait-on créer tout au moins dans l'U. P. une $
-_ caisse de secours médicaux et pharmaceutiques dont pro- E
+_ caisse de secours médicaux et pharmaceutiques dont pro-
 Le. fiterait l'adhérent et toute sa famille, À
 +6 Ainsi il serait possible de faire recouvrer à domicile les
 cotisations; on limiterait les défections au minimum
 possible; on intéresserait la femme au bon fonctionnement Hi:
 _ de l'association. °
 TR La cotisation serait portée à 1 franc 50 ou 2 francs, dont .
-‘4 A ‘ la moitié sufhrait pour la caisse de secours, et dont l'autre i
+‘4 A ‘ la moitié sufhrait pour la caisse de secours, et dont l'autre
 
 à la date du 1% mars 1902
 | Le Réveil des I: et II, 14, rue Marie-Stuart.
@@ -1482,11 +1482,11 @@ Bezoxs : Fructidor, maison Dubuisson, 7, quai de
 L Cnoisy-Le-Rot : L' Éducation mutuelle, 36, rue de Vitry.
 e Cuicuy : L'U. P., 82, rue de Paris.
 He CoLomsess : L'Avenir, salle de l'Étoile, 41, boulevard de
-32 LevaLrLois-PErrer : La Vérité, 46, rue Rivay.
+LevaLrLois-PErrer : La Vérité, 46, rue Rivay.
 ; Les Licas : Le Progrès social, 4, rue Bernard.
 ù Meupox : chez M. Guichard, 4, rue Lavoisier. À
 \ MoxrReuIL-sOUs-Bois : Soirées ouvrières, 15, rue des
-MowrROUGE : L'Effort, 33, rue du Marché. D:
+MowrROUGE : L'Effort, 33, rue du Marché.
 v SAINT-OUEN : L'U. P., chez M. Lamotte, 8, rue Raspail.
 x Pureaux : L'Idée, 15, rue Parmentier. %
 % VERSAILLES : L'Institut populaire, 15, rue Colbert.
@@ -1499,5 +1499,5 @@ Nous mettons ce cahier dans le commerce; nous le
 JR vendons un franc. +308
 LES Pour la propagande nous en vendons »
 rs. six exemplaires pour cinq francs ne
-#4: douze exemplaires pour huit francs D.
+#4: douze exemplaires pour huit francs
 VA vingt exemplaires pour douze francs.

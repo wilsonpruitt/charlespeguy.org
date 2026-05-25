@@ -42,13 +42,13 @@ Proudhon. Ces deux oublis m'ont fait soupçonner que
 l'auteur pourrait avoir travaillé d'après les méthodes
 du fameux universitaire et que le résumé de toute
 l'œuvre pourrait bien être incomplet.
-Pourquoi dans l'analyse des Contradictions écono- É
+Pourquoi dans l'analyse des Contradictions écono-
 miques avoir supprimé le célèbre chapitre VIII sur la
-Providence? Ce chapitre est cependant essentiel, car ñ
+Providence? Ce chapitre est cependant essentiel, car
 Proudhon ne cessera pas de développer ses idées sur
 la liberté, du droit de la force et du droit économique; à:
 sans cette dualité il n'y a pas moyen de faire entrer
-l'étude de l'histoire dans des cadres permettant d'uti- Ë
+l'étude de l'histoire dans des cadres permettant d'uti-
 liser les théories du droit naturel. La manière dont
 M. Bourgin a parlé du livre sur la Guerre et la Paix me
 fait soupçonner qu'il a eu peur de soumettre en entier
@@ -123,11 +123,11 @@ l'importance qu'il attachait aux formes légales etl'opposition qu'il fit à la 
 . L'influence de Proudhon n'a pas été très grande
 jusqu'ici sur le socialisme français: les idées fédéralistes
 
-qui se manifestèrent dans l'Internationale, auraient pu j
+qui se manifestèrent dans l'Internationale, auraient pu
 se produire en dehors de lui, car elles avaient des ori-
 gines historiques; — mais l'influence de Marx n'a pas
-été bien notable non plus. f
-Je crois que le moment est venu où les idées proudho- K
+été bien notable non plus.
+Je crois que le moment est venu où les idées proudho-
 niennes, après avoir exercé une grande action sur la
 sidérables pour l'avenir du socialisme. La question
 fondamentale qui est posée actuellement, celle qui se
@@ -135,7 +135,7 @@ cache sous les apparences des querelles des écoles, est
 la question du socialisme d'État; MM. Millerand et
 Waldeck-Rousseau (1) sont les représentants de cette
 doctrine, qui a pour elle la tradition monarchique de la
-France. On a déjà signalé ici le danger que présente le t
+France. On a déjà signalé ici le danger que présente le
 réveil de l'esprit saint-simonien parmi les intellectuels Hi
 Les réformes qui se font partout peuvent aboutir
 des résultats bien différents les uns des autres suivant
@@ -168,7 +168,7 @@ et de s'abstenir de tot Des brouillons menacent la Papauté de sel rotestantisme
 quelques-uns, flatter 1 I nt à Napo l'A
 léon II de se déclarer 1 aussi bien que ti
 du temporel. On peut du désarroi À {14
-des esprits. Le schisn ux dire s'il 1f
+des esprits. Le schisn ux dire s'il
 avait réellement pour ser ligieux, l'idée 1 (le
 re chrétienne, serait le tr Papauté, en montrant
 combien est solide en ' iquelle est édifiée
@@ -211,7 +211,7 @@ de foi, à moins qu'il ne serve un gouvernement de révo- »
 lution, armé pour la propagande révolutionnaire, il lui est
 défendu d'agir sur la pensée et les institutions religieuses
 et nommément de trancher, au détriment du Saint-Siège,
-comme on ne cesse d'y exciter le gouvernement impérial, 4
+comme on ne cesse d'y exciter le gouvernement impérial,
 la question du temporel. Sans compter que la séparation du (
 spirituel et du temporel, poussée à fond, se réduit en
 théorie à une absurdité et dans la pratique à une hypo-
@@ -221,7 +221,7 @@ se démolissent et que les Eglises et les sectes se détruisent.
 ment sur les intelligences libres, est ici compétente. Tout ;
 +. ce que peut un gouvernement ordinaire, obligé à la tolé- PAR CRE | »  rance des opinions et des cultes, est de laisser faire au temps ?
 - et de s'abstenir de toute initiative. Des brouillons mena- Lo
-- cent la Papauté de schisme, voire même de protestantisme; 5
+- cent la Papauté de schisme, voire même de protestantisme;
 léon IN de se déclarer le chef du spirituel aussi bien que
 - du temporel. On peut juger, d'après ces rêves, du désarroi
 - des esprits. Le schisme, s'il était sérieux, je veux dire s'il
@@ -233,7 +233,7 @@ teurs germaniques qui puissent se dire chtétiens en niant
 l'autorité de l'Église et la divinité du Christ. Quant à faire 1}
 de Napoléon II le chef du spirituel, à l'imitation des pre-
 miers Césars : c'est là que je l'attends. Ce jour-là, la Révolu- ; x !
-tion lui dirait, comme saint Remi à Clovis : « Courbe la f
+tion lui dirait, comme saint Remi à Clovis : « Courbe la
 tête, fier Sicambre ; adore ce que tu as brülé et brüle ce
 que tu as adoré ». Mais ce n'est pas l'empire des Gaules ïl
 qu'il recevrait pour récompense de son baptême...
@@ -292,20 +292,20 @@ De l'ivresse des sens il passe rapidement à l'adoration de
 l'âme, et quand il s'imagine être encore amant, ilest devenu
 lui-même un juste et un saint.
 Tout ce que l'homme voit en la femme, comme en un
-miroir où sa conscience se regarde, la femme tend à le c
+miroir où sa conscience se regarde, la femme tend à le
 devenir, et malheur à elle, malheur à tous deux, si elle
 trompe la réalisation de l'amour, si elle manque à l'attente
 secrète de l'homme!
 Dédain de l'amour sexuel et de la volupté : Que l'homme “
 tourmenté de pensées lascives regarde sa femme, il rougit
-‘ et il est heureux de rougir, parce qu'il la croit à l'abri de f
+‘ et il est heureux de rougir, parce qu'il la croit à l'abri de
 son tourment. Sans doute c'est de lui qu'elle a reçu la Je
-pudeur, comme elle en a reçu, dans la cérémonie nuptiale, 4
+pudeur, comme elle en a reçu, dans la cérémonie nuptiale,
 l'anneau et la couronne; mais cette pudeur s'est incarnée
 é en sa personne, elle seule sait être chaste et fidèle. Et la
 conscience générale des femmes témoigne de cette immense
 générosité de leur cœur, elles abhorrent les lascives, les -
-- volages, les infidèles. : ÿ
+- volages, les infidèles.
 volupté vaincue, l'homme est devenu un héros; aucun
 effort ne lui coûtera plus; telle est sur lui l'influence dela
 femme. La première, par sa chasteté, elle a donné l'exemple: à
@@ -313,7 +313,7 @@ elle exige en retour que l'homme se montre vaillant, entre- à
 prenant, distingué, toujours prêt pour le devoir et le sacrifice…
 Pratique du travail et de la Justice : La femme, quoi qu'elle
 apprenne ou entreprenne, n'est point, par la destination
-de son sexe, industrieuse, agricultrice, négociante, savante, 4
+de son sexe, industrieuse, agricultrice, négociante, savante,
 ! pas plus que juge, homme de guerre ou homme d'État. Elle
 peut bien nous prêter dans nos travaux quelque aide, nous
 assister dans nos transactions de quelque conseil : de tout
@@ -321,7 +321,7 @@ temps elle a pris pour elle la portion la plus douce du
 travail... Quant à sa justice, il en est comme de sa philok ' 29 IL.
 
 sophie : elle n'en a pas d'autre que la religion. La femme ?
-qui prie est sublime (1) : homme à genoux est presque « aussi ridicule que celui qui bat un entrechat. r
+qui prie est sublime (1) : homme à genoux est presque « aussi ridicule que celui qui bat un entrechat.
 
 Rien de tout cela cependant ne constitue la mission de
 la femme : son véritable lot est d'être préposée à la garde
@@ -460,7 +460,7 @@ Il y a notamment le bâtard de journaliste arrivé et influent
 par papa, voit s'aplanir toutes les difficultés du début. Gé-
 néralement vaniteux et insolent, ne tolérant aucune contradiction, il n'a pour qui lui déplaît qu'injures et violences.
 y Dépourvu d'idées générales, c'est d'ailleurs à ces injures et
-à ces violences qu'il doit sa réputation. Le scandale et la k
+à ces violences qu'il doit sa réputation. Le scandale et la
 mauvaise foi sont très prisés dans le journalisme.
 On peut trouver cette attaque bonne ou mauvaise;
 mais ce qui paraîtra déplorable à tous, c'est le mot
@@ -480,7 +480,7 @@ la parole. Au nom de l''Anarchie, c'est Jean Grave.
 , Voilà fixé, pour l'Histoire, un point important.
 Anarchiste respectueux de la voie hiérarchique, Jean
 Grave me pose une question par l'intermédiaire de mon
-— Qu'est-ce que j'entends par les industriels de l'Anarchie ? k
+— Qu'est-ce que j'entends par les industriels de l'Anarchie ?
 ASE — Les mots l'indiquent. J'entends ceux qui font de l'anarchie une industrie, une lucrative industrie, et qui ont quitté
 le petit métier dont ils vivaient très mal, pour vivre très
 bien de la propagande anarchiste.
@@ -585,12 +585,12 @@ pauvres diables qui se battent. Il traite crüment de
 « bâtards » les jeunes artistes dont le maire et le curé n'ont
 pas béni l'état civil. Sur la hiérarchie des rédactions comme
 sur la constitution de la famille, il estintraitable. Il figure,
-d'ailleurs, dans l'annuaire d'une Association scientifique (?) ÿ
+d'ailleurs, dans l'annuaire d'une Association scientifique (?)
 à côtéde S. M. très catholique le roi d'Espagne, Alphonse
 - _ Ila dû moucharder quelqu'un à Montjuich.
 Latude ou Silvio Pellico ne parlaient pas plus volontiers ‘
 de « leurs prisons » que M. Jean Grave, incarcéré comme ,
-gérant responsable pour l'article d'un anarchiste sérieux. e
+gérant responsable pour l'article d'un anarchiste sérieux.
 Notre camarade Perrenx, condamné avec Zola pour J'accuse, ne se prend tout de même pas pour Élisée Reclus.
 M. Jean Grave a cru ou fait croire que c'était arrivé. Il
 entra en prison ouvrier cordonnier, ce qui est très -hono-
@@ -652,8 +652,8 @@ les gens qui fusillent les grévistes, qui envoient des armées
 de la messe ; où l'on appelle anarchistes les chambellans
 du roi d'Espagne, clients de la Société de Jésus et de la
 Patrie française, chasseurs de grouses en Ecosse, habitués
-de la Côte d'Azur et pique-assiettes des châtelains! x
-Comme il serait beau, le socialisme, sans les repus et les j
+de la Côte d'Azur et pique-assiettes des châtelains!
+Comme il serait beau, le socialisme, sans les repus et les
 Comme elle serait séduisante, l'anarchie, sans les saltim- ,
 banques et les ventrus!
 Tel est l'acte d'accusation. Les abonnés des Cahiers, EE,
@@ -705,8 +705,8 @@ comme on met une cravate, par habitude. Je crois bien,
 tout de même, que Grave a écrit sans le secours de
 personne la Société mourante et l'Anarchie.
 
-Vraiment il est temps de passer à des griefs plus d
-sérieux. Ajalbert m'a devancé pour une réponse ; car je ÿ
+Vraiment il est temps de passer à des griefs plus
+sérieux. Ajalbert m'a devancé pour une réponse ; car je
 
 - savais, et beaucoup de camarades savaient que Grave
 n'avait choisi M° de Saint-Auban comme avocat dans le !
@@ -824,13 +824,13 @@ la journée on avait perquisitionné au syndicat des chemins de fer, qui prépar
 la soirée, avant le gouvernement, que le coup d'État
 était décidé entre le Père du Lac et le général de Boisdeffre pour le surlendemain samedi. Il s'agissait de re
 nouveler les journées de juin 48. Immédiatement un certain nombre d'hommes résolus se trouvèrent presque
-instinctivement réunis dans le quartier des journaux, 1
+instinctivement réunis dans le quartier des journaux,
 prêts à organiser la lutte. De l'Aurore on envoya vers
 prit des mesures et le complot n'eut même pas un com-
 mencement d'exécution. Mais il subsiste ceci, que, sans
 tergiverser, un certain nombre de camarades se trouvèrent prêts à assumer toutes les responsabilités : Grave
 Grave pouvait répondre lui-même à Gohier; ilnela
-pas voulu. Deux jours avant le grand article de Gohier, M
+pas voulu. Deux jours avant le grand article de Gohier,
 Charles Albert, dans les Temps Nouveaux, commençait
 un article de portée générale par une citation deM. Louis
 
@@ -854,7 +854,7 @@ blait de ses foudres, après tous les bons offices que nous
 avons rendus aux compagnons.
 Pourquoi ce prudent bonhomme, qui s'abstient de toutes Fe
 « personnalités » quand il s'agit de financiers, de généraux
-ou de moines, se déchaïinait-il tout à coup sans retenue ÿ
+ou de moines, se déchaïinait-il tout à coup sans retenue
 contre nos modestes personnes ? Fe
 Pourquoi ce flux soudain de menaces bouffonnes et d'injures ordurières?
 Pourquoi ce tiers-point et ces os de mouton brandis sur
@@ -893,7 +893,7 @@ subsiste donc, mais avec une justification.
 Je ne parviens pas à exprimer à quel point la lecture
 de ces lignes me fut pénible, presque douloureuse. Que
 la Rédaction de l'Aurore ne trouve pas l'écriture de
-Jean Grave assez artiste pour l'offrir à ses lecteurs, soit. e
+Jean Grave assez artiste pour l'offrir à ses lecteurs, soit.
 Que Gobhier tienne à constater qu'on ne remplace pas
 
 Clemenceau, mieux encore. Mais ce que je ne puis pas
@@ -917,7 +917,7 @@ fautes envers la cause que nous défendons tous, qu'ils
 parlent clairement; si ce sont des querelles particulières, qu'ils nous laissent en paix. — Puis, à la lecture d'ensemble des documents, j'ai compris qu'il
 n'y avait dans tout cela chez Gohier qu'une exaspération de polémiste, une autoexcitation à frapper de
 plus en plus fort.
-Jamais je ne pourrai admettre que ce soit là du jour- É
+Jamais je ne pourrai admettre que ce soit là du jour-
 nalisme, que ce soit du moins du journalisme à l'usage
 des lecteurs de l'Aurore. Je crois que Gohier se trompe
 sur le caractère de la clientèle du journal où il écrit.
@@ -956,8 +956,8 @@ est un dossier pour servir à l'histoire intérieure de la
 Coopération des idées. Nous n'avons mis dans ce dossier
 que les documents qui marquent pour la Coopération
 des idées le commencement et la fin de cette année
-La Coopération des idées du samedi 7 juillet 1900 c
-publiait cet article de M. Gabriel Séailles : s
+La Coopération des idées du samedi 7 juillet 1900
+publiait cet article de M. Gabriel Séailles
 Deherme poursuit son œuvre : les résistances et les
 obstacles, loin de l'arrêter, lui font plus vivement sentir
 la nécessité de faire ce qui doit être fait. Le mal n'est .
@@ -965,7 +965,7 @@ une raison de désespérer que pour les faibles et les
 impuissants, il exalte la volonté des forts. Je me gar-
 derai d'opposer à l'homme d'action les conseils d'une
 sagesse timide, hésitante : il faut sans doute qu'il )
-tienne compte des circonstances, qu'il prévoie les diffi- Ÿ
+tienne compte des circonstances, qu'il prévoie les diffi-
 ! cultés, mais il est seul à savoir ce qu'il peut mettre d'intelligence, d'énergie, de courage au service de son
 La Coopération des Idées était une bien petite chose,
 alors que nous l'inaugurions dans notre petite salle de
@@ -992,7 +992,7 @@ résultats qui répondent à nos désirs et à nos espé-
 rances, mais il y a un élément dont nous ne tenons pas
 compte et qui brouille tout : notre veulerie, notre servilité, notre impuissance. Qui dit esclave dit maître. Si
 nous nous donnions les vertus de l'homme libre, nul ne
-pourrait nous asservir. d
+pourrait nous asservir.
 Mais si l'Université populaire se réduit, se restreint
 elle-même; si elle prend ce qui n'est qu'un de ses
 moyens, les cours, les conférences, pour sa fin unique
@@ -1005,7 +1005,7 @@ rattache à ses intérêts réels, à sa vie économique. Elle
 se développera, elle prospérera d'autant plus sûrement
 qu'elle sera fondée par des travailleurs, qu'elle se reliera
 à une coopérative, qu'elle fera la preuve de son utilité
-par les œuvres connexes qu'elle aura rendues possibles, j
+par les œuvres connexes qu'elle aura rendues possibles,
 qu'elle symbolisera ainsi l'accord fécond des esprits et
 
 des volontés. La coopération des idées n'a de sens que
@@ -1042,7 +1042,7 @@ mesurer le chemin parcouru, nous nous demandons si
 nos agitations n'ont pas été vaines, si elles ne nous ont
 pas ramenés en arrière. Les vérités que nous croyions
 acquises sont' contestées ; les vieilles superstitions
-renaissent, les haines nationales se réveillent, les pas- Œ
+renaissent, les haines nationales se réveillent, les pas-
 
 sions religieuses s'exaspèrent, le fanatisme, combiné
 avec l'incrédulité, avec ‘les soucis d'un égoïsme
@@ -1050,13 +1050,13 @@ envieux, ajoute à sa laideur sans rien perdre de sa wiolence. Beaucoup, qui ava
 Dieu, comme les fétichistes, se retournent contre lui, le
 menacent, l'insultent, veulent le briser; ils sont pris
 
-d'une sorte d'appétit de servitude ; ils aspirent au césarisme des peuples déchus, qui, incapables de loyalisme ÿ
+d'une sorte d'appétit de servitude ; ils aspirent au césarisme des peuples déchus, qui, incapables de loyalisme
 comme de liberté, acclament les maîtres d'un jour, en
 qui se ramasse toute la bassesse des âmes. Cependant
 les cabarets se multiplient ; encore un peu, l'alcoolisme,
 effet et cause, ne laissera qu'un peuple de fous, un
 peuple incohérent, lâche, à brusques sursauts, avec les
-brèves fureurs et les longs sommeils de l'ivrogne. : ë
+brèves fureurs et les longs sommeils de l'ivrogne.
 Puisque le bien ne se fait pas tout seul, puisqu'à l'at- à
 tendre passivement, on ne recueille que les maux
 anciens, toujours prêts à renaître dans l'individu et la
@@ -1089,7 +1089,7 @@ rance et le courage des individus sont les conditions de
 Le la justice sociale. Que les travailleurs s'unissent, qu'ils
 fondent des œuvres positives, qu'ils fassent l'ap3 prentissage de la coopération, qu'ils créent la pro- .
 priété collective. Par l'action ils ne prendront pas ,
-seulement conscience de leurs forces, ils feront l''éduca- k
+seulement conscience de leurs forces, ils feront l''éduca-
 tion de leur volonté, ils se donneront les vertus sans ,
 lesquelles il n'y a que désordre ou tyrannie, le respect
 du droit, la discipline, la soumission à la loi consentie, !
@@ -1103,7 +1103,7 @@ programmes tout théoriques et commencer la société
 nouvelle. L'histoire nous montre que les révolutions
 de: durables se sont faites le plus souvent à l'intérieur des
 sociétés par des organes dont nul d'abord n'eût soup-
-çconné la puissance. l
+çconné la puissance.
 Le Palais du Peuple répond à cette volonté d'agir,
 à cette résolution de commencer. Centre des œuvres
 populaires, il faut que tout à la fois il facilite l'unité
@@ -1338,12 +1338,12 @@ essentielle, plus belle, plus féconde que celle que nous
 
 à MM. Pierre BAuDIN, ministre des travaux publics (1).
 ‘4 Henri BAUER, homme de lettres.
-EF Maurice Boucuor, homme de lettres. x
+EF Maurice Boucuor, homme de lettres.
 Émile Bourroux, membre de l'Institut.
 À (1) Enfin nous regrettons que cette liste ne soit pas tout
 - à fait sincère. Pour peu que l'on soit au courant des noms
 et des hommes on y reconnaît aisément, mêlés aux hommes ‘
-qui travaillent, les hommes-décorations, les noms qui re- Î
+qui travaillent, les hommes-décorations, les noms qui re-
 L_ présentent. La même remarque s'impose pour les témoi-
 gnages dont nous voyons que les signataires ont accom-
 pagné l'envoi de leur signature.

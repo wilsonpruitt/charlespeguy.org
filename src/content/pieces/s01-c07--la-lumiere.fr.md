@@ -229,10 +229,10 @@ si difficilement la misère, c'est que ta foi dans la
 Providence n'est plus.
 
 — Majorel est un esprit clair.
-— Majorel est riche : abandonner Clément serait j
+— Majorel est riche : abandonner Clément serait
 le vendre.
 — Nous recommanderons Clément au vicaire de
-Sainte-Sabine, qui entretiendra sa piété. Majorel em- l
+Sainte-Sabine, qui entretiendra sa piété. Majorel em-
 plira son âme de passé. Ainsi notre fils qui ne pourra
 jamais agir dans l'espace aura la joie de rèver dans
 le temps.
@@ -347,11 +347,11 @@ broyée par l'hélice écuma, le navire trembla et se
 mit silencieusieusement en route par l'éclaircie .
 d'une après-midi pluvieuse, sous la menace des ‘4
 nuages et le calme présage d'un arc-en-ciel rose et
-Clément avait couru à l'extrémité de la digue, j
+Clément avait couru à l'extrémité de la digue,
 
 là où s'élève l'antique tour des Pleureurs, ainsi
 nommée parce que de temps immémorial sur les
-dalles de ses degrés ceux qui restent envoient à ñ
+dalles de ses degrés ceux qui restent envoient à
 ceux qui partent l'adieu lamentable des mouchoirs.
 
 Le Timor passa à vingt mètres du môle. Ma-
@@ -478,14 +478,14 @@ sur des épaules caprines, sa peau avait la blan-
 au-dessus des gencives étaient trop courtes pour F .
 s'unir et ses paupières coupées au ras des orbites “ ‘4
 n'essuyaient jamais ses yeux, deux boules de sang 15 » . .
-coagulé blasonnées par des raïes noires. RP 2:
+coagulé blasonnées par des raïes noires. RP
 — Zachée dis-nous ton histoire ?
-— Je suis aveugle depuis dix-huit cents ans, : \S 20
+— Je suis aveugle depuis dix-huit cents ans, : \S
 pour avoir vu Notre Seigneur. C'est moi qui étais
 monté sur le figuier le jour de son entrée à Jéru- ‘20
 salem. Mes yeux trop faibles ne purent supporter ne
 l'éclat du fils de Dieu. J'étais dans la lumière, je fus ie
-précipité dans la nuit. — Je criai vers Lui éper- 215
+précipité dans la nuit. — Je criai vers Lui éper-
 dûment. Il mit sa main sur mon visage et me Me
 
 Seigneur, vous le savez : guérissez-moi. — Vis mn.
@@ -521,11 +521,11 @@ nous en ferons un tirage à part trés restreint, en un
 beau volume in-18 jésus à peu près de même épaisseur, à
 É : pour un franc. Nous prions ceux de nos correspondants
 ni, * qu voudraient nous l'acheter de vouloir bien nous en dE
-avertir. Ajouter o fr. 50 pour les frais d'envoi en pro- F2
+avertir. Ajouter o fr. 50 pour les frais d'envoi en pro-
 Le vince et à l'extérieur.
 És Vient de paraître à la Société nouvelle de librairie et
 d'édition, 17,rue Cujas, Paris. le Procès des Assomp-
 tt lionnistes, réquisiloire du Parquet, exposé et réquisi-
-à loire du Procureur de la République. compte rendu *e
-de 2 sténographique partiel des débats, arrêt. 1 volume, S.
+à loire du Procureur de la République. compte rendu
+de 2 sténographique partiel des débats, arrêt. 1 volume,
 s< 25 Gpages, imprimées très denses. in-1 6, pour cin uante +4

@@ -56,7 +56,7 @@ Boulon rit en toussant, dans la fumée de sa pipe : Be
 prends pas ! — Antialcoolique encore, je ne dis pas;
 dans un pays comme celui-ci par exemple, où le petit
 bourgeois et le paysan ne vivent que de la vigneetde
-l'alcool, faut pas venir chanter trop fort, ils n'écouteraient personne ! Mais, bon Dieu! si vous n'êtes pas J
+l'alcool, faut pas venir chanter trop fort, ils n'écouteraient personne ! Mais, bon Dieu! si vous n'êtes pas
 anticlérical !.. Nous sommes pourris de la peste noire;
 et ii n'est pas trop tôt que le gouvernement s'en aper-
 çoive. Moi je crois au contraire, voyez-vous, que l'Église
@@ -65,13 +65,13 @@ des congrégations d'abord, et puis abrogation de la loi”
 Falloux ! Après ça, on respirera un peu! -
 — Qu'est-ce que vous pensez, Périer ? demanda tranquillement Madec.
 Périer hésita un moment : 3 3 |
-— Monsieur Madec, moi... 4
-— Fichez-moi donc la paix avec votre monsieur, 4
-voyons! Est-ce que je vous appelle monsieur Périer, E
+— Monsieur Madec, moi...
+— Fichez-moi donc la paix avec votre monsieur,
+voyons! Est-ce que je vous appelle monsieur Périer,
 Périer eut un rire embarrassé : |
-— Eh bien, je croirais assez comme Boulon ! 4
+— Eh bien, je croirais assez comme Boulon !
 Une mélancolie s'empara de Yves. Les deux femmes #
-écoutaient, bien que madame Boulon parût surtout ab- É
+écoutaient, bien que madame Boulon parût surtout ab-
 sorbée par la dégustation de son thé, et l'examen d'un E |
 écheveau de laine noire qu'elle trouva pendu à sa h |
 chaise derrière elle : |
@@ -107,14 +107,14 @@ un beau nom ça, fichtre ! et que ça oblige bougrement?
 4 galette, d'un officier, et d'une classe sociale puissante,
 - Ja juiverie; où Lx voyez-vous se remuer, cette fameuse
 
-Ligue ?.. Ne criez pas à l'infâme ! Vous n'ignorez pas 4
-que je suis un des plus vieux, des plus irréductibles 3 U
+Ligue ?.. Ne criez pas à l'infâme ! Vous n'ignorez pas
+que je suis un des plus vieux, des plus irréductibles
 dreyfusards !.. Moi, naïvement, j'imaginais au début Hu .
-qu'elle allait, par ses milliers d'yeux et d'index, voir et ï
+qu'elle allait, par ses milliers d'yeux et d'index, voir et
 dénoncer toutes les saletés dont gémissent et pâtissent
 les plus pauvres bougres autour de nous, qui sont
 hommes et citoyens autant que n'importe quel Dreyfus, hein ?... Ah, ouiche ! Elle dort tranquille la
-belle Ligue... Ouais ! de temps en temps elle bat 4
+belle Ligue... Ouais ! de temps en temps elle bat
 la grosse caisse autour d'un petit soldat qu'on veut
 bousculer trop vite à Biribi... Mais n'est-ce que Ça,
 morbleu ! A s'en reposer sur elle, on dirait que tout est
@@ -134,7 +134,7 @@ groupe, on s'organise !
 vous organiser, vous grouper, quand une ignominie
 vous crève les yeux? Criez-la sur les toits! Mais non,
 c'est toujours la mème histoire! La manie des enré- ;
-gimentements, des hiérarchies, des matriculations, 3
+gimentements, des hiérarchies, des matriculations,
 des bouts de carton rouges, verts, jaunes, pré- )
 sidents, vice-présidents... etc., etc. On appelle ça :
 s'organiser! moi j'appelle ça « se mécaniser » — à
@@ -145,7 +145,7 @@ bout de carton, il croit qu'il n'a plus rien à faire. C'est à
 comme l'hostie avalée, le Bon Dicu se charge du
 — C'est le principe même sur lequel repose la Ligue,
 que je trouve immoral, inéducatif. — Non seulement
-. elle a le tort pour moi, d'être par son président et son * É
+. elle a le tort pour moi, d'être par son président et son
 _ comité central un ménage gouvernemental, mais même
 - par son fonctionnement, elle n'est rien qu'une formé
 D — C'est faux, cria Boulon très animé. Les sections sont
@@ -173,26 +173,26 @@ en attendant, puisqu'il s'agit de la Ligue, si vous voulez —
 nous en ferons l'expérience ensemble, je vous déclare Es nn
 tout de suite que, en y entrant, je prends vis à vis de NN
 moi-même la ferme résolution de l'obliger, dans notre ET:
-section, à appliquer ses principes. Elle se donne comme F4
-une union de tous hommes loyaux et énergiques, faite É
+section, à appliquer ses principes. Elle se donne comme
+une union de tous hommes loyaux et énergiques, faite
 hors de toutes considérations politiques ou religieuses he |
 pour le respect et la dignité, et la liberté des hommes ? 4 à
 Bon! Je vousavertis que j'y dénoncerai toute atteinte faite % |
-à n'importe quel citoyen, dans sa dignité et sa liberté, — E
-dont je serai témoin, ou dont j'aurai eu connaissance... E J
+à n'importe quel citoyen, dans sa dignité et sa liberté,
+dont je serai témoin, ou dont j'aurai eu connaissance...
 Je vous parie que président et membres, en grande ma- : |
 jorité, vont me prendre pour un toqué, un être sub- 4 |
 Et Boulon riait très fort — pour dissimuler son +
 — Si vous ne venez que pour jeter des bombes! Ilne
 faut pas y entrer, si votre but est de désorganiser. Vous .
-comprenez il n'y a pas moyen de rien faire dans ces 1
+comprenez il n'y a pas moyen de rien faire dans ces
 conditions-là. Pour moi, je vois dans la Ligue un bon
 moyen de se connaître entre Libres-Penseurs, de faire
 marcher la propagande anticléricale, et d'obliger le À
-— Parfait, conclut Yves; c'est bien ce que je con- 4
+— Parfait, conclut Yves; c'est bien ce que je con-
 state. Si c'est ça, je n'y resterai pas longtemps. Au fond, À
 — Anticléricalisme ! Si seulement tous ces gens-là ne se |
-mariaient pas à l'église! Enfin! J'y entre cependant, J
+mariaient pas à l'église! Enfin! J'y entre cependant,
 parce que, pour moi, c'est un moyen en eflet de connaître, de rencontrer des ouvriers, et de voir si, avec |
 
 eux, par eux, il n'y a pas moyen d'agiter ici des questions d'éducation individuelle, de trouver des éléments
@@ -224,18 +224,18 @@ Les deux femmes causaient à mi-voix, chaleureusement, devant les assiettes et l
 l'ingénieur bien sûr. (C'est sûr que Périer, simple ajus- FA
 teur, c'est pas un nom !) et pourtant pas un sou d'aug- 2 }
 mentation depuis, ni même de commissionnement!
-Est-ce que c'est pas ignoble ? 2} x
+Est-ce que c'est pas ignoble ? 2}
 Et Périer s'animait; ses bons yeux deyenaient rouges +
 et noirs, et ses pommettes pâles de fin artisan se colo
 raient un peu. Le
 — Eh, Boulon! attention! ça se passe sous un ministre
 — J'attendais quelque chose au premier de l'an, continua Périer, après une lettre, que j'ai écrite y a deux
-mois au directeur pour lui rappeler mon nom et mes e
+mois au directeur pour lui rappeler mon nom et mes
 . services. Mais v'là que les commissionnements sont
 faits, et j'ai encore rien pour ct'année... Ce qui m'dé-
-goûte, c'est que je vois Tourbillot, — qu'est un réactionnaire fini, qui rate pas la messe tous les dimanches, M
+goûte, c'est que je vois Tourbillot, — qu'est un réactionnaire fini, qui rate pas la messe tous les dimanches,
 qu'envoie ses filles chez les sœurs! Il n'a rien fait ct'animal-là, que pelotter tout le monde ! Il lèche les pieds
-du patron tout le temps! Il n'a pas autant de service L
+du patron tout le temps! Il n'a pas autant de service
 que moi et le v'là commissionné!.. Maintenant, c'est du
 député que ça vient, tout le monde sait ça, mais ça n'en
 est que plus dégoûtant. À
@@ -282,9 +282,9 @@ Madec! j'crois qu'il a un peu vos idées. Il ne veut rien $ ot
 à savoir d'aucun gouvernement! Avec ça il a une tête . Les
 près du bonnet! Ça va chauffer. D'autant plus qui faut
 bien avouer que ce qu'on lui fait est dégoûtant! Y à
-pas à chercher loin. On lui a fait ce coup-là pour faire É
+pas à chercher loin. On lui a fait ce coup-là pour faire
 — Non! dit Valentine avec indignation! Non! Onn'a
-pas eu ce toupet-là ! È
+pas eu ce toupet-là !
 — Qu'est-ce donc réellement? interrogea Boulon.… |
 — Eh bien, v'là l'histoire! Figurez-vous que Montion |
 poltron! Et qui ne rate jamais la messe non plus!
@@ -296,11 +296,11 @@ demandé à revenir ici, tout d'un coup. et il est
 renommé ici — et c'est à sa place qu'on envoie mon
 Piriou, sans s'épater!.…
 — Ça c'est raide! exclama Boulon! mais si je connais mon Piriou, vous avez raison de dire que ça va
-chauffer... Celui-là n'aime pas les curés... ni même les ÿ
+chauffer... Celui-là n'aime pas les curés... ni même les
 députés. faut avouer que c'est un sacré bougre, Il va \
 faire tout sauter. À
-La petite Boulon s'était levée : 1
-— Est-ce que vous n'allez pas bientôt penser à aller 1
+La petite Boulon s'était levée
+— Est-ce que vous n'allez pas bientôt penser à aller
 cinq héures et demie encore pour aller au dépôt!
 Valentine, debout aussi, dit :
 — On a seulement pas trinqué à la bonne année!
@@ -328,7 +328,7 @@ _… ceux qui subissent des injustices!
 Maisons de gros ‘
 Dès le premier mois du second trimestre, Madec
 sentit qu'il avait l'esprit plus libre qu'aux mois du pre- .
-mier trimestre, pour étudier gens et choses autour de 1
+mier trimestre, pour étudier gens et choses autour de
 lui, particulièrement au collège, les conditions de l'enseignement et de l'éducation universitaires.
 Antérieurement, en qualité de répétiteur divisionnaire
 de lycée s'il avait pu connaître l'internat, il considérait
@@ -336,10 +336,10 @@ que son rôle de policier muet, ou de chien de garde -
 aboyeur, en serre-file autour des élèves ou derrière eux,
 ne lui avait permis de ne juger que de l'extérieur, et
 pour ainsi dire, de certains résultats matériels d'un état
-de choses dont il ignorait le vrai sens intime et l'âme. È
+de choses dont il ignorait le vrai sens intime et l'âme.
 Mais ici il était au cœur même de la citadelle dont les
-répétiteurs gardaient les portes au dehors. Il était le 4
-professeur, l'éducateur; il vivait parmi des professeurs, 1
+répétiteurs gardaient les portes au dehors. Il était le
+professeur, l'éducateur; il vivait parmi des professeurs,
 des éducateurs. Ils étaient le « canal » des ordres d'en :
 haut, et les esprits et les cœurs des élèves s'ouvraient -
 à eux comme les sillons à l'ondée fécondante et au
@@ -361,7 +361,7 @@ _ jeune Pigeoire avait une petite tête de ouistiti farceur,
 …—_ sages de petite-fille, et, somme toute, Yves aurait
 4 souhaité avoir affaire à une cinquantaine de bipèdes de
 . la même plume.
-74 Or, cette même après-midi de foire, les classes étant
+Or, cette même après-midi de foire, les classes étant
 - vacantes, (cela se produisait une fois par mois toujours
 à au même jour — le mardi — en sorte que d'ailleurs, les
 - élèves de rhétorique eurent autant de classes d'anglais
@@ -379,14 +379,14 @@ Pour l'instant Madec fut fâché de renoncer forcément
 
 pour un éducateur sincère, pour un professeur qui præ
 nait sa tâche au sérieux, celle de faire des hommes,que à
-de lier connaissance avec les éducateurs naturels et : F
+de lier connaissance avec les éducateurs naturels et
 familiers de l'enfant. D'eux seuls il pouvait recevoir “SE
 certaines indications sur le caractère, le tempérament,
 les dispositions mentales, affectives ou volitives, de l'en- E: ;
-fant; et ces indications lui semblaient de toute néces- 4
+fant; et ces indications lui semblaient de toute néces-
 sité, inappréciables, pour conduire intelligemment, avec
 toute la délicatesse souhaitable, l'œuvre éducative.
-Enfin il s'agissait non seulement de l'enfant, maïs des d
+Enfin il s'agissait non seulement de l'enfant, maïs des
 parents eux-mêmes. Ses souvenirs du répétitorat lui :
 disaient assez que trop souvent les parents, loin d'être
 des auxiliaires précieux, avaient endommagé, gâté la
@@ -397,13 +397,13 @@ par l'enfant même, ou par des rapports directs avec les
 parents, agir sur les parents eux-mêmes, c'était là un
 des soucis les plus constants de Madec.
 
-Mais Pigeoire entra, face épaisse, bourgeonnée, teint É
+Mais Pigeoire entra, face épaisse, bourgeonnée, teint
 de brique cuite, coiffé d'un feutre neuf; une blouse de à
 toile bleue ballonnée, flambant neuf, ouverte sur un }
-veston de drap; grosse patte dure, gros yeux malins. ÿ
+veston de drap; grosse patte dure, gros yeux malins.
 Sans détour, le père Pigeoire déclara : |
 
-— J'viens voir quand c'est que vous aurez fini d'abru- 1
+— J'viens voir quand c'est que vous aurez fini d'abru-
 tir mon gosse avec vot'sacré allemand! ;
 
 A ce coup, Madec, étourdi, eut un éclair de colère et
@@ -413,7 +413,7 @@ nature sympathique reprit le dessus.
 
 — V'savez, continuait Pigeoire, s'asseyant, les genoux
 
-1 4
+1
 
 écartés et ses pattes à plat sur ses cuisses, faut pas
 vous éreinter, ni éreinter Julot! Y n'est pas déjà si fort,
@@ -443,16 +443,16 @@ qui dirait des députés, quoi! V'là donc qu'ilai mis
 E gratter du papier quèque part et faire le bourgeois! N'a
 pas besoin d'savoir un mot d'allemand! ni même tant
 d'choses que ça! J'étais venu pour vous dire ça, monsieur Madec, sauf vot'respect!
-3 103
+3
 
-Madec, désolé, essaya vainement de faire pénétrer 3
+Madec, désolé, essaya vainement de faire pénétrer
 dans cette cervelle quelque lueur de ce qu'il jugeait être
-du bon sens. Eh quoi? c'était donc par vanité grossière 54
-de paysan qu'il avait mis son fils au collège? Et que È k
+du bon sens. Eh quoi? c'était donc par vanité grossière
+de paysan qu'il avait mis son fils au collège? Et que
 faire avec des élèves qui n'étaient au collège que pour
 y faire acte de présence, pendant deux et trois ans?
 Hélas! Madec ne pouvait ignorer que, sur quinze élèves
-de troisième moderne, dix au moins fondaient leur paresse sur la conviction que leurs père et mère se mo- 4
+de troisième moderne, dix au moins fondaient leur paresse sur la conviction que leurs père et mère se mo-
 - quaient bien de ce qu'ils faisaient au collège! Mais si
 l'enfant travaillait, n'était-ce pas un devoir sacré, puisqu'il pouvait le faire, de compléter autant qu'il était en
 lui son éducation commencée ? Un homme devait savoir ;
@@ -463,14 +463,14 @@ Pays, — à regarder, par delà les limites de son clos,
 vers les horizons de la justice et de la liberté! Un homme .
 _ devait enfin savoir au moins jauger l'homme qui lui .
 demandait son vote, sa confiance, sa conscience! etc.
-Autant brailler dans un chaudron! se dit Yves! 4
+Autant brailler dans un chaudron! se dit Yves!
 Le père Pigeoire s'en fut, après avoir effusionnément
-serré les deux mains d'Yves, un peu blessé qu'Yves L
+serré les deux mains d'Yves, un peu blessé qu'Yves
 refusât d'aller « prendre une verte » avec lui, ou au
-moins « une p'tite chartreuse.. Y a justement des p'tites 2
+moins « une p'tite chartreuse.. Y a justement des p'tites
 parisiennes qui chantent à l'apéritif-concert en face! »
 Quelques jours après Yves écrivit à un de ses anciens
-maîtres de la Sorbonne la lettre suivante. L.
+maîtres de la Sorbonne la lettre suivante.
 « … On jurerait que ministres, députés, membres du
 Conseil supérieur de l'Instruction publique, se sont in- £
 géniés à trouver les méthodes les plus sûres pour com- +
@@ -479,7 +479,7 @@ primer tous les élans naturels de l'enfance, pour étouffer
 toutes les aspirations juvéniles, et pour contrarier toutes
 les initiatives chez ceux mêmes qui sont chargés
 d'éduquer, d'instruire ! Comment s'y prendraient des
-gens qui auraient ce dessein? — Comment s'y prend-on ë
+gens qui auraient ce dessein? — Comment s'y prend-on
 pour obstruer un fleuve, pour combler une source ? On
 y jette des blocs de pierre, on y entasse de la terre, du
 sable, des déchets de toutes sortes. Voilà justement
@@ -514,7 +514,7 @@ galonnés sont les premiers à les subir, à en souffrir;
 mais doivent, sous peine d'être notés comme « mauvais
 esprits », « mauvaises têtes », servir d'instruments à ces
 lois draconiennes. D'ailleurs le mécanisme entier les y
-oblige. L'éducateur qui entre dans de pareilles institu- 2
+oblige. L'éducateur qui entre dans de pareilles institu-
 tions a vite le sentiment qu'il n'est plus rien qu'une
 pièce de machine, qui doit docilement s'adapter au jeu
 des autres, sous peine d'être brisée, en enrayant le mé- « canisme tout entier. D'avance tout est prévu, toutes
@@ -522,9 +522,9 @@ heures sont réglées de sa vie, et de la vie des enfants;
 toutes ses occupations ettoutes les leurs ont leurs places .
 -J'une avec l'autre, et s'emboîtent solidement. Il n'a rien
 marcher ainsi.
-« Dès l'âge de dix ans le collégien, été comme hiver, 4
+« Dès l'âge de dix ans le collégien, été comme hiver,
 a une moyenne de dix heures de travail par jour; de ;
-6 heures du matin à 8 heures du soir, cinq heures 4
+6 heures du matin à 8 heures du soir, cinq heures
 d'études et cinq heures de classes, durant quoi il doit
 être assez intelligent et laborieux, assez frais et dispos À
 sans cesse, pour absorber par jour une moyenne de ;,
@@ -571,15 +571,15 @@ tion humaine! Quel intérêt trouveraient-ils à de tels
 discours? Il faut donc procéder avec eux comme on
 procède avec les animaux qu'on engraisse : on les Fr
 ligote, on les bâillonne, on les torture, pour faire
-pénétrer dans leur moëlle la moëlle des sciences qui k
+pénétrer dans leur moëlle la moëlle des sciences qui
 doivent un jour ou l'autre vivifier leurs cerveaux. |
 _ « Sous ce régime, il arrive que, par section de vingt £
-ou de trente enfants, trois ou quatre seulement rendent È
-à peu près régulièrement ce qu'on leur inculque. Mais 8
+ou de trente enfants, trois ou quatre seulement rendent
+à peu près régulièrement ce qu'on leur inculque. Mais
 les quinze, vingt autres sont à jamais perdus. Que de- à
-viennent-ils ? la proie de l'ennui, du dégoût, des rete- L
+viennent-ils ? la proie de l'ennui, du dégoût, des rete-
 nues, des consignes, sans compter les vices. Ils
-s'aigrissent, s'irritent, s'abêtissent. Leur intelligence, 3
+s'aigrissent, s'irritent, s'abêtissent. Leur intelligence,
 leur énergie s'atrophie pour toujours. Ils ne vivront ;
 désormais qu'une vie confuse, somnolente, inconsciente. |
 « Voilà pour l'instruction. Quant à l'éducation, c'est. :
@@ -630,15 +630,15 @@ en sort non ébloui, — abruti, stupide, veule, sans y %
 avoir rien compris; dégoûté, écœuré, fuyant le livre,la
 pensée, la réflexion, l'initiative, et ne révant que dé
 bauche, soûlerie, noces et festins. Regardez, cher
-maître, les masses écolières des Universités. Je ne ê
+maître, les masses écolières des Universités. Je ne
 parle pas des rares qui veulent et qui pensent! Ilyena, ;
-Dieu merci, quelque un sur cent, sur dix si vous voulez. M
+Dieu merci, quelque un sur cent, sur dix si vous voulez.
 Mais le reste! Fouillez les Écoles de Médecine, Phar- à
-macie, Droit, surtout. Est-ce que tout ça est sensible- Î
+macie, Droit, surtout. Est-ce que tout ça est sensible-
 autre tas qu'on peut rêver de pauvresbougresquisavent
-à peine lire, écrire, compter... et nager ? qui n'ont pas 1
+à peine lire, écrire, compter... et nager ? qui n'ont pas
 usé dix ans, quinze ans de culottes sur les bancs des
-Bazars ? Voyez Paris; qui braïlle et qui se soûle le 4
+Bazars ? Voyez Paris; qui braïlle et qui se soûle le
 plus : la Villette ou le Quartier ? Et quand même ce
 
 serait la Villette... Au moins ceux-là ne posent pas pour |
@@ -658,7 +658,7 @@ nature distrait, c'est-à-dire curieux de tout, il faut non
 . pas abolir sa curiosité, la châtier à coups de fouets;
 . il faut l'exciter au contraire, la diriger, la captiver,
 | dans l'ordre de sa nature même.
-. « Plus l'enfant est jeune, moins il faut le lasser. Pour k
+. « Plus l'enfant est jeune, moins il faut le lasser. Pour
 …_ cela on a bien fait de réduire enfin la durée du temps
 | consacré à chaque étude. Mais cela est bien loin du
 # ù but ! Il faut encore, de toute nécessité, réduire le
@@ -707,8 +707,8 @@ les jeunes esprits toujours avides d'écouter et d'apprendre.
 « Se convaincre de cette vérité, que ce n'est point
 l'enfant qui est en défaut en ce qu'il manifeste inertie,
 paresse ou mauvaise volonté, mais l'éducateur, parce
-que toute science, n'étant en fait que la réponse à des 1
-questions de l'esprit humain, doit, de toute nécessité, k
+que toute science, n'étant en fait que la réponse à des
+questions de l'esprit humain, doit, de toute nécessité,
 
 _ être désirée, voulue, cherchée naturellement par tous
 esprits humains, et que la paresse, comme la mauvaise
@@ -751,9 +751,9 @@ pour apprendre aux hommes à tuer des hommes, de
 peur d'être tués; et vous ne savez pas trouver de quoi
 s'aider, à s'aimer ? — Ne me parlez donc plus d'Éducation ! De tous les mots menteurs, perfides, fourbes, '
 monstrueux, je n'en connais pas de pire ! Car tout est À
-dans l'Éducation, tout, absolument tout ! Et vous souil- Ÿ
-lez tout, si vous souillez l'éducation. Tout le reste 4
-n'est que singerie, momerie, charlatanisme ignoble ! L
+dans l'Éducation, tout, absolument tout ! Et vous souil-
+lez tout, si vous souillez l'éducation. Tout le reste
+n'est que singerie, momerie, charlatanisme ignoble !
 « Élever des Hommes ! voilà à quoi tout au monde, ;
 tout l'or du monde, devrait être consacré ! Car les |
 Hommes venus, que d'économies ils sauraient faire ! » |
@@ -762,7 +762,7 @@ cn La réunion eut lieu chez Têtu pour la fondation d'une
 - section de la Ligue. Il devenait urgent, à trois mois des
 4e _ élections législatives, qu'on eût à Villetaupier un centre
 d'action décisive contre la horde cléricale et nationa_ — liste, contre la bande réactionnaire.
-4 À Depuis quelque temps, le nom du curé, Théodore,
+À Depuis quelque temps, le nom du curé, Théodore,
 -— était sur toutes les lèvres, à l'hôtel entre commensaux,
 _ au collège entre professeurs. Ce nom avait une puis_ sance magique. Visiblement il jetait de la terreur sur
 _ quelques visages qui se renfrognaient dès qu'il était
@@ -777,13 +777,13 @@ le faisait le héros lunaire, aux antiques terrasses, fleu-
 - ries de roses, des jardinets de ces dames. Mais il avait
 * croisé deux ou trois fois, dans les ruelles à pavés
 | pointus, le grand vieillard sec, à cheveux blancs, au
-1 115
+1
 
 nez en bec d'épervier, et il n'avait pu s'empêcher d'admirer la blancheur des manchettes et du col qui rehaussaient le deuil riche et fin de la douillette noire, ni de ;
 frémir légèrement au heurt de ce regard ardent qui,
 d'un éclair rapide, l'avait toisé des pieds à la tête. |
 
-L'Affaire avait ouvert bien des esprits obstinément 7
+L'Affaire avait ouvert bien des esprits obstinément
 clos jusqu'alors. Le docteur Piault, qui avait aupara- à
 vant combattu le socialisme autant que les partis mo- %
 narchistes et césariens, avait tout à coup compris qu'il ne |
@@ -791,10 +791,10 @@ devrait qu'à l'aide des révolutionnaires de ressaisir son L°
 ancienne puissance. Le docteur Piault avait été maire de ;
 Villetaupier au temps du triomphe radical, et sa seule
 nonchalance naturelle, un doux orgueil, une tranquille
-confiance en soi-même et en la valeur des principes 1
+confiance en soi-même et en la valeur des principes
 qu'il défendait, avaient été causes de son échec, im- :
 prévu de lui, aux dernières élections. Rafliard, l'indigne :
-Rafliard, l'homme à la fortune suspecte, à la grosse 1
+Rafliard, l'homme à la fortune suspecte, à la grosse
 barbe poivre et sel, au bagout de commis-voyageur,
 Raffiard, le républicain de la dernière heure, avait
 passé, grâce au mystère de son alliance avec Théodore.
@@ -849,7 +849,7 @@ avait des airs informés; mais ils ne le blaguaient que
 par derrière, ayant l'air de le prendre très au sérieux en
 face, car le docteur était puissant.
 
-Quant aux ouvriers, ils étaient là sept ou huit, et 7
+Quant aux ouvriers, ils étaient là sept ou huit, et
 Yves les considérait, d'après ce que Têtu, Périer etBoulon lui en avaient dit, comme les seuls éléments sérieux,
 encore qu'ils fussent bien las et ignorants. Parmi
 eux, hélas! Charbonnard, homme d'équipe, espèce de
@@ -910,14 +910,14 @@ malgré qu'il en eût, c'en était fait d'une grande part de
 sa liberté. Il se voyait confondu dans ses votes avec
 des satisfaits de tout un ordre social contre lequel il ne +
 cessait point de s'armer et de combattre. Il se sentait
-pris comme en un tout où sa volonté propre allait se F1
+pris comme en un tout où sa volonté propre allait se
 
 Le docteur parlait de nouveau. Il exprimait nettement
 le but de la Ligue; il exposait son programme d'action.
 I1 mettait en lumière le terrain d'entente des « différents
 partis de gauche » : |
 
-« Pour agir, et l'action est plus nécessaire que jamais 1
+« Pour agir, et l'action est plus nécessaire que jamais
 car l'ennemi ne chôme pas, il faut que chacun de nous
 soit assez désintéressé pour faire abnégation de ses
 opinions particulières, en politique, en religion. Nous
@@ -966,24 +966,24 @@ si on n'y mettait ordre tout de suite. Il se leva instinc-
 adopte dès aujourd'hui la résolution d'interdire qu'il
 soit fait, pendant nos séances, consommation de vin ou
 
-1 121
+1
 
 d'alcool! Nous nous réunissons pour des œuvres graves .
 et hautes,Nous nous réunissons pour un petit nombre
-d'heures, deux, trois peut-être au maximum. Je pré- t
+d'heures, deux, trois peut-être au maximum. Je pré-
 tends que le livre et la parole sont seuls nécessaires,
 non le verre de vin, ou d'alcool sous aucune formel »
 On adopta avec grand élan, tandis qu'Yves, un peu
-confus de son ton de violence, se rasseyait déjà en rou- « gissant, et que Charbonnard, encore debout, marmot- 4
+confus de son ton de violence, se rasseyait déjà en rou- « gissant, et que Charbonnard, encore debout, marmot-
 On parla de fixer des heures et des jours de réunion. %
 Yves demanda qu'on se réunît au moins une fois par
 semaine. Arverne bondit, et, d'un air outragé scanda ;
 ces mots outrageants : ]
-— Est-ce que vous devenez fou, vous! Une fois par K
+— Est-ce que vous devenez fou, vous! Une fois par
 mois, c'est fichtre bien assez! |
-L'accord, jusqu'ici, avait été à peu près unanime en L
-tous points parmi ces messieurs. Sur celte question on ÿ
-se divisa, et la salle de Têtu retentit du bruit des voix ÿ
+L'accord, jusqu'ici, avait été à peu près unanime en
+tous points parmi ces messieurs. Sur celte question on
+se divisa, et la salle de Têtu retentit du bruit des voix
 passionnées. Les ouvriers, et Périer en tête, déclaraient
 qu'il leur était impossible de compter sur une soirée
 régulière par mois.
@@ -1043,18 +1043,18 @@ puissions compter sur la volonté sincère des membres
 de la section. Vous dites : « Mais les trois quarts d'entre À
 nous sont empêchés d'assister à toutes les séances si ;
 elles sont hebdomadaires ! » Je réponds : « Il n'importe LE
-pas que, une fois la semaine, et régulièrement par toute Ÿ
-l'année, tous, nous nous retrouvions toujours ensemble. r?
+pas que, une fois la semaine, et régulièrement par toute
+l'année, tous, nous nous retrouvions toujours ensemble.
 Ce serait là l'idéal, évidemment, mais puisqu'il ne peut 3 à
 être atteint, songeons à en réaliser tout ce qu'il contient LL |
-de réalisable. Ce qui importe, c'est que six ou huit, ou 4
+de réalisable. Ce qui importe, c'est que six ou huit, ou
 seulement trois ou quatre d'entre nous, les mêmes, nous ni
 nous trouvions régulièrement, avec un ou deux autres É |
 membres moins empêchés que la généralité, aussi fré- LA
 quemment que possible. Ce qui importe, c'est que nous ‘ |
 ‘ayons fondé, que nous fondions un foyer de discussion |
 libre, d'études, de réflexions, où nos esprits s'excitent à |
-penser, où nos volontés s'excitent à agir, où nos Con î
+penser, où nos volontés s'excitent à agir, où nos Con
 sciences soient sûres de reprendre flamme et vie. Pour àl
 cela, le nombre n'importe pas. Il suffit que l'étincelle {
 soit entretenue, le feu sacré, où chacun viendra, quand
@@ -1100,7 +1100,7 @@ souvent offerte, d'agir dans le sens de notre œuvre commune. »
 _ Il y cut un silence de surprise quand Madec se fut
 . assis. Il était évident que la plupart n'avaient jamais
 conçu sous cet aspect l'œuvre d'une Section de la Ligue.
-1 125
+1
 
 Un grand brouhaha s'éleva bientôt des discussions qui
 éclatèrent à propos de la question en litige. On causaïit
@@ -1110,16 +1110,16 @@ par groupes. Boulon vint à Madec et lui dit :
 cher une U. P. dans la Section, vous voulez transformer
 
 d'études, mais en U. P. d'action! Je ne comprends pas :
-la Ligue autrement! L:
+la Ligue autrement!
 
-Périer était venu s'asseoir à côté de Boulon et de 4
+Périer était venu s'asseoir à côté de Boulon et de
 
-— Je crois, argua-t-il, presque à voix basse, en s'adres- l
-sant à Madec, que vous avez eu tort de lancer ça tout 1
+— Je crois, argua-t-il, presque à voix basse, en s'adres-
+sant à Madec, que vous avez eu tort de lancer ça tout
 de suite. Vous auriez dû attendre. Faut pas essayer
 deux choses à la fois ici, surtout dans c'genre-là. Si on |
 
-pouvait faire une section de la Ligue d'abord, ça serait 1
+pouvait faire une section de la Ligue d'abord, ça serait
 pas mal!
 oi — Mais, répliqua Madec, cette ligue n'est qu'une :
 bonne farce si elle se contente de faire comme les
@@ -1176,18 +1176,18 @@ coopératives. les principes communistes.
 | — On r'parlera de ça, dit Boulon.. v'là le président
 qui va parler. et,
 Le docteur Piault, en effet, avait résolu de faire finir 4 +4
-ce brouhaha, ces discussions qui ne menaient à rien. I 2
-frappa deux fois du poing sur la table, et dit : 4 L
-— Messieurs, je mets aux voix la question dunombre 1
-de nos réunions... D'abord celle qui me semble en de- « voir réunir ie plus... Deux réunions mensuelles ?.… 7
+ce brouhaha, ces discussions qui ne menaient à rien.
+frappa deux fois du poing sur la table, et dit
+— Messieurs, je mets aux voix la question dunombre
+de nos réunions... D'abord celle qui me semble en de- « voir réunir ie plus... Deux réunions mensuelles ?.…
 Il leva la main en même temps qu'une dizaine des .
 — Messieurs, la majorité est acquise pour deux réunions mensuelles. L'ordre du jour étant épuisé, je
 déclare la séance levée. .
 — Avec deux réunions par mois, gémit Yves, en sortant avec Périer, il n'y a pas grand chose à espérer
-d'ici longtemps pour une U. P.
+d'ici longtemps pour une
 
 | Comment on se marie
-1 Un jeudi qu'il venait de reconduire les élèves au col-
+Un jeudi qu'il venait de reconduire les élèves au col-
 -  lège après la promenade, madame la principale apporta
 ;: à Yves quelque divertissement. Elle le surprit tout à
 5 coup et le fit entrer au salon. C'était une bonne grosse
@@ -1195,10 +1195,10 @@ Fi dame de quarante-cinq ans, rouge et vive, toute pleine
 Ê de cœur.
 \ — Vous aimez done ces promenades avec trente
 _ élèves, et par ces temps-là, monsieur Madec?
-4 On était en février, il pleuvait, il crottait, etc.
+On était en février, il pleuvait, il crottait, etc.
 ; — Je les hais, madame, par tous les temps!
 — Je trouve inique précisément.
-1 Madec développait sa thèse favorite.
+Madec développait sa thèse favorite.
 — Ah ! voilà qui est généreux et dévoué!
 — Mais non madame! Je vous en prie, ne me prenez
 À pas pour un apôtre de miséricorde. Les sentiments et
@@ -1209,7 +1209,7 @@ Madame Binelle eut l'air distraite tout à coup; puis : à
 
 — Cher monsieur Madec, je voulais vous dire. Je »
 ne sais trop comment m'y prendre... j'ai tant d'ennui
-d'avoir l'air d'une intermédiaire... Voyons... connaissezvous mademoiselle V.. ? 4
+d'avoir l'air d'une intermédiaire... Voyons... connaissezvous mademoiselle V.. ?
 
 Madec fut interloqué. LT
 
@@ -1221,15 +1221,15 @@ Madame la principale rougit encore. '
 C'est une jeune fille de vingt-deux, ou vingt-trois ans...
 Voyons... Connaissez-vous madame T...? |
 
-soie bruissante, et qui sent l'héliotrope ? Humph! i
+soie bruissante, et qui sent l'héliotrope ? Humph!
 
 — Humph? Pourquoi? Est-ce qu'elle ne vous plaît
 
 — Me plaire, me plaire ? Qu'est-ce que cela peut lui
 
-À — Ah! voilà ! C'est que vous lui plaisez beaucoup! Ë
+À — Ah! voilà ! C'est que vous lui plaisez beaucoup!
 
-— Moi ? Mais que voulez-vous dire ? L
+— Moi ? Mais que voulez-vous dire ?
 
 — Ah! ah! je savais bien vous intriguer.. Voyons.
 
@@ -1280,10 +1280,10 @@ comme moi l'allemand, des choses qu'ils ignoraient À
 pas que ce soit bien. Mais la question est : êtes-vous *
 disposé à vous marier ? #
 
-— Madame, puisqu'il en est ainsi, écoutez. F4
+— Madame, puisqu'il en est ainsi, écoutez.
 
 Yves s'installa, les coudes aux genoux, les mains
-jointes, la tête penchée, comme un homme qui fait E
+jointes, la tête penchée, comme un homme qui fait
 
 — Je ne suis pas ennemi du mariage, certes. Au contraire, c'est pour moi un des grands devoirs sociaux,
 s'ilen est, pour un homme ou une femme, de se marier. …
@@ -1291,10 +1291,10 @@ Mais actuellement, la société est ainsi faite que. Eh! à
 parbleu ! c'est la femme qui manque leplus!
 
 Madame Binelle éclata de rire, comme Yves avait
-l'air furieux. 3
+l'air furieux.
 
 — Je m'explique. oui, c'est la femme qui manque le
-plus... ah! si vous saviez ce que je rêve! ÿ
+plus... ah! si vous saviez ce que je rêve!
 
 Il s'arrêta, soupira, et, se penchant en arrière sur le
 
@@ -1331,7 +1331,7 @@ ménage, — et qui cependant veuille et aime toute
 _ _« monde », qui ouvre sa maison à qui en aura besoin,
 . surtout à de sales pauvres bougres qui n'en auraient
 +. point; une femme dont le cœur et la bourse soient
-- toujours ouverts, et enfin dont la présence ne soit w
+- toujours ouverts, et enfin dont la présence ne soit
 , surtout pas un affaiblissement, pour moi, un alour-
 } dissement, mais comme un souffle d'audace et de vie,
 _ au contraire, — et qui soit joyeuse, si jamais l'Univer_ sité me flanque à la porte, de la parole de liberté qui
@@ -1344,19 +1344,19 @@ expressions inaccessibles à la bonne dame, celle-ci
 écoutait avec une profonde sympathie. Ellereprit, après
 un moment de silence : €
 — Monsieur Madec, vous rêvez des choses impos- À
-sibles. Et cependant il y a des choses raisonnables 4
+sibles. Et cependant il y a des choses raisonnables
 dans votre rêve. Il est certain qu'avec deux mille cinq
-cents francs d'appointements, vous ne pouvez avoir de À É
-domestique, la vie est si cher! Cependant vous ne L Ÿ
+cents francs d'appointements, vous ne pouvez avoir de À
+domestique, la vie est si cher! Cependant vous ne
 vous figurez pas... \
 — Bon! interrompit Madec. Je sais que vous me persuaderez qu'une femme de professeur n'est pas une
-femme d'ouvrier, etc... dommage! Ça n'est pas mon Q
+femme d'ouvrier, etc... dommage! Ça n'est pas mon
 idée... et vous ne m'ôterez pas de la tête... ;
-— Mais vous le voyez bien vous-même! vous voulez 1
-une femme qui soit une femme de ménage et une artiste L
-en même temps... Est-ce que vous avez vu des femmes L
+— Mais vous le voyez bien vous-même! vous voulez
+une femme qui soit une femme de ménage et une artiste
+en même temps... Est-ce que vous avez vu des femmes
 d'ouvriers comme ça ?.. Mais le pire c'est que vous ne (4e
-voulez pas de prêtre! Ça, voyez-vous ! à moins d'épouser une rien du tout, une fille qui vous voudra pour se 4
+voulez pas de prêtre! Ça, voyez-vous ! à moins d'épouser une rien du tout, une fille qui vous voudra pour se
 faire une situation, jamais vous ne trouverez!
 Yves qui savait d'avance toutes les objections bourgeoises, s'était levé de nouveau, le chapeau à la
 Madame Binelle restait assise, les bras croisés :
@@ -1399,13 +1399,13 @@ bien pourquoi je m'attends à rester seul : aucune
 
 Et madame Binelle s'était levée à son tour : : .
 .… que si vous êtes aussi exigeant, vous ne trouverez
-jamais le bonheur ! : : 21
-— Le bonheur est un mot, madame. Il ne devient une 2 D
-réalité que dans l'accomplissement journalier d'un peu « E:
+jamais le bonheur ! :
+— Le bonheur est un mot, madame. Il ne devient une
+réalité que dans l'accomplissement journalier d'un peu «
 de justice. Je ne veux pas d'autre bonheur que de vivre
-librement la vie que je rêve; et ce serait la pire cata- 4
+librement la vie que je rêve; et ce serait la pire cata-
 strophe pour moi, que d'épouser une femme quinevou- -
-drait pas avec joie la même vie que moi. 4
+drait pas avec joie la même vie que moi.
 — Alors vous m'autorisez à dire à madame T... ce
 que vous venez de me dire. |
 — Absolument et strictement, chère madame. Mais je
@@ -1415,7 +1415,7 @@ est sincère, veut vraiment quelque chose d'autre que la 1 |
 vie qu'elle mène, tâchez de nous mettre en relation. Il
 se peut que j'aie quelque influence sur son esprit. Les
 . jeunes filles sont si abandonnées, — sans direction, —
-avec uùe éducation inepte ! Peut-être celle-là veut-elle 1
+avec uùe éducation inepte ! Peut-être celle-là veut-elle
 de tout son cœur quelque vie plus vraie et est-elle lasse
 des jours bourgeois? — Voyez ce que vous pouvez faire. À
 Puisqu'elle a lu les deux ou trois pages que j'ai envoyées :
@@ -1450,21 +1450,21 @@ qui marchait toujours d'un pas rapide et élastique, ma-
 martial, de très décidé dans l'allure, qui attirait les
 | sympathies de Yves.
 
-Dans l'esprit de ce dernier la tentative de Deherme, 4
+Dans l'esprit de ce dernier la tentative de Deherme,
 au faubourg Antoine, offrait l'unique solution possible à
 du problème social : rapprocher les hommes de toutes Yo:
-classes, de toutes opinions. Ce rapprochement devait 4
+classes, de toutes opinions. Ce rapprochement devait
 se faire spontanément de la part d'individus qui, sans 4 Fe
 renoncer en aucune façon à leurs croyances ou non- de
 croyances respectives, aux bénéfices ou aux manques
 des situations acquises, consentaient à se rencontrer, et
 à s'instruire mutuellement de leurs connaissances $
 abstraites ou de leurs expériences matérielles. En ten- À
-tant de réaliser cette haute idée dans son U. P. k
+tant de réaliser cette haute idée dans son
 Deherme espérait faire naître dans les âmes un mouvement de fraternité qui hâterait une révolution pacifique
 dans les mœurs et dans les lois. L'œuvre des U. P. de- ;
 vait avoir ses racines dans celles des coopératives de
-consommation. Celles-ci commençaient l'émancipation 1
+consommation. Celles-ci commençaient l'émancipation
 économique des individus qui s'achèverait dans les
 coopératives de production, tandis que les U. P. entre- |
 prenaient l'émancipation intellectuelle et morale.
@@ -1530,7 +1530,7 @@ temps! Car je n'ai pas que de la philo, à faire ! jai aussi
 de l'histoire. Ah! l'histoire mon cher ! —J'ai des copies
 à corriger et des classes à préparer. Et à la maisonilya
 toujours quelque chose à faire. Nous n'avons pas de
-bonne, rien qu'une femme de ménage, et vous ne savez j
+bonne, rien qu'une femme de ménage, et vous ne savez
 pas ce que c'est, vous êtes garçon, vous ! Quand vous
 aurez une femme et un enfant, foutre mon bon! Mais
 il est certain que si une action est tentante, c'est celle …
@@ -1545,7 +1545,7 @@ _ cependant nettement la question:
 — Eh bien, en définitive, le cas échéant, et si je trouvais les éléments matériels nécessaires pour fonder au
 | moins une bibliothèque populaire, pour ouvrir au moins
 | un lieu de réunion, si modeste soit-il, consentiriez-vous
-à nous aider? f
+à nous aider?
 — Mon cher, je ne demanderai pas mieux, il me
 semble, pourvu que toutes les questions de politique ou
 de religion soient formellement exclues. Cependant,
@@ -1569,11 +1569,11 @@ la méditation lui ont appris, avec l'expérience, à ne
 . point agir en vain, à se retirer du vulgaire, maudit de
 . Spinoza, et à faire sa tâche d'homme libre dans le
 
-Madec maintenant poursuivit la tâche commencée, Î
-afin que la question des U. P. se présentât d'elle-même ñ
+Madec maintenant poursuivit la tâche commencée,
+afin que la question des U. P. se présentât d'elle-même
 pour ainsi dire, soit en ville, soit aux réunions de la À
 Ligue, afin qu'on l'eût étudiée, et qu'elle eût déjà des
-partisans. Il entra donc à ce propos en relations plus F
+partisans. Il entra donc à ce propos en relations plus
 étroites avec ses collègues, chez la plupart desquels il
 ne s'était point présenté encore, son état de célibataire |
 ne l'obligeant point à des visites. « Cette tournée apo- }
@@ -1632,10 +1632,10 @@ qui voulait l'entendre, comme un gamin innocent qu'on
 menace d'un grand fouet. Sa femme, plus jeune que
 
 lui d'une quinzaine d'années, était toute charmante,
-d'une constante activité nerveuse qu'excitait sa passion n
+d'une constante activité nerveuse qu'excitait sa passion
 pour la musique. Elle donnait dans la ville des leçons
 de piano qui complétaient à peu près les nécessités de
-la vie du ménage sans enfant. 4
+la vie du ménage sans enfant.
 
 Le professeur de physique, chimie, histoire natu-
 
@@ -1683,7 +1683,7 @@ lui parlait comme un enfant à sa grand maman, et elle
 - méditait le mystère de ces existences qu'on disait avoir
 D: … été troublées par le scandale d'une jeune femme, qui,
 — au bout de quelques jours de mariage, se serait enfuie
-4 E: Pour jamais, sans raison connue. La maison de Cha-
+E: Pour jamais, sans raison connue. La maison de Cha-
 —. main était un château fort, et les collègues disaient
 —. quonn'y pouvait jamais pénétrer. Le fait est que deux
 RS on trois fois dans la suite Yves sonna en vain à la
@@ -1699,21 +1699,21 @@ collègues. Évidemment ils se fuyaient les uns les
 autres; ils se défiaient les uns des autres, sauf ceux fe
 qu'associaient le goût et la durée de quelque agape.
 Quelques-uns se détestaient ouvertement : Pillard et ù *
-Têtu, par exemple; puis Têtu encore, décidément trop Ù
+Têtu, par exemple; puis Têtu encore, décidément trop
 franc sans doute, et le second professeur de mathéma- 5%
 Parfois, sous l'influence occulte de leurs femmes, \ ‘4
-leurs dissensions croissaient. Les uns se jalousaient 1
+leurs dissensions croissaient. Les uns se jalousaient
 pour une palme académique, une admissibilité à l'agré- : à
-gation; un licencié méprisait la fréquentation d'un ex- 1
+gation; un licencié méprisait la fréquentation d'un ex-
 instituteur. D'autres gardaient rancune pour une invitation chez le principal, pour une simple poignée de |
 mains, un salut du recteur ou de l'inspecteur d'Acadé- |
 mie. Toutefois Yves, ayant pris contact avec chacun en
-particulier, se plaisait à reconnaître leur foncière hon- 4
+particulier, se plaisait à reconnaître leur foncière hon-
 nêteté, leur réelle bonne volonté. Pillard ét Têtu, cha
 cun de son côté, promettaient de se tendre la main
 pour une œuvre d'U. P.— Pris à part, aucun n'était
 méchant, ni lâche; chacun était sincère, et songeait à
-remplir loyalement sa tâche de professeur. L
+remplir loyalement sa tâche de professeur.
 Il y avait en eux une ignorance naturelle des
 grands problèmes philosophiques, moraux et sociaux,
 plutôt qu'une mauvaise volonté de s'en occuper, et ils
@@ -1759,8 +1759,8 @@ sciences, comme d'autres font n'importe quel autre
 L'état des choses au collège et parmi les professeurs
 témoignait trop clairement en faveur de ces observations. Dans quel milieu ouvrier, dans quel autre milieu :
 petit-bourgeois de commerçants ou d'employés, où “A
-Madec aurait-il trouvé plus de divisiens intimes, plus M
-de mesquineries, plus de défiance, plus d'étroitesse, \ 5
+Madec aurait-il trouvé plus de divisiens intimes, plus
+de mesquineries, plus de défiance, plus d'étroitesse, \
 plus d'incompréhension totale de la grande tâche
 humaine ? Qui, dans une société irréligieuse, quine
 croit plus à la divinité de l'être, exaltera les grandes
@@ -1768,7 +1768,7 @@ vertus qu'exige la vie en société, sinon ceux qui ont
 tout le loisir de la réflexion, ceux qui possèdent tout -
 le trésor de la science, ceux qui prétendent, par le
 choix même de leurs fonctions, à l'éducation, c'est-à-
-dire à l'élévation des caractères, des consciences ? C'est L
+dire à l'élévation des caractères, des consciences ? C'est
 aux professeurs à être aujourd'hui ce que furent les
 
 _ prêtres, les héros, les poètes !
@@ -1791,7 +1791,7 @@ les instituteurs ne manqueraient pas de dire que les
 | professeurs leur enlevaient le pain de labouche. D'autres
 4 lui avaient simplement ri au nez, déclarant qu'ils s'en
 foutaient bien, que les ouvriers étaient une bande de
-4 rosses, qui préféraient le vin et l'alcool, et qu'une U. P.
+4 rosses, qui préféraient le vin et l'alcool, et qu'une
 ne prendrait pas à Villetaupier... — Ces arguments
 étaient ceux d'Arverne, et Yves préférait encore ce
 cynisme, qui dissimulait à peine un aveu d'égoïste paresse, ou de misanthropie féroce. Seul donc Têtu lui
@@ -1817,17 +1817,17 @@ monte vers la lumière. L'homme en qui rayonne cette
 lumière la répand au dehors; elle éclaire ses sentiments
 et ses actions. » Ainsi raisonne On, belle âme. On se À
 Dans la plupart dés esprits les idées des livres ne M"
-vivent point; elles s'y impriment parfois comme sur ? h.
+vivent point; elles s'y impriment parfois comme sur ?
 les pages du livre; elles s'y amalgament étrangement #
-les unes avec les autres, et elles les remplissent de leur 7
-encre noire. En sorte qu'un professeur, en général, ne 4 i
+les unes avec les autres, et elles les remplissent de leur
+encre noire. En sorte qu'un professeur, en général, ne
 sait pas plus le sens, la valeur, la portée de telle idée
 qu'il porte en sa mémoire et qu'il enseigne à ses élèves,
 qu'un bottier, par exemple, ne connaît la structure in- |
-terne, la qualité des tissus des pieds que chausseront Î
-ses bottes, ou la direction des chemins que prendront ï
+terne, la qualité des tissus des pieds que chausseront
+ses bottes, ou la direction des chemins que prendront
 ces pieds chaussés en sortant de chez lui. Neuf sur dix
-des professeurs sont professeurs par hasard. Iis au- 1
+des professeurs sont professeurs par hasard. Iis au-
 raient aussi bien pu être n'importe quoi autre, et ils
 ont vécu parmi les idées comme ils auraient vécu parmi |
 n'importe quoi autre : ils ont traité les idées comme ils |
@@ -1874,7 +1874,7 @@ b, et de gros bourgeois vont à Saint-Cyr par vocation mi_ litaire…. A peu pr�
 en même temps qu'avec eux. Mais l'aide des livres, et |
 les maximes qu'ils y peuvent méditer, ne sont d'usage
 que pour satisfaire aux insidieuses questions des examinateurs. Les ouvrages des penseurs ne valent qu'au- |
-tant et dans la mesure où ils sont inscrits aux « pro- |! ÿ
+tant et dans la mesure où ils sont inscrits aux « pro- |!
 grammes ». Toutes les idées des maîtres, pleines d'âme À
 et de vie, n'ont qu'une valeur littéraire, philologique, {
 formelle, abstraite. Il ne s'agit point de les vivre, vrai- À
@@ -1921,7 +1921,7 @@ veillent à ce que parmi les professeurs, répétiteurs ou
 et principaux sont des officiers du Gouvernement, char-
 | gés par lui de la garde du complexe instrument de
 !: domination qui leur est confié, et qui est l'École qu'ils
-9 Qui jamais vit un proviseur, un principal, — barrica-
+Qui jamais vit un proviseur, un principal, — barrica-
 è dés avec leur famille dans une aïle du grand bâtiment,
 ki — convier à quelque repas amical ses répétiteurs ? Qui
 à jamais les vit fraterniser avec eux? Qui jamais les vit
@@ -1935,12 +1935,12 @@ pour que ces dépossédés y aient un endroit où se pro=
 
 Loin de là! Tous se fuient les uns les autres, et mont
 d'autres rapports que les rapports inévitables du service. #
-Il semble même qu'on ait veillé, qu'on veille incessam- ÿ
+Il semble même qu'on ait veillé, qu'on veille incessam-
 ment à ce que les fonctionnaires aient le moins d'occa- À
-sions possible de se rencontrer, de conférer, de se con- 1
-naître. Le nombre est très minime, en province du 1
+sions possible de se rencontrer, de conférer, de se con-
+naître. Le nombre est très minime, en province du
 moins, des lycées et collèges où l'on puisse trouver une
-salle de réunion, même une bibliothèque, ou une salle ÿ
+salle de réunion, même une bibliothèque, ou une salle
 de lecture, un lieu enfin où, entre deux classes, pendant
 les récréations, puissent se voir les professeurs et les
 répétiteurs ; et il est aisé de vérifier que, dans les lycées
@@ -1969,7 +1969,7 @@ du service, de mesquins malentendus naissent bientôt, .
 qui ne font que croître et s'aggraver. Une atmosphère
 d'indifférence générale, et de scepticisme, de « j'menfi- |
 : chisme », de mutuelle défiance et de suspicion mutuelle
-| se forme vite, où les sentiments, les volontés, les carac- k
+| se forme vite, où les sentiments, les volontés, les carac-
 _  tères ne tardent point à se pervertir.
 à Qui en pâtit? L'écolier à coup sûr, bien qu'il soit le
 _ dernier à s'en douter. Il respire cet air, il y grandit. Les
@@ -1988,7 +1988,7 @@ _ pour ce qu'ils font, pour venir tant d'heures par jour
 … savent que tout se fait à coup de règlements, de cireu- $
 4 _laïres, à coup de police, d'après un mécanisme une fois
 — établi. Ils ne voient nulle part poindre le rôle de la
-— spontanéité, — de l'initiative, de la bonne volonté toute 4
+— spontanéité, — de l'initiative, de la bonne volonté toute
 seule, de l'amour du devoir pour lui-même, de l'action
 f pour elle-même. Dans cette vie en commun où ils
 | prennent leurs premières leçons de vie sociale, nulle
@@ -2036,9 +2036,9 @@ mais il était trop timide de caractère, surtout trop bien KR
 _ élevé dans une famille de vieille noblesse, pour oser
 vouloir les prendre trop au sérieux et s'en faire l'apôtre.
 C'est pourquoi, plaisantant à la table d'hôte, Yves le
-blaguaït parfois, tantôt le traitant de « Monseigneur », 1
-et tantôt de « froussard! » A quoi de Passagne ne man- É
-quait pas de rire d'avoir, lui, magistrat, un ami qui, au J
+blaguaït parfois, tantôt le traitant de « Monseigneur »,
+et tantôt de « froussard! » A quoi de Passagne ne man-
+quait pas de rire d'avoir, lui, magistrat, un ami qui, au
 fond, était un émule de Ravachol! |
 
 De Passagne s'amusa à désigner à Yves qui, vivant |
@@ -2194,7 +2194,7 @@ que désormais il n'avait plus de raison de demeurer à
 — sion qui s'offrait, au début d'avril, pour le temps des
 … vacances de Pâques. |
 “Une dernière fois il souffrit, à l'hôtel, de voir l'entrée
-_ solennelle, à chaque repas répétée, que faisait, dans la f
+_ solennelle, à chaque repas répétée, que faisait, dans la
 * haute et spacieuse salle de la table d'hôte, le conduc- » teur Choute. Dans ses heures de misanthropie la pré-
 . sence de celui-ci surtout lui rendait l'hôtel insupportable.
 
@@ -2202,7 +2202,7 @@ Il lui en voulait moins pour sa personnelle niaïiserie, à
 qu'il étalait orgueilleusement, que parce qu'il était ;
 l'intime ami, le constant inspirateur, l''« âme damnée »
 du rédacteur en chef de la Gazette Libre, Yorgane de
-Villetaupier qui tirait à huit cents, et qu'emplissaient de 3
+Villetaupier qui tirait à huit cents, et qu'emplissaient de
 copieuses âneries nationalistes, antisémites, etc. La
 Gazette Libre était « Républicaine », naturellement,
 mais à la Riafliard, que soutenait Théodore, et que le |
@@ -2251,29 +2251,29 @@ js" plongeait un coin du linge dans son gilet, et, les poi-
 « J'en augure que cette croisade vous a donné de l'appé-
 _ « it, et jen induis que ma route est lisse comme une
 à table de billard.
-K Yves admirait le galantin, parfait chevalier d'Au4 teuil : trente-six ans, face replète, blanchâtre, profil ro- 4
+K Yves admirait le galantin, parfait chevalier d'Au4 teuil : trente-six ans, face replète, blanchâtre, profil ro-
 main, « napoléonien », aimait-il à dire; nez légèrement
 busqué, menton de galoche, cheveux plats, noir luisant, clairsemés: « cou court », veston éternellement
 orné d'une fleur à la boutonnière, sans un pli, tendu
-par les épaules américaines et le plastron de la che1 165
+par les épaules américaines et le plastron de la che1
 
 chaque jour renouvelée où se nichaïit un brillant,
-comme une luciole dans une fleur; taille bien moulée 4
+comme une luciole dans une fleur; taille bien moulée
 dans un gilet qui le prenait comme un corset, l'annu- À
 laire de la main, blanche et grassouillette comme celle
-d'un chanoine, portait une bague étincelante dontles M
+d'un chanoine, portait une bague étincelante dontles
 éclats jouaient avec les petits éclairs d'or des boutons
 de manchettes. Ancien élève de l'École (Arts et Métiers),
-il avait fait un an de service militaire avant 89, comme 1
+il avait fait un an de service militaire avant 89, comme
 engagé volontaire. Il se regardait comme ur prêtre
-de l''Honneur de la Patrie Française, et ses yeux ne 4
+de l''Honneur de la Patrie Française, et ses yeux ne
 s'injectaient de sang, son visage ne pâlissait qu'en
 
 , quelque discussion de dreyfusisme, qu'il regardait
-comme le pire mal, le pire fléau de la France. Il traitait l
+comme le pire mal, le pire fléau de la France. Il traitait
 d'ailleurs ses cantonniers en domestiques, ou plutôt en
 « ordonnances ». Il les obligeait à le suivre avec des |
-bagages, des parapluies, quand il allait en voyage, il Ë
+bagages, des parapluies, quand il allait en voyage, il
 exigeait d'eux qu'ils lui parlassent le chapeau à la |
 
 * main (alors qu'il gardait le sien sur la tête), à une
@@ -2325,12 +2325,12 @@ car la salle à manger était fort humble et étroite, — ne
 “Ja manquait pas. Un bon garçon, assurément, ce Gus-
 ….tave, et pas mal, de physionomie-et de tournure : brun,
 . Vair d'un homme de trente-cinq ans, quoiqu'il n'en eût » que vingt-cinq. Il plaisantait la fille, entre ses heures
-- d'absurdes besognes à l'étude, qui emplissaient monohi. 167
+- d'absurdes besognes à l'étude, qui emplissaient monohi.
 
 tonément ses jours. Il lui faisait de doux yeux, lui
 parlait à mi-voix, l'accablait de doux noms : « Ma petite
 chatte », ou « ma grande chérie », et tendrement il « effleurait ses poignets, sa ceinture. Tandis que, de
-l'autre côté de la table, le gamin à grande blouse, le M
+l'autre côté de la table, le gamin à grande blouse, le
 commis quincaillier, à la lèvre pure, aux yeux de fillette
 joueuse, lui criait :
 
@@ -2408,7 +2408,7 @@ grosses larmes sur les joues :
 
 _ choses comme ça !
 
-169 10
+169
 
 Nicole, la serviette sur l'épaule, les mains jointes sur #
 le ventre, avait de gros yeux humides.
@@ -2431,7 +2431,7 @@ faute de clairvoyance. Yves admirait comme partout se à
 trahissait ainsi parmi les hommes jusqu'à l'insouciance
 même du mal qu'ils se faisaient. Il regardait vivre ces
 jeunes gens autour de lui, dont il voulait faire ses compagnons et ses frères mêmes. Ils lui échappaient tout
-naturellement. Autrefois il avait gémi de voir comme Ÿ
+naturellement. Autrefois il avait gémi de voir comme
 les plus hautes questions, les plus vivantes idées qui, |
 selon lui, auraient dû, familièrement exposées, leur
 prendre le cœur, les laissaient indifférents. Ou si, par |
@@ -2439,7 +2439,6 @@ aventure, quelqu'un d'eux s'éprenait un moment, il
 avait tôt fait d'oublier et d'être las. Ici comme ailleurs,
 on lisait d'imbéciles romans, d'immondes journaux.
 Madec avait passé à tant de tables d'étudiants, de
-| 170
 
 _ répétiteurs, que maintenant il se résignait. Il connaissait d'avance l'expérience prochaine. C'était en effet la
 même histoire partout. Durant les premiers repas, aux
@@ -2475,7 +2474,7 @@ Alors il prenait en horreur son destin d'apôtre. Il fayait
 par les champs, dans la campagne libre, claire, joyeuse À
 des transparences des lumières, et des cris d'oiseaux. à
 Pourquoi, puisqu'il en était ainsi, n'avait-il pas le cerveau fait comme les autres? Pourquoi n'était-il pas
-satisfait de la folie vulgaire? Misérable, il s'amuserait Ç
+satisfait de la folie vulgaire? Misérable, il s'amuserait
 de sa misère même, l'oublierait par frivolité. Ou alors |
 pourquoi n'avait-il pas assez d'orgueil, de présomption |
 pour jouir de sa supériorité ? Pourquoi avait-il le cœur
@@ -2515,10 +2514,10 @@ et s'ouvraient autour d'un éventail de lumière et de ciel,
 par où Yves, assis au pied de l'arbre, découvrait les
 menues ondulations du pays. Sur les flancs de ces coteaux en miniatures, des poiriers, des pommiers se dres-
 | saient en leurs robes blanches printanières, tandis que
-173 10.
+173
 
 sur leurs fronts, en rudes silhouettes, des charrues, des À
-paysans passaient dans le ciel bleu. é 1
+paysans passaient dans le ciel bleu.
 Pour se rendre là, Yves longeait souvent la vaste. =
 maison d'école des Frères de la doctrine chrétienne, |
 Saint-Antoine. Souvent il s'arrêtait devant la porte
@@ -2530,7 +2529,7 @@ ses grandes fenêtres recevant à plein l'air et la lumière
 du couchant et du sud. Au plus haut du coteau, à deux
 cents mètres de la vieille église, elle commandait avec à
 elle à tout ce tas de bicoques dégringolantes qu'était la |
-| ville, où s'enfouissaient, malgré l'orgueil des ardoises s
+| ville, où s'enfouissaient, malgré l'orgueil des ardoises
 neuves et des blanches corniches, le palais de justice, |
 la mairie, l'hôtel des postes, et où se cachait honteux, |
 dans sa misère de loque, l'étable du collège universitaire et municipal.
@@ -2542,20 +2541,20 @@ des prêtres aux faces pleines et rouges, aux encolures
 Un coup de cloche, et en quelques secondes tout se
 taisait, tout se rangeait. Trois longues files se formaient
 de grands, moyens, petits ; les prêtres s'étaient groupés,
-et la grande cour s'étalait nette, immense, recueillie, 1
+et la grande cour s'étalait nette, immense, recueillie,
 tandis que le soleil par delà, vers la plaine lointaine,
 ; empourprait les frondaisons nouvelles. Encore quelques
 instants et des sons d'orgue émouvaient le silence des
 
 | vieux tilleuls où pépiaient des oiseaux. Puis des can- “4
-._ tiques, et les voix des enfants vibraient harmonieuses 2
-_ par les vasistas étincelants des vitraux glorieux de la ï
+._ tiques, et les voix des enfants vibraient harmonieuses
+_ par les vasistas étincelants des vitraux glorieux de la
 Yves était surpris du charme mélancolique, doux, ;
-_ presque pieux qui s''épanouissait en lui. Ces hymnes L
+_ presque pieux qui s''épanouissait en lui. Ces hymnes
 religieux qui, de ces jeunes poitrines, s'en allaient mou- |
-… rir dans l'air, essaimaient-ils en leur vol des émotions e
+… rir dans l'air, essaimaient-ils en leur vol des émotions
 mystiques en son cœur ? N'éveillaient-ils point plutôt des
-. sonvenances endormies depuis l'enfance ? Les liens quile 5
+. sonvenances endormies depuis l'enfance ? Les liens quile
 — rattachaient au passé frémissaient en lui. Quelle force ils
 Da avaient, pour qu'ils pussent troubler encore son âme où
 tant de fortes assises d'une foi critique, d'une science
@@ -2647,11 +2646,11 @@ Frères ou des Pères. Les « maigres » des vendredis,
 jamais dispensé? Bien plus, Yves se rappelait lef- À
 froyable caserne de Bourdes, où ses grands élèves se "
 blottissaient autour de lui, le suppliant de leur trouver .
-une besogne, une course à faire, par quoi ils pussent M
+une besogne, une course à faire, par quoi ils pussent
 
 1 échapper au proviseur, au censeur, à Bufflard, qui, nou- \
 veaux pourvoyeurs de Notre Seigneur, voulaient les
-traîner au pied des autels. Les lycées, collèges, — sauf w
+traîner au pied des autels. Les lycées, collèges, — sauf
 exceptions si rares qu'il est permis de croire qu'elles :
 sont des omissions étranges, sont des établissements
 qui relèvent du culte catholique. et s'il est en eux
@@ -2721,7 +2720,7 @@ traîtresse, puisque, pouvant prévenir contre le mensonge et l'erreur, l'enseig
 Pourquoi ne fait-on point tout au moins en classe de
 philosophie, l'histoire humaine du christianisme, lhistoire humaine des textes évangéliques, l'histoire
 humaine des églises, des conciles?... Il ne peut être
-question là de violation de la conscience religieuse, de M
+question là de violation de la conscience religieuse, de
 prendre parti pour ou contre telle ou telle forme de
 religion positive; il ne s'agit que d'exposer, en toute
 impartialité scientifique, l'histoire de ces formes, etees
@@ -2736,7 +2735,7 @@ que lon sait, on les sacrifie d'avance à toutes les
 
 En fait donc l'enseignement secondaire, loin d'être
 
-neutre, restait la chose de l'Église catholique; il était 24
+neutre, restait la chose de l'Église catholique; il était
 - secrètement, profondément, essentiellement à sa merci.
 _ Mais quelle vérité morale, en cette neutralité apparente, brillait au-dessus des sentiments, des pensées, À
 des actions de chaque jour, qui pourrait guider les
@@ -2753,7 +2752,7 @@ en vivaient, car qui n'est point athée et anarchiste, en
 quinze ans ne l'est pas ? Cependant ç'eût été un crime
 _ horrible d'agir au nom d'une telle morale. IL restait
 ré linique vérité qui ne l'est point, qui est force, qui se
-Re croit péremptoire, la vérité policière, la vérité de l'au- S
+Re croit péremptoire, la vérité policière, la vérité de l'au-
 … torité, de l'arbitraire. « Voilà bien l'âme de notre édu-
 Ah! l'Université laïque, démocratique! La maison
 d'éducation d'un peuple libre ! Quelle utopie! Bien plus
@@ -2763,13 +2762,13 @@ d'éducation d'un peuple libre ! Quelle utopie! Bien plus
 d'entreprendre la tâche silencieuse et humble, qui veut
 tant de constance et d'énergie, celle de fonder un enseignement vraiment libre, d'établir un système d'éduca-
 . tion en harmonie avec les exigences de la conscience
-181 11
+181
 
 Yves se plaisait à évoquer la beauté, la joie d'une
 œuvre d'émancipation vraie des intelligences et des
-énergies. D'abord l'abolition de la distinction inique et 4
-traîtresse d'un enseignement primaire et d'un autre se- 4
-condaire ; l'érection de grands édifices, d'ateliers, de M
+énergies. D'abord l'abolition de la distinction inique et
+traîtresse d'un enseignement primaire et d'un autre se-
+condaire ; l'érection de grands édifices, d'ateliers, de
 bibliothèques, de musées, de laboratoires, au milieudes
 champs, des jardins, de la campagne, où l'instruction
 scientifique, sous toutes ses formes manuelles et intel
@@ -2777,13 +2776,13 @@ lectuelles, industrielles, agricoles, artistiques, philosophiques, serait donné
 gratuitement, de dix à vingt ans; l'érection, autour,
 dans l'espace libre, de cent maisonnettes où les maîtres
 babiteraient, chacun d'eux logeant avec les siens, cinq,
-dix élèves, comme cela se fait en Angleterre. - 41
+dix élèves, comme cela se fait en Angleterre.
 Plus d'internat, plus de dortoirs ! Chaque semaine, à
 tous, selon les âges, l'enseignement éthique, sous toutes
 ses formes, des plus concrètes aux plus abstraites;
 depuis celle du culte des grands hommes etdes grandes
-actions, des héros de l'humanité, jusqu'à celles qui dérivent de l'histoire des religions, de la critique exégé- É
-tique, et des métaphysiques. L'éducation par l'exemple, J
+actions, des héros de l'humanité, jusqu'à celles qui dérivent de l'histoire des religions, de la critique exégé-
+tique, et des métaphysiques. L'éducation par l'exemple,
 par le fait, dans tous les actes de la vie ordinaire, quotidienne ; c'est-à-dire la Liberté, à la base de tout, la
 liberté physique, la liberté morale, la liberté intellec- ;
 tuelle; et par là, la sincérité, la franchise, l'audace,
@@ -2798,7 +2797,7 @@ heure de leçon, sur les carrières sociales, par un maître
 ” spécial, instruit des formes les plus communes de
 l'activité humaine, afin qu'aucun écolier ne soit plus
 jamais la victime du Traquenard hideux qu'est la
-_ Société, et qui l'attend à sa sortie des écoles d'aujour- É
+_ Société, et qui l'attend à sa sortie des écoles d'aujour-
 _ Voilà assurément ce que saurait réaliser un peuple
 libre, une démocratie loyale, soucieuse d'élever des
 _ hommes. En dix ans, rêvait Yves, en vingt ans au plus,
@@ -2821,7 +2820,7 @@ Concitoyens !.. Il y a quatre ans par 6810 voix... Mes
 intérêts sont les vôtres, — je serai au milieu de
 
 — Que monsieur Tel veuille bien nous dire cequis'est
-passé dans la soirée du. k
+passé dans la soirée du.
 
 — Il ment! chers concitoyens, c'est une infamie !
 
@@ -2848,7 +2847,7 @@ haine; vous les écraserez de votre mépris; à bas
 … Ja liberté de conscience!
 54 …—. — Le masque est arraché! Voici l'homme qui a voté
 —… pour que vos enfants soient la proie de tous les vices!
-C'est un franc-maçon! Il a arraché Dieu de l'École! I
+C'est un franc-maçon! Il a arraché Dieu de l'École!
 veut arracher Dieu des âmes! Cet ami de la liberté est
 “le fils de la Débauche! La liberté, c'est Dieu! Nous
 — voulons la liberté de l'enseignement indistinctement.
@@ -2861,11 +2860,11 @@ traître! Condamné par cinq ministres de la guerre, con-
 
 dit était vrai. Il insulte, au lieu de discuter! Il me -
 traite de lâche! Ah! Citoyens, j'en appelle à votre “
-clairvoyance! Citoyens, soyez témoins de ces procédés F
+clairvoyance! Citoyens, soyez témoins de ces procédés
 
-Des propositions générales, universelles, conci- 4
-| — Le pays est las de ces écœurantes divisions. L'Étran- « ger regarde par-dessus les frontières. Le pays veut M
-l''apaisement des esprits, l'union de tous dans un élan 4
+Des propositions générales, universelles, conci-
+| — Le pays est las de ces écœurantes divisions. L'Étran- « ger regarde par-dessus les frontières. Le pays veut
+l''apaisement des esprits, l'union de tous dans un élan
 commun de fraternité, de patriotisme et de respect pour :
 l'armée qui le personnifie et le symbolise glorieusement! Ce que la majorité des électeurs désire, c'est le
 règne de la paix intérieure, de la concorde entre les
@@ -2877,7 +2876,7 @@ actifs et dévoués à la cause du peuple, des Républicains en conformité d'op
 c'est-à-dire des hommes sérieux et sensés, non des
 — Citoyens, à bas la calotte! — A bas toutes les
 5 — Mes amis, lé Sabre et le Goupillon s'unissent et
-s'embrassent pour engendrer, pour enfanter … î
+s'embrassent pour engendrer, pour enfanter …
 — Défi! Manœuvres de Ja dernière heure... Scélé
 Yves s'amusait à noter les nuances des opinions, et
 se perdait à les discerner dans l'étrange mixture qu'en
@@ -2915,7 +2914,7 @@ M lui, étranger, pendant quelques heures d'une année,
 F4 ntre toutes les séductions de la voix chaude du père
 
 et de l'oncle, et de leurs vieux amis, mêlés depuis l'en- :
-fance à de telles obscures et éternelles questions, à quoi Æ
+fance à de telles obscures et éternelles questions, à quoi
 ils attachaient tant de prix? Que pouvait-il, lui, humble …
 professeur de collège, à qui on fermait la bouche,
 à contre ces noms de ministres, de députés, qui étaient 1 |
@@ -2923,7 +2922,7 @@ ses maîtres, et qui pouvaient le briser comme verre? 4 :
 Quelle importance ses élèves pouvaient-ils attribuer à +
 ses arguments ternes et tranquilles, en face de l'importance affichée, bruyante, brillante, acclamée, des discours 1 |
 de tant de gens qui occupaient, ou tendaient à occuper, .
-les plus hautes charges de l'État? 5
+les plus hautes charges de l'État?
 Il se promena au château, le dimanche des élections, -
 avec Périer, qui lui avait avoué, un peu honteux, qu'il
 avait « fait son devoir d'électeur ».
@@ -2936,11 +2935,11 @@ Je sais bien qu'il ne passera pas... C'est un guesdiste...
 Mais pour qui voulez-vous voter? C'est une bande de
 rastas, tout ça! Quel pays de moules, nom de Dieu. %
 Le bon Périer, les mains dans les poches, en costume
-de dimanche, si joli garçon avec son col blanc, sa cra- 4
+de dimanche, si joli garçon avec son col blanc, sa cra-
 vate noire mal nouée, son chapeau de feutre mou, …
 comme un monsieur, se laissait aller, lui aussi, à son
-sentiment profond de dégoût. 4
-— Mais, reprenait Yves, et ce Miraire, guesdiste, es M
+sentiment profond de dégoût.
+— Mais, reprenait Yves, et ce Miraire, guesdiste, es
 ce que vous le connaissez, vous ? à
 — Non! Mais c'est pour le principe! Il faut voter !
 pour le principe | : €
@@ -2952,7 +2951,7 @@ entre les pattes d'un gredin! Vous ne connaissez pas ce :
 Miraire ! il suffit qu'il s'intitule socialiste, et ça y est!
 vous allez en faire un des cinq cents tyrans dont nous
 —Y a pas de danger, allez ! s'écria Périer en riant;
-je vous dis qu'il ne passera pas! ë
+je vous dis qu'il ne passera pas!
 — Allez donc! c'est pas votre faute, toujours ! C'est la
 * même histoire qu'avec la soutane ! L'étiquette « socia-
 … liste » c'est la soutane d'aujourd'hui. Il suffit qu'on sela
@@ -2994,7 +2993,7 @@ dans la cervelle de vos filles, ou le mettra dehors selon
 ce qui lui plaît, et selon les hasards de la lutte parlementaire. Il vous écrasera d'impôts à propos de bottes,
 de toutes les bottes. Il décrétera pour vous ce qui est
 bien, ce qui est mal. Il ouvrira des prisons pour vous;
-| il jugera pour vous de l'innocence et de la culpabilité; k
+| il jugera pour vous de l'innocence et de la culpabilité;
 et vous devrez croire à sa parole comme à l'Évangile, |
 et vous ne devrez pas le regarder de travers, ni dire
 ë trop haut ce que vous pensez de trop mal de li! Vous
@@ -3045,9 +3044,9 @@ de lui casser la tête avec pour chasser les mouches! —
 
 Et avec tout ça, croyez-vous que l'individu puisse dormir en paix, qu'il s'est réellement déchargé du souci de …
 soi? Allons donc! Rien n'y peut rien! ni dieux, ni dé-
-putés ! L'individu reste à sa charge ! Ilne peut pas juger, Ë 3
-il ne peut pas ne pas agir tout de même, et il faut bien, L
-: en définitive, que ce soit lui qui juge les dieux et les 4
+putés ! L'individu reste à sa charge ! Ilne peut pas juger,
+il ne peut pas ne pas agir tout de même, et il faut bien,
+: en définitive, que ce soit lui qui juge les dieux et les
 députés, qui escalade le ciel et envahisse les Chambres,
 qui détrône les uns et renverse les autres! Il a eu beau.
 faire pour n'avoir rien à faire, c'est encore lui, toujours
@@ -3101,15 +3100,15 @@ NE nable droit d'être libres, d'agir en hommes! C'est fan_ _ tastique! C'en est
 % — Tout le monde, reprit Yves! Mais qu'est-ce que
 
 tout le monde? à chaque instant on entend parler de . ;
-tout le monde ou « des autres! »; quand on parle de 4
+tout le monde ou « des autres! »; quand on parle de
 désarmement, c'est toujours aux autres, à commencer ; #4
-et il faut toujours que Tout le monde s'entende! Mais Fr 21
+et il faut toujours que Tout le monde s'entende! Mais Fr
 Tout le monde n'est que l'ensemble des gens comme $
 vous et moi. Tout le monde n'est rien, hors des gens LA
 comme vous et moi. Et si « vous et moi » commençaient, À
-« Tout le monde » aurait déjà commencé !.. Pour moi, ï
-je m'en fiche. Advienne que pourra ! Je veux agir comme - 1
-si Tout le monde s'entendait, comme si Tout le monde h
+« Tout le monde » aurait déjà commencé !.. Pour moi,
+je m'en fiche. Advienne que pourra ! Je veux agir comme
+si Tout le monde s'entendait, comme si Tout le monde
 était moins lâche et moins sale ; et en maintes matières .
 j'ai déjà commencé. Je me soucie du Tout le monde qui
 est lâche et sale, comme de ma première culotte. A ce
@@ -3126,7 +3125,7 @@ Je ne lui ai pas dit non plus que j'avais causé d'elle
 …_ — Ahlet alors?
 
 —_ . Madec s'assit dans le petit salon où il était venu quel- :
-—_._ ques mois auparavant, à la même place, sur le canapé, E
+—_._ ques mois auparavant, à la même place, sur le canapé,
 … prèsde la cheminée. :
 —._ Ilsouriait d'un air d'indifférence qui n'était pas abso-
 
@@ -3150,22 +3149,22 @@ _ sance dans la solitude à vivre la vie dans toute sa
 
 plénitude et dans toute sa beauté.
 
-4 195
+4
 
 — Alors, continua madame Binelle, c'est ce queje
 vous avais fait pressentir : On a... un peu... beaucoup
-peur de vous. é
+peur de vous.
 s — Vraiment? Je n'en suis pas trop étonné. Mais avezvous éprouvé que l'on souhaitait une autre vie que
-celle qu'on voit vivre autour de soi? ï
+celle qu'on voit vivre autour de soi?
 — Monsieur Madec, je vous l'ai dit! C'est une jeune
 ï fille très sérieuse, une bonne petite ménagère, et qui a |
 ses idées à elle : elle n'aime pas le monde... — mais
 enfin. je crois qu'elle tient à certaines choses... Savezvous la réflexion qu'elle a faite, et qui pour moi
-résume bien la situation? Voici exactement ses pa- È
+résume bien la situation? Voici exactement ses pa-
 roles : « C'est encore un franc-maçon celui-là! Pour | » rien au monde je ne veux d'un franc-maçon ! » |
 Madec éclata de rire :
 — Bien mauvais signe, madame, cette haine préconçue
-de la franc-maçonnerie! Il faut être bien « catholique » È
+de la franc-maçonnerie! Il faut être bien « catholique »
 pour en parler ainsi.
 6 — Vous vous trompez, monsieur Madec! Je vous ai :
 dit qu'elle avait des idées très larges sur ce chapitre-là.
@@ -3205,24 +3204,24 @@ _ pas mordu... Je n'engage pas votre protégée à
 ‘à — C'est vraiment dommage, monsieur Madec! Un
 bon garçon comme vous, et si sérieux, avoir des idées...
 
-comme ça! Eh bien, que voulez-vous? Je ne vois pas s
+comme ça! Eh bien, que voulez-vous? Je ne vois pas
 = où vous pourriez la rencontrer. Je peux vous inviter
 à prendre le thé un soir ici, quand elle y sera? |
 — Madame, ce serait bien avancer les choses. Et >
-puis, quoi? Comment pourrions-nous causer? D'avance 4
+puis, quoi? Comment pourrions-nous causer? D'avance
 cette jeune fille ne me déplait pas. Mais elle ne me FI
 plaira qu'une fois que j'aurai causé de ces choses très à
-graves avec elle, qu'une fois qu'elle m'aura donné raison 4
+graves avec elle, qu'une fois qu'elle m'aura donné raison
 ou démontré que j'ai tort. Si nous nous voyons chez
 vous, c'est une présentation qui n'a pas de sens, à moins
 d'avoir celui qui est le plus dangereux au cas où nous
 ne nous entendrions pas. Il faut être prudent. — Je vais, |
-à mon tour, résumer la situation et nous prendrons un 4
+à mon tour, résumer la situation et nous prendrons un
 parti. Voici les faits : d'une part vous souhaiteriez, en
 __ votre âme généreuse, que cette jeune fille et moi nous
-nous connaissions, parce que, à des titres et à des 1
+nous connaissions, parce que, à des titres et à des
 degrés divers, vous vous intéressez à nous deux, et que
-nous vous semblons faits l'un pour l'autre. D'autre part, k
+nous vous semblons faits l'un pour l'autre. D'autre part,
 cette jeune fille et moi, chacun de notre côté, nous nous
 ignorons à peu près complètement. Elle ne veut pas |
 rester fille; je ne suis pas décidé à restergarçon. Vaguement ce qu'elle sait de moi ne lui déplaïit pas. Vague- à
@@ -3266,7 +3265,7 @@ cas je n'aurais pas de vraie compagne, — nous ne
 S. serions pas un, par la volonté. J'entends le mariage
 
 comme la Bible : une fusion des âmes... Cependant ;
-j'entends bien que l'époux et l'épouse sont deux personnes égales et libres. Ne sont époux que deux êtres ï
+j'entends bien que l'époux et l'épouse sont deux personnes égales et libres. Ne sont époux que deux êtres
 libres et égaux. Pas de soumission de l'un à l'autre. ;
 Leurs volontés doivent se rencontrer unies, vers le RE
 même but! A
@@ -3279,15 +3278,15 @@ heure en tête à tête avec elle. Je suis convaincue que
 à l'autre... La présence matérielle est aussi quelque
 _ Madec eut un léger haut-le-cœur, en entendant ces :
 mots qu'accompagnait un petit rire sensuel. Il
-regarda la grosse madame Binelle appuyée au cham- . 4
-branle de la porte : ses yeux brillaient. Il la salua très 4
-bas et partit. ë
+regarda la grosse madame Binelle appuyée au cham-
+branle de la porte : ses yeux brillaient. Il la salua très
+bas et partit.
 Il s''épancha dans sa solitude accoutumée. Les lilas #
-étaient défleuris déjà. Il se promenait parmi les allées E
+étaient défleuris déjà. Il se promenait parmi les allées
 des vieux tilleuls dont les clochettes d'or carillonnaient à
 leurs parfums sucrés. Il considérait la plaine faiblement
-ondulée, aux lignes Simplistes et monotones, teintée s
-maintenant de verts, de roses, de jaunes clairs. 4
+ondulée, aux lignes Simplistes et monotones, teintée
+maintenant de verts, de roses, de jaunes clairs.
 Il éprouvait une sorte de fièvre. Cet obstiné malentendu, qui séparaït à jamais l'homme de la femme dans
 cetie société travaillée de tant de ferments religieux ou
 politiques, avait failli déjà lui coûter la vie. Il avait ;
@@ -3328,27 +3327,27 @@ k un duvet de pissenlit! À d'autres ! — Madec haussa les
 * épaules et descendit vers la ville. ;
 
 Madec allait, au coup de cloche, entrer en classe, +
-< quand il sentit à l'épaule une tape amicale. Il se 4
+< quand il sentit à l'épaule une tape amicale. Il se
 retourna. C'était Pillard, martial et pressé comme toujours : ;
-— Mon cher, j'ai deux mots à vous dire ? 4
+— Mon cher, j'ai deux mots à vous dire ?
 Madec laissa là ses élèves, et le suivit un instant dans ]
 la cour, vers l'ombre du grand tilleul. |
 — Il y a déjà quelque temps que je voulais vous le
 dire. mais je n'ai pas trouvé occasion. Voilà : ne
-comptez pas sur moi pour une U. P.!... i
-— Ah! pourquoi ça ? s'écria Yves, comme blessé. 4
+comptez pas sur moi pour une U. P.!...
+— Ah! pourquoi ça ? s'écria Yves, comme blessé.
 — Mon cher, ‘je n'ai guère le temps de vous expliquer... ;
 mais, écoutez. Je crois que vous êtes de bonne foi... *
 Cependant prenez garde... Je causais dernièrement de. à
 ce mouvement des U, P., avec deux personnes très à
 graves, très instruites, et en qui j'ai la plus grande con- &
-fiance, et. elles m'ont affirmé que, fatalement, les 4
+fiance, et. elles m'ont affirmé que, fatalement, les
 U. P. versent à la politique, et deviennent des instru- ;
 6 ments de jacobinisme !... à
-Pillard, sa serviette sous le bras gauche, la canne z
-tournoyante à la main droite, filait déjà, sur°le gravier i
+Pillard, sa serviette sous le bras gauche, la canne
+tournoyante à la main droite, filait déjà, sur°le gravier
 de la cour, d'un pas de plus en plus accéléré, jetant les À
-mots en désordre. Yves, stupéfait, l'avait suivi d'abord, ë
+mots en désordre. Yves, stupéfait, l'avait suivi d'abord,
 
 -et peu à peu ralentissait son pas. Pris d'un ressentiment
 soudain, il s'arrêta net, et cria derrière le collègue : |
@@ -3393,20 +3392,20 @@ bourgeois de la ville, ils formaient une assiette roulante.
 Mais Charbonnard, l'ivrogne, manquaitrarement. C'était …
 
 à chaque réunion l'occasion pour lui d'une soirée libre à
-et d'une grande soûlerie. È
+et d'une grande soûlerie.
 ie D''habitude la séance s'ouvrait à neufheures, ets'ache
-vait un peu après dix heures. Têtu y recueillait le mon- 1
+vait un peu après dix heures. Têtu y recueillait le mon-
 tant des cotisations, des noms de nouveaux adhérents, ‘
 : et donnait lecture de quelques circulaires émanées du ;
 Comité central. Après quoi Madec apportait le plus
-souvent un sujet de discussion, ou quelques pages, qu'il l
+souvent un sujet de discussion, ou quelques pages, qu'il
 lisait à haute voix. Il lut ainsi Crainquebille, un chapitre
 de Travail, des articles de Kropotkine. Évidemment,
-comme l'avait prédit Boulon, Madec tendait à transformer la Section en U. P. Cela déplaisait à plusieurs. É
+comme l'avait prédit Boulon, Madec tendait à transformer la Section en U. P. Cela déplaisait à plusieurs.
 
-Ce soir-là donc, Têtu ouvrit la séance en enregistrant 4
+Ce soir-là donc, Têtu ouvrit la séance en enregistrant
 la défaite dans le département, du parti avancé, et la ‘
-victoire des « caudataires de Théodore ». — « C'est une L
+victoire des « caudataires de Théodore ». — « C'est une
 veste pour nous », acheva:t-il. Et s'adressant à Madec :
 
 — C'est une veste surtout pour vous; pour l'U. P. ?
@@ -3421,7 +3420,7 @@ que jamais, qu'il est grand temps qu'une cause dans le
 genre de celle que nous préconisons soit fondée ici, et
 partout dans le pays. Si le populaire était moins gogo,
 plus exercé à la critique des idées, il ne se laisserait
-pas escamoter entre les pattes de la bande de charlatans. Et quant à l'argent, je défends bien qu'on pense 1
+pas escamoter entre les pattes de la bande de charlatans. Et quant à l'argent, je défends bien qu'on pense
 
 qu'il faille recourir aux municipalités. Ce serait nous
 _ vendre! Quelles que soient les couleurs affichées par
@@ -3441,7 +3440,7 @@ Se Cqu'il y a d'gens qui n'viendront plus à la Ligue... vous
 __ allez voir ça!
 
 _ _  Madec aurait répliqué, mais Arverne entra avec
-… Piriou. Les cinq ou six ligueurs qui étaient là se ù
+… Piriou. Les cinq ou six ligueurs qui étaient là se
 ._ levèrent pour serrer la main aux nouveaux venus.
  Piriou paraissait à la section pour la première fois.
 - C'était un grand et fort gaillard, très rouge, d'aspect
@@ -3459,11 +3458,11 @@ ki — Vous savez tous qu'on m'a expédié à Châteauneuf
 pour faire de la place à Montion, pas! J'avais pas
 demandé Châteauneuf. J'étais bien à Villetaupier. Ma
 femme, comme vous savez aussi, est blanchisseuse +
-ici. J'ai mes gosses à l'école communale. On n'avait J
+ici. J'ai mes gosses à l'école communale. On n'avait
 rien à m'dire! Bon. Mais on m'envoie à Châteauneuf. à |
 J'réclame ! J'demande poliment une explication. On À
 m'répond tout de suite de r'joindre mon poste. J'vas à +
-Châteauneuf, j'laisse ma femme ici; les gosses, l'ménage, ë
+Châteauneuf, j'laisse ma femme ici; les gosses, l'ménage,
 - tout, quoi! J' r'demande des explications. C'te fois-ci,
 dame, j'ai demandé un peu moins poliment, p't être ! On :
 m'répond au bout d'quèque temps en m'envoyant dla
@@ -3472,7 +3471,7 @@ de déplacement », pour ma famille et pour moi. J'eommence à la trouver raide.
 au nez. Comme jme foutais de leur galette, puisque
 j'n'acceptais pas le déplacement, et que je n'tenais qu'à
 une chose, qu'on m'donne l'explication du déplacement,
-! j'leur refuse leur galette. J'la renvoie avec un'nouvelle d
+! j'leur refuse leur galette. J'la renvoie avec un'nouvelle
 d'mande d'explication. Et comme c'thistoire commen- |
 çait à m'dégoûter, qu'on m'traite comme quéqu'un qu'a
 mérité un blâme, ou qui n'a pas fait son service comme |
@@ -3545,30 +3544,30 @@ f'rait caler les gros bonnets plus vite que ça! Et je n'dis =
 pas qui faille pour ça tant d'histoire qu'on en fait. Ny
 
 ; a qu'une seule chose à faire, c'est à être propre, à vou- fa
-loir être propre, et à obliger ces messieurs à respecter e
+loir être propre, et à obliger ces messieurs à respecter
 vol propreté. — J'faisais mon service à hauteur, ja- @
-mais j demandais de permission, jamais j'demandais 4
+mais j demandais de permission, jamais j'demandais
 d'augmentation. J'demandais rien. Pourquoi qui sont LA
 
 _ venus m'embêter? S'figuraient comme ça qui z'avaient Là
 à faire à une moule comme il en pullule. Y s'sont dit : |
 v'là un zigue qui dira rien. Ils n'disent jamais rien. On
 va l'halläder ailleurs, bronchera pas! — Dame! Ils ont
-déjà fait ça cent mille fois, et ç'a toujours pris! — Ouais, 1
-mais y a un' fois qu'ça prend pus ! Eh bien supposez qui 1
+déjà fait ça cent mille fois, et ç'a toujours pris! — Ouais,
+mais y a un' fois qu'ça prend pus ! Eh bien supposez qui
 z'aient toujours à faire à des types qui s'laissent pas
 faire, à des types propres, en un mot, car y a d'types
 propres que ceux qui s'laissent pas faire. C'est ça qui |
 changeraïit les choses ! Je l'ai dit à Périer, dont ils se |
 paient la tête. Je lui ai dit: mon vieux, fiche-leur donc :
 ta démission au nez. Ton invention ils t'la chiperont, #
-va ! ils tl'ont déjà chipée. Si t'as seulement vingt sous F
-d'augmentation par mois, c'est tout c'que t'en auras. Et È
-‘ c'est pas ça qu'nous voulons ! C'est pas d'l'argent! C'est 3
+va ! ils tl'ont déjà chipée. Si t'as seulement vingt sous
+d'augmentation par mois, c'est tout c'que t'en auras. Et
+‘ c'est pas ça qu'nous voulons ! C'est pas d'l'argent! C'est
 qu'on nous traite en hommes et en citoyens ! Mais pour EL.
-ça faut qu'on s'conduise soi-même en homme! Faut pas 4
-avoir peur d'crever de faim. Faut s'foute de tout, et sa- 3
-voir cracher son mépris à leur gueule. J'vous l'dis, E.
+ça faut qu'on s'conduise soi-même en homme! Faut pas
+avoir peur d'crever de faim. Faut s'foute de tout, et sa-
+voir cracher son mépris à leur gueule. J'vous l'dis,
 j'aime mieux crever de faim, et qu'ma femme et mes &
 gosses crèvent de faim, mais on n'fra pas d'moiun pied *
 plat, ou un' païllasse sur qui tout l'monde danse! :
@@ -3616,7 +3615,7 @@ Puis le sens de l'ironie prévalant tout à coup de not
 veau, il poursuivit : #8
 
 — Seulement chez Piriou, c'est qu'il se figure, lui à |
-aussi, que ça peut servir à quelque chose, son affaire ! $ ù
+aussi, que ça peut servir à quelque chose, son affaire ! $
 Ce que le monde s'en fout de vos idées ! Si vous croyez ;
 que ça peut empêcher de pareilles histoires de recom-" <
 mencer demain! — Piriou est un, deux, cent, si vous
@@ -3625,17 +3624,17 @@ c'est ce qu'il faudrait pour changer quelque chose —les « hommes comme lui se
 comme moi, pires que moi, seront toujours l'immense,
 l'innombrable, l'invincible majorité. Que voulez-vous y « faire ?
 
-Eh! mon cher, les hommes seront toujours les M
+Eh! mon cher, les hommes seront toujours les
 
 Il achevait toujours son sarcasme sur un ton d'amer- :
-tume telle qu'il était évident pour Yves qu'il en souffrait M
+tume telle qu'il était évident pour Yves qu'il en souffrait
 tout le premier. Ah! cette éternelle ritournelle, cette :
-impitoyable clameur de désespoir que lui chantait 4
+impitoyable clameur de désespoir que lui chantait
 
-æ Arverne, comme il la connaissait ! Il en avait été irrité 1
-d'abord, lui pour qui tout le prix de la vie était l'effort 3
+æ Arverne, comme il la connaissait ! Il en avait été irrité
+d'abord, lui pour qui tout le prix de la vie était l'effort
 vers une humanité meilleure. N'était-ce pas le pire des
-supplices, d'avoir, collé à ses flancs, ce railleur féroce, 2
+supplices, d'avoir, collé à ses flancs, ce railleur féroce,
 qui soulignait d'un geste amusé toutes les hontes et <
 toutes les tares humaines. Il avait quitté l'Hôtel des
 Blés en partie pour échapper à Arverne quelques instants par jour. Peu à peu cependant il avait senti le À
@@ -3658,7 +3657,7 @@ quelque popularité pour leur nom, et j'accorde que, à
 ce point de vue, ils sont de taille À s'être contentés de leur
 popularité déjà acquise dans le monde de la philosophie et de la-science… Seulement, remarquez-le, ce sont
 pour eux jeux de princes. Que risquent-ils ? Nul n'oserait
-toucher à eux ; et si on leur supprimait leur prébende, ils i
+toucher à eux ; et si on leur supprimait leur prébende, ils
 
 2 auraient, je crois, assez de fortune personnelle pour s'en :
 ‘ moquer. C'est autre chose quand il s'agit de pauvres |
@@ -3668,7 +3667,7 @@ M vous crois pas ambitieux, mais je vous trouve un peu
 
 | naïfs. Vous savez que je dis toujours à vous tout ce que
 
-4 Et, sautant tout de suite à d'autres idées, comme il |
+Et, sautant tout de suite à d'autres idées, comme il |
 f lui arrivait fréquemment :
 
 1 — dJ'estime beaucoup votre caractère, et, si je me
@@ -3682,34 +3681,32 @@ croyais, moi aussi, le devoir de choisir et de suivre un
 
 moins absolu, moins exigeant. Je n'aurais pas votre
 
-| 211
-
 passion de la croix, en un mot. Vous êtes un religieux, : $
 mon cher, un apôtre, vous avez un Dieu, malgré tout, $ À
-et vous voulez mourir pour lui! 3 5
+et vous voulez mourir pour lui!
 
 Arverne ricanait dans la nuit tranquille des ruelles
 sonores. Madec fut humilié aux larmes. Il eut honte et # \
 
-- . horreur de lui. Comme ici se fourvoyait la coutumière 4
+- . horreur de lui. Comme ici se fourvoyait la coutumière
 clairvoyance d'Arverne! Lui un martyr! Or c'était l'in
 cessant reproche qu'il se faisait, d'être lâche, d'être en x :
-tout comme le vulgaire, de dire et de ne point faire ! 2:
+tout comme le vulgaire, de dire et de ne point faire !
 Serait-il jamais capable d'un acte comme celui de :
 
 Il se confessa à Arverne. Il lui étala sa misère inté-
-rieure, sa faiblesse d'âme : 4
-| — Est-ce que moi, qui suis conscient de tous les men- 4
-songes au milieu desquels nous vivons, au collège, dans L
-l'Université, est-ce que je devrais souffrir d'y rester ? S
+rieure, sa faiblesse d'âme
+| — Est-ce que moi, qui suis conscient de tous les men-
+songes au milieu desquels nous vivons, au collège, dans
+l'Université, est-ce que je devrais souffrir d'y rester ?
 
 - Est-ce que je ne devrais pas les crier sur les toits ? Non,
-je reste, je me tais, et je ne sais pas si ce n'est pasplum M
+je reste, je me tais, et je ne sais pas si ce n'est pasplum
 tôt par peur qu'on me chasse, d'être jeté à la rue, que
-par illusion que j'y combats quand même pour un peu b
-plus de vérité ! L
+par illusion que j'y combats quand même pour un peu
+plus de vérité !
 
-Les deux amis sortaient de la ville, prolongeaient leur k
+Les deux amis sortaient de la ville, prolongeaient leur
 promenade autour des boulevards sombres, sans réver- #
 bères, avec, au-dessus de leurs têtes, les crinières noires à
 des marronniers, où scintillaient les étoiles. $
@@ -3718,10 +3715,10 @@ Arverne sentait une émotion fraternelle le gagner, à
 devant l'angoisse que lui criait Madec. Il cessa ses sar- :
 casmes, et sa voix s'adoucit : <
 
-© — Non, mon cher ami, ce n'est pas une illusion. Vous 4
+© — Non, mon cher ami, ce n'est pas une illusion. Vous
 voyez comme j'avais raison : Vous vous poussez au ;
-martyre; vous vous excitez à la folie de la croix. Vous î
-voyez trop de crimes. Vous voulez trop de vertus. L'Uni- 4
+martyre; vous vous excitez à la folie de la croix. Vous
+voyez trop de crimes. Vous voulez trop de vertus. L'Uni-
 
 versité a besoin de gens comme vous, pourvu qu'ils ne
 fassent point d'eux-mêmes des martyrs. Le temps
@@ -3772,7 +3769,7 @@ Ils causèrent encore, longuement, Yves écoutait sur-
 
 1 lui était venu, tout à coup, qu'il n'était plus aussi seul.
 
-1 Il ne voulait pas discuter, pour ce soir-là. |
+Il ne voulait pas discuter, pour ce soir-là. |
 
 Less rs de
 
@@ -3792,10 +3789,10 @@ donc leurs groupes sans plus répondre à leurs enfantines
 | interpellations. Il entrait en classe en sabreur. A l'anglais il trouvait encore sa vie supportable : quelques-
 | uns commençaient à bavarder pas trop maladroitement,
 
-et puis ses classes d'anglais étaient à peine des « classes ». 3
+et puis ses classes d'anglais étaient à peine des « classes ».
 On y contait des histoires; on y jouait à maints jeux de
 société; on y représentait de courtes scènes comiques,
-le tout dans la langue étrangère, naturellement. Mais 4
+le tout dans la langue étrangère, naturellement. Mais
 ces classes demandaient un constant effort d'invention, Fe
 ; en même temps qu'une plus grande dépense d'activité LA
 nerveuse qui faisaient tôt éprouver à Yves de grandes
@@ -3804,24 +3801,24 @@ pouvait appliquer la même méthode, puisqu'il ne pou- (
 vait parler allemand, elles lui étaient devenues de bonne
 heure de lourdes charges. Il les traînait selon la mé- :
 thode vulgaire : les leçons pendant un quart d'heure,
-des zéros, des 1, des 2; des heures de retenue, des 4
+des zéros, des 1, des 2; des heures de retenue, des
 élèves mis à la porte; des colères; des coups de poing |
 sur la table, de grands silences où, terrorisée, la classe
 ne bougeait plus. Et ils ânonnaïent platemeni l'un après
-l'autre les stupides sentences : « Le jardin — der Garten: h:
+l'autre les stupides sentences : « Le jardin — der Garten:
 de mon oncle — meines Onkels ». Et cela aurait une dé
-heure, puis une autre heure... Les mêmes petites inep- 4
+heure, puis une autre heure... Les mêmes petites inep-
 ties revenaient éternellement, et éternellement les |
 mêmes voix se buttaient aux mêmes fautes : « Vous
 rejet, s'il vous plait! » C'était tellement la même
 chose qu'il entendait et répondait, et parlait presque |
 sans conscience, la tête appesantie d'un invincible som- .
 meil, d'un écœurement de vivre. Le lendemain il fallait
-recommencer, et puis les autres jours. Car même à U
-l'anglais, la variété n'était qu'apparente, la vie fausse, L
+recommencer, et puis les autres jours. Car même à
+l'anglais, la variété n'était qu'apparente, la vie fausse,
 artificielle, imaginaire, péniblement imaginaire, où le %
 monde entier doit s'évoquer entre quatre murailles. !
-Alors il se voyait jour par jour un peu plus asservi à la « routine, dans l'absurde impossibilité de remuer en cette k
+Alors il se voyait jour par jour un peu plus asservi à la « routine, dans l'absurde impossibilité de remuer en cette
 
 L | gangue rigide, dont le système entier l'enveloppait, le
 à serait de plus en plns.
@@ -3865,7 +3862,7 @@ qui jamais ne manque d'accomplir ce qui a une fois
 Quant aux bons, il les laisserait agir absolument à
 leur guise, leur passant même toutes sortes de manquements. Ils pourraient aller et venir, causer en classe,
 “omettre un devoir, une leçon, sans qu'il en tint
-Puis il songeait : rêve, que tout cela! En fait, il y 4
+Puis il songeait : rêve, que tout cela! En fait, il y
 rarement un seul élève bon, un seul nul, tout est mé-
 diocre.. Agir comme j'imagine, sans intervention de
 l'administration, c'est volontairement aller contre elle,
@@ -3914,23 +3911,23 @@ tandis que, avec quelque bruyance d'étonnement, ses
 
 Le grand personnage était en civil; très correct,
 redingote, chapeau de soie, col droit, Yves le recon-. |
-naissait à peine, maintenant qu'il était sans argenture, Ë
+naissait à peine, maintenant qu'il était sans argenture,
 
 — Faites-les asseoir, je vous prie, monsieur ! demanda :
 le sous-préfet à Yves. À
 
-Yves s'avança vers sa chaise, et d'un signe de la F:
+Yves s'avança vers sa chaise, et d'un signe de la
 main fit asseoir les élèves.
 
 Il était devant le sous-préfet, qui « sentait bon »,
 comme s'il venait de chez le coiffeur. Près de lui, le :
 principal tanguait comme une tonne vide dans l'eau. Il à
-se haussait sur ses pieds, le brave homme, comme sous 1
+se haussait sur ses pieds, le brave homme, comme sous
 la poussée soulevante de son éloquence, car, d'un air |
-jeunet et rieur, il parlait, scandant ses mots avec 1
+jeunet et rieur, il parlait, scandant ses mots avec
 
 — Ils apprennent ici la langue, vous entendez bien,
-la langue des ennemis! Et les Prussiens, monsieur 1
+la langue des ennemis! Et les Prussiens, monsieur
 le Préfet, n'ont qu'à bien se tenir, vous entendez
 
 — Vous êtes content d'eux? interrogea monsieur le
@@ -4079,7 +4076,7 @@ _ tant la morue, trois en goûtant le vin. Il interroge des
 … La morue. L'inspecteur leur demande si on changeait les à
 … assiettes Cette question les ahurit; jamais ils n'au4 _raient pensé que ça pouvait se faire ! Pendant ce temps,
 ._ Poupoule avait une tête que j'imagine avec délices.
-11 Chaque fois qu'il voulait dire un mot, il paraït que l'in-
+Chaque fois qu'il voulait dire un mot, il paraït que l'in-
 … specteur le faisait taire doucement. Un énorme silence
 h régnait dans le réfectoire, et on l'aurait dit vide. Enfin
 … l'inspecteur a demandé à haute voix aux élèves de dési-
@@ -4093,24 +4090,24 @@ les trois potaches, on vit se précipiter la mère Poupoule. te
 « ce sont des meneurs! de grossiers individus! Il faut A
 « choisir entre eux et nous ! » Le
 « L'inspecteur ne cessait pas de sourire : fe
-« — Madame, madame, calmez-vous, je vous en prie; 4? é
+« — Madame, madame, calmez-vous, je vous en prie;
 « nous n'avons pas affaire à vous! » +
-« Et Poupoule fut obligé de prendre la grosse mère 4h:
-Poupoule sous les aisselles, et de la pousser dehors en L 1
-« — Allons, va donc, petite, va donc... » 7
-« Naturellement, c'est un potache qui m'a raconté 4
+« Et Poupoule fut obligé de prendre la grosse mère
+Poupoule sous les aisselles, et de la pousser dehors en
+« — Allons, va donc, petite, va donc... »
+« Naturellement, c'est un potache qui m'a raconté
 toute l'histoire, mais je le connais assez pour savoir à
-, qu'il n'a rien inventé. Il paraît que, sur l'initiative d'un F
-d'eux, tous les grands avaient, il y a quelques jours, ÿ
+, qu'il n'a rien inventé. Il paraît que, sur l'initiative d'un
+d'eux, tous les grands avaient, il y a quelques jours,
 signé une pétition, pour prier M. l'inspecteur de venirà
 l'improviste au collège, goûter ce qu'on leur servait au - À
 réfectoire, au repas et au jour qu'il choisirait. Chose %
-extraordinaire, rien n'avait transpiré! Ils avaient eu 4
-soin de ne rien dire aux petits. Je te laisse à juger, mon 6
+extraordinaire, rien n'avait transpiré! Ils avaient eu
+soin de ne rien dire aux petits. Je te laisse à juger, mon
 cher Madec, de ce que des histoires pareilles ont de “
 hautement éducatif! Vois-tu ce principal, mis en accu- ‘4
-sation par ses élèves, pris en flagrant délit d'escamo- k
-tage, et du reste, par eux? Quelle autorité morale 4
+sation par ses élèves, pris en flagrant délit d'escamo-
+tage, et du reste, par eux? Quelle autorité morale
 penses-tu qu'il puisse avoir sur son armée de bi- *
 
 Nouvelles et dernières scènes d'intérieur
@@ -4135,15 +4132,15 @@ j était las, surtout aux jours de classes. Il lui semblait
 — de faire pénétrer quelque chose dans des têtes d'en-
 —_  fants! »murmurait-il. Ilrentrait de classela poitrinemeur-
 : … trie d'avoir parlé, le cerveau douloureux, le cœur plein
-de lassitude. « On a tout contre soi! La bêtise de l'ad1 229
+de lassitude. « On a tout contre soi! La bêtise de l'ad1
 
 ministration, dont la responsabilité est toujours plus sl
 haut, on ne sait où. La veulerie des parents, qui se $
 fichent pas mal de leurs rejetons. L'inertie des élèves...
 Quand je suis pris de colère pour une leçon non sue,un (
 devoir mal fait, je m'arrête devant l'élève, je sens que
-c'est pitié. Quoi faire ? Qu'est-ce qu'une heure de rete- 4
-nue contre cette écrasante et anonyme masse de culpa- # D
+c'est pitié. Quoi faire ? Qu'est-ce qu'une heure de rete-
+nue contre cette écrasante et anonyme masse de culpa- #
 bilités qui se pressent et s'entassent derrière lui? » ‘à
 
 Une très triste nouvelle l'acheva. Le bon Périer »
@@ -4157,13 +4154,13 @@ l'oreiller, entre la porte et la fenêtre grandes ouvertes,
 pour donner de l'air, dans cette pauvre chambrette
 S d'ouvrier, à l'étage de la vieille maisonnette, dans ce
 quartier misérable. Le soleil entra dès quatre heures. :
-Une ombre de feuillage de rose grimpante qui rampait 4
+Une ombre de feuillage de rose grimpante qui rampait
 autour de la fenêtré, vint palpiter sur le grand front '
 blême. Une autre palpitation de vie attira l'attention de à
 Yves : sur le plancher, à deux pas de lui, une souris ;
-grignotait furtivement, hâtivement, quelque ouate de 4
+grignotait furtivement, hâtivement, quelque ouate de
 -. Le silence était déjà lourd, comme en plein après
-midi. Il avait toute la nuit médité tant d'actes de bonté, ë
+midi. Il avait toute la nuit médité tant d'actes de bonté,
 d'héroïsme chez les pauvres gens qu'il avait vu affairés
 autour du lit de la malheureuse accouchée. Sa petite à
 avait été recueillie aussitôt par des sabotiers qui :
@@ -4214,14 +4211,14 @@ de douleur, eut à s'indigner de l'obstination de quelquesuns à vouloir fourrer
 — Nom de Dieu ! dit-il, fichez-moi la paix, avec vos À
 : insignes ! Autant aller chercher les curés, alors ! ji
 Après l'enterrement, Périer partit chez un de ses
-frères qui habitait à quelques lieues de Villetaupier. En M
-rentrant chez lui, Madec se laissa choir sur son fauteuil M
+frères qui habitait à quelques lieues de Villetaupier. En
+rentrant chez lui, Madec se laissa choir sur son fauteuil
 de cuir, devant sa table. Il éprouvait une faiblesse
-inouie. La petite bonne entra. k k
-Depuis longtemps il vivait familièrement, fraternelle- M
-ment avec elle, bien qu'elle eût cessé, depuis des mois, ñ
+inouie. La petite bonne entra.
+Depuis longtemps il vivait familièrement, fraternelle-
+ment avec elle, bien qu'elle eût cessé, depuis des mois,
 de faire dictées ou narrations. Lina était paresseuse, +
-insouciante, bavarde, romanesque. Intelligente pour- l
+insouciante, bavarde, romanesque. Intelligente pour-
 tant, elle posait sans cesse mille questions à Yves. Elle
 lui avait conté tous ses doutes de jeune esprit féminin, {
 toutes ses impressions de petite paysanne que séduit le
@@ -4231,7 +4228,7 @@ sentait glisser, de la relever, de l'affermir. Elle n'avait {,
 aucun fond de croyance religieuse. Elle allait à la messe
 pour plaire à madame Guiraud; pour ne pas faire scandale, pour avoir l'air d'une jeune fille de bonne maison.
 Mais son délice était le bal, ou le bavardage au seuil
-| des portes, au soir tombant, avec quelque jeune com. M
+| des portes, au soir tombant, avec quelque jeune com.
 mis. À défaut de grammaire ou de style, Yves avait
 
 | tenté de mettre à sa portée quelques principes de critique, quelques règles de haute moralité.
@@ -4267,30 +4264,30 @@ rêvait d'amours qui la libéreraient. Cependant elle
 
 ver, il ne l'avait pas plutôt pervertie. De nouveau un RE
 grande défiance naïssait en lui de ses plus chères pen- #
-sées, de ses meilleurs efforts. L:
+sées, de ses meilleurs efforts.
 j Lina le trouva affalé dans son fauteuil. NL
-— Eh bien ? Quoi donc ? Fatigué ?.. Et puis c'est si 4
-triste, ce pauvre M. Périer ! 2
+— Eh bien ? Quoi donc ? Fatigué ?.. Et puis c'est si
+triste, ce pauvre M. Périer !
 c Yves essaya de sourire. Lina s'était approchée de
-lui, posant plaisamment la carafe d'eau fraîche qu'elle M
-tenait à la main, sur son front. Ce contact l'émut, lui 4
+lui, posant plaisamment la carafe d'eau fraîche qu'elle
+tenait à la main, sur son front. Ce contact l'émut, lui
 fit du bien. Il voulut plaisanter : ;
 — Oui, je comprends. Je passerai chez le coiffeur... \
 J'ai une crinière ?.… ES
 — Mais non! je n'ai rien voulu dire !.. s'écria la jeune …
-fille. E
+fille.
 Elle avait placé la carafe sur la table. Debout devant « lui, elle glissa légèrement la main sur les cheveux du …
 jeune homme. Il tressaillit d'une étrange tristesse non
 sans douceur, à l'insensible caresse. Il prit cette main,
 dont il souffrit, la lächa, se leva résolument et riten
-— Lina, je vais me faire curé !.. Cependant j'hésite L
+— Lina, je vais me faire curé !.. Cependant j'hésite
 entre le tablier des francs-maçons et la soutane des …
-Dehors, dans le jardinet, un pas de cheval, et puis la … k
+Dehors, dans le jardinet, un pas de cheval, et puis la …
 voix de M. Louis, l'homme botté, vêtu de velours, tot
-jours affairé, ne faisant rien : 4
+jours affairé, ne faisant rien
 — Eh dame ! puisqu'il faut installer le gaz ! Faut nu
 bien que les ouvriers viennent ! |
-Et le goguenardisme de M. Laviteur, un gros richard 4
+Et le goguenardisme de M. Laviteur, un gros richard
 des environs, ami intime de Louis, appuyait d'un ton
 — Parfaitement ! Mais que voulez-vous, on ne peut …
 
@@ -4342,15 +4339,15 @@ Mais elle? Indéfiniment les journées lui étaient -
 pareilles, et les heures de sa vie s'écoulaient à décrotter ji
 des souliers, à marmitonner des plats, entre l'évier ét
 le fourneau, à balayer, épousseter, cirer. jusqu'aux. ‘4
-épousailles d'un quelconque du troupeau, pour qui elle … i
+épousailles d'un quelconque du troupeau, pour qui elle …
 recommencerait la tâche jamais finie de cirer, épous- ‘
-Pourquoi n'ont-ils pas de vacances, eux aussi, domes- 4
+Pourquoi n'ont-ils pas de vacances, eux aussi, domes-
 tiques, ouvriers, tous ceux à qui les autres doivent leur
 loisir, leur bien-être ? hé
-Que pouvait-il, lui, pour elle? Il la regardait. Blanche M
-et rose, toujours elle considérait ce coin de paradis sur 4
-ce carton. Il n'oserait plus rien dire; il n'oserait plus la M
-regarder en face. Il avait menti en la traïtant en sœur! M
+Que pouvait-il, lui, pour elle? Il la regardait. Blanche
+et rose, toujours elle considérait ce coin de paradis sur
+ce carton. Il n'oserait plus rien dire; il n'oserait plus la
+regarder en face. Il avait menti en la traïtant en sœur!
 Entre elle et lui, il ne pouvait rien y avoir. Elle demeurait une domestique, il était un monsieur. Le monde ”
 entier, tout le monde, des siècles de vies se dressaient
 entre elle et lui, qui interdisaient de pareilles frater- »
@@ -4395,18 +4392,18 @@ prendre ça sur Ini! Ça ne s'est jamais vu qu'un profes
 seur de collège fasse une classe d'instituteur ! Quand il
 n'y a pas de précédent...
 — On en crée ! imposa Yves. #4
-— Ouais! C'est pas le père Rolland qui essaiera! 1
+— Ouais! C'est pas le père Rolland qui essaiera!
 voudra demander l'autorisation à l'inspecteur primaire.
-Or l'inspecteur primaire est un chic garçon, pas banal 3
+Or l'inspecteur primaire est un chic garçon, pas banal
 même, et qui ne manque pas d'initiative. Mais tout de
 même il n'ira pas jusque-là, sans en prévenir le Rec- $
-teur. qui aura peut-être à en aviser le ministre. et 1
-je ne dis pas que ça n'amènerait pas une interpellation 4
+teur. qui aura peut-être à en aviser le ministre. et
+je ne dis pas que ça n'amènerait pas une interpellation
 à la Chambre! En tout cas, vous voyez que ça demandera du temps. Clavaud aura le temps de mouxir et de |
 — Je comprends, poursuivit Yves, qu'on ne puisse +
 pas, sans tant d'histoire, pour un temps considérable, :
 permettre à un professeur de remplacer un instituteur. ;
-Chacun a sa compétence, et pas plus qu'un menuisier É
+Chacun a sa compétence, et pas plus qu'un menuisier
 
 ne peut faire le serrurier, de même, un secondaire et
 un primaire ne se peuvent remplacer dans leurs fonctions respectives. Mais quand il s'agit d'un cas exceptionnel, comme celui qui nous occupe, et d'un rempla- À
@@ -4434,7 +4431,7 @@ que depuis votre arrivée ici que nous voyons vos col-
 - lègues un peu, du moins quelques-uns! Du reste, ce
 m'est guère aussi que depuis votre arrivée, qu'on se
 voit, qu'on se parle, qu'on se fréquente un peu, entre
-ouvriers, secondaires et primaires. î
+ouvriers, secondaires et primaires.
 4 — N'est-il pas odieux, s'écria Madec, qu'on nous divise
 
 ainsi? Qu'on nous éloigne les uns des autres! N'est-il
@@ -4451,7 +4448,7 @@ père emmène à l'école ou au lycée, en face, à côté l'un de
 l'autre, est une leçon publique, sociale, dictée par la
 
 $ loi, patentée, d'iniquité, d'immoralité, de division, d'envie et de mépris, de jalousie et d'orgueil! Petit pauvre,
-entre ici; petit riche, entre là! Par le seul fait que l'enfant est au lycée, ou à l'école communale, il sait n
+entre ici; petit riche, entre là! Par le seul fait que l'enfant est au lycée, ou à l'école communale, il sait
 d'avance toute la blague, le mensonge de toute l'éducation qu'il va recevoir. Il sait d'avance que ce ne sont
 que des mots, qu'on lui apprendra, puisque ceux qui
 sont ses maîtres, qui lui prêchent la justice, l'égalité et
@@ -4482,7 +4479,7 @@ ci des ouvriers, les riches des pauvres, les hommes des
 M. Madec trouva Binelle dans sa cour, tête nue, les yeux
 1 levés vers son gros tilleul, admirant un coq d'Inde de
 — sa basse-cour, qui était allé s'y percher. En apercevant
-1 Madec, le gros bon homme eut une exclamation de joie
+Madec, le gros bon homme eut une exclamation de joie
 = enfantine, comme il lui arrivait, par explosion. Il lui
 … tendit les deux mains :
 4 — Je vous demande pardon de vous avoir fait de-
@@ -4498,26 +4495,26 @@ M. Madec trouva Binelle dans sa cour, tête nue, les yeux
 
 pas de faire le discours, ni même de le dire, bien qu'il
 fat un peu angoissé à la pensée de parler devanttout
-un public officiellement rassemblé pour lentendre. La è
-corvée insupportable pour lui était de soumettre son ï
+un public officiellement rassemblé pour lentendre. La
+corvée insupportable pour lui était de soumettre son
 discours à l'approbation du recteur. Il trouvait humi- ;
 liant qu'il lui fût, à son âge, et dans sa situation, interdit d'être le maître de sa pensée, de la forme qu'illui
 
 donnerait, comme un écolier qui ne saurait parler,
-écrire, penser, sans la permission, les corrections de 2
-son maître. Le sens de cette « formalité » qui ne l'était 4
-point, n'échappait pas à Madec. C'était une manifesta- F
-tion nouvelle de la grande « âme policière ». Il lui était 4
+écrire, penser, sans la permission, les corrections de
+son maître. Le sens de cette « formalité » qui ne l'était
+point, n'échappait pas à Madec. C'était une manifesta-
+tion nouvelle de la grande « âme policière ». Il lui était
 réellement interdit de penser selon la logique de son
 esprit, et de parler sa pensée. Il se souvenait des
 démêlés qu'avaient eus maints collègues de lycées ou de À
-collèges avec leurs recteurs, pour des passages de dis- 4
+collèges avec leurs recteurs, pour des passages de dis-
 cours qu'il leur avait bien fallu supprimer, n'étant pas |
 les plus forts. Une fois de plus, à cette occasion, Yves
 avait vérifié l'exactitude des observations qu'il avait
-faites à d'autres sujets, que le professeur, qui, en tant Î
+faites à d'autres sujets, que le professeur, qui, en tant
 qu'éducateur, doit enseigner la liberté de penser, sil :
-est vrai que l'exercice de la raison et du jugement n'est Ë
+est vrai que l'exercice de la raison et du jugement n'est
 sain qu'à ce prix, n'est point libre lui-même de penser. ;
 Il est un quelconque qui a charge de dire aux enfants |
 ce qu'on lui ordonne de dire, et dans la forme autorisée.
@@ -4547,7 +4544,7 @@ M ou même incorrectes. Il terminait en traitant le tout
 É dédaigneusement de « pathos mystique ». Yves fut sou-
 à : lagé de voir que le recteur ne lui demandait pas de le
 
-1 Il parcourait des yeux, rêveusement, les bouquins
+Il parcourait des yeux, rêveusement, les bouquins
 
 _ scolaires étalés sur le bureau du principal, quand celui-
 
@@ -4581,17 +4578,17 @@ l'orthographe, le style ! tout, quoi! Vous m'entendez
 bien, je ne comprends pas ! N'est-ce pas honteux de |
 
 ; traiter un homme qui a trente ans de service comme un
-gamin ? Car c'est ainsi neuf fois sur dix, depuis six ans | ï
+gamin ? Car c'est ainsi neuf fois sur dix, depuis six ans
 que je suis principal ici ! Ah ! encore quatre ans de ce à
 
 Pesamment il reconduisait Madec. Il soupirait encore, à
 sa large face plus blanche et plus flasque que jamais : À
 
-— Allons ! vlà l'heure du diner. Faut que j'sonne 4
-ma cloche... Tiens ! j'avais quelque chose à vous mon- é
+— Allons ! vlà l'heure du diner. Faut que j'sonne
+ma cloche... Tiens ! j'avais quelque chose à vous mon-
 irer. Ça vous aurait donné du courage, à vous qui
 venez leur lire des belles choses le jeudi, à ces chenapans-là.. Ah ! je ne sais pas ce que j'en ai fait. Figurez-vous que j'ai confisqué dans la deuxième étude : Fin
-de Siècle, le Colonel Ronchonnot…. et le Dernier des j
+de Siècle, le Colonel Ronchonnot…. et le Dernier des
 
 Puis le bonhomme rit aux éclats, les yeux humides.
 Soudain, près de la porte de la rue, il redevint grave,
@@ -4622,17 +4619,17 @@ furent invités à diner chez Têtu. Ils devaient tous deux
 partir en vacances dès la fin de la cérémonie, et ilsne
 savaient point s'ils se retrouveraient là l'année suivante. C'était le diner des adieux. Yves aurait voulu “
 refuser ; il se sentait triste et malade. Mais il craignait
-de contrarier madame Têtu et ses collègues qu'il re M
+de contrarier madame Têtu et ses collègues qu'il re
 grettait de quitter. En leur compagnie, près d'eux, il À
-avait combattu et souffert, durant toute cette année 4
-riche d'expériences et de déceptions. Il se rendit donc î
+avait combattu et souffert, durant toute cette année
+riche d'expériences et de déceptions. Il se rendit donc
 chez Têtu avec Arverne. #
 Le commencement du dîner fut bruyant et gai, à fi
-cause de la présence de Jean-Pierre qu'Yves cherchait 4
+cause de la présence de Jean-Pierre qu'Yves cherchait
 à faire bavarder en anglais, et de celle de madame
-Têtu, qui allait, venait, plaisantait. 4
+Têtu, qui allait, venait, plaisantait.
 — À quand le mariage ? fit-elle soudain. ; |
-— Hé ? exclama Yves. Est-ce à moi, s'il vous plaît ?.… 3
+— Hé ? exclama Yves. Est-ce à moi, s'il vous plaît ?.…
 Cette madame Têtu savait donc tout? Qui diable À
 avait pu lui conter l'histoire qu'il avait eue avec ma- :
 
@@ -4646,7 +4643,7 @@ de ça au cercle !
 \ — Allons, répliqua Madec à son tour, je vois qu'il est
 ù temps que je fasse mon discours, et que je me sauve,
 + sans ça,on me marierait ici avant que j'aie le temps de
-2 Il se mit à raconter tout au long ses entrevues avec
+Il se mit à raconter tout au long ses entrevues avec
 
 j madame Binelle. La compagnie en fut intéressée. Mais
 
@@ -4660,9 +4657,9 @@ j madame Binelle. La compagnie en fut intéressée. Mais
 
 -_ ferez rien avec vos idées, si vous n'êtes pas marié !
 
-4 Vous vivez trop seul ; vous vous exaltez. Vous êtes
+Vous vivez trop seul ; vous vous exaltez. Vous êtes
 
-. triste, vous vous découragez. Un intérieur, un peu d'af- è
+. triste, vous vous découragez. Un intérieur, un peu d'af-
 
 fection chez soi, ça vous retrempe, pas, mon vieux ?
 
@@ -4681,24 +4678,24 @@ nouveau, qui grandit chaque jour, qui chaque jour devient plus fort, plus ardent
 s'affaiblit, on baïsse, on s'éteint, — les grandes idées |
 qu'on n'a pas pu s'assimiler soi-même, parce qu'on a
 été mal élevé, parce qu'on n'a pas su nous élever ! %
-— Tiens, tiens ! monsieur Arverne ! Comme vous 4
-parlez, dit madame Têtu. Vrai, vous me pardonnerez, j
+— Tiens, tiens ! monsieur Arverne ! Comme vous
+parlez, dit madame Têtu. Vrai, vous me pardonnerez,
 mais je ne vous croyais pas ces idées. des idées aussi. %
-sérieuses, sur la vie. Est-ce que vous allez vous marier? È
-Têtu eut l'air confus de l'indiscrétion de madame 1
+sérieuses, sur la vie. Est-ce que vous allez vous marier?
+Têtu eut l'air confus de l'indiscrétion de madame
 . — Laisse donc Arverne tranquille ! En voilà des
 questions ! Comme tu es bête !
 Arverne sortit d'un rêve : |
-— Oh ! madame, je crois avoir passé l'âge. D'ailleurs 1
+— Oh ! madame, je crois avoir passé l'âge. D'ailleurs
 vous savez mes conditions... j'y tiens toujours. Avec :
 mon traitement et mes petites rentes, j'arrive à cinq
 mille francs par an. Je n'épouserai qu'une femme qui, $
-de son côté, pourra m'en amener autant. Chacun ses t
+de son côté, pourra m'en amener autant. Chacun ses
 idées. J'apporte cinq mille francs de rente à ma femme,
 il est naturel que j'en exige autant d'elle; et, si je
-viens à mourir avant elle, elle aura toujours ce qu'elle Û
+viens à mourir avant elle, elle aura toujours ce qu'elle
 aura, et je ne la laisserai pas sur le pavé ! $
-Au café, madame Têtu se leva pour aller coucher j
+Au café, madame Têtu se leva pour aller coucher
 Jean-Pierre. Quand elle fut sortie, Têtu dit aussitôt : À
 — Vous savez que ça y est! Le renouvellement des
 traités va être signé pendant les vacances. Je n'ai pas
@@ -4747,7 +4744,7 @@ il peut se fouiller pour le reste!
 
 | — Mais c'est un vol! exclama Madec. C'est inouï
 
-d'étrangler ainsi tout doucement les petits, parce qu'on Î
+d'étrangler ainsi tout doucement les petits, parce qu'on
 
 - sait qu'on n'entendra pas leurs plaintes !.…..
 
@@ -4762,30 +4759,30 @@ que pour enseigner à vivre !
 
 — Les deux chaires supprimées sont cellesdu profes.
 seur de seconde qu'on met à la retraite (on joindra une
-partie de son enseignement à la chaire de philo)... et U
+partie de son enseignement à la chaire de philo)... et
 puis la mienne, probablement, celle d'histoire.., à
 
 — Allons donc ! interrompirent Arverne et Madec. {
 
-— C'est tel que je dis... Alors vous comprenez... je ne Û
+— C'est tel que je dis... Alors vous comprenez... je ne
 sais trop que devenir. Car combien dans mon cas ?... Je *
-suppose qu'on me paiera tout de même ; — mais j'avais ï
+suppose qu'on me paiera tout de même ; — mais j'avais
 quatre cents d'heures supplémentaires! On prétend j'
-qu'en France il y aura ainsi plus de cent professeurs M
-sur le carreau !.. En revanche on aura ici un professeur 4
+qu'en France il y aura ainsi plus de cent professeurs
+sur le carreau !.. En revanche on aura ici un professeur
 d'agriculture. Puis, j'oubliais. une autre chaire de ]
 langues ! Mon cher Madec on vous déchargera de lalle- |
-mand, ne pleurez plus. Pour vous dédommager, on l
+mand, ne pleurez plus. Pour vous dédommager, on
 vous donnera, en outre de l'anglais, du français, du grec, |
-et du latin. On ne veut plus de bilingues, mais on tient M
+et du latin. On ne veut plus de bilingues, mais on tient
 à des quadrilingues ! \
 
-Ceci finit par amuser Arverne et Madec. Quelle bouil- é
+Ceci finit par amuser Arverne et Madec. Quelle bouil-
 labaisse! Est-ce qu'on se moquait d'eux? Qui diable
 
 avait manigancé un tel attrape-nigaud? Têtu était-il |
 sérieux! Mais Têtu était incapable d'une plaisanterie NW
-aussi lugubre. û
+aussi lugubre.
 
 — Vous n'avez pas l'air de croire? Vous verrez... |
 Mais de quoi vous étonnez-vous? Vous ne savez donc
@@ -4835,7 +4832,7 @@ celle de bourgeois. Au collège il s'était heurté à toutes
 les cloisons, à toutes choses établies; et par quelles fissures rares avait-il pu glisser son action? — De Périer
 il avait fait un ami sûr. Mais Périer s'était fait francmaçon. Ainsi des murs s'étaient dressés entre les
 esprits, entre les cœurs les plus pareils, et ses efforts
-n'avaient point prévalu. Il n'avait pas fait d'U. P.
+n'avaient point prévalu. Il n'avait pas fait d'U.
 
 Il avait trouvé des sympathies. Il s'en était créé. Il se
 savait estimé, aimé de ses élèves, de ses collègues,
@@ -4876,7 +4873,7 @@ vous conjure de croire que je n'avais pas, comme l'a cru
 le recteur, comme on a voulu le lui faire croire, l'ombre
 - de raison de me moquer de vos paroles. J'ai entendu
 
-votre discours. Il m'a paru être d'un philosophe et d'un i
+votre discours. Il m'a paru être d'un philosophe et d'un
 qualités rares que je n'en avais aperçues à l'entendre.
 Monsieur le recteur n'avait aucune raison de penser que
 je me permettais de manifester publiquement mon mé-
@@ -4884,17 +4881,17 @@ pris pour les idées que vous y formuliez, et qui sont
 miennes, auxquelles il avait donné son approbation. -
 Mais j'avoue que, pendant un court moment, quelqu'un
 qui se trouvait sur l'estrade derrière moi, et qui sans …
-doute n'écoutait pas, me désigna une personne de l'audi- 4
+doute n'écoutait pas, me désigna une personne de l'audi-
 toire dans la salle, et me fit, à son propos, une réflexion
 qui provoqua chez moi le rire, et sans doute ce haussement d'épaules involontaire, purement réflexe. Je ne ]
 vois pas d'autre fondement au blâme durecteur.Je vous :
 demande pardon d'ailleurs de cette distraction dont je
-« Mais ce n'est pas tout. Mon pauvre ami! Quand je È
-vous parlais des honteux cancans des petites villes ! Le É
-recteur me blâäme encore pour avoir osé assister à la « distribution solennelle des prix (où il n'était point; ila « donc encore fallu qu'on le lui racontât), avec un pantalon M
-gris, et des souliers jaunes, sous ma robe de licen- k
+« Mais ce n'est pas tout. Mon pauvre ami! Quand je
+vous parlais des honteux cancans des petites villes ! Le
+recteur me blâäme encore pour avoir osé assister à la « distribution solennelle des prix (où il n'était point; ila « donc encore fallu qu'on le lui racontât), avec un pantalon
+gris, et des souliers jaunes, sous ma robe de licen-
 
-rez-de-chaussée, Paris, cinquième arrondissement. L
+rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions men- |
 suelles régulières et par des souscriptions extraordi-
@@ -4903,7 +4900,7 @@ naires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions
 
 Nos Cahiers paraissent par séries; une série paraît
-dans le temps d'une année scolaire, d'une année « ouvrière, d'octobre-novembre à juin-juillet; l'abonnement se prend pour une série. 4
+dans le temps d'une année scolaire, d'une année « ouvrière, d'octobre-novembre à juin-juillet; l'abonnement se prend pour une série.
 
 Le prix de l'abonnement est de vingt francs pour la
 
@@ -4911,11 +4908,11 @@ série. Nous acceptons que nos abonnés paient leur
 abonnement par mensualités de deux francs. #
 
 Pour tout changement d'adresse envoyer soixante
-centimes, quatre timbres de quinze centimes. À 3
+centimes, quatre timbres de quinze centimes. À
 
 Nous engageons nos abonnés de certains pays à nous
 
-dermander un abonnement recommandé; le prix de 1
+dermander un abonnement recommandé; le prix de
 l'abonnement recommandé est de vingt-cinq francs
 pour la série ; tous les cahiers de l'abonnement recom- )
 mandé sont empaquetés à part et recommandés à la
@@ -4933,13 +4930,13 @@ d'une série, le prix de cette série est porté au moins
 
 | au total des prix marqués; ainsi depuis le premier
 janvier 1905 la cinquième série complète se vend
-5 M. André Bourgeois, administrateur des cahiers,
+M. André Bourgeois, administrateur des cahiers,
 _ reçoit pour l'administration et pour la librairie tous
 _ les jours de la semaine, le dimanche excepté, — de huit
 heures à onze heures et de une heure à sept heures.
 ë M. Charles Péguy, gérant des cahiers, reçoit pour la
 . rédaction le premier mercredi du mois de trois heures
-4 Adresser à M. André Bourgeois, administrateur des
+Adresser à M. André Bourgeois, administrateur des
 13 cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
 # cinquième arrondissement, toute la correspondance
 à d'administration et de librairie : abonnements et réabon54 nements, rectifications et changements d'adresse, cahiers
@@ -4984,11 +4981,11 @@ que vous n'aviez pas le droit de faire, comme vous le reconnaissez vous-même. D
 dixième cahier de la sixième série |
 dans des termes dont je déplore la vivacité et qui dépassent :
 de beaucoup ma pensée. Vous avez eu raison de penser que
-je n'en aurais jamais autorisé la reproduction. En les L
+je n'en aurais jamais autorisé la reproduction. En les
 reproduisant, vous m'avez fait commettre, malgré moi, une ?
 
 Je compte sur votre loyauté pour publier cette protesta- &
-tion dans votre plus prochain Cahier, et je vous prie de e.
+tion dans votre plus prochain Cahier, et je vous prie de
 croire à mes sentiments dévoués. à
 
 Bravo pour le dernier Cahier — et pour tous les autres.
@@ -5000,22 +4997,22 @@ après l'apparition du Bulletin du 15 décembre, c'est-à-dire
 vers le 20 décembre. Que cette protestation s'ajoute aux
 autres dans votre dossier, pour y subir le même sort : iné-
 dite sans que mon amour-propre en souffre ! — ou publiée
-avec signature et adresse. 2
+avec signature et adresse.
 
-vers le 20 décembre 1904 1
+vers le 20 décembre 1904
 
-à monsieur de Pressensé 4
+à monsieur de Pressensé
 
-La lecture de votre lettre, au dernier Bulletin, apportera Ë
-à beaucoup d'anciens dreyfusards une profonde tristesse. É
+La lecture de votre lettre, au dernier Bulletin, apportera
+à beaucoup d'anciens dreyfusards une profonde tristesse.
 
-Depuis déjà longtemps s'entrevoyait l''opportunisme de é
-politiciens ministériels qui devient l'attitude de la Ligue. 1
-Plusieurs parmi nous ne s'étaient pas réjouis de vous voir H
-entrer à la Chambre, — vous et F. Buisson, — convaincus à k:
-lavance que votre action de justice y serait annihilée ou È
+Depuis déjà longtemps s'entrevoyait l''opportunisme de
+politiciens ministériels qui devient l'attitude de la Ligue.
+Plusieurs parmi nous ne s'étaient pas réjouis de vous voir
+entrer à la Chambre, — vous et F. Buisson, — convaincus à
+lavance que votre action de justice y serait annihilée ou
 détournée. Aujourd'hui nous le constatons pleinement, et le
-sentiment de notre clairvoyance n'adoucit pas notre amer 4
+sentiment de notre clairvoyance n'adoucit pas notre amer
 
 Il y a dans votre lettre des mots inacceptables pour « ceux *
 
@@ -5043,31 +5040,31 @@ amené d'autres; j'ai distribué abondamment des brochures,
 deux premières aujourd'hui désorganisées par les politicailleries locales. — Mais depuis déjà quelque temps je n'ose :
 — plus parler de la Ligue. Et comme je n'ai pas, por rester
 _ avec vous, les mêmes raisons que mon vénéré ami Louis
-4 Comte, dont j'approuve entièrement la lettre sévère, âpre et
+Comte, dont j'approuve entièrement la lettre sévère, âpre et
 … juste, digne de lui, je vous adresse ma démission de membre
 “ de la Ligue. Quand celle-ci redeviendra en toutes circonL: stances, et sans souci des conséquences politiciennes, le
 . porte-parole du droit, nous pourrons reprendre la propa- :
-— (1) Allusion à la lettre de Pressensé, Bulletin, page 1575, ligne 8.
+— (1) Allusion à la lettre de Pressensé, Bulletin, page 1575, ligne
 
 dixième cahier de la sixième série
-J'adresse mes salutations respectueuses et mes ardents 4
+J'adresse mes salutations respectueuses et mes ardents
 souhaits de réveil à l'admirable Pressensé de 1897-99. à
-Cahiers de la Quinzaine, 8, rue de la Sorbonne, rez-de-chaussée, 1 È 74
+Cahiers de la Quinzaine, 8, rue de la Sorbonne, rez-de-chaussée,
 Monsieur le Secrétaire général de la Ligue française pour
 la défense des Droits de l'Homme et du Citoyen, 1, rue EX
-Sauf avis contraire de votre part et pour la bonne admi- 4
+Sauf avis contraire de votre part et pour la bonne admi-
 nistration de nos abonnements, nous vous ferons présenter ;
 le lundi 6 février prochain un mandat de vingt francs À
-soixante pour votre abonnement à la sixième série de nos 4
-cahiers, — octobre 190% — juillet 1905, — et pour les frais Ë.
+soixante pour votre abonnement à la sixième série de nos
+cahiers, — octobre 190% — juillet 1905, — et pour les frais
 du recouvrement postal. î HEC
 Vous aurez, à cette date, reçu les neuf premiers cahiers ;
 de cette sixième série.
 Recevez, monsieur, nos meilleures salutations. %
 Ligue Française pour la Défense #1
-des Droits de l'Homme et du Citoyen É:
+des Droits de l'Homme et du Citoyen
 J'ai l'honneur de vous accuser réception de votre lettre Fi
-Le Comité central a, par mesure d'économie, décidé de 3
+Le Comité central a, par mesure d'économie, décidé de
 
 _ supprimer les abonnements qu'il avait souscrits aux journaux et aux revues.
 É Je vous prie en conséquence de vouloir bien supprimer .
@@ -5091,7 +5088,7 @@ He la Ligue et son Président dans l'affaire des Fiches. M. de
 … par une association purement politique, comme l'Alliance
 - républicaine qui a bien su voir qu'ici encore l'intérêt poli-
 … tique était d'accord avec la justice.
-_ Cordialement à toi, k
+_ Cordialement à toi,
 À Je n'ai pu retrouver la formule exacte de ton adresse : ce
 pourquoi j'ai cru devoir développer mon sentiment.
 * A signé la déclaration : )
@@ -5105,27 +5102,27 @@ Ayant aperçu dans les journaux la déclaration que vous
 avez signée avec nos collègues Bonnet, Charmont, Meslin,
 Michaud, j'ai cru devoir la soumettre au Comité de nos sec +
 tions dans sa réunion du 12 courant. Le
-Le Comité reconnaissait la justesse de cette déclaration et 1
-son bien fondé; peut-être vous eüt-il demandé d'en modifier LE k
+Le Comité reconnaissait la justesse de cette déclaration et
+son bien fondé; peut-être vous eüt-il demandé d'en modifier LE
 la rédaction si l'ordre du jour pur et simple, ayant la prio- <
-rité, n'avait été demandé et voté. n:
-Je m'empresse de porter ce que nous avons fait à votre 1
-connaissance et vous prie, mon cher Collègue, d'agréer l'as- 58
+rité, n'avait été demandé et voté.
+Je m'empresse de porter ce que nous avons fait à votre
+connaissance et vous prie, mon cher Collègue, d'agréer l'as-
 
 . surance de mes très dévoués sentiments. LE
 
 Paris, le 5 février 1905 De
 
-. Monsieur le Directeur, :: 4
+. Monsieur le Directeur, ::
 
-Je m'adresse à votre loyauté (je n'invoque pas le droit 4
+Je m'adresse à votre loyauté (je n'invoque pas le droit
 de réponse) pour vous demander l'insertion de la rectifica- ‘2%
 tion suivante dans votre prochain cahier. Re
-Je lis sous la signature de M. Gabriel Trarieux, dans un 1
+Je lis sous la signature de M. Gabriel Trarieux, dans un
 article que, dit-il, « M. Clemenceau ne put insérer » et que ri
 vous reproduisez : « Je sais bien que c'est lui (M. Joseph #
-Reinach) qui l'a fondée (la Ligue des Droits de l'Homme). j
-Du moins puisque, dans son JListoire, il l'a écrit, c'est qu'il x!
+Reinach) qui l'a fondée (la Ligue des Droits de l'Homme).
+Du moins puisque, dans son JListoire, il l'a écrit, c'est qu'il
 le croit. (page 73). 4 À
 Voici en quels termes, /Histoire de l'Affaire Dreyfus, |
 tome III, pages 547 à 549), je raconte la fondation de la Ligue: N |
@@ -5167,29 +5164,29 @@ De. (2) Préambule. (Séance du 20 août 1789).
 
 dixième cahier de la sixième série
 « Viollet fut désigné pour rédiger, avec Trarieux, les …
-statuts de la nouvelle association. 3
-« Ce grand savant, qui avait fouillé si profondément aux 1
-ruines du vieux droit français et en avait dégagé les Pro- 1
+statuts de la nouvelle association.
+« Ce grand savant, qui avait fouillé si profondément aux
+ruines du vieux droit français et en avait dégagé les Pro-
 pylées, les Établissements de saint Louis, était, je l'ai dit, En |
-profondément catholique. Rien qu'à son maintien, on recon- T4
+profondément catholique. Rien qu'à son maintien, on recon-
 naissait en lui l'un de ces « Port-Royalistes attardés », pour + ä
-qui « le nom de janséniste était moins le signe d'une dissi- 10
+qui « le nom de janséniste était moins le signe d'une dissi-
 dence dogmatique que l'indice d'une profession de gravité à
 et de religion austère ». (1) Ce sérieux du janséniste, triste, +
-mais fortifiant, ne va pas sans une haute moralité, qui est 1
+mais fortifiant, ne va pas sans une haute moralité, qui est
 elle-même inséparable du courage. Viollet convenait qu'il . sx)
-avait été conduit, « comme malgré lui », à la conviction que ; 4
+avait été conduit, « comme malgré lui », à la conviction que
 Dreyfus était innocent ; mais, d'autant plus, il se croyait le +.
 devoir de ne pas s'en taire, surtout sous les menaces des *
 journalistes de sacristie et de corps de garde. Alors que %)
-tant de libres-penseurs n'osaient pas les regarder en face, il 5
+tant de libres-penseurs n'osaient pas les regarder en face, il
 fit à l'un d'eux cette cinglante riposte : « Vous aussi, vous À]
 êtes des terroristes! » (2) à Là
 Ainsi que quiconque sait lire peut le constater, il n'est
 question de moi, dans ces pages, qu'une fois, en note, à De
 propos d'une réunion chez Scheurer-Kestner où j'assistai |
 avec Ludovic Trarieux et Yves Guyot. (3) 1]
-Je connaissais Ludovic Trarieux de longue date; notre 34
+Je connaissais Ludovic Trarieux de longue date; notre
 amitié date de l'Affaire; elle ne fit que croître jusqu'à ses €
 derniers jours, ou je pus lui témoigner encore mon doulou- |
 reux dévouement ; il n'eùt pas confondu l'histoire avec le ‘#
@@ -5197,9 +5194,9 @@ panégyrique; et je puis dire que l'amitié et l'histoire ne se +
 sont jamais trouvées en conflit, dans mon livre, à son Ë Li
 Agréez, Monsieur le Directeur, l'assurance de mes senti- %
 ments les plus distingués. ‘al
-(1) Sainte-Beuve, Port-Royal, V, 593; Renan, Essais de morale et 4
+(1) Sainte-Beuve, Port-Royal, V, 593; Renan, Essais de morale et
 (2) Courrier du Pas-de-Calais du 29 avril 1898. Es
-(3) Dans cette même note, il faut lire 20 au lieu de 24 février, 4
+(3) Dans cette même note, il faut lire 20 au lieu de 24 février,
 ainsi qu'il résulte d'une communication que j'ai reçue, il y a ES
 quelque temps, de M. Jean Psichari. à
 
@@ -5222,29 +5219,29 @@ _ nom sans m'avoir consulté. Jamais personne, ni M. Charles
 …_  quée aux Cahiers pour être imprimée dans les Textes for-
 -  rfant dossier, Si l'on m'avait denrandé mon avis, j'aurais
 
-2 267
+2
 
 dixième cahier de la sixième série
 répondu, comme je l'ai fait dans toutes les circonstances de El
-ce genre : « Publiez avec la signature. » A2
+ce genre : « Publiez avec la signature. »
 Croyez, je vous prie, à mes meilleurs sentiments. RE
 J'ai passé tout à l'heure pour vous dire ceci personnel- ;
-lement. Ne vous ayant pas trouvé, je vous l'écris sans 0
-3 34
+lement. Ne vous ayant pas trouvé, je vous l'écris sans
+3
 L'Est républicain, « seul organe du Parti républicain ES
 radical et radical socialiste de la Banlieue Est de Paris » : D » “+
 Lettre ouverte à M. Cholet, membre de la Ligue
 des Droits de l'Homme
-J'ai lu avec beaucoup d'intérêt l'article que vous avez envoyé à l'Est Républicain et que ce journal a inséré dans son k.
-dernier numéro sous la rubrique : Tribune libre. Vous y L.
-exprimez très nettement votre sentiment sur l'affaire des L
-fiches secrètes et en particulier sur la décision prise, à cette É
+J'ai lu avec beaucoup d'intérêt l'article que vous avez envoyé à l'Est Républicain et que ce journal a inséré dans son
+dernier numéro sous la rubrique : Tribune libre. Vous y
+exprimez très nettement votre sentiment sur l'affaire des
+fiches secrètes et en particulier sur la décision prise, à cette
 occasion, par le Comité central de notre Ligue. Cette décision
 — par laquelle le Comité central déclare ne pas vouloir in- !
 tervenir dans le débat et surtout ne pas blàmer les procédés %
-que vous savez — vous l'approuvez. Pour ma part, je la 4
+que vous savez — vous l'approuvez. Pour ma part, je la
 regrette et je vais essayer de vous indiquer quelques-unes
-des raisons qui justifient mon regret. 2
+des raisons qui justifient mon regret.
 Grâce à l'autorisation bienveillante du directeur de ce
 journal, — et pour laquelle je lui renouvelle mes remerciements, — il m'est permis comme à vous, de rendre mes
 explications publiques. J'y vois cet avantage, pour la vérité
@@ -5270,13 +5267,13 @@ La Ligue, vous le savez bien, n'est pas un Comité poli-
 @ les principes qui sont à la base du régime moderne. Et
 à cela entraîne pour elle le devoir de faire respecter l'invioFe labilité de ces principes dans la personne de tous les Fran4 çais, en assurant son concours aux victimes, quelles qu'elles
 4 soient, de l'intolérance et de l'arbitraire.
-4 Pour qui reconnaît à la Ligue cette fonction très noble
+Pour qui reconnaît à la Ligue cette fonction très noble
 ‘à et très haute, qui la met au-dessus des combinaisons de
 ‘4 partis qui passent, et qui la constitue la gardienne d'un
 4 idéal immuable, pour celui-là il ne saurait faire de doute
 F que le Comité central aurait dû intervenir dans l'affaire
 des fiches secrètes.
-4 Car, si je souscris entièrement aux définitions concises
+Car, si je souscris entièrement aux définitions concises
 É et heureuses que vous donnez de l'armée, de son rôle et du
 >. respect qu'elle doit aux institutions républicaines; si je
 ; 3 reconnais avec vous que tout gouvernement a non seule-
@@ -5288,39 +5285,39 @@ _ étaient l'objet, à cause de leurs convictions; si j'admets et
 < si je sais tout cela, devrais-je en conclure que la constitution de dossiers secrets n'est pas une chose blàämable et
 
 dixième cahier de la sixième série
-que les procédés qui servirent à les former ne sont pas 4
+que les procédés qui servirent à les former ne sont pas
 « inadmissibles », ainsi que les a qualifiés à la Chambre le Fr
-parti républicain tout entier ? 4
-La Ligue a toujours protesté, au nom des droits de l'in- k
+parti républicain tout entier ?
+La Ligue a toujours protesté, au nom des droits de l'in-
 dividu, contre l'arbitraire des notes secrètes non communi- “
-cables à l'intéressé et qui détermine à son insu son avan- : 4
+cables à l'intéressé et qui détermine à son insu son avan-
 cement comme sa disgrâce. Le Congrès de 1904 en avait DE
-voté la suppression à l'unanimité. Pourquoi, fort de cette 6
-décision, le Comité central n'a-t-il pas saisi l'occasion qui 13
-s'offrait à lui pour renouveler sa protestation par une déli- 54
+voté la suppression à l'unanimité. Pourquoi, fort de cette
+décision, le Comité central n'a-t-il pas saisi l'occasion qui
+s'offrait à lui pour renouveler sa protestation par une déli-
 bération formelle, et avec une énergie et une autorité qui #
-auraient été de mise? La Ligue, mon cher collègue, ne 4
-saurait avoir deux poids et deux mesures. Elle n'a pas r:
-deux morales. Et ce qu'elle a condamné chez ses adver- E.
+auraient été de mise? La Ligue, mon cher collègue, ne
+saurait avoir deux poids et deux mesures. Elle n'a pas
+deux morales. Et ce qu'elle a condamné chez ses adver-
 saires, elle doit savoir le condamner même, et surtout, ‘4
 chez ses amis. ,
 Je ne trouve pas non plus — je le dis en passant — qu'il
-: soit d'un gouvernement régulier de communiquer directement avec une association philosophique pour la fourniture 1
+: soit d'un gouvernement régulier de communiquer directement avec une association philosophique pour la fourniture
 de renseignements sur les sentiments politiques d'une cer- ;
-taine catégorie de fonctionnaires. C'est donner à cette association un rôle qui ne lui revenait pas d'une manière parti- 4
+taine catégorie de fonctionnaires. C'est donner à cette association un rôle qui ne lui revenait pas d'une manière parti-
 culière, que je ne souhaitais pas pour elle, et dont je crois
-qu'elle se serait fort bien passée. J
-Je ne considère pas non plus, et ici c'est plus grave, qu'il 3
+qu'elle se serait fort bien passée.
+Je ne considère pas non plus, et ici c'est plus grave, qu'il
 “convienne à la dignité humaine et à la nature des relations +
 qui doivent exister entre frères d'armes, que des ofliciers -
-soient encouragés à enquêter sur leurs camarades et, à plus 3
+soient encouragés à enquêter sur leurs camarades et, à plus
 forte raison, sur leurs supérieurs hiérarchiques, soit dans +
-leur personne, soit dans celle de leur femme ou de leurs Ë
-parents. En un mot, j'estime que tous les moyens ne sont F
+leur personne, soit dans celle de leur femme ou de leurs
+parents. En un mot, j'estime que tous les moyens ne sont
 pas bons, même lorsqu'ils sont au service d'une idée juste. %
 Voilà pourquoi je regrette que le Comité central n'ait pas "4
 cru devoir blämer ces moyens. À
-Et, en les condamnant, il n'aurait pas fait, comme vous : 74
+Et, en les condamnant, il n'aurait pas fait, comme vous
 le dites, « le jeu des adversaires de la République » parce
 qu'à mon avis on ne fait pas le jeu de la République en re- #
 courant, pour la défendre, à des procédés que la conscience ae
@@ -5364,33 +5361,33 @@ Non, ne passons jamais l'éponge là où la conscience morale
 dixième cahier de la sixième série
 inscrit une condamnation. C'est là un système détestable et ra
 qui n'est bon qu'à faire des satisfaits, des indifférents ou des = =
-esclaves, mais non des hommes, ni des citoyens capables de . 424
+esclaves, mais non des hommes, ni des citoyens capables de
 se gouverner et de vivre dans la société d'avenir que nous
 rêvons et que nous essayons selon nos forces de réaliser
 pour ceux qui viendront après nous. ‘M
 C'est sur ces mots que je dois vous quitter. J'aurais encore
 bien des choses à vous dire mais je ne veux pas abuser plus
 longtemps de votre attention ni de l'hospitalité très géné
-reuse de ce journal. Dans l'espoir qu'en faisant appel du Co- x
+reuse de ce journal. Dans l'espoir qu'en faisant appel du Co-
 / telle mesure sera prise par lui qui satisfasse à mes scrupules de conscience, je me dis encore votre collègue, très
 
-_ Notre catalogue analytique sommaire ............. 1
-É Charles Péguy. — Un nouveau Jean Coste... v
+_ Notre catalogue analytique sommaire .............
+É Charles Péguy. — Un nouveau Jean Coste...
 
 dixième cahier de la sixième série
-— XXII. — Nouvelles et dernières scènes d'in- 1
-Cahiers de la Quinzaine. — La Délation aux Droits 73
+— XXII. — Nouvelles et dernières scènes d'in-
+Cahiers de la Quinzaine. — La Délation aux Droits
 Commentaires; une lettre de M. Gabriel Monod,
 Paris, le premier février 1905, monsieur le di- \
 recteur des Cahiers ; Privas, 3 février 1905, cher ]
-monsieur, une lettre de M. Elie Reynier, profes- L
+monsieur, une lettre de M. Elie Reynier, profes-
 d'une lettre du même, adressée, vers le 20 dé- \
-cembre 1904, à monsieur de Pressensé, mon- É
-sieur; Cahiers de la Quinzaine, 8, rue de la 5
-Sorbonne, Paris, cinquième arrondissement, une 4
-lettre de M. Bourgeois, administrateur, vendredi 1
+cembre 1904, à monsieur de Pressensé, mon-
+sieur; Cahiers de la Quinzaine, 8, rue de la
+Sorbonne, Paris, cinquième arrondissement, une
+lettre de M. Bourgeois, administrateur, vendredi
 20 janvier 1905, à monsieur le Secrétaire géné- |
-ral de la Ligue française pour la défense des 4
+ral de la Ligue française pour la défense des
 Droits de l'Homme et du Citoyen, 1, rue Jacob, à
 Paris, sixième, monsieur; Ligue française pour -%
 la défense des Droits de l'Homme et du Citoyen, {
@@ -5403,7 +5400,7 @@ Jules Cabouat, professeur de l'Université de
 Santé, Paris, le 15 janvier 1905, mon cher Collègue, le Président, Jean Mascart; Paris, le 5 fé-
 orier 1905, monsieur le Directeur, une lettre de
 M. Joseph Reinach, portant citation de son livre,
-É Histoire de l'Affaire Dreyfus, tome II, pages 547
+É Histoire de l'Affaire Dreyfus, tome II, pages
 3 à 549; une liste de signataires, tous appartenant
 F à la section de Saint-Hippolyte-du-Fort de la
 Ligue des Droits de l'Homme, M. le pasteur
@@ -5418,26 +5415,26 @@ $ tribune libre, une lettre ouverte à M. Cholet,
 ! pour trois mille exemplaires de ce dixième cahier le
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-es | Il est impossible de suivre honnêtement le mouve- re 14
+es | Il est impossible de suivre honnêtement le mouve- re
 ment littéraire, le mouvement d'art, le mouvement |
-politique et social si l'on n'est pas abonné aux Gahiers É
+politique et social si l'on n'est pas abonné aux Gahiers
 
 Pour savoir ce que sont les Cahiers de la Quinzaine, : à
-il suffit d'envoyer un mandat de trois francs cinquante w 4
-à M. André Bourgeois, administrateur des cahiers, 0
+il suffit d'envoyer un mandat de trois francs cinquante
+à M. André Bourgeois, administrateur des cahiers,
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 arrondissement. On recevra en spécimens six cahiers
 k Pour savoir ce qui a paru dans les cinq premières
 séries des cahiers, 1900-1904, envoyer un mandat de
 cinq francs à M. André Bourgeois, méme adresse; on
-recevra en retour le catalogue analytique sommaire, 38
+recevra en retour le catalogue analytique sommaire,
 1900-1904, de nos cinq premières séries, premier cahier
 . de la sixième série, un très fort cahier de XII+408
 pages très denses, in-18 grandjésus, marqué cinq francs.
 . Pour s'abonner à la sixième série des cahiers, qui est à: -
 la série en cours, envoyer un mandat de vingt francs
 à M. André Bourgeois, méme adresse ; on recevra en
-retour les cahiers déjà parus de cette sixième série; puis 4
+retour les cahiers déjà parus de cette sixième série; puis
 on recevra de quinzaine en quinzaine, à leur date, les
 cahiers à paraître ; toute personne qui s'abonne à la
 sixième série reçoit donc automatiquement le premier.
@@ -5457,13 +5454,13 @@ de XII + 276 pages; in-18 grand jésus; nous le
 
 Nous avons publié dans nos éditions antérieures et.
 dans nos cinq premières séries, 1900-1904, un si
-grand nombre de cahiers de lettres, — nouvelles, È
+grand nombre de cahiers de lettres, — nouvelles,
 romans, drames, dialogues, poèmes et contes ; — un si À
 grand nombre de cahiers d'histoire et de philosophie;
 et ces cahiers de lettres, d'histoire et de philosop ie
 étaient si considérables que nous ne pouvons pas songer
 à en donner ici l'énoncé même le plus succinct ; pour
-savoir ce qui a paru dans les cinq premières séries des F
+savoir ce qui a paru dans les cinq premières séries des
 cahiers, il suffit d'envoyer un mandat de cinq francs à
 - M. André Bourgeois. administrateur des cahiers, 8, rue
 de la Sorbonne, rez-de-chaussée, Paris, cinquième
@@ -5482,7 +5479,7 @@ sixième série et nos abonnés l'ont reçu à sa date, le.
 2 octobre, comme premier cahier de la sixième série;
 toute personne qui s'abonne à la sixième série le reçoit, « par le fait méme de son abonnement, en tête de la
 ' série ; nous l'envoyons contre un mandat de cinq francs
-à toute personne qui nous en fait la demande. 5 f
+à toute personne qui nous en fait la demande.
 
 mr, Dans sa forme réelle, la Tragédie d' -
 (Fa n'est pas divisée en actes; pour
@@ -5494,23 +5491,23 @@ D d'Elektre et Oreste
 
 ‘à JUPITER, sous la forme de TRÉSsÉE, roi d'Athènes.
 
-54 Vétérans d'AGAMEMNON, gardiens des tombeaux dans l'enRe. ceinte sacrée. D
-44  L'Acropole de Mycènes.
+Vétérans d'AGAMEMNON, gardiens des tombeaux dans l'enRe. ceinte sacrée.
+L'Acropole de Mycènes.
 . A pic, on domine une vallée. Au fond, la ville, les rocs et
 #È ‘ À droite, un bois sacré, un temple dans le lointain. Sourte.
-4 A gauche, le portique de la maison sanglante, élevé sur
+A gauche, le portique de la maison sanglante, élevé sur
 . ss des degrés.
 LU A l'orée du bois : un tombeau.
 l Se L'action a lieu en été, à la fin d'un long soir. Lumière de
 ï Septembre. L'action commence une heure avant le couHé cher du soleil, ouvre tout le long crépuscule, et se termine
 14 dans la nuit.
 
-4 2 1.
+4
 
-e L'Acropole de Mycènes. R
+e L'Acropole de Mycènes.
 1 . Lumière écrasante, chaleur torride, soleil déjà bas.
 Me _ Au fond, le bois sacré, et la route qui descend dans la ville.
-Fe Au loin, le torrent et la plaine brûlée. è
+Fe Au loin, le torrent et la plaine brûlée.
 _ Tout le côté droit occupé par un bois de pins. Au second plan,
 un petit temple dans la clairière. Une source; plus avant, face au
 k _ palais, le tombeau d'Agamemnon. Derrière le tombeau, un olifs. _vier. Au pied de l'arbre, un homme couché : c'est Oresre. Il dort. :
@@ -5523,29 +5520,29 @@ Le rideau ne s'ouvre, et le Chœur n'entre en scène qu'après les
 y. UT Le rideau s'ouvre. Le Chœur entre à la suite du Choryphée. Un à
 We ' un. Ils cherchent,
 .  Entends.. on a crié..
-7 Un cri qui me fait peur.
-_ Un cri funèbre et clair. È
+Un cri qui me fait peur.
+_ Un cri funèbre et clair.
 De ce côté ! Halte, toi : ne fais pas de bruit.
 
 Elektre et Oreste FT
-— Et moi aussi je frémis.… K.
+— Et moi aussi je frémis.…
 Je ne sais que penser. ; “V4
 — Ilne faudra pas dire ce que nous venons “4
 D'entendre. ne.
 é — Tais-loi. Je veux encore écouter. PA.
-Où vont-ils ?.. Ici donc ! f
+Où vont-ils ?.. Ici donc !
 — D'où vient la voix ? : #
 — Non, de partout, des pierres. L }te
-Les pierres du précipice, les pierres ensanglantées 4h
+Les pierres du précipice, les pierres ensanglantées
 Crient vers le ciel. La tombe du Roi À
 
-Appelle. Le sang inexpié 4
+Appelle. Le sang inexpié
 | Appelle. La terre ne veut pas de ce sang. La terre A
 C'est le soleil qui fait parler le sang, mon fils. +53
 
-| SENS Le sang est le père. k
+| SENS Le sang est le père.
 
-\ Ce lieu est maudit. Ce lieu d'outrage, ce lieu du trône, F4
+\ Ce lieu est maudit. Ce lieu d'outrage, ce lieu du trône,
 _ Ce socle du pouvoir scellé dans l'enction du meurtre. :
 Ici, ils ont tué, ici.
 | Plus bas. Crains d'être entendu; crains d'être surpris. |
@@ -5557,7 +5554,7 @@ Der IL, tout bas ;
 
 Ici, toute sorte de forfaits depuis un long siècle FE
 Font la chaine, A.
-Comme le long des pins, les chenilles d'avril, V.
+Comme le long des pins, les chenilles d'avril,
 
 Et l'arbre de la puissance est ruiné. + à
 
@@ -5567,15 +5564,15 @@ Plus bas ! sois prudent à ton tour. : ) À
 
 à Tout bas : Et chaque année depuis, quelque page de sang
 
-Malheur, malheur à-tous, ) È
-1 Amis, si jamais le Destin s'avise de le lire ; L
-Le soleil darde. L'effroyable Apollon courroucé } L
-Crie, — et fait crier la terre; ë 4
+Malheur, malheur à-tous, )
+Amis, si jamais le Destin s'avise de le lire
+Le soleil darde. L'effroyable Apollon courroucé }
+Crie, — et fait crier la terre;
 Il a lâché le chien Sirius sur les voies du char; : à
 
-Le dogue brûlant mord et hurle. 1 3
-Apollon frappe les pierres de ses flèches aiguës, 4
-: ‘ El les pierres se plaignent. 4
+Le dogue brûlant mord et hurle.
+Apollon frappe les pierres de ses flèches aiguës,
+: ‘ El les pierres se plaignent.
 
 La clameur retentit comme la foudre. |
 Mieux vaut quitter la place. “ ÿ ÿ )
@@ -5584,29 +5581,29 @@ SA e l'appelle pas. Il garde un homme qui dort : |
 _ La royale Elektre, tantôt, l'a commis à veiller À
 Dr ce triste étranger, un pâle fugitif qui tremble
 … Et qui se cache. Rae:
-| | De tout. Et d'abord garde-toi ! É
+| | De tout. Et d'abord garde-toi !
 Lis D'en rien dire : il ne faut pas que le palais soupçonne
-Fe Sa présence. Ne me demande pas pourquoi : j'ignore 4
+Fe Sa présence. Ne me demande pas pourquoi : j'ignore
 _ La raison el ne veux pas la chercher.
-_ Désormais est mystère. w
+_ Désormais est mystère.
 
-Elektre et Oreste A 30
+Elektre et Oreste A
 Venez. L'épouvante me chasse. Je reconnais la voix.
-Sachez-le : c'est Tantale qui hèle; Ne 2
-| Déjà cette nuit, l'antique roi a maudit : E.
-Souvent pourtant, on a dit qu'il est mort? : 2
-IL vit, hélas; et il blasphème. Dans les ténèbres - 1
-« Aujourd'hui, aujourd'hui, aujourd'hui même ! » C3
-Aux temps d''Agamemnon, il ne quittait jamais la tour. 4 4
-Mais maintenant, la main du maître n'y est plus : le temps 414
-De la lune orageuse est venu : et, comme la meute 114
-Des vagues court sur la plaine de la mer, la carrière 1
-Est ouverte à tout mal, pourvu seulement qu'il soit fort. À i
+Sachez-le : c'est Tantale qui hèle; Ne
+| Déjà cette nuit, l'antique roi a maudit
+Souvent pourtant, on a dit qu'il est mort?
+IL vit, hélas; et il blasphème. Dans les ténèbres
+« Aujourd'hui, aujourd'hui, aujourd'hui même ! »
+Aux temps d''Agamemnon, il ne quittait jamais la tour.
+Mais maintenant, la main du maître n'y est plus : le temps
+De la lune orageuse est venu : et, comme la meute
+Des vagues court sur la plaine de la mer, la carrière
+Est ouverte à tout mal, pourvu seulement qu'il soit fort. À
 ne Jupiter ! Jupiter !.… +}
 Retirons-nous. “l
-Amis, ces jours du cuisant été, le chien Sirius F1
+Amis, ces jours du cuisant été, le chien Sirius
 A la rage : mordu aux oreilles, le meurtre alors Fe À ;
-Aboie, errant dans la ville des hommes. 44
+Aboie, errant dans la ville des hommes.
 
 Comme le feu
 _ Dansune haie de bruyères sèches passe en rafale,
@@ -5614,7 +5611,7 @@ _ Le souffle d'Apollon, cinglant ces cœurs durs, les balaie
 _ Du fouet des flammes. s « ‘# 2 Ÿ 3 dé
 _ Tout est à craindre.
 _ Jevais chercher l'ombre du bois
-_  Etle frais de nos tombes. S
+_  Etle frais de nos tombes.
 _ Là nous pourrons dormir.
 L +4 Entre Jupiter. — Il est tout entier vêtu de blanc lamé d'or. — Il porte ;
 M: * Je pétase, et tient à la main un bâton d'olivier.
@@ -5626,16 +5623,16 @@ Prenez des forces, malheureux. Je vous ai entendues,
 NT. Pierres brûülantes de Mycènes : me voici. ;
 . Je viens pour délivrer ta race, mais non toi.
 
-BA Elektre et Oreste M
-N'appelle plus. Tu me retrouveras. Endormez-vous “ù 1
+BA Elektre et Oreste
+N'appelle plus. Tu me retrouveras. Endormez-vous “ù
 Pour un moment, voix haletantes. Pas une pierre, ici, 4 |
 _ Qui n'ait trempé dans quelque crime dont le remordslahante. : 4 |
 Comme Tantale est las de tout ce qu'il a fait, lassé 4 |
-De tout ce qu'il a vu le rocher penche sur l''abime. 1
-Je ne viens ni punir ni absoudre. Je suis venu F:
-Tout achever. Quand la coupe de l'horreur sera pleine 4
-Ce soir, il faudra la faire boire à la terre, 1
-Et que le sang s'écoule. Car tout doit s'écouler. FA L
+De tout ce qu'il a vu le rocher penche sur l''abime.
+Je ne viens ni punir ni absoudre. Je suis venu
+Tout achever. Quand la coupe de l'horreur sera pleine
+Ce soir, il faudra la faire boire à la terre,
+Et que le sang s'écoule. Car tout doit s'écouler. FA
 Ce jour va tous les réunir dans l'atroce demeure, (4
 Face à face, les tombeaux et les lits, les criminels : 5 |
 Et les victimes : tous criminels en vérité, et tous “4
@@ -5646,27 +5643,27 @@ Rire du sang... Il ne faut plus, sur ce pays, que plane à
 Inapaisablement l'ombre de l'effrayant Tantale, À | h |
 Celui que j'ai dû condamner à vivre, jusqu'ici, St x ÿ, |
 En châtiment d'une force sans lois, et de l'orgueil Re
-Qu'il a mis dans le crime, cette ivresse de l'énergie. $ À 4
-10 11
+Qu'il a mis dans le crime, cette ivresse de l'énergie. $ À
+10
 
-1 Battu par le malheur, le cœur des fils s'est attendri;
+Battu par le malheur, le cœur des fils s'est attendri;
 À Pour eux, le fardeau est trop lourd des vengeances fatales :
 # Ils n'osent plus les accomplir, sans oser s'y soustraire. :
 %# La cruauté des ancêtres écrase les enfants.
-4 Comme un père s'amuse à faire céder un fils chéri
+Comme un père s'amuse à faire céder un fils chéri
 F. à En pesant de la main, pas trop fort, sur la jeune tête, !
 | Cette race s'effondre sous la paume du Destin :
 Ê 7 L'implacable joueur qui fait la partie de la mort
-4 À tant appesanti ses doigts sur le front des Atrides,
-4 Que le sang en jaillit et du même jet le délivre.
+À tant appesanti ses doigts sur le front des Atrides,
+Que le sang en jaillit et du même jet le délivre.
 à _ Va, je veille. Et j'y vais mettre un terme ;
-4 Car le destin leveut aussi. C'est son jeu de changer.
+Car le destin leveut aussi. C'est son jeu de changer.
 ….  Jaccomplirai la loi. Je paraîtrai. J'ai pris la forme
 | È De Thésée, le roi d'Athènes et de la race élue
 à Qui grandit sous mes yeux, pour donner au monde l'exemple
-4 Dans la plus noble ville, d'hommes très nobles et heureux.
+Dans la plus noble ville, d'hommes très nobles et heureux.
 “1 Combien, Athènes, tu m'es chère, et combien loin d'ici!
-4 J'ai monté la colline rouge, et j'ai passé la porte
+J'ai monté la colline rouge, et j'ai passé la porte
 . # Que gardent deux lions, deux lions qui s'affrontent,
 ‘3 La violence avec l'abomination,
 _ Ce meurtre encore sera juste, — comme ils disent !
@@ -5675,42 +5672,42 @@ _ Ce meurtre encore sera juste, — comme ils disent !
 
 Elekire et Oreste EL Le
 Le temps n'est pas encore où les hommes pourront È WE
-: Le temps où le cœur pour savoir sa règle el son chemin 4
+: Le temps où le cœur pour savoir sa règle el son chemin
 Fa, N'aura qu'à suivre le regard de la claire raison. Rs à
 Il ne faut plus pourtant, qu'au fond de ce palais 1 ‘x
-4 Nuptial pour elle, la Mort conçoive encor du crime ÿ Le
-à Pour engendrer la mort, éternellement. Car, telle est 14
+Nuptial pour elle, la Mort conçoive encor du crime ÿ Le
+à Pour engendrer la mort, éternellement. Car, telle est
 Telle est l'iniquité de l'exacte justice. ER
 Je suis égal comme le ciel, égal comme moi-même. ‘À
 Ù Un jour aussi la vie sera égale dans les cœurs. Me
 
 “AE ELEkTRE sort du palais avec GLAIA, la nourrice. Elles parlent
 bas. A tout instant, ELEKTRE modère la bonne femme.
-_ Est-il possible? Oreste ? d
+_ Est-il possible? Oreste ?
 442 : t Viens, tu vas le voir : là. C'est lui.
 _  Béni soit-il, le jour qui me le rend. |
 jrs x Elle s'élance et appelle :
 (558 Elektre la retient avec colère et lui met la main sur la bouche.
 _ Folle! Veux-tu le perdre, misérable ? et le livrer ?
-_  N'est-il pas déjà mort pour ceux qui sont ici? t
+_  N'est-il pas déjà mort pour ceux qui sont ici?
 +12 S'ils savaient, les tyrans, que le fils dort là, au pied
 14 ie Du tombeau paternel, sous nos yeux ils nous le tueraient.
 _ Ne me maltraite pas. La joie égare mon vieux cœur. '
-3 PO « 5. « Elektre et Oreste Bee
+PO « 5. « Elektre et Oreste Bee
 Pleure done, si tu veux ;,regarde-le en joignant les mains; de
 Mais prends garde : n'oublie pas les vautours, maîtres de l'air.
-Oreste, mon Oreste! 4
+Oreste, mon Oreste!
 Elle pleure. Œnops s'approche avec précaution. * ‘0
 Le laisserai-je encore dormir ? #
 
-Oui, nous sommes là. Nous allons le veiller à ta place. 34
-Va, Œnops, va guetter. Va prévenir les nôtres. 4
+Oui, nous sommes là. Nous allons le veiller à ta place.
+Va, Œnops, va guetter. Va prévenir les nôtres.
 Avertis-les ; enchaîne-les par un serment; et tous, +. 1370
 Soyez tous aux écoutes. |
-à Ils voudront tous le voir. 4
+à Ils voudront tous le voir.
 Ici, conduis-les tout à l'heure à leur maître : qu'ils viennent ni:
 Lui rendre hommage, le défendre, le sauver, s'il le faut. ‘à
-Mais pas un mot : craignez jusques au son de votre voix. 4
+Mais pas un mot : craignez jusques au son de votre voix.
 Ne sois pas irritée.. Oreste, mon nourrisson, mon fils. #
 Pourquoi me serres-tu la main, Elektre, à la briser ? : LL:
 
@@ -5729,42 +5726,42 @@ _ Beau comme la vengeance. O jour, tu es venu!
 
 _ Jamais je ne t'ai vue ainsi : Tu ris, Elektre.
 
-_ La joie! et l'orgueil, et l'espoir. Il me semble renaître; S
+_ La joie! et l'orgueil, et l'espoir. Il me semble renaître;
 
 Fe. Mon cœur revit. Ha, se venger, — et te venger, mon père!
 
 Elektre et Oreste
 
-Ne le réveille pas : il a l'air rendu defatigue. 1
+Ne le réveille pas : il a l'air rendu defatigue.
 
 Il est las de la route; il est las d'avoir attendu ; à
 Mais le sommeil va lui rendre des forces, pour agir. À
 
-Un songe douloureux l'oppresse ; et qui sait s'il voudra 1
-Faire ce que tu en altends ? D'abord, laisse-le vivre. 1
+Un songe douloureux l'oppresse ; et qui sait s'il voudra
+Faire ce que tu en altends ? D'abord, laisse-le vivre.
 ELEKTRE, avec fureur ‘À
-Indigne esclave que tu es! dans la moelle et les os! 2
-S'il le voudra? Mais pourquoi donc crois-tu qu'il soit venu? M
+Indigne esclave que tu es! dans la moelle et les os!
+S'il le voudra? Mais pourquoi donc crois-tu qu'il soit venu?
 Tout sera fait ce soir, — ce soir, ce soir même, entendstu? -
 
-Comment, ma fille ? 4
+Comment, ma fille ?
 
-Ne secoue pas la tête... Je dis, Ÿ
+Ne secoue pas la tête... Je dis,
 Tout sera fait ce soir, ou ne pourra jamais se faire. %
 L'orage est mûr, mûr à crever. Comment ? Je ne le sais. |
-Il le faut : l'action portera aide à l'action. 1
+Il le faut : l'action portera aide à l'action.
 ; Perdu, aussitôt donc que retrouvé! Mon pauvre enfant! à
-Hélas, Oreste devra-t-il prendre à son tour... 80
+Hélas, Oreste devra-t-il prendre à son tour...
 
 _ Il la prendra, et le couteau de l'autre main; moi-même
 __ Au poing je lui mettrai les armes.
 11e e ELEKTRE, avec mépris
 . Heureux plutôt d'être homme, et de revendiquer son droit.
 ï Qu'allez-vous faire, cependant ? Mille morts nous menacent...
-4 " ELEKTRE, l'embrasse ù
+4 " ELEKTRE, l'embrasse
 ._ Tu mourras avec nous, s'il le faut ?
-4 Avec mon Oreste?
-1 Avec mon fils? Ah! tu n'en doutes pas : j'ai de mon sang
+Avec mon Oreste?
+Avec mon fils? Ah! tu n'en doutes pas : j'ai de mon sang
 _ Dans ses veines; il a du mien, il s'est nourri de moi.
 Mais où comptes-tu le cacher ? Si sa mère le voit, :
 ._ Oui, c'est une mère mortelle à ses enfants. Ecoute,
@@ -5772,12 +5769,12 @@ _ Accablés de chaleur, ils dorment tous dans le palais.
 
 . Les gardiens des tombeaux, eux aussi, dorment dans le bois;
 _ Mais tous, ils sont à nous. Œnops, tu l'as vu tout à l'heure,
-4 79
+4
 
 Elektre et Oreste À
-Est prévenu; pour Valler chercher, je lui ai laissé É:
+Est prévenu; pour Valler chercher, je lui ai laissé
 
-Oreste en garde ; il a pleuré de joie, comme toi-même; + 110
+Oreste en garde ; il a pleuré de joie, comme toi-même; +
 
 Et il m'attend que le réveil du maître pour baiser ‘4
 
@@ -5787,18 +5784,18 @@ Certes, ils sont tous fidèles, tous des braves, vieux soldats cl
 
 De la grande guerre... Mais comment vous cacher d'Ægisthe ‘4
 
-| Plus dans ce palais, dès que le jour décline. 11
+| Plus dans ce palais, dès que le jour décline.
 
-Ce soir tout sera fait, Il ne s'agit pas de les fuir, 14
+Ce soir tout sera fait, Il ne s'agit pas de les fuir,
 Mais de les. 2 : à
 
 Quoi? ce soir? ‘ Ni
 
-Tous kes deux! C'est aux dieux 3
+Tous kes deux! C'est aux dieux
 
-Tous les. deux? Tu dis : tous les deux? 1
+Tous les. deux? Tu dis : tous les deux?
 
-Tous les deux. : 4
+Tous les deux.
 
 bit Ce soir ? Sans doute, il y aura fête ;
 En l'honneur de Thésée, l'hôte d'Agamemnon, le roi :
@@ -5815,28 +5812,28 @@ Ke : . Dieux bons, que va-t-il se passer ?
 _  Cesse de gémir. ;
 
 Elektre et Oreste. “ on.
-Ha, pourvu qu'il soit sauvé, qu'importe ? c4
+Ha, pourvu qu'il soit sauvé, qu'importe ?
 O puisse-t-il l'être, puissent enfin les dieux le permettre! …
 
 Parle-moi de mes dieux ! ne parle pas des dieux : : ki:
 J'en ai trop d'ennemis ; ils nous ont trop trahis. “4
-Mais si Oreste vit, s'il est sauvé, s'il est ici, 4
+Mais si Oreste vit, s'il est sauvé, s'il est ici,
 C'est le Destin qui la voulu : que le Destin achève is à
-Ce qu'il a entrepris. 4
+Ce qu'il a entrepris.
 
 Prends garde, à fille violente, È À
 De révolter les puissances célestes. ‘4
-+ Le Destin qui règne sur les dieux ; et j'adore . k F
-Les dieux qui l''accomplissent. ! 4
-à Tu en sais plus que moi. ÿ 1
++ Le Destin qui règne sur les dieux ; et j'adore
+Les dieux qui l''accomplissent. !
+à Tu en sais plus que moi.
 J'obéirai, commande : il faut toujours qu'on l'obéisse. +4
-Ma fille, aie pitié, cependant, aie pitié de ton frère. We Î,
+Ma fille, aie pitié, cependant, aie pitié de ton frère. We
 Elle s''agenouille près d'Oreste qui dort. in À
 Comme il dort! Il est si jeune... Son visage est si grave 1 "4
 Pourtant !… Le retrouver ainsi... Je ne l'aurais pas cru... We
-Il est grand, il est fort, — mais hélas, qu'il est pale ! 4
+Il est grand, il est fort, — mais hélas, qu'il est pale !
 Elektre, écoute : il murmure... il rêve étrangement: LR
-Il souffre. Ha! comme il est défait. ù : 8
+Il souffre. Ha! comme il est défait.
 
 ELEKTRE, le regarde, calme
 Tu ne peux pas savoir ; /
@@ -5863,22 +5860,22 @@ Dort sans joie au seuil de son œuvre: il n'accomplira pas
 .  Elektre et Oreste : "à
 Joyeusement le labour de la vengeance joyeuse ; Ve
 li n'achèvera son sillon que piqué par les taons, *
-Et sous l'äpre aiguillon de la tristesse amère. F
-Ainsi, l'acte pour lui n'aura pas le bonheur 4
-© Qu'il eût fallu! Mais soit! Faisons d'abord ce qu'il faut faire! 4
-J'éponge de baisers la cruelle sueur... F.
+Et sous l'äpre aiguillon de la tristesse amère.
+Ainsi, l'acte pour lui n'aura pas le bonheur
+© Qu'il eût fallu! Mais soit! Faisons d'abord ce qu'il faut faire!
+J'éponge de baisers la cruelle sueur...
 Ha, comme autrefois. À
-Fais venir Œnops, fais-lui signe. 1
-Là-bas il guette. Qu'il vienne ! Et quand il sera là, va voir 4
-Si personne n'a l'éveil au palais, si nul n'approche. 4
-Quoi, tu veux m''éloigner ? 1
+Fais venir Œnops, fais-lui signe.
+Là-bas il guette. Qu'il vienne ! Et quand il sera là, va voir
+Si personne n'a l'éveil au palais, si nul n'approche.
+Quoi, tu veux m''éloigner ?
 Va, Vai-je dit. Elle tourne la tête. Et reviens. €
 
-Laisse-moi l'embrasser. ÿ
-Elle l'embrasse et l'appelle tendrement. Oreste !.… D
-22 4
+Laisse-moi l'embrasser.
+Elle l'embrasse et l'appelle tendrement. Oreste !.…
+22
 
-4 PP Il regarde à l'entour.
+PP Il regarde à l'entour.
 . Les chiennes qui rôdent.…
 “14 GLAIA, l'embrassant
 _ Regarde : dis, ne me reconnais-tulpas, chère tête ?
@@ -5896,20 +5893,20 @@ Plus le faire.
 Elektre et Oreste De
 Guetter dans la maison :
 Veille done, et reviens. +4
-Tu as dormi longtemps, mon frère. | 1
+Tu as dormi longtemps, mon frère.
 Du moins es-tu remis de ta longue fatigue ? %
 - Ce n'est rien de marcher : le plus dur reste à faire. J ‘4
 Tu haletais dans ton sommeil ; et tu tremblais.
-Je tremble encore. J'ai vu... ce que je sais. 3
-Mais quoi ? k
-Terrible, le soleil sue du feu à Mycènes. Ÿ
+Je tremble encore. J'ai vu... ce que je sais.
+Mais quoi ?
+Terrible, le soleil sue du feu à Mycènes.
 
 La journée est brûlante.
-10 La nuit est loin encore. :
+La nuit est loin encore. :
 
 __ Que cherches-tu des yeux ? g La
 NO PA EC La chienne noire que j'ai vue.
-_ Où donc? en vérité, c'est un rève. à ê
+_ Où donc? en vérité, c'est un rève. à
 _ Toute la race des vipères dardait.
 1} Notre race, ma sœur, toute la race des serpents,
 _ L'infâme portée d'une mère infäme : écrasez-la.
@@ -5919,12 +5916,12 @@ _ D'un seul coup.
 ue: Oreste se dresse sur ses pieds.
 
 Elektre et Oreste ‘à
-D'un seul coup ! Merci à vous, Ô dieux ! 4
+D'un seul coup ! Merci à vous, Ô dieux !
 Vous me l'avez rendu, celui que j'ai tant appelé, (4
-Après l'avoir perdu. f
+Après l'avoir perdu.
 
-Toi seul, frère divin, présent unique du Destin. h.
-Es-tu seule à m'attendre ? : + 4
+Toi seul, frère divin, présent unique du Destin.
+Es-tu seule à m'attendre ? : +
 Tous, tous n'espèrent qu'en toi.
 / Et celui-ci qui vient va te le dire.
 Entre Œnops en toute hâte, à
@@ -5932,10 +5929,10 @@ Entre Œnops en toute hâte, à
 Oreste, fils d''Agamemnon, à présence sacrée,
 J'étends le bras vers Loi, mon maître : laisse-moi baiser ‘170
 Ton épaule et ta main. Non, je ne V'espérais plus ;
-Dans ton sommeil, je te cherchais encore ; mais maïntenant È
+Dans ton sommeil, je te cherchais encore ; mais maïntenant
 Tes yeux disent, comme Agamemnon lui-même : « C'est moi! » |
 
-APE C'est le brave Œnops, l'écuyer Ù
+APE C'est le brave Œnops, l'écuyer
 ‘ D'Agamemnon, et depuis. Gardien de son tombeau.
 _ Ta sœur royale te l'a dit : J'ai l'âge de ton père.
 _ - Il serait jeune encore. ;
@@ -5954,16 +5951,16 @@ _ Æ lektre, en toi, nous honorons, nous chérissons sa fille ;
 Et plût aux dieux que notre roi fût notre Roi.
 
 Elektre et Oreste Da:
-‘ Approchez donc. Haïssez-vous l'usurpateur immonde ? 24
-Parle plus bas, de grâce : tu n'effraies. Hélas, il règne. 4
-Je te parlerai bas. Mais répondez, je vous conjure ! 4
-Êtes-vous des hommes ? Êtes-vous revenus de Troie 4
+‘ Approchez donc. Haïssez-vous l'usurpateur immonde ?
+Parle plus bas, de grâce : tu n'effraies. Hélas, il règne.
+Je te parlerai bas. Mais répondez, je vous conjure !
+Êtes-vous des hommes ? Êtes-vous revenus de Troie
 Pour voir ce que vous avez vu ? Nous restez-vous fidèles? |
 Elektre, à qui? A toi? ‘4
 A moi, à la race, à mon frère.
-1 4
-Tu nous es chère à tous. Oreste? Ah, s'il était vivant !.… k
-Û O mon maitre ! 2
+1
+Tu nous es chère à tous. Oreste? Ah, s'il était vivant !.…
+Û O mon maitre !
 Je baise tes deux mains. %
 
 Hi UE Laisse-moi te voir,
@@ -5981,18 +5978,18 @@ _ Leur heure, leur heure vient. ;
 O Jupiter, je puis mourir. de
 Prince, mon royal Oreste que l'on pleurait déjà, }
 Je vois mon roi, lui-même : Croyez-moi mes amis ; À
-Non, jamais deux visages ne farent si pareils. £ 4
+Non, jamais deux visages ne farent si pareils. £
 C'est vrai. A
 Ce sont les mêmes yeux, la même taille, le même air.
-Regarde-moi : O mon roi! Voici Agamemnon, 1
-Quand il était soucieux. 4
-Calme-toi bon vieillard. ° 4
-; Oreste fait un geste. Gourt silence. M
+Regarde-moi : O mon roi! Voici Agamemnon,
+Quand il était soucieux.
+Calme-toi bon vieillard. °
+; Oreste fait un geste. Gourt silence.
 è ORESTE, calme et fort ‘4
-Toi, Œnops, écoute et réponds : que suis-je venu faire 4
-Ici? le sais-tu? — Pour vous tous, soldats des tombes, 4
+Toi, Œnops, écoute et réponds : que suis-je venu faire
+Ici? le sais-tu? — Pour vous tous, soldats des tombes,
 } Œnops peut-il répondre? a.
-_ Baissez la voix. Î
+_ Baissez la voix.
 
 ne Oreste, ta vue seule est un châtiment pour nos cœurs.
 _ Car tu viens te venger : ne me défends pas de le croire.
@@ -6004,43 +6001,43 @@ Re Se sont emparés de la grasse bergerie :
 # # . « _ -Ils dévorent le saint royaume de Mycènes.
 _  Nomme-moi les vautours.
 
-4 ŒNOPS plus bas
+ŒNOPS plus bas
 ‘4 Dois-je l'oser?.. Ægisthe.
 
 3% C'est le mâle. Dis, à présent, la femelle.
 _ Est-ce à nous de prononcer le nom de la Reine?
 
 Elektre et Oreste } FOUR
-Tu veux dire ma mère? i É.
-ŒNOPS, comme malgré soi 4
+Tu veux dire ma mère?
+ŒNOPS, comme malgré soi
 Et plus coupable encore À
-Que l'autre criminel peut-être : ta mère, en effet. N
-Que vous a-t-elle fait? Vous n'êtes pas ses enfants... L
-Qui te dénombrera leurs torts, à tous les deux? 10
-Que de hontes, ici, depuis la mort du Roi! N:
-Que de hontes, que de faux, que d'injustes coups! V0
+Que l'autre criminel peut-être : ta mère, en effet.
+Que vous a-t-elle fait? Vous n'êtes pas ses enfants...
+Qui te dénombrera leurs torts, à tous les deux?
+Que de hontes, ici, depuis la mort du Roi!
+Que de hontes, que de faux, que d'injustes coups!
 Tant et tant de malheurs. &
-Il ne sait pas le pire. 4
+Il ne sait pas le pire.
 Il faut céder pourtant, car ils sont les plus forts. ‘4
-La plainte même, est interdite au faible : tout l'écrase; 4
-. Jamais le faible n'eut de droits; ha mon fils, sang royal, É
-Le peuple malheureux perd tout quandil perd un bon maitre. 4 4
-ORESTE, avec mépris D
+La plainte même, est interdite au faible : tout l'écrase;
+. Jamais le faible n'eut de droits; ha mon fils, sang royal,
+Le peuple malheureux perd tout quandil perd un bon maitre.
+ORESTE, avec mépris
 Pourquoi donc n'avez-vous pas secoué le joug? ‘à
 O hongres, attelés jusqu'à la mort! pas un cheval #
-De volée entre vous tous, pas un qui sorte du brancard. : 4
+De volée entre vous tous, pas un qui sorte du brancard.
 
 # Ce n'est pas à nous de hennir, ni de ruer,
 D: Nous sommes entravés : ou le fouet ou l'avoine.
 x Il faut manger; le peuple recoit le mors avec le pain.
 
 ‘4 Tu oses à peine le nommer?
-444 Certes, j'ai peur. Je n'ai que cette vie.
+Certes, j'ai peur. Je n'ai que cette vie.
 _  Murmure donc ce que tu redoutes de dire.
-1 ŒNOPS, avec précaution
+ŒNOPS, avec précaution
 _  Ægisthe, — le maudit, — est jeune et insolent.
 * Il frappe; et il flatte. Il a fait tomber plus d'une tête.
-É ELEKTRE, avec mépris L
+É ELEKTRE, avec mépris
 _ Ne regarde pas ainsi de tous les côtés :
 _  Ilne vient pas, et ta tête tient bien sur tes épaules.
 , f: Mais toi, tu es le fils, tu es le Maître! A toi d'agir.
@@ -6048,75 +6045,75 @@ _  Oreste, je l'appelle mon roi. Commande.
 _ Ta vue nous est plus douce, qu'au retour de l'exil
 … Celle d'un fils unique, ou d'un père chéri.
 
-Elektre et Oreste 4
+Elektre et Oreste
 
 C'est un père qui la reçu, quand tu revins de Troie? À
 
-ŒNOPS, avec énergie 4
+ŒNOPS, avec énergie
 
 Reprends ton bien, mon Roi. Agis; nous vaiderons. 4%
-; Je te le dis : Mycènes est lasse de l'attendre. à s
-Reprends l'ilustre ville; tu le dois : reprends-la. ) È
+; Je te le dis : Mycènes est lasse de l'attendre. à
+Reprends l'ilustre ville; tu le dois : reprends-la. )
 Que ferai-je de vous? Que ferez-vous pour moi? À
-Vois-tu, nous haïssons mortellement le couple impur; F 4
-Maïs ce n'est pas à nous, sache-le, de frapper. 4
-Les puissants sont puissants. Il nous faut respecter Û
+Vois-tu, nous haïssons mortellement le couple impur;
+Maïs ce n'est pas à nous, sache-le, de frapper.
+Les puissants sont puissants. Il nous faut respecter
 Le sceptre, sinon celui qui le tient : car s'il l'a ;
 Entre les mains, c'est Jupiter qui l'a permis. ;
-ORESTE, à Élektre, puis à soi-même 1
-C'est ce qu'ils n'ont tous dit, partout, c'est ce que ditlerêve, 4
-Ce que je sais moi-même : alors j'ai dû comprendre, 4
-Et m'engager sur le chemin terrible. J'arrive — 4
+ORESTE, à Élektre, puis à soi-même
+C'est ce qu'ils n'ont tous dit, partout, c'est ce que ditlerêve,
+Ce que je sais moi-même : alors j'ai dû comprendre,
+Et m'engager sur le chemin terrible. J'arrive
 Déjà? — Quoi, déjà ?— C'est bientôt. Point de délai. À
 
-De toute éternité l'atroce loi pesait 4
+De toute éternité l'atroce loi pesait
 Sur ma tête. Il fallait donc que ce fût moi? Ha! TS
 
-_ Le fallait-il vraiment, mon père? Tous cés crimes, L
+_ Le fallait-il vraiment, mon père? Tous cés crimes,
 à Pour un comble de crime; et tout l'arbre effrayant
 - De cette race infortunée pour que j'en sois le fruit,
 + Et qu'avec mon poison je l'accomplisse —
 | Est-ce toi, mon frère, que lu accuses? Je m'étonne
-1 De ce que tu murmures; mais peut-être es-tu troublé
-4 Et par le rêve.
+De ce que tu murmures; mais peut-être es-tu troublé
+Et par le rêve.
 LE De toi, mon Oreste, bien souvent.
 L' (au chœur) Vous, cependant,
 L, Chers amis, notre seul rempart, soyez remerciés.
 hi C'est sur vous que nous comptons pour l'œuvre fatale,
 Que le décret des dieux assignait à ce jour
 * Sur le registre du Destin. Écartez-vous, amis;
-1 Mais sans vous éloigner; veillez; ne quittez pas
+Mais sans vous éloigner; veillez; ne quittez pas
 ._ Le bois sacré et les tombeaux, veillez sur nous.
 ŒNOPS, avec joie
 À Veille aussi, sois prudent, mon Roi, fils de mon Roi.
 - Point de faux pas ici: car il faut vaincre, vaincre à tout prix.
 |_ Je L'aiderai, je le jure, je ferai tout pour toi;
-3 Mais il faut que tu sois le plus fort. Sois-le,
+Mais il faut que tu sois le plus fort. Sois-le,
 
-Elektre et Oreste F
-Tu dois l'être : nous haïssons ce que tu hais, 1
+Elektre et Oreste
+Tu dois l'être : nous haïssons ce que tu hais,
 Et nous aimons ce que tu aimes : notre espoir À
 Est en toi. Les dieux ont annoncé ion retour. .
-: Sans doute. Et tous te le diront. È
+: Sans doute. Et tous te le diront.
 Oui, tous. à
-Le peuple est en suspens : il y a eu des présages. 3
+Le peuple est en suspens : il y a eu des présages.
 Le grand vieillard Tantale appelle Jupiter,
 Son inapaisable ennemi, sur la maison.
 Dans le silence de la nuit et le jour même, ;
 A l'heure chaude, on entend retentir l'appel; |
-Et s'il menace ou s'il implore, nul ne le sait; 4
+Et s'il menace ou s'il implore, nul ne le sait;
 Mais tous ont peur de cette voix qui plane. ;
 
-Aujourd'hui même, à la lumière de midi, beaucoup + h
-Ont vu passer de grandes ombres. 1
-On n'a dit que la Reïne, k:
-Réveillée ce matin par d'étranges menaces, æ
-S'est levée, le front lourd de soucis. . 4
+Aujourd'hui même, à la lumière de midi, beaucoup +
+Ont vu passer de grandes ombres.
+On n'a dit que la Reïne,
+Réveillée ce matin par d'étranges menaces,
+S'est levée, le front lourd de soucis.
 
 4 : he ORESTE, tout bas
 _ Et moi, j'ai vu rôder la chienne noire.
-4 Retirez-vous, je vous rappéllerai, quand il faudra. }
-138 Le Chœur s'en va. — Chaque strophe est dite par le chef d'un
+Retirez-vous, je vous rappéllerai, quand il faudra. }
+Le Chœur s'en va. — Chaque strophe est dite par le chef d'un
 La groupe, comme un adieu. -
 
 _ Le soleil brûlant roule dans le ciel, :
@@ -6124,7 +6121,7 @@ L _ Poursuivant sa course impassible.
 _ Chaude de cet embrassement
 La blonde terre mürit pour la moisson prochaine :
 _ O puisse-t-il venir le jour
-; ne les épis nourrissent É f
+; ne les épis nourrissent
 _ Le père et les enfants,
 _ La mère et toute
 _ Mais si le jour béni de l'abondance,
@@ -6137,26 +6134,26 @@ _ Car ce qui est — doit être : fre
 _ À tout, je dis :
 
 Elektre et Oreste ‘ *
-Il fallait que la race de mes rois l
-Comme elle l'est dans les combats, ÿ
+Il fallait que la race de mes rois
+Comme elle l'est dans les combats,
 Fût la plus forte dans le crime.
 Tel le soleil mortel, ü fallait que l'amour '
-Et la haine, sa sœur jumelle, 3
+Et la haine, sa sœur jumelle,
 Desséchant ces cœurs forts, \
 Brülâl jusqu'à la tige |
 à Où rien ne reste
 
 A tout ce qui arrive. ; À
-Il n'est pas de puissance, 4
+Il n'est pas de puissance,
 Il nest félicité, <°3l
 Il n'est rien de vivant qui puisse se soustraire {
 A l'aiguillon percant du laboureur Destin, À
-El tout porte le joug l
-De la fatalité. k 1
-Ainsi done, soumets-loi. 4
+El tout porte le joug
+De la fatalité.
+Ainsi done, soumets-loi.
 Suis la loi qui l'est faite. - \
-O roi, fils de mes rois, F
-Toi qui portes le sceptre de l'acte justicier 4
+O roi, fils de mes rois,
+Toi qui portes le sceptre de l'acte justicier
 Ha, je te plains ! Je plains ton sort et ta jeunesse, À
 Je plains les heureux jours #
 Que tu n'as pas vécus. |
@@ -6165,11 +6162,11 @@ Que tu n'as pas vécus. |
 F à Croyais-lu vivre dans la joie ?
 4 _ Que si le dieu cruel veut que tu la connaisses.
 be Vois la plaine :
-K hi Tout l'espoir de l'hiver 2
+K hi Tout l'espoir de l'hiver
 .  Y:dort à la merci d'une heure.
 k. _ Ainsi que sur la mer riante des blés roux
 _ La grêle est suspendue,
-DA Le secret de la foudre et les faulx d'un orage, — Ÿ
+DA Le secret de la foudre et les faulx d'un orage,
 Ainsi la maladie,
 La folie et le mal, la misère et la mort
 _  Pèsent sur chaque tête
@@ -6177,19 +6174,19 @@ Et tôt ou tard éclatent.
 Le bonheur n'est pas fait pour le fils de la femme.
 Mais seulement pour ceux
 nus à Qui vivent dans le ciel,
-100 El qui ne meurent pas :
+El qui ne meurent pas :
 1 4! $ * Que pour les dieux.
 Der Exit le Chœur:
 
-Entre GLaAïA. — ORESTE s'assied sur le bord d'une pierre 4
-Elle est encore dans la chambre, avec le roi. 4
-C'est le misérable que tu veux dire ? 1
+Entre GLaAïA. — ORESTE s'assied sur le bord d'une pierre
+Elle est encore dans la chambre, avec le roi.
+C'est le misérable que tu veux dire ?
 Oui. Elle le flatte avec des rires et des caresses. "1
-C'est l'heure où chaque jour elle cherche à le retenir. J
-Tu l'entends ? Silence d'Oreste. k
+C'est l'heure où chaque jour elle cherche à le retenir.
+Tu l'entends ? Silence d'Oreste.
 Tu l'entends ? — Comme les femmes À
 
-- A la fontaine rient en battant le linge, f
+- A la fontaine rient en battant le linge,
 En riant elle a lavé ses vices dans l'impudeur. ‘i
 Ne ferme pas les yeux ainsi, Oreste; tu m'effraies. À
 
@@ -6198,9 +6195,9 @@ i _ Elle me haït, elle est jalouse, elle me livrera :
 _ A son bélier; elle me mettra dans son lit, peut-être,
 F C'est vrai : la mère envie la vierge,
 _ A présent : car elle est belle encore; maïs elle vieillit :
-5 Voilà le pis.
+Voilà le pis.
 “1 ELEKTRE secoue la tête
-4 Le pis c'est ce qu on ne sait pas encore.
+Le pis c'est ce qu on ne sait pas encore.
 _ La vieille qui aime l'homme, meurt et tue pour aimer.
 ! + Vous, femmes, sœur, nourrice, assez ! de grâce, assez
 ee | Tu dois tout savoir, frère chéri.
@@ -6208,35 +6205,35 @@ _ Le roi de la maison : le corps sacré du père mort,
 % È C'est toi, toi qui dois être le père, à ton tour.
 Sache donc tout.
 
-Elektre et Oreste N
+Elektre et Oreste
 ORESTE, avec orgueil et abattement
 Je suis celui-là, dis-tu ? mais le suis-je ? À
-Elle le presse de Caresses. È
-Tout en toi, tout l'a nommé le prince, le Roi, 4
-Le fils d'Agamemnon assassiné, son image 4
+Elle le presse de Caresses.
+Tout en toi, tout l'a nommé le prince, le Roi,
+Le fils d'Agamemnon assassiné, son image
 Vivante : tu as ses yeux; tu as sa voix : lui, c'est toi. .
 
-C'est vrai. Si ta mère l'aperçoit seulement, la louve... E.
-Elle te prendra à la gorge, elle te saignera. h
+C'est vrai. Si ta mère l'aperçoit seulement, la louve...
+Elle te prendra à la gorge, elle te saignera.
 Ne parlez plus de ses torts envers moi : qui sait ma sœur,' À
-Qui sait s'il vaut mieux y penser ? — ou que j'oublie? 3
-Oublier ? Si tu le peux, moi, je ne puis pas : jamais, 1
-Je n'oublierai ses crimes, jamais ! J'étais ici, moi! i
-Tu la haïs donc ? 0
+Qui sait s'il vaut mieux y penser ? — ou que j'oublie?
+Oublier ? Si tu le peux, moi, je ne puis pas : jamais,
+Je n'oublierai ses crimes, jamais ! J'étais ici, moi!
+Tu la haïs donc ?
 
-71 Pour le père assassiné,
+Pour le père assassiné,
 . Qu'il t'en souvienne, à mon frère, — et pour toi.
 _ Pour toi, sa fille, n'a-telle pas été bonne mère?
 #5 Bonne mère ? Oui, comme elle fat
-4 Bonne épouse. Oui. Bonne comme le tranchant
+Bonne épouse. Oui. Bonne comme le tranchant
 _ Du couteau sur le col de la poule; bonne, bonne
 - En vérité, comme la pierre que lance la fronde,
 . Et qui frappe au milieu du front.
 ‘a 1 Même rire, plus bas.
 ; À Bonne ? O, tu ignores
 -_ Le démon de l'impudicité dans la femme altière.
-4 Depuis qu'elle a trahi, depuis qu'elle a souillé la couche
-4 Conjugale, elle nous exècre tous; elle n'aime que lui,
+Depuis qu'elle a trahi, depuis qu'elle a souillé la couche
+Conjugale, elle nous exècre tous; elle n'aime que lui,
 _ Le complice de sa volupté: mais c'est moi,
 3 _  Qu'entre tous, entends-tu, sa méchanceté traque.
 L: Jour et nuit, nuit et jour, jour et jour, et les ans
@@ -6247,15 +6244,15 @@ _ © frère, elle m'a tant humiliée... Je n'ai vécu
 ‘4 _ Que dans l'espoir de ton retour, et lasse de l'attendre,
 - Plus d'une fois j'ai pensé à mourir, —ou—
 
-4 5
+4
 
-Elektre et Oreste 2
+Elektre et Oreste
 
-: Court silence. l:
-Elektre, une fille parler ainsi ? Non, je te bläme. Ÿ
+: Court silence.
+Elektre, une fille parler ainsi ? Non, je te bläme.
 Elle m'a mise au bas bout de la table, et m'a jeté à
 Comme à la chienne Takhys les restes de son mâtin. Si
-Elle l'a fait, il n'y a pas un mois, devant ces princes b
+Elle l'a fait, il n'y a pas un mois, devant ces princes
 
 ‘08 Moi, ta sœur ; moi, la fille royale,
 _ Ne rougis plus, ma fille.
@@ -6272,17 +6269,17 @@ B NW Û ? Court silence, puis avec explosion.
 _ Jamais, jamais, je ne pardonnerai, ma mère!
 
 Elektre et Oreste 4%
-Elle m'a tenue sous le talon, ei elle m'a mise L
-Sous le pied fendu de son bouc; elle m'a plus salie S.
-Que je ne me gardai pure : elle m'a dénaturée. È
-J'ai compté les saisons sur les heures de l'esclavage. 4
-Jamais, je ne lui pardonnerai : et même vengée, 4
-Je ne lui pardonnerai pas. Quelle est la mort, quel est É
-Le coup qui venge tout le cours du passé ? O, la mort 4
-Ne dure qu'un instant, et moi pendant près de dix ans, F
-Cruelle, comme tu l'es ! Elektre, et atroce. Ÿ
+Elle m'a tenue sous le talon, ei elle m'a mise
+Sous le pied fendu de son bouc; elle m'a plus salie
+Que je ne me gardai pure : elle m'a dénaturée.
+J'ai compté les saisons sur les heures de l'esclavage.
+Jamais, je ne lui pardonnerai : et même vengée,
+Je ne lui pardonnerai pas. Quelle est la mort, quel est
+Le coup qui venge tout le cours du passé ? O, la mort
+Ne dure qu'un instant, et moi pendant près de dix ans,
+Cruelle, comme tu l'es ! Elektre, et atroce.
 Ils se regardent dans les yeux. ‘000
-Ton âme est comme le couteau tiré. j
+Ton âme est comme le couteau tiré.
 Plonge le tien jusqu'à la garde au fourreau qu'il réclame. ‘#
 Ha, vierge, se peut-il que tu saches haïr ainsi ? *
 
@@ -6293,8 +6290,8 @@ __  O esclave, la vierge a le tranchant amer
 É. Du roseau vieilli dans l'hiver empesté de la mare.
 _ Mais qu'as-tu donc, Oreste ? Pourquoi te penches-tu ?
 ÿ 14 . Quoi 2... faudra-t-il que je la tue ? Moi ? Ha
-4 Hélas, hélas, jamais il ne pourra.
-1 Tu mens, c'est la fatigue ; c'est la douleur. Va, cours
+Hélas, hélas, jamais il ne pourra.
+Tu mens, c'est la fatigue ; c'est la douleur. Va, cours
 _ À la source, puise de l'eau, fais vite.
 der Silence. — Glaïa s'éloigne. — Elektre contemple son frère, elle
 Fe Le si lui prodigue de silencieuses caresses.
@@ -6305,21 +6302,21 @@ _ Mon royaume et mes noces... R'ouvre,
 __ R'ouvre les yeux !.… Tu ne faibliras pas;
 
 : Elektre et Oreste |
-Non, ton front me l'assure. O dieux cruels. F.
+Non, ton front me l'assure. O dieux cruels.
 Que sommes-nous ? des fourmis sous vos pieds méchants, des vers”
-3 Que vous vous amusez à écraser, un jeu pour vous... 4
+Que vous vous amusez à écraser, un jeu pour vous...
 Me rendez-vous un frère et la vie pour me les ôter 2... ni
 Tu ne peux pas faiblir, et me trahir ainsi. ‘1
 Tu es fier; tu seras fort ; tu es né pour cet acte. :
-Reviens à toi, mon frère, il le faut. d
+Reviens à toi, mon frère, il le faut.
 Glaïa rentre. Elle porte de l'eau dans une écuelle.*
-Laisse-moi faire: sur le front... sur le cou... sur les tempes. k
+Laisse-moi faire: sur le front... sur le cou... sur les tempes.
 Ha, il r'ouvre les yeux. ‘4
 C'est toi, Elektre ? C'est donc vous?
-Mon enfant, mon enfant bien aimé, mon fils. 1
+Mon enfant, mon enfant bien aimé, mon fils.
 Ne le dis pas. Un fils ? Ne me rappelle pas ma mère. al
 La chèvre se réjouit de son chevreau. de
-J'ai cédé à la chaleur, au soleil. 4
+J'ai cédé à la chaleur, au soleil.
 
 ÉE: Je l'avais dit !
 Ë Mais tu es fort.
@@ -6329,30 +6326,30 @@ _ Elles sont si froides !
 ne: Il va les plonger dans le feu.
 4 9 GLAIA, triste, avec importance
 …__  Laïsse-le se faire à l'idée terrible, Elektre.
-4 Vois-tu, il est tendre : c'est un enfant comme il y en a peu...
+Vois-tu, il est tendre : c'est un enfant comme il y en a peu...
 Ü Tu ne le connais pas comme moi.
 …_ Je ne suis pas changé pour toi, bonne nourrice, dis, :
 a Nourrice douce comme le lait ? Maintenant,
 ÿ Je suis homme.
 (4 Homme, certes, et le plus beau de tous.
 ! C'est moi pourtant qui Lai fait ee que tu es, mon Oreste.
-44 Plus d'une fois, enfant, tu m'as mordu le sein,
+Plus d'une fois, enfant, tu m'as mordu le sein,
 
 Elektre et Oreste À
-Et comme tu tirais! j'ai senti tes premières dents, 9
-Tes petites dents de chien, pousser sur ma chair. Ÿ
+Et comme tu tirais! j'ai senti tes premières dents,
+Tes petites dents de chien, pousser sur ma chair.
 Ne vas-tu pas finir? Veux-tu qu'il ne parle qu'à toi? a
-Et comme tu riais! je glissais le petit doigt n
+Et comme tu riais! je glissais le petit doigt
 Entre tes lèvres molles, et tu ne pouvais plus boire. ti
-C'est ainsi, mon enfant. à Elektre 4
+C'est ainsi, mon enfant. à Elektre
 Vois-tu, il ne faut pas À
-Tais-toi. ÿ 2
-Je dis la vérité. R:
-Frère, à quoi songes-tu? peut-être, attends-tu l'heure ? k
-Tout enfant, il était ainsi, lorsque je le lavais. | M
-Ne vas-tu pas cesser de bavarder, dis-moi, nourrice ? 7 J
-Ne sais-tu pas qu'ici il y va de la vie? 1
-Aide-nous et tais-toi. à 7
+Tais-toi.
+Je dis la vérité.
+Frère, à quoi songes-tu? peut-être, attends-tu l'heure ?
+Tout enfant, il était ainsi, lorsque je le lavais.
+Ne vas-tu pas cesser de bavarder, dis-moi, nourrice ?
+Ne sais-tu pas qu'ici il y va de la vie?
+Aide-nous et tais-toi. à
 
 < ORESTE, sombre et contraint
 
@@ -6371,62 +6368,60 @@ A J'ai cru perdre pied : pareille à celle qui se noie,
 \ Tu ne sais ce qu'elle a fait.
 ,
 ni Elle. Le premier crime
-4 Tu ne l'ignores pas ; pourtant tu ne sais pas la suite. pe
-1 Quand Agamemnon est tombé, elle n'a pas encore
-
-| 51
+Tu ne l'ignores pas ; pourtant tu ne sais pas la suite. pe
+Quand Agamemnon est tombé, elle n'a pas encore
 
 Elektre et Oreste L::
 Été satisfaite : elle s'est acharnée; la hache : |
 En main elle l'a mutilé; elle l'a souillé; ‘#4
 Elle l'a bafoué; elle — %
 
-Avec l'autre? È
+Avec l'autre?
 Avec lui, À
 L'imposteur couronné, le plus vil mendiant du sceptre.
 Ha, tu n'étais plus là, enfant, pour déplorer la mort ;
 Du père; j'ai dû rendre pour toi, les honneurs au tombeau.
-Tu n'étais pas là, toi, le fils; et moi seule ai tout fait L
+Tu n'étais pas là, toi, le fils; et moi seule ai tout fait
 En me cachant, comme autrefois elle-même, la nuit. à
 J'ai rougi tant de fois. Désormais À
 J'ai honte d'être femme pour toute la vie : le soir, : à
 Je portais les offrandes, en pleurant, sur la terre. ‘à
 Jamais elle n'y a manqué. Sa mère riait d'elle. À
 O, je la hais. geste d'Oreste. Us
-Mais je te dirai tout. 4
-J'ai vécu dans un coin comme une chienne méprisée, à s
+Mais je te dirai tout.
+J'ai vécu dans un coin comme une chienne méprisée, à
 
 | ‘44 Solitaire, en orpheline de la mort, moi si jeune!
 É Elle m'a séparée de mes compagnes et tenue
-4 Comme en prison dans le palais : Si jeune, ha —
+Comme en prison dans le palais : Si jeune, ha —
 % Je n'ai point ri, et je n'ai pas chanté; jamais
 n Je n'ai connu la joie des danses avec celles
 
-- De mon âge; et jamais les yeux des jeunes hommes, Ù
+- De mon âge; et jamais les yeux des jeunes hommes,
 Jamais je n'en reçus la promesse d'amour,
 n - L'espoir délicieux qui précède les noces.
 à Mon cœur s'est nourri de sanglots ; j'ai dormi dans les larmes;
 À Et j'ai dù, sur mes lèvres, étouffer jusqu'à mes cris.
-_ Elle a souffert, elle a beaucoup souffert; crois-le, Oreste. Ü
+_ Elle a souffert, elle a beaucoup souffert; crois-le, Oreste.
 D. Ta mère cependant. :
 __ Tune dois pas le dire, ma fille.
 Elle m'a fiancée à l'humiliation, moi,
 —. Moi, — elle a voulu me marier à un vassal.
-4 Oui, Dis-le-lui, nourrice.
+Oui, Dis-le-lui, nourrice.
 
-Elektre et Oreste 41
+Elektre et Oreste
 Tous deux, elle vous a vendus à sa honte d'amour "
-Comme deux chevreaux nouveau-nés à un berger galeux. è
-Elle veut anéantir la race, — ou la rendre esclave. ; V4
+Comme deux chevreaux nouveau-nés à un berger galeux.
+Elle veut anéantir la race, — ou la rendre esclave.
 Dis, dis-moi son nom, dis-le. 71100
-Le nom du vassal. 114
-ELEKTRE, elle l'embrasse Û
-Plus tard. Ce n'est pas lui qu'il faut tuer, vengeur chéri. 4
+Le nom du vassal.
+ELEKTRE, elle l'embrasse
+Plus tard. Ce n'est pas lui qu'il faut tuer, vengeur chéri.
 Et qui, tuer? ù ‘4
 
-Tu le sais bien : elle. Elle seule. 1
+Tu le sais bien : elle. Elle seule.
 Elektre, tu as tort; tu parles mal, ma fille. 1 |
-j O malheureuse. Et moi, malheureux que je suis. À 4
+j O malheureuse. Et moi, malheureux que je suis. À
 
 # Mon fils, tu n'es donc revenu dans tes demeures,
 fé Que pour pâtir de plus grands maux ? Certes, il est bien vrai:
@@ -6450,9 +6445,7 @@ L Il la manie; elle lui rit : il est le maître.
 
 Goutte à goutte, des entrailles, tout le sang qu'il n'a pris
 
-| 55
-
-Elektre et Oreste f
+Elektre et Oreste
 
 O, je voudrais pièce à pièce lui retirer la chair À
 De mon pouvoir qu'il a volé, et jour à jour la chair &
@@ -6471,9 +6464,9 @@ Celui-là, qui seul a droit sur nous,
 Le veut : il le veut, lui, qui nous appelle sous le tertre #
 
 Quand j'ai prié le mort pour les enfants qui l'aiment, à
-Il a dit : — Qu'ils meurent tous les deux! Î
+Il a dit : — Qu'ils meurent tous les deux!
 Et : — Qu'ils meurent de votre main. Je suis mort de la leur. *
-Comme tu plis, à mon frère ? é
+Comme tu plis, à mon frère ?
 ORESTE, voix rauque et faible :
 Ce n'est rien. |
 
@@ -6487,7 +6480,7 @@ _ Nourrice. Ce sang répandu que rien ne rachète,
 
 _ Un jour devait paraître.
 
-4 Il est venu : un assassin.
+Il est venu : un assassin.
 
 _ Un assassin ? Le très saint meurtrier, le fer sacré
 
@@ -6495,7 +6488,7 @@ _ Un assassin ? Le très saint meurtrier, le fer sacré
 
 _ Elle dit vrai : tu viens au nom des immortels, c'est sûr.
 
-_ La mort paie la mort, comptant. Ù
+_ La mort paie la mort, comptant.
 
 hi: ELEKTRE, toujours grave
 
@@ -6508,31 +6501,31 @@ _ Aux autels de cette maison, la honte et la terreur.
 
 _ Les morts, jour et nuit, gémissent à la porte. Tue-les. .
 
-Elektre et Oreste j
-Ou bien tue-moi, et va toi-même te livrer. 3
-Aussi longtemps que l'immuable pôle 1
+Elektre et Oreste
+Ou bien tue-moi, et va toi-même te livrer.
+Aussi longtemps que l'immuable pôle
 Fera tourner le ciel sur le pivot de son doigt, elle \
 « Et lui, tu devras les tuer tous les deux, — lui et elle. \
-C'en est fait : le vent souffle des cœurs en délire. 4
+C'en est fait : le vent souffle des cœurs en délire.
 La vague de la violence est soulevée. “1
-Le bateau du malheur, avec sa cargaison de crimes, 1
-Va, mon fils, épargne ta mère. K;
+Le bateau du malheur, avec sa cargaison de crimes,
+Va, mon fils, épargne ta mère.
 N'épargne pas la louve impure qui nourrit son loup À
 Avec la chair de ses petits. .:10
 
 Tu ne sais pas ‘#
 Ce que c'est que l'amour dans une femme qui vieillit. FE:
-Leur vilenie perd la couronne et la perdra, 4
-Sache-le : le saint respect d'autrefois n'est plus; 4
+Leur vilenie perd la couronne et la perdra,
+Sache-le : le saint respect d'autrefois n'est plus;
 On murmure : Mycènes gronde, esclave de deux femmes. ;
-On ne veut plus servir le bouc chargé de graisse. 2.
+On ne veut plus servir le bouc chargé de graisse.
 Égorge-le, reprends ton bien, sauve ta race. F {
 Mais respecte ta mère. ‘11
 
 | Misérable ! Ils ne font qu'un.
-3 Ensemble, ils ont péché; ils triomphent ensemble ;
+Ensemble, ils ont péché; ils triomphent ensemble ;
 Qu'ils meurent acconplés ; ils sont heureux impudemment.
-. Le sais-tu bien ? Tandis que nous pleurons sur un tombeau, 4
+. Le sais-tu bien ? Tandis que nous pleurons sur un tombeau,
 Ils attendent ta mort et la mienne, les insolents !
 | Ils l'espèrent. Enfin, — toi, nourrice, dis le contraire,
 | Si tu l'oses, — l'eût-elle pu, à son infäme
@@ -6587,7 +6580,7 @@ _ Et comme eux dans le trésor de leur abomination,
 14 _ Une heure inexpiée, — une heure ! Et c'en est pour jamais.
 É if Elektre se jette à ses genoux et l'embrasse étroitement.
 
-Elektre et Oreste É
+Elektre et Oreste
 
 ) Non, non, c'est moi qui porte le passé, moi malheureuse,
 Qui ai vécu pour soustraire les jours à la nuit noire
@@ -6605,8 +6598,8 @@ Quand tu as reconnu la porte et les lions, :
 Quand tu as mis le pied sur la première marche
 Et fait le premier pas dans l'antre, au lieu terrible, ?
 Tout sera réparé. Image sacrée de l'espoir, +
-Tout, pour moi, tout revit depuis que je te vois : jeris, j
-Je ris. Tout sera réparé. Réjouis-toi. 4
+Tout, pour moi, tout revit depuis que je te vois : jeris,
+Je ris. Tout sera réparé. Réjouis-toi.
 î Je tremble. Je dis, — je tremble. |
 62 -
 
@@ -6615,7 +6608,7 @@ Ho _ Oreste, le droit est pour toi : tu seras le plus fort.
 _ Tiens, je ris... ha, laisse-moi rire de joie,
 _ Dans tes yeux terribles, mes yeux découvrent le bonheur.
 _ Sois de fer, seulement! Ton cœur soit de granit !
-1 ORESTE, la repousse avec violence
+ORESTE, la repousse avec violence
 _ Non. Je n'ai pas peur de ce que tu crois.
 # très bas.
 _ Maïs ne vois-tu pas comme je souffre ? —
@@ -6623,27 +6616,27 @@ F Sans quoi serais-je ici ?
 f Je ai tant appelé.
 
 Elektre et Oreste
-Douceur de vivre, aurore ! Enfant, je n'y songeais pas. È
+Douceur de vivre, aurore ! Enfant, je n'y songeais pas.
 Puis un jour s'est levé, où mon nom a sonné &
 Dans mon âme, comme une pierre contre un bouclier. #
-Un cri de fureur a retenti, qui m'a réveillé. ï
+Un cri de fureur a retenti, qui m'a réveillé.
 Mon nom, ton nom aussi, Elektre, et celui — :
 Celui ? Je ne t'entends pas. !
 Celui du père. £
-Et depuis, tout a été dit. È
+Et depuis, tout a été dit.
 Je t'ai tant appelé... |
 
 J'étais dans mon lit, et je ne pouvais dormir. ;
-Ce soir-là, il pleuvait; le rouge vent du nord Ê
-Secouait les grands chênes, comme un maître très dur f
-Secoue les eselaves par le bras. J'étais triste, 1
-Et je songeais, — je songeais au beau royaume d'Argos 4
+Ce soir-là, il pleuvait; le rouge vent du nord
+Secouait les grands chênes, comme un maître très dur
+Secoue les eselaves par le bras. J'étais triste,
+Et je songeais, — je songeais au beau royaume d'Argos
 
-44 Et à mon père mort,
+Et à mon père mort,
 
 <8 Alors une voix a murmure dans mon cœur;
 
-D: Puis, peu à peu, elle a crié, menaçante et si fort È
+D: Puis, peu à peu, elle a crié, menaçante et si fort
 __  Qu'à jamais je l'entends : — Oreste! Oreste! Oreste!
 
 ‘1 ORESTE, comme s'il écoutait
@@ -6672,16 +6665,16 @@ Hélas ! et j'amasse les ténèbres sur moi.
 O malheureux, l''épouvantable don m'a été fait À
 De rendre l'amère justice. Puis-je fuir ? ?
 Mais comment ? Qui peut se laver de lui-même? ä
-Rejeter sa pensée ? Se dépouiller enfin de soi? 4
+Rejeter sa pensée ? Se dépouiller enfin de soi?
 F Du sang d''Agamemnon tu ne pourras vider tes veines. ‘4
-Combien j'aimais le jour, le baume du réveil! É:
-Et maïntenant, la profonde horreur est mon lit : 1
+Combien j'aimais le jour, le baume du réveil!
+Et maïntenant, la profonde horreur est mon lit
 Je ne le quitte plus sous les draps des ténèbres.
 Là, qui s'est couché une fois, jamais plus ne se lève. À
 Quel soupir déchirant!.… Mais — à
-Elle s'arrête interdite, Oreste s'est baissé. Il gratte la terre, et 4
+Elle s'arrête interdite, Oreste s'est baissé. Il gratte la terre, et
 s'en met dans la bouche. }
-Terre, qui sues le sang, pain de mort, je te mange. 4
+Terre, qui sues le sang, pain de mort, je te mange.
 Empoisonne mon cœur, à froment de forfaits. : :
 
 __  Taris en moi la source de l'humanité; dessèche
@@ -6696,7 +6689,7 @@ h À Œnops entre. Il accourt avec une partie du chœur.
 di . Jai compris la terre fatale, et le roc de Mycènes
 …  Semblable à la face des dieux :l'Acropole de sang
 “ Aussi est Destinée, et le meurtre un Destin
-4 Vêtu de pourpre. Pourquoi, dis, luttes-tu ? Pourquoi,
+Vêtu de pourpre. Pourquoi, dis, luttes-tu ? Pourquoi,
 - Oreste? Tu es l'ablette que l'aveugle impassible
 ” Pêche ici, au jour dit, à l'hameçon de la vengeance,
 _ À l'appät de l'action : ne résiste plus! Va, tombe :
@@ -6719,7 +6712,7 @@ _ Vous,gardiens des tombeaux, ce soir, si le vieux roi d'Athènes
 b Port sous mon toit, hôte de la maison, je ne dois pas
 _ Vous oublier : vous aurez part aussi à ce festin,
 F É Ï1 faut vous réjouir de ce qui réjouit vos maitres.
-o? Vous savez comme moi ce qu'on dit : dans son exil, e
+o? Vous savez comme moi ce qu'on dit : dans son exil,
 _ Le maladif Oreste est mort, ou va bientôt mourir.
 Les dieux l'ont condamné, puisqu'ils lui refusent de vivre.
 _ Elektre, je m'étonne que tu ne pleures pas,
@@ -6728,7 +6721,7 @@ Elektre et Oreste
 Pas devant toi, tu te plais trop à voir couler mes larmes.
 É Tu te repais des douleurs que tu causes, je le sais.
 Non : mais je suis heureux du bonheur qui m'arrive.
-Ton cœur farouche est celui d'une fille qui n'a pas aimé. é
+Ton cœur farouche est celui d'une fille qui n'a pas aimé.
 D'une fille orpheline. Et ton humeur joyeuse est celle
 De l'honnête homme à qui tout réussit : pense à la fin.
 Je pourrais te punir : je suis le maître ; mais je ris
@@ -6744,16 +6737,16 @@ Je ne le ferai pas : Je maudirais. Si la maison,
 Désormais, est à toi, mon âme et mon souffle me restent.
 
 Rex a le feras. Ma maison est la tienne. Quant à moi,
-Ke pense, Œnops, à conjurer jusqu'au souvenir même f
+Ke pense, Œnops, à conjurer jusqu'au souvenir même
 ; un passé qui n'est plus : ici, vous avez trop vécu,
 - Tous et moi aussi peut-être, dans un regret sournois,
 Rongeant cette racine amère qui donne l'insomnie, À
-6 Et agace les dents. Moi-même, grâce à vous, je vois
+Et agace les dents. Moi-même, grâce à vous, je vois
 Mes nuits hantées d'ombres funestes. J'ai résolu |
 È | D'écarter tout souci : pleurent les enfants et les femmes,
 _ Sans oser prendre leur parti d'une action parfaite ! ;
 | Soit ! C'est à l'homme d'imiter les dieux très calmes,
-_ Et d'en suivre l'imperturbable exemple : Que sommes-nous, K
+_ Et d'en suivre l'imperturbable exemple : Que sommes-nous,
 Si nous ne sommes pas capables de la joie ?
 _ Œnops, tu porteras des libations au tombeau
 mi: De qui dis-tu ?
@@ -6770,17 +6763,17 @@ Pourquoi ? — Si l'ancien roi n'est plus, c'est qu'il dut plaire
 FN Qu'un autre en prit la place. Demain tu porteras l'offrande,
 Œnops; tu feras la libation pour nous. ‘4
 
-Ne l'attends pas de moi. - 4
+Ne l'attends pas de moi.
 
 \ Pourquoi me regardes-tu toujours avec tant de haïne, ‘314
 
-. . 4
+.
 
-Parce que je te hais. N'approche pas. à 4
+Parce que je te hais. N'approche pas. à
 
 Haïs-moi donc : si pour regards ils avaient des couteaux, “4
 
-Tes yeux m'auraient tué. 44
+Tes yeux m'auraient tué.
 
 ELEKTRE, entre ses dents ‘Al
 
@@ -6795,32 +6788,32 @@ _ N'approche pas.
 _ Peut-être aimeras-tu la main qui caresse en frappant.
 La main qui frappe, je l'aimerai. N'approche pas.
 x Elle recule ! Que crains-tu ?
-6 Je ne te crains pas.
+Je ne te crains pas.
 
 D. : FRS Tu vas tomber sur le tertre. Moi, je aime —
 _ Je t'aime comme un père.
 D: À O toi, entends cet homme,
 _ Entends-le.
 
-Elektre et Oreste 4
-à Qui invoques-tu ? 4
-7 La main qui frappe. h ,
+Elektre et Oreste
+à Qui invoques-tu ?
+La main qui frappe. h ,
 Tu vis dans ce tombeau ! à
 Puisse la vie de ce tombeau
 M'exaucer tout à l'heure ! puisse-t-elle en surgir un.
 Tout armée! Insulteur, prends garde à toi, si tu me touches.
 Qu'elle est belle ! 11 me semble parfois que tu le voudrais.
 Quelque jour, —quelque nuit, —je verrai ta colère à l'épreuve. …
-ELERTRE, avec dégoût L
+ELERTRE, avec dégoût
 Tu es rouge et pris de vin, sans doute. Cet homme,unroi?
-Je le suis. Et je suis jeune, et tu l'oublies, Elektre. 4
+Je le suis. Et je suis jeune, et tu l'oublies, Elektre.
 , Ne me brave donc pas ainsi : je fais ce qu'il me plaît; :
-Je jouis de la vie, que tu ignores. Et toi — J
+Je jouis de la vie, que tu ignores. Et toi
 Mais ton épaule, en vérité, sous le voile est si blanche, À
 Et si blanche ta gorge, sous le torrent des noirs cheveux... "4
 Tu es pàle comme l'aube et sombre comme la nuit. ‘à
-; Souple et prête à bondir ! ; 4
-Il fait un pas vers elle. £ k
+; Souple et prête à bondir !
+Il fait un pas vers elle. £
 
 | ELEKTRE, à voix basse, désespérée
 Père, père ! A moi!
@@ -6832,10 +6825,10 @@ Klytemnestre paraît sur le seuil. Elle ne descend pas les degrés. —
 è avec Ægisthe. — Aux autres avec mépris.
 _  Ægisthe, ainsi tu étais là ? A mon réveil
 Je tai cherché des yeux, et de la main. En vain!
-_ * Ha — mon cœur battait pour toi, car je t'ai vu souffrir 9
+_ * Ha — mon cœur battait pour toi, car je t'ai vu souffrir
 _ Au cours d'un triste rêve : O mon cher Seigneur, tu pleurais.
 C'est toi, sans doute, Elcktre, qui oses rire, misérable ?
-188 Je ris de colère et de douleur, ma mère.
+Je ris de colère et de douleur, ma mère.
 ._ Que fais-tu ici, fille détestable ?
 ABE Que rôdes-tu encore
 _ Autour de ce tombeau où je l'ai cent fois défendu
@@ -6843,24 +6836,24 @@ _ D'étaler l'insolence de tes larmes ?
 
 Elektre et Oreste nn.
 
-Une voix nocturne qui me parle de toi. 000
-Tu me défles ! Je te. Rentre dans la demeure. 4
+Une voix nocturne qui me parle de toi.
+Tu me défles ! Je te. Rentre dans la demeure.
 
-Ici, je suis venue. [ei je resterai. 100
+Ici, je suis venue. [ei je resterai.
 Je ne suis pas esclave. Je suis la fille de ton Roi. À
 KLYTEMNESTRE, elle fait un pas \
-Ne le répète pas. 1
-; De ton roi et du mien, ma mère. î
+Ne le répète pas.
+; De ton roi et du mien, ma mère.
 
-Il a senti le poids de cette main, ton roi. 1
-C'est toi qui oses maintenant sourire? T0
+Il a senti le poids de cette main, ton roi.
+C'est toi qui oses maintenant sourire?
 
 x Oui, de bonheur.
 ë Sur ta méchanceté, sur ta haine envieuse
 \ Je souflle : elles ne me pèsent pas plus que le fardeau °
-4 Que la poitrine chasse d'une haleine, — ainsi!
+Que la poitrine chasse d'une haleine, — ainsi!
 x La baïne ni l'amour ne ressuscite pas les morts.
-4 Il n'est que la vengeance, je le sais.
+Il n'est que la vengeance, je le sais.
 ; Consume-toi sur une pierre au haut d'un tertre,
 : Si tel est ton plaisir. Que m'importe? ici,
 $ Tu n'es rien qu'une fille funèbre.
@@ -6876,30 +6869,30 @@ Domine-toi, ma mère.
 Tu n'oublies pas, non plus. Tu ne me fais pas peur.
 
 Elektre et Oreste ER
-Ne me brave pas trop : le jour viendra de te punir. D:
-Le jour n'est pas venu. Tu n'oses pas. Pourquoi E.
-À N'oses-tu pas, pourtant? — Veux-tu que je le dise? 4
-Klytemnestre en fureur descend quelques degrés. Ægisthe l'arrête 4
+Ne me brave pas trop : le jour viendra de te punir.
+Le jour n'est pas venu. Tu n'oses pas. Pourquoi
+À N'oses-tu pas, pourtant? — Veux-tu que je le dise?
+Klytemnestre en fureur descend quelques degrés. Ægisthe l'arrête
 Éloignons-nous, mes amis, si vous m'en croyez. À
 Il est temps de quitter ces vivants pour nos morts. ;
-Là,que grommelez-vous ? Les fouets sont prêts pour lechenil. F.
+Là,que grommelez-vous ? Les fouets sont prêts pour lechenil.
 ZÆgisthe, laisse-les. Ils tirent sur la chaîne, les chiens ; à
 Mais ils sont enchaînés. Vous n'osez plus que murmurer;
 La crainte a muselé vos aboiements de meute maigre?
 Rongez votre os, mais sans gronder : Je sais que mon amour .
 Et peut-être ma vie vous font ombrage.
 Eloignons-nous. ‘4
-Vous ferez bien, et gardez le respect : sinon, ce soir, J
+Vous ferez bien, et gardez le respect : sinon, ce soir,
 Vous pourriez être exclus du festin : le partage À
-Des viandes et du vin se fera sans vous, imprudents! s
+Des viandes et du vin se fera sans vous, imprudents!
 
 we KLYTEMNESTRE, rit, puis d'un # dur :
-4 Mon Ægisthe! tu sais forcer la fureur même à rire...
-4 La viande et le vin vieux, nous le savons, sont des bâillons
+Mon Ægisthe! tu sais forcer la fureur même à rire...
+La viande et le vin vieux, nous le savons, sont des bâillons
 ; Puissants à votre bouche, à vétérans des grandes guerres ?
 | Longtemps, il vous a plu d'aller de ces tombeaux
 À notre table, et de nos tables vides à ces tombeaux.
-_ Votre fidélité repue parlait un peu moins haut. É
+_ Votre fidélité repue parlait un peu moins haut.
 , Maïs, maintenant, cette fille acharnée à sa perte
 ] Vous tente à la vôtre, il me semble? Sa révolte vous gagne;
 ‘à Mais qu'y gagnerez-vous? Vous jeünerez; vous aurez faim.
@@ -6914,32 +6907,32 @@ He Non, sans doute, pleure-le donc.
 
 K Oreste ne vit plus?
 
-2 81 5.
+2
 
 Elektre et Oreste
-Alors, ma mère, crains les dieux. 1
-c Je sers les dieux, 4
+Alors, ma mère, crains les dieux.
+c Je sers les dieux,
 | Et je ne les crains pas. Tu peux marcher sur moi, l'écume
 Aux lèvres : Que me font tes menaces ? ‘4
-Hausse les épaules, 4
-Va, brave-moi : mais écoute. ” É.
+Hausse les épaules,
+Va, brave-moi : mais écoute. ”
 elle pousse un cri terrible |
 ; Ha — vous tous, à dieux, |
 O dieux, je vous convoque, ici! C'est l'heure. à CL
-Ne frémis pas pour si peu, Klytemnestre. Elle délire. 10
-Peut-être, elle veut t'effrayer. 4
-Te tairas-tu, maudite? W
-Je me tais; mais tu trembles. 4
+Ne frémis pas pour si peu, Klytemnestre. Elle délire.
+Peut-être, elle veut t'effrayer.
+Te tairas-tu, maudite?
+Je me tais; mais tu trembles.
 
 _  Ettu baisses la voix. Tu as peur même de parler. il
 Je ne tremble pas... }
-ee Tu trembles, tous le voient. Ÿ
+ee Tu trembles, tous le voient.
 es KLYTEMNESTRE, avec peine
 _ Rebelle, il faudra que tu plies, à moins que tu n'espères
-‘y Que ce soit moi. 0
-‘110 Je plierai; mais tu trembles. e
+‘y Que ce soit moi.
+‘110 Je plierai; mais tu trembles.
 _ . Ægisthe, chasse-la.…. :
-Le Il n'en est pas besoin. 4
+Le Il n'en est pas besoin.
 | Je vais, je vois pleurer Oreste au tombeau de son père.
 _  Chasse-la. Vous tous, vous finirez bien par obéir.
 Vous finirez bien par aimer vos maîtres.
@@ -6947,25 +6940,25 @@ Vous finirez bien par aimer vos maîtres.
 Elektre et Oreste À
 Pourvu qu'ils soient soumis”? Tu dois toi-même te soumettre. À
 
-La ville y a été réduite; vous le serez aussi. 4
-elle descend les degrés, à mesure que le Chœur, et Elektre se reti- n.
+La ville y a été réduite; vous le serez aussi.
+elle descend les degrés, à mesure que le Chœur, et Elektre se reti-
 ù rent derrière le tertre. Elle s'appuie sur Ægisthe, avec lassitude. ;
 ; Viens, viens près de moi. Viens avec moi. à
-ELEKTRE, derrière le tertre, au tombeau lugubrement 0
+ELEKTRE, derrière le tertre, au tombeau lugubrement
 O morts, tristes veilleurs de la nuit étouffante, ) *
 Votre grief, à morts, fait votre éternelle insomnie.
 Mais parfois un enfant vous entend et vous veille. hi
 O morts, je veille. Re:
-Tu joues à les dompter, à reine impérieuse ? 54
+Tu joues à les dompter, à reine impérieuse ?
 Ils s'en vont; ils ont peur même de retourner la tête. ri
-ii Reine impérieuse, ton esclave, esclave de son roi. F 1
+ii Reine impérieuse, ton esclave, esclave de son roi.
 à Viens, viens près de moi. Toi seul!.. Leur envie, leursoutrages
 Je sais tout ce qu'ils pensent et n'osent dire contre nous.
 J'en ris. Mais quand à mon réveil, tu n'es pas là, Ægisthe,
 Tout m'épouvante alors, tout m'est à charge ettoutm'estvide.
 Se peut-il que tu m'oublies ? +14
 
-Toujours la même plainte? :10
+Toujours la même plainte?
 
 DA: Toujours la même crainte. Ah, nomme-moi ta Reine encore,
 
@@ -6985,25 +6978,25 @@ Moitié la plus chère du sceptre, et bonheur de ma couche !
 ï Plus précieux à mesure qu'on nous haït davantage,
 Mon seigneur, mon amour, jeunesse de ma vie,
 
-; Ne me retire rien de toi si tu veux que je vive ; 1
+; Ne me retire rien de toi si tu veux que je vive
 
 Elektre et Oreste
-Je ne vis qu'en toi seul ; je suis forte pour toi, 4
+Je ne vis qu'en toi seul ; je suis forte pour toi,
 Et sans toi je suis faible et vaincue, je suis lâche, ‘ ‘#
-Je tombe comme une morte. É:
-Non : c'est l'idée de te perdre. F
+Je tombe comme une morte.
+Non : c'est l'idée de te perdre.
 Je dédaigne leur haine comme leurs calomnies. * %
-Mais toi! Je n'ai que toi, toi seul. O ne me prive pas 1
-De ta présence. Pourquoi, tantôt, pourquoi es-tu sorti ? M
-À Pourquoi l'ai-je trouvé avec Elektre ? 4
-Quoi donc ? Dois-tu compter chaque pas que je fais ? 4
+Mais toi! Je n'ai que toi, toi seul. O ne me prive pas
+De ta présence. Pourquoi, tantôt, pourquoi es-tu sorti ?
+À Pourquoi l'ai-je trouvé avec Elektre ?
+Quoi donc ? Dois-tu compter chaque pas que je fais ?
 Jadis tu n'étais pas ainsi. ‘4
-J'étais plus jeune alors. K:
+J'étais plus jeune alors.
 O puisses-tu périr, et moi, eux tous, et Mycènes Ne
 Et l'univers entier, avant que je te perde ! À
 Est-ce là ton amour ? Ki
 C'est lui : Que tu me doives tout, nu
-La vie et le bonheur, que tu me doives chaque soufile, 14
+La vie et le bonheur, que tu me doives chaque soufile,
 
 nr _ Chaque goutte de sang que le cœur chasse dans tes veines,
 …_  Etqu'ilchassepour moi: c'estmon amour et ce qu'il souhaite.
@@ -7015,33 +7008,33 @@ M: Que tu n'aies que moi seule, à fin que je t'aie seul.
 4 __. Comme la peau aime la chair interne, je Vaime,
 ; Je t'aime comme la chair aime les os.
 _ Laisse ma main, Tu pleures?
-100 Tu balbuties, tu murmures, je n'entends pas...
+Tu balbuties, tu murmures, je n'entends pas...
 n Ægisthe, je vieillis.
 
 il f » Elle le saisit, lui faisant baisser la tête.
 LA Voilà ce qui me ronge,
 
 ‘4 Ne t'en es-tu jamais douté ? :
-119 87
+119
 
 Elektre et Oreste
 
-Tu ne m'aimes donc plus ? 1
+Tu ne m'aimes donc plus ?
 Elle se cache le visage dans sa poitrine.
-Je n'aurais pas dù le dire : tu ne me démens pas... F;
+Je n'aurais pas dù le dire : tu ne me démens pas...
 “Hé, pourquoi l'as-tu dit ? — femme, tu m'irrites. %
 Ah, pourquoi, je ne sais ! Et toi si jeune encore
-Si beau, si fort... à moi, pourtant, toujours à moi ! 4
-Ou sinon que le roc sanglant de la grande Mycènes, 10
-Que l'os du dos, l'échine de cette ville du sang, 510
-S'ouvre par le milieu, et — s'abîimant nous abîme ! È
+Si beau, si fort... à moi, pourtant, toujours à moi !
+Ou sinon que le roc sanglant de la grande Mycènes,
+Que l'os du dos, l'échine de cette ville du sang,
+S'ouvre par le milieu, et — s'abîimant nous abîme !
 Tu rêves ces dangers. Je n'en vois point; tout est à nous; À
-Et la maison est pleine d'or. L.
+Et la maison est pleine d'or.
 Tu m'es plus précieux ‘à
 Le danger n'est pas là ; nous avons prospéré We.
-Dans la haine, comme au bord de l'étang un double chêne. 16
+Dans la haine, comme au bord de l'étang un double chêne.
 En est-ce fait pourtant des jours heureux ? Sont-ils finis ? "4
-Et m''aimes-tu ? Court silence. Maimes-tu ? 4
+Et m''aimes-tu ? Court silence. Maimes-tu ?
 
 4, ‘ Certes je t'aime...
 KR _ Alors, les jours heureux ne commencent qu'à peine !
@@ -7049,7 +7042,7 @@ __ … Que les morts sortent de la tombe, et je leur tiendrai tête;
 # _ Je ferais tête aux dieux.
 ‘4 Voilà bien ma vaillante reine.
 _  Vaillante pour toi, pour toi vivante : mais aime-moi.
-14 Plus guerrière pour toi que l'armée pour Hélène ;
+Plus guerrière pour toi que l'armée pour Hélène ;
 _ Plus guerrière que la mer à l'assaut des îles,
 : _ Quand l'ardente tempête souflle du ciel qui fume;
 ‘3 _ Pour ie garder, plus brave que vous tous dans vos guerres...
@@ -7061,28 +7054,28 @@ _ Soit. — Je t'y attends ? Tu détournes les yeux ?
 __ J'ai donné l'ordre à ton esclave préférée,
 1 _ Phænissa la Troienne, celle qui réjouit ta vue...
 
-Elektre et Oreste l
-Klytemnestre le suit des yeux. Elle parle lentement, d'un ton morne, 4
-en montant les degrés. 1
+Elektre et Oreste
+Klytemnestre le suit des yeux. Elle parle lentement, d'un ton morne,
+en montant les degrés.
 Tu y cours ! Silence. ne
-/ Il court à son esclave, il a ri de plaisir. \ 3
+/ Il court à son esclave, il a ri de plaisir. \
 Soudain, je suis lasse ; je suis brisée. Je m'abandonne. à ;
-Je l'aime, et je lui pèse. Ha, pourvu que je l'aie, k
-Ægisthe, pourvu que jamais je ne cesse de l'avoir, L:
+Je l'aime, et je lui pèse. Ha, pourvu que je l'aie,
+Ægisthe, pourvu que jamais je ne cesse de l'avoir,
 J'accepte le combat. Ma main sait manier la hache... À
 Certes, Oreste est mort. Court silence. Le soleil aujourd'hui, ‘ À
 Mord la terre comme un lion boit le cœur de sa proie. \
 Ægisthe, Ægisthe, parfois je eroirais qu'il me haït. @
-Quelle hâte, quand il me quitte; qu'il est lent près de moi! 7
-Mais défends-moi, ou je cesse de me défendre. 14
+Quelle hâte, quand il me quitte; qu'il est lent près de moi!
+Mais défends-moi, ou je cesse de me défendre.
 Je vieillis, je vieillis. Ha, — pourquoi lui ai-je dit 1 ;
 Ce que jamais je n'aurais dû lui dire? te
 Je ne sais. En vérité, je ne sais pas: une voix, %
 Parle en moi pour moi-même, que je ne puis contraindre. !
-Accablante journée ! Une étrange menace plane, 1
+Accablante journée ! Une étrange menace plane,
 Un nuage de feu. Court silence. Mais, pourquoi, lui ai-je dit .….? À
-Je ne me connais plus. 11
-Sur le seuil, elle se heurte à Glaïa qui entre. 1
+Je ne me connais plus.
+Sur le seuil, elle se heurte à Glaïa qui entre.
 
 k Je ne suis pas vaincue encore.
 à Elle parle à Glaïa avec une violence croissante et sur le ton de Ja
@@ -7094,12 +7087,12 @@ S'il est vrai, alors aie pitié de ma peine.
 
 Tu voudrais bien qu'il fût vivant ?
 
-4 Si sa mort n'est pas sûre,
-14 Est-il possible que tu l'espères ?
+Si sa mort n'est pas sûre,
+Est-il possible que tu l'espères ?
 
-1 O, déchire-moi, si tu veux, mais je te le dirai : ë
+O, déchire-moi, si tu veux, mais je te le dirai
 
-4 Amante plus que femme, amante plus que mère,
+Amante plus que femme, amante plus que mère,
 
 à Et de toutes la plus impie.
 
@@ -7110,23 +7103,23 @@ Tu voudrais bien qu'il fût vivant ?
 # Et je te renverrai, les bras liés, dans ton village.
 
 S Elektre et Oreste nes je
-\ Fais-le. Non, non! Pardonne-moi!... Oreste, | 3
+\ Fais-le. Non, non! Pardonne-moi!... Oreste,
 J'aimais tant cet enfant, j'en étais fière, grande Reine. à:
-Toi, je le saïs, en lui tu haïssais le père. 4
+Toi, je le saïs, en lui tu haïssais le père.
 
 Tu as compris, enfin : fais-le comprendre à sa sœur, ‘4
 Si tu peux : un seul amour, en moi, une seule haine. .
-Sais-tu où je vais maintenant? à 4
+Sais-tu où je vais maintenant? à
 Comme moi, tous le savent. #
 
-Je vais au bain où Ægisthe, mon cher Seigneur, i
+Je vais au bain où Ægisthe, mon cher Seigneur,
 Se délassant dans les parfums m'attend, le même bain, ‘4
 À la même heure où un autre, grâce à mon art, LT
 Tout de son long, jadis, s'est lavé dans la pourpre À
-Et s'en est revêtu à la mesure de son corps. K:
+Et s'en est revêtu à la mesure de son corps.
 O misère, misère! Certes, c'est le sang. ‘1
 
-C'est le jour ! C'est le sang qui te travaille. 1
+C'est le jour ! C'est le sang qui te travaille.
 Quand le vent de la nuit passe sur la chair morte ELA
 El la bouche ouverte du malheureux dans un grand cri, he
 
@@ -7144,11 +7137,11 @@ Vieille femme, tu rêves.
 Qui ta chargée
 De me rendre la mémoire ?
 é Peut-on ne pas penser ?
-1 1
+1
 
 Elekire et Oreste
-Je vis, et j'ai à vivre. Et toi, ton Oreste, ton fils, F:
-Ù Le souvenir 'empêche-t-il de respirer ? 1
+Je vis, et j'ai à vivre. Et toi, ton Oreste, ton fils,
+Ù Le souvenir 'empêche-t-il de respirer ?
 De manger? de dormir ? dis-moi, quand vient l'hiver,
 | Le souvenir de l'été te réchauffe-t-il? |
 As-tu froid, s'il neige ? Et le soir, as-tu sommeil ? À |
@@ -7165,7 +7158,7 @@ Da Je mourrais, misérable nourrice. O esclave!
 ‘al _ Mon amant, ma vie, n'es-tu done pas une femme ?
 ‘4h Mon amant! n'as-tu pas de cœur? n'as-tu que du lait?
 _ Es-tu pareille à la vache dans la prairie ?
-0 Et toi, reine, n'as-tu pas de mamelles ?
+Et toi, reine, n'as-tu pas de mamelles ?
 1 _  Oun'ya-t-ilque du sang danstes seins, commedanston ventre
 “ Au retour de la lune? Es-tu une louve, enfin?
 Mon amant, mon amant! O misérable vieille,
@@ -7174,52 +7167,52 @@ Mon amant, mon amant! O misérable vieille,
 …  Nai-je pas assez d'une fille? Mais mon amant,
 1 _ Ma vie, celui qui m'aime, l'homme que j'aime,
 
-… Que serais-je sans lui ? Et comment vivre? Loi aussi, î
+… Que serais-je sans lui ? Et comment vivre? Loi aussi,
 …. Tu médites sa mort ?.. Cette journée
 …  Finira mal pour vous.
 # Glaïa descend les degrés. — Oreste et Elektre, avec le chœur, revien4 nent sur le devant de la scène,
 
-ÿ Ils font quelques pas en avant. Le jour baisse 3
+ÿ Ils font quelques pas en avant. Le jour baisse
 : Je suis perdu. Silence. ‘à
 
 Non, je n'ai pas un cœur de fer. Silence.
-Destin, terrible est ta face nocturne. 4
-Court silence comme s'il écoutait. 1
-Tu hurles, hibou ?.… tu gémis ?.. Oui, je tentends.. : 4
+Destin, terrible est ta face nocturne.
+Court silence comme s'il écoutait.
+Tu hurles, hibou ?.… tu gémis ?.. Oui, je tentends..
 Et c'est moi, c'est moi qui suis né pour te répondre!... “LV
-C'est moi, c'est moi le dernier et le pire. ; E
-Misère de la race, fatalité du temps, 7
+C'est moi, c'est moi le dernier et le pire.
+Misère de la race, fatalité du temps,
 Le nid du meurtre, la chaude horreur m'y a couvé; ‘4
 Elle m'a réchauffé dans le duvet du sang, :.
 È I] appuie sa tête sur l'épaule d'Elektre, et à voix basse 5 nl
-ELEKTRE, domine son impatience 4
+ELEKTRE, domine son impatience
 Quoi, tu désespères? Attends d'avoir joué. D |
-96 3
+96
 
 aa + Perdu ? Non, frère. Tu gagneras la partie, Eo
 sa Ton royaume, tes trésors, Mycènes. Jette les dés. fs
 Il faut donc obéir au sang ? ai
 14 (os ; ELEKTRE, comme en chuchotant |
-116 C'est toi qui te réponds, toi seul. 4
-x Il le faut. Le fils pour le père. 4
+C'est toi qui te réponds, toi seul.
+x Il le faut. Le fils pour le père.
 _ Nos morts nous poursuivent comme une meute, la nuit,
-Ils aboïent dans le sommeil. j
+Ils aboïent dans le sommeil.
 
 " Ils chassent la bête puante. \
 _  Nirepos, ni rachat...
 
 … Elekire et Oreste |
-Ni repos, ni rachat. Non. 4
-4 Dès que vient le soir, Agamemnon est là, et il dit : |
+Ni repos, ni rachat. Non.
+Dès que vient le soir, Agamemnon est là, et il dit : |
 N'oublie pas, n'oublie pas ! et : pourquoi tardes-tu ?
 Pourquoi tardes-tu ?
 Ha, si j'obéis, je suis perdu.
-Et plus perdu, si je désobéis. 24
-Car mon désir, ma pensée, tous mes mouvements 1
+Et plus perdu, si je désobéis.
+Car mon désir, ma pensée, tous mes mouvements
 Veulent que je frappe... :
 A moi seul, la maison; à moi le sceptre, à moi Mycènes ! tt
 
-A toi, Mycènes. Ë
+A toi, Mycènes.
 
 |! 1 2riReS A moi, mon père ! |
 _ Tuer, enfoncer dans la gorge... ;
@@ -7228,37 +7221,37 @@ _ Le mal, de tous côtés; la mort et la douleur.
 L) # ; à Silence. Il tombe dans une morne rêverie. — Elektre
 300 l'embrasse, et lui relève la tête.
 ‘XS Éveille-toi. Soulève-toi. Rappelle-toi, écoute.
-Ni jte Elle lève un bras, et de l'autre serre Oreste contre elle. 3
+Ni jte Elle lève un bras, et de l'autre serre Oreste contre elle.
 ‘#4 J'appelle Jupiter, je le conjure ici, sur nous ! |
-_ Sur la maison ! Je ferai ce que tu n''oses pas faire, À f
+_ Sur la maison ! Je ferai ce que tu n''oses pas faire, À
 AR Jupiter, toi qui venges, Jupiter, ciel profond,
 Ÿ gi Œil de la nuit, regard du châtiment qui veille,
 _ Jupiter, vois notre misère ! |
-AG % ORESTE, comme malgré lui t k
+AG % ORESTE, comme malgré lui
 4 he Re Vois ma misère,
 
 Elektre et Oreste |
 
 L'aigle est mort sous le bec puant des vautours, à
-L'aigle est mort dépecé. Ils ont chassé les deux aiglons 1
+L'aigle est mort dépecé. Ils ont chassé les deux aiglons
 De l'aire : exilés du foyer, exilés de la vie, ‘4
-Nous vappelons ici, race royale, à roi des dieux ! 14
-La vipère est dans le nid, et dans l'œuf elle va mordre 4
+Nous vappelons ici, race royale, à roi des dieux !
+La vipère est dans le nid, et dans l'œuf elle va mordre
 Les petits de l'aigle : Jupiter, sauve la couvée ! il
 Sauve-nous, Jupiter ! à } # |
-ÿ Sauve-moi, Jupiter. 4
-Sauve-les. 4
+ÿ Sauve-moi, Jupiter.
+Sauve-les.
 
-Jupiter, Dieu, Père de la Justice, toi qui frappes 4
-Avec la foudre, frappe, frappe à la porte du crime! 4
+Jupiter, Dieu, Père de la Justice, toi qui frappes
+Avec la foudre, frappe, frappe à la porte du crime!
 
-- Frappe ! J'adore la justice, 4
+- Frappe ! J'adore la justice,
 La justice qui ressuscile, la justice qui tue. ‘1
 
-Il faut que la justice règne, Jupiter, + ' L:
+Il faut que la justice règne, Jupiter, + '
 
 Me 53 : Il faut que la justice règne. :
-_ Inattendu, surgis! Et surgisse avec toi é
+_ Inattendu, surgis! Et surgisse avec toi
 _ Le voyageur nocturne, impatient du gîte, à
 DAS La mort qui entre au cœur.
 147 | k La mort, qui frappe au cœur.
@@ -7273,22 +7266,22 @@ _ Voix des morts, malédiction à ceux qui vivent, | À
 
 Elektre et Oreste TER
 La vengeance, la lente vieille qui met tant d'années
-A aiguiser, dans son sommeil, le fer de l'action, 4
+A aiguiser, dans son sommeil, le fer de l'action,
 A la fin se réveille.
 Nul rachat du sang versé : pour les perles rouges ;
-Que les rubis de l'hécatombe. k
-5 Le compte y est : 4
-La justice réclame la dette du Destin : ; 4
+Que les rubis de l'hécatombe.
+Le compte y est
+La justice réclame la dette du Destin :
 On entend la voix de Tantale, avarit de le voir. à À
 Me voici, Jupiter! Jupiter, où es-tu ? À
-Pour quoi, pour quel nouveau malheur, le redoutable aïeul 1
-Avec l'ardent soleil descend-il de la tour ? 4
-Et lui qui fuit le jour, s
+Pour quoi, pour quel nouveau malheur, le redoutable aïeul
+Avec l'ardent soleil descend-il de la tour ?
+Et lui qui fuit le jour,
 Pourquoi n'attend-il pas la nuit qui lui est chère ? Le
 Le centenaire aux yeux de loup, au pas tournant de tigre,
 À la bouche amère qui brûle et qui ricane, À
-Nul ne peut l'abuser : Oreste, il va te découvrir. 1
-Terrible par ce qu'il voit, terrible par ce qu'il sait. k
+Nul ne peut l'abuser : Oreste, il va te découvrir.
+Terrible par ce qu'il voit, terrible par ce qu'il sait.
 
 _… Enfants, prenez-y garde : s'il brave la lumière, Oreste,
 _ C'est, j'en ai peur, que son démon le presse.
@@ -7309,30 +7302,30 @@ Dans la maison, et s'il est reconnu, Oreste est mort.
 { Que le couteau me précède, soit que ma main le tienne,
 
 … Soit que je l'aie dans le cœur, — et que je meure.
-40 On entend des pas.
+On entend des pas.
 
-à Tantale va paraître. Défends-toi d'abord de ses yeux. 4
-+ Tantale paraît. Il tient le milieu de la place. On s'éloigne de lui. JL 5
-< 4 est très grand, très fort, vêtu de pourpre des pieds à latête. I1a M
+à Tantale va paraître. Défends-toi d'abord de ses yeux.
++ Tantale paraît. Il tient le milieu de la place. On s'éloigne de lui. JL
+< 4 est très grand, très fort, vêtu de pourpre des pieds à latête.
 une crinière blanche et la face rouge. Il parle fort et dur, mais
-d'un ton un peu sourd. 4
-Où est-il, celui qui m'attend — et ne me connaît pas ? 4
-XL à voix basse l
+d'un ton un peu sourd.
+Où est-il, celui qui m'attend — et ne me connaît pas ?
+XL à voix basse
 Il regarde, il sourit, et du mème air cruel,
-Toujours il tend les bras, les deux mains en avant, 4
-Comme pour saisir un trésor qui lui échappe, 4
-Et que ses doigts se crispent de ne tenir pas. L
-L'odeur rouge de la curée tombe avec l'or du jour. 4
-Les labours affamés en aspirent la gloire. 4
+Toujours il tend les bras, les deux mains en avant,
+Comme pour saisir un trésor qui lui échappe,
+Et que ses doigts se crispent de ne tenir pas.
+L'odeur rouge de la curée tombe avec l'or du jour.
+Les labours affamés en aspirent la gloire.
 L''odeur rouge flotte sous le ciel tiède, je la sens :
 Elle est sortie de la maison, comme le chien de chasse +
 Qui bondit le premier et dépasse les cavaliers. 4 |
-Où es-tu, lionceau, toi qui tournes autour des tombes ? Ë
-J'ai flairé ton odeur. Tes voies croisent mes voies. 4
+Où es-tu, lionceau, toi qui tournes autour des tombes ?
+J'ai flairé ton odeur. Tes voies croisent mes voies.
 Où es-tu ? Parais, si tu ne veux pas que je te cherche. # |
 Où es-tu? — Viens! Je te dirai ce qu'il faut faire, 4 |
-L'arme qui découd, à la main. Je veux tapprendre À k
-Comme la dent s'aiguise. silence 4
+L'arme qui découd, à la main. Je veux tapprendre À
+Comme la dent s'aiguise. silence
 J'ai faim, et je ne mange plus. — J'ai soif, et ne bois plus.
 
 de que suis repu de vie avec l'envie de me repaître. ! |
@@ -7343,7 +7336,7 @@ _ Prends pitié de ton sang, qui te supplie.
 
 _ Ilna point de pitié : il la dédaigne.
 
-… Fort, fort je suis! Les dieux m'ont livré la force : è
+… Fort, fort je suis! Les dieux m'ont livré la force
 
 En vain! Ils m'ont ôté le sceptre : En vain! Je vis!
 _ Et la race des fauves se mange sous mes yeux.
@@ -7354,29 +7347,29 @@ _ Condamné au désir par la haine des dieux.
 y Mais en vain! Près de moi, mon lionceau ! }
 È Nele découvre pas. Protège-le plutôt. ,
 
-Elektre et Oreste L
+Elektre et Oreste
 ————————
 Il ira près de toi, si tu quittes le promontoire À
 Dangereux de ce roc, où tu te dresses plus visible #
-Qu'un pavillon de guerre sur le grand mât. Il se cache. É
-TANTALE, il tend les bras 3
-Qu'il vienne ! du plus haut, je veux voir avec lui ma terre; « Le vieillard est enchaîné dans l'enfer des vivants. k
-il crie L
-É En vain! Ô dieux, n'y comptez pas! d'ici, tout le pays : 1
+Qu'un pavillon de guerre sur le grand mât. Il se cache.
+TANTALE, il tend les bras
+Qu'il vienne ! du plus haut, je veux voir avec lui ma terre; « Le vieillard est enchaîné dans l'enfer des vivants.
+il crie
+É En vain! Ô dieux, n'y comptez pas! d'ici, tout le pays
 La mer calme et bientôt la nuit, la ville et les eselaves. ‘
 Vous étreindre et vous étouffer ! et vous garder
 A moi, —à moi, — à moi! À
 Divin, tu es le délirant des dieux que tu rejettes.
-Tu nous fais peur, puissant : tu parles d'un autre âge! 4
-Le nôtre est trop petit et ce n'est rien qu'une ombre 4
-æ Dans le sillage inexpliqué de ta grandeur. 4
+Tu nous fais peur, puissant : tu parles d'un autre âge!
+Le nôtre est trop petit et ce n'est rien qu'une ombre
+æ Dans le sillage inexpliqué de ta grandeur.
 Ici, les fleurs rouges : ici, les plus belles de toutes, À
-Mes filles, les sœurs fatales, jumelles de ma tige, 4
-Nées pour le désir éternel et la perte des hommes, f
-Hélène, tombeau des armées, Hélène, fleur de l'aube, h
-Hélène, chant de la mort qui ravit l'âme, sirène! D:
-Et l'autre Klytemnestre, source des attentats. ÿ
-106 2.
+Mes filles, les sœurs fatales, jumelles de ma tige,
+Nées pour le désir éternel et la perte des hommes,
+Hélène, tombeau des armées, Hélène, fleur de l'aube,
+Hélène, chant de la mort qui ravit l'âme, sirène!
+Et l'autre Klytemnestre, source des attentats.
+106
 
 + 4 Vous fîtes bien, mes filles, beautés royalement cruelles;
 Et quel dieu, quelle déesse, fit plus de mal que vous?
@@ -7397,19 +7390,19 @@ K _ Je survis seul! Ici, les tigres ont eu leur repaire, |
 É Un seau, plein jusqu'aux bords, de messages funestes. )
 
 Elekire et Oreste PA
-La pensée du plus fort brave toutes les ruines. " 4
+La pensée du plus fort brave toutes les ruines. "
 Gardien du gouffre, je veille sur linfortune : he
 Que j'y assiste, comme le soleil à un naufrage! . de.
-Je ris à chaque crime, à chaque insensé de mon sang. N
-Je fais l'écho au choc de sa chute à la tombe noire. N
+Je ris à chaque crime, à chaque insensé de mon sang.
+Je fais l'écho au choc de sa chute à la tombe noire.
 
 Je suis là, veilleur, pour l'y guider : s'il faut, je y pousse
-À ELEKTRE, s'élance avec colère É
+À ELEKTRE, s'élance avec colère
 k Ah, ne dis pas son nom! à
 S'il te faut un élan, je suis là, cher parricide. FR.
-Arrive. Je te le donnerai, de cette main, ; 4
-« Entre les deux épaules. ù
-De l'enfer souterrain. 4
+Arrive. Je te le donnerai, de cette main,
+« Entre les deux épaules.
+De l'enfer souterrain.
 La maison sur le roc, et Tantale sur la maison, *}
 Jamais l'Olympe n'est si loin, qu'il ne puisse écraser %%
 L'impie sous sa grande ombre. LE
@@ -7442,12 +7435,12 @@ Réponds à ton destin, souffre et fais souffrir. Frappe et tue.
 “ _ Oreste, je l'attends !
 A Elektre s'élance, Oreste la précède
 
-4 ORESTE, avec ardeur
+ORESTE, avec ardeur
 
 … Me voici, vieillard, — si c'est moi que tu veux dire.
 
-109 7
-1 1
+109
+1
 
 Elektre et Oreste
 + Bienvenu, malheureux, dans la place où tu dois périr, +
@@ -7456,7 +7449,7 @@ ELEKTRE, avec rancune }
 Toi aussi, tu es là, le fauve aïeul des fauves. |
 Je suis venu pour l'heure où la chasse commence. À
 Encore un, Jupiter, encore un qui t'est dévolu. à
-Oreste, je te vois tel que je l'attendais. Approche. 4
+Oreste, je te vois tel que je l'attendais. Approche.
 N'est-ce point toi, la nuit, qui as crié à mon oreille?
 Moi et tous. Chaque grain de ces pierres. Lève-toi. {
 Marche, guette, et bondis. N'épargne rien.
@@ -7465,8 +7458,8 @@ Mais toi, \
 Ne parle que trop fort : à désir que je ne puisse, }
 Désir dénaturé, te rejeter de moil... | ;
 
-Te séparer de ton désir? Veux-tu te retrancher ù
-De ta vie même ? Ton désir palpite malgré toi, p
+Te séparer de ton désir? Veux-tu te retrancher
+De ta vie même ? Ton désir palpite malgré toi,
 
 Comme le cœur de l'agneau, arraché de la poitrine,
 Oiseau plumé à vif, saute dans la main du boucher.
@@ -7486,20 +7479,20 @@ Ne pleure pas d'avance : il sera toujours temps :
 ORESTE, avec douleur
 Il dit vrai. Que me resterait-il ?
 
-L'assassinat, te dis-je, l'arme des puissants, L
+L'assassinat, te dis-je, l'arme des puissants,
 Le libre assassinat, la loi des dieux.
 
 Non, la vengeance.
-Les dieux se vengent, ma fille, et l'homme assassine. Ÿ
+Les dieux se vengent, ma fille, et l'homme assassine.
 
 Impie entre tous les impies : fatal à tous.
-TANTALE, avec mépris ; Ë
+TANTALE, avec mépris
 
 Oui, c'est moi qui ai osé mettre les dieux à l'épreuve :
-Les dieux outragent l'homme, ils méritent d'être outragés. ë
+Les dieux outragent l'homme, ils méritent d'être outragés.
 Certes, impie : car j'ai osé. .#
 
-4 1
+4
 | i _ Impie et redoutable.
 à L: ù Comptes-tu sur ces gueux, Oreste ?
 _ Plus craintifs que les poules, ils fuiront si tu tombes.
@@ -7522,21 +7515,21 @@ Elektre et Oreste
 ELEKTRE, avec indignation |
 Tantale, tu nous calomnies. di
 Ce soir, Oreste, le gibier traînera sur la terre. : (3
-Prépare les couteaux pour dépouiller la bête. V
+Prépare les couteaux pour dépouiller la bête.
 J'y serai. Tous vos actes sont justes, à meurtriers ;
 Et pourtant, ce ne sont que des crimes.
 Il éclate de rire. '
 Exit Tantale. On entend l'écho de son rire. ‘4
 Ne frissonne pas ainsi des pieds à la tête. :
 Pas un n'est mort sans engendrer la mort pour qui à
-La lui donna : l'imprécation de la victime 4
-Est éternelle. Sur le dos, il regarde le ciel, 4
-Il parle aux dieux qui se penchent vers lui. Oser ! ñ
+La lui donna : l'imprécation de la victime
+Est éternelle. Sur le dos, il regarde le ciel,
+Il parle aux dieux qui se penchent vers lui. Oser !
 O misères humaines ! Le mal n'a pas de fin, à
 Le mal, le jumeau de la vie. |
-Le crépuscule est venu. 10
+Le crépuscule est venu.
 Le Chœur se divise. Les uns (I et IV) conduits par Œnops, entourent \
-Oreste et l'entraïnent peu à peu avec eux, sous les arbres. (à n
+Oreste et l'entraïnent peu à peu avec eux, sous les arbres. (à
 Les autres (I et III) conduits par Elektre, se groupent près du tom- #4
 
 . À l'œuvre, enfants ! Et tentez la fortune.
@@ -7557,29 +7550,29 @@ Brüûülant dans son œil, l'éclair nu,
 _  Enragé par l'attente,
 | L'innocence du crime
 À El sa paix endormie.
-1 11
+1
 
 Elektre et Oreste |
 Comme un lion à la fontaine, ‘ |
 Relevant les babines et la griffe acérée
 Encore lourde de pourpre |
 Comme on boit le nectar, |
-Lappera le sang pur, ù.
-Le vin cruel de lhomme. É
+Lappera le sang pur,
+Le vin cruel de lhomme.
 Ici, les deux groupes du chœur se trouvent réunis. Elektre saisit #
 Oreste avec passion. Ils s'embrassent. Elektre contemple son frère,
 et lui met les deux mains sur les épaules.
 Je te contemple. O dieux, si je devais encore te perdre !…
-Mais non, ce ne sera jamais sans me perdre moi-même. 4
-O ma sœur, survis-moi plutôt si je péris : revis F
+Mais non, ce ne sera jamais sans me perdre moi-même.
+O ma sœur, survis-moi plutôt si je péris : revis
 Alors, te dis-je ; oublie Oreste, et te réconcilie. “
 Oublier, moi ? Moi, pardonner ? O frère bien aimé, |
-Tu veux que je te haïsse ? Ma force dans ton cœur! 14
-Tout mon amour pour toi, et toute ma haine pour eux, è
+Tu veux que je te haïsse ? Ma force dans ton cœur!
+Tout mon amour pour toi, et toute ma haine pour eux,
 Puise-les dans mes yeux! Jamais je ne te survivrai. pe
 Jamais ! Toi seul, m'es tout : Je appelle mon roi, mon frère, L :
-Mon fils et mon époux : Je te nomme même le père. J
-116 1
+Mon fils et mon époux : Je te nomme même le père.
+116
 
 à Je n'ai peut-être que ta fièvre, et n'ai pas ton courage,
 
@@ -7614,16 +7607,16 @@ f De votre vie c'est l'heure lourde
 
 ï: Qu'une fois.
 
-Elektre et Oreste 1e ne 4
+Elektre et Oreste 1e ne
 La Gorgone du meurtre triomphant :
 Et son complice infâme DRE
 Ne verront plus le jour. à
 La nuit tombe :
 Que rien n'arrête et que rien ne relarde, <
-Et tous les deux, heureux, comme seul l'est le crime, 3
-.  Imprudents comme lui N
-Ils ne croient plus avoir à craindre. ; 1
-Silence : les voici. 1
+Et tous les deux, heureux, comme seul l'est le crime,
+.  Imprudents comme lui
+Ils ne croient plus avoir à craindre.
+Silence : les voici.
 
 Ægisthe et Klytemnestre sur le seuil. Ils descendent les degrés.
 Tandis qu'elle parle, la reine se frotte à Ægisthe. Elle le conduit,
@@ -7643,9 +7636,9 @@ Oreste ? 11 rit. Mais il mourra bientôt : le prix est déjà fait L'
 De son manteau d'hiver, en fourrure de sable, À
 La même étoffe que le père, — pour la même saison. ;
 Non : cesiun jour mauvais que celui-ci. Ne sors pas. (
-ÆGISTHE, avec impatience 1
-Les morts sont morts ! Les vivants ne sont plus redoutables. 4
-6 Ils ne reviennent pas : c'est toi, toujours qui y reviens.
+ÆGISTHE, avec impatience
+Les morts sont morts ! Les vivants ne sont plus redoutables.
+Ils ne reviennent pas : c'est toi, toujours qui y reviens.
 N''en parlons plus.
 Toi aussi tu y penses, — sans le dire. ;
 Un songe atroce m'a troublée, un noir pressentiment.
@@ -7653,7 +7646,7 @@ Un songe ne troublera pas ma vie, ni mon plaisir; ;
 I n'en faut pas si peu. ne
 
 Ha, Ægisthe, c'est que je taime. (}
-Tu es haï, et je la suis. Ce peuple est fourbe. F
+Tu es haï, et je la suis. Ce peuple est fourbe.
 Le peuple est lâche : il nous déteste et il nous craint.
 
 Plus il est lâche, et plus il est à craindre : il ne lui faut :
@@ -7668,7 +7661,6 @@ Crains-tu que je ne rentre ?
 Je serai de retour
 Avant la lune. Ou bien je coucherai dans la maison
 D'en bas, J'ai prévenu l'intendant,
-| 121
 
 Elektre et Oreste
 Tu veux encore m''abuser. N'ai-je pas assez fait :
@@ -7676,23 +7668,23 @@ Pour toi ? Je t'aime trop et tu ne m'aimes plus.
 Je suis homme et suis roi: je ne vis pas que pour l'aimer.
 KLYTEMNESTRE, menaçanie, puis tendre
 Prends garde à toi, pourtant. Tu sais de quoi je suis capable. |
-Ha! ne me trahis pas. Je te veux, cette nuit... Sinon... 4
+Ha! ne me trahis pas. Je te veux, cette nuit... Sinon...
 Déjà, elle montre les dents, ma lionne, ma Reine, +
 - Ei j'en ai peur. Allons, ne la désarmerai-je pas ? }
 E la caresse. \
-Elle se colle à lui. Elle lui prend la têie et le regarde ardemment. n
-Ta lionne ?.… Ta Reine ?.. O, je voudrais t'emprisonner L
+Elle se colle à lui. Elle lui prend la têie et le regarde ardemment.
+Ta lionne ?.… Ta Reine ?.. O, je voudrais t'emprisonner
 En moi... Baisers |
-O, si tu me trompais. Chère tête. Encore. encore. 1
-O, si tu cessais de m'aimer.… Tu rentreras, ce soir ? 4
+O, si tu me trompais. Chère tête. Encore. encore.
+O, si tu cessais de m'aimer.… Tu rentreras, ce soir ?
 Je rentrerai. Mais laisse-moi aller. Adieu. :
-Encore ! Elle le mange d'u baiser E
+Encore ! Elle le mange d'u baiser
 
 à Elle Le suit des yeux.
 Er: Elle va pour rentrer, et trouve Glaia sur le seuil.
 * La nuit sera brûlante comme le jour, à Reine.
 . L'orage s'amasse dans le ciel.
-704 Le ciel est clair.
+Le ciel est clair.
 … Les ténèbres vont vite.
 È Oui. Que guettes-tu ?
 … Je ne sais. Je‘me tiens près de toi, je pense au passé.
@@ -7704,19 +7696,19 @@ ni Vois-tu nourrice,
 
 Elektre et Oreste
 Je veux le voir. J'ai peur. \
-Je veillerai pour toi. Et peut-être une fois encore 1
+Je veillerai pour toi. Et peut-être une fois encore
 Les dieux me feront-ils voir mon Oreste. Tu frémis ?
-Parleras-tu toujours de ceux qui ne sont plus ? 4
+Parleras-tu toujours de ceux qui ne sont plus ?
 Mais quoi ? S'il est mort, je puis rencontrer son ombre. “4
 Folle ! Rêves-tu ? ‘sl
 
-GLAIA secoue la tête 4
-Nul ne sait, quand il rêve s'il rêve. 5
-Si tu rencontres ton Oreste et s'il te parle, 4
+GLAIA secoue la tête
+Nul ne sait, quand il rêve s'il rêve.
+Si tu rencontres ton Oreste et s'il te parle,
 Montre-lui le chemin, et dis-lui que sa mère à
-L'attend ; dis-lui qu'Ægisthe, son maître, le recevra 4
+L'attend ; dis-lui qu'Ægisthe, son maître, le recevra
 S'il se présente en fils soumis. Demeure sur le seuil, n :
-Jusqu'à ce que je vienne. x
+Jusqu'à ce que je vienne.
 
 Dernières lueurs du crépuscule.
 Silence. Puis la nourrice appelle tout bas.
@@ -7739,24 +7731,24 @@ I1 se tourne vers le tertre, et ne le quitte plus des yeux. Sombre et
 
 Elektre et Oreste à
 Guéris-toi de la pitié, si tu veux être juste.
-Oui je suis l'héritier : je ne l'ignore pas, Ô roi, F
-J'entends que tu m'appelles. Malheur, malheur, malheur sur moi, 4
+Oui je suis l'héritier : je ne l'ignore pas, Ô roi,
+J'entends que tu m'appelles. Malheur, malheur, malheur sur moi,
 Malheur sur ma tête ! Ma mère, moi du moins, d'
 Dis, que t'avais-je fait pour être condamné à faire {
 Tu le feras, Oreste : c'est l'ordre du destin. À
-Père, père, éloigne-toi. Ne remonte pas si vite 14
+Père, père, éloigne-toi. Ne remonte pas si vite
 Des épaisses ténèbres où tu teites la terre, ;
 O pauvre nourrisson de la nourrice au cœur de roc!
 O déjà, il me semble que tu es là, mineur pâle, à
-) Terrassier du sépulcre. O, j'ai peur de te voir. 4
+) Terrassier du sépulcre. O, j'ai peur de te voir.
 J'ai peur de toi, depuis que je pense à toi. Et, #
-Je t'entends creuser, là! tu soulèves le dos humide n
+Je t'entends creuser, là! tu soulèves le dos humide
 Du tertre. Tu viens. Les écailles sanglantes de la poussière +
-Vont tomber sous tes doigts. Oh, j'ai peur de te voir, — ù
+Vont tomber sous tes doigts. Oh, j'ai peur de te voir,
 I1 étend les bras devant sa face, comme pour se défendre. Re
 Plus qu'un instant, pas encore. Va-t-en ! Va ! tout à l'heure! j}
-Demeure encore un peu dans ta prison, grande ombre. l
-126 7
+Demeure encore un peu dans ta prison, grande ombre.
+126
 
 -. Reste, chère âme, reste à l'abri sous la terre.
 _ Il fait mauvais, ici, il fait mauvais pour l'homme.
@@ -7780,29 +7772,28 @@ Ta fille te supplie aussi, ombre chérie.
 L'heure est venue.
 Venge-moi, venge-moi. Il faut que tu me venges. ,
 Prends le couteau contre eux, comme ils l'ont pris.
-| 127
 
 ° Elektre et Oreste
-Elle aussi ? Ma … ? L
+Elle aussi ? Ma … ?
 Sois un juge sévère, mon fils : tue-la. Tue la femme '
 Qui a tué ton père. Mais sois un juge intègre :
-Aie pitié en tuant, aie pitié de la mère : 1
+Aie pitié en tuant, aie pitié de la mère
 N'insulte pas au châtiment, et détourne les yeux. ;
 Frappe ! Venge-moi : ne te venge pas. Sois juste.
 Tu es mon fils; tu es son fils, hélas, et tu es homme.
-Ici, il faut du sang, et ce soir même : frappe et tue. 4
+Ici, il faut du sang, et ce soir même : frappe et tue.
 L'ombre disparaît. — Silence, avant et après la réplique du Chœur.
 Je n'ose pas parler; je n'ose plus penser. ;
 Je palpite de crainte : pareille au corbeau que les pas ?
-D'an passant chassent du cadasre, la noire peur, 4
+D'an passant chassent du cadasre, la noire peur,
 En battant lourdement de l'aile, s'élève dans mon âme. À
-Elektre, penchée, fouille au pied du tombeau. — Crépuscule rouge. k 4
+Elektre, penchée, fouille au pied du tombeau. — Crépuscule rouge.
 — Elle va droit sur Oreste; elle porte une large hache enroulée
-dans un linge sanglant. 4
+dans un linge sanglant.
 Rouge pensée de la maison, voici que tu fais face £
-A la blessure brülante du ciel, et tu t'avances, 1
+A la blessure brülante du ciel, et tu t'avances,
 Ombre virginale, miroir du crépuscule, nn
-Pour quelle œuvre de nuit, fleur du roc noir, 4
+Pour quelle œuvre de nuit, fleur du roc noir,
 
 Qu'as-tu pris dans la tombe ?
 l Je sais d'où elle vient. Elle a tout préparé,
@@ -7824,18 +7815,18 @@ Comme un regard d'angoisse : un tranchant pour deux vies.
 
 Elektre et Oreste À
 Rouge de sang, et patiemment aiguisé par moi! |
-Vois, les gouttes sur la garde. L
+Vois, les gouttes sur la garde.
 Elle baise l'arme ardemment. |
 Ainsi, tant de fois, à
 Je les baisai en t'appelant : mes lèvres ont eu soin à
 De ne jamais les effacer; la nuit, à mon oreille, |
-Chaque goutte a parlé : toutes ont dit ton nom. 1
+Chaque goutte a parlé : toutes ont dit ton nom.
 Oui, tu m'as beaucoup appelé.
-Et ce linge effraÿant, — 1
-ORESTE, il recule 44
+Et ce linge effraÿant,
+ORESTE, il recule
 Quelle pourpre est-ce là ?
 La tienne, la même qui coule dans tes veines et les miennes.
-Ce linge d'or sépulcral est le dernier manteau 4
+Ce linge d'or sépulcral est le dernier manteau
 Qu'a porté notre père, le drap de la couche traîtresse, |
 * Où la mort l'attendait : Il est teint de sa vie.
 Frère, il est fluide encore, ce sang, grâce à mes larmes: . À
@@ -7862,7 +7853,7 @@ La nuit arrive;
 k Le fleuve de l'horreur va couler à plein lit,
 
 Elektre et Oreste
-La nuit, toutes les nuits, î
+La nuit, toutes les nuits,
 Ce soir, descend sur Mycènes, à
 L'Acropole muette.et les rochers attendent
 L'acte sombre : ils épient
@@ -7874,9 +7865,9 @@ Et des rouges veng'eances. |
 Le ventre est mür : le fruit
 De tout le mal passé doit tomber de la branche. |
 Et sous de grave ciel, j'entends dans le silence, .
-| Marcher le fait sanglant. k É
+| Marcher le fait sanglant.
 . Amis, lenez-vous Sur vos gardes. |
-La dernière lueur du sublime soleil, 1
+La dernière lueur du sublime soleil,
 Comme le cœur se vide, épanché par les veines,
 Fait une route d'or .
 Entre les arbres.
@@ -7901,11 +7892,11 @@ C'en est fait. C'en est fait.
 Comme la nuit,
 _ Esl'sur tes pas. :
 
-152 4
+152
 Il est presque nuit. — ELexTre et ORESTE se tiennent au bas des À
 
 +£, degrés, dans l'angle. — GLAïIA, en haut, sur le seuil. +
-_ L'autel est préparé - 4
+_ L'autel est préparé
 
 _ Aux temples de la nuit ;
 
@@ -7913,28 +7904,28 @@ Et la victime est prête, |
 
 _ A son insu.
 
-3 Sur un sépulcre ik
+Sur un sépulcre ik
 _Luit dans la main
 _ Le vin tiède de la libation, :
 Comme d'un foudre plein |
 
 . Va jaillir de la bonde,
- Rompant les veines. Û
+ Rompant les veines.
 
 Elektre et Oreste #3
 La nuit tombe, |
 Et le ciel baisse la paupière. |
-j L'air est lourd sur le bois qui songe. 4
-L Mais tu vas faire un rêve noir. L
+j L'air est lourd sur le bois qui songe.
+L Mais tu vas faire un rêve noir.
 Et maintenant, äl nous convient de garder le silence.
-C'est le moment. È
-Pas encore; mais il ne tardera guère. 0
-Dans ce moment, toute ma vie. l
+C'est le moment.
+Pas encore; mais il ne tardera guère.
+Dans ce moment, toute ma vie.
 Toute la mienne.
-Il nous sert. Il fait presque nuit. 4
+Il nous sert. Il fait presque nuit.
 On ne voit plus personne, sur la route. À
-Enfants royaux, l'œuvre terrible vous attend. D:
-Il faut vous mesurer à l'acte résolu. 4
+Enfants royaux, l'œuvre terrible vous attend.
+Il faut vous mesurer à l'acte résolu.
 
 l # Mais vous, êtes-vous prêts à nous donner main forte?
 " _ Nous le sommes.
@@ -7944,7 +7935,7 @@ un C'est bien.
 2. GLAÏA, tout bas
 htrs Avait-il ses esclaves avec lui ?
 ‘4 Quand il rentre, il se sépare d'eux, au haut
-1 Du chemin, à l'entrée du rempart.
+Du chemin, à l'entrée du rempart.
 % Quand il en vaudrait trois, et trois autres, il mourra.
 a: ELEKTRE, lui baise la main
 0 . . . . . . .
@@ -7952,7 +7943,7 @@ a: ELEKTRE, lui baise la main
 | Si cependant l'un d'eux le suivait jusqu'ici,
 | 1 Je saurai lui barrer la route et le réduire
 
-Elektre et Oreste 4
+Elektre et Oreste
 Au silence, jusqu'à ce que vous en ayez fini
 Avec son maître.
 ELEKTRE, avec une sorte d'ardente joie
@@ -7964,20 +7955,20 @@ ORESTE, résolu, froid et sombre
 Elektre, en vérité, tu es la fille de ta mère.
 Elektre lui serre violemment la maïn.
 Ne le répète plus : parfois, je me le suis dit.
-Sa fille, pour la trahir; mais ton sang, pour t'aimer. 72
+Sa fille, pour la trahir; mais ton sang, pour t'aimer.
 Œnops, reste près de nous, s'il nous faut ton aide. :
 L'heure vient, à mon âme: je l'entends dans ma poitrine!
 C'est l'heure, maintenant : une heure pour tuer, KR:
-Et pour mourir. La montagne a tué le soleïl; 5.
-Et la clarté est morte : tout est prêt pour la mort. 1
+Et pour mourir. La montagne a tué le soleïl;
+Et la clarté est morte : tout est prêt pour la mort.
 Ma main s'irrite contre l'arme. Il se fait bien attendre.
 Oreste, où vas-tu te tenir ? Il faut tomber sur l'homme.
-L'attendrai-je couché derrière le tombeau ? 3 s
+L'attendrai-je couché derrière le tombeau ?
 
 _ Non. Jamais il ne passe assez près, le lâche.
 _ Puis, il ne faut pas qu'il puisse fuir. Et toi,
 … Tu dois surgir debout, devant lui, larme haute.
-Li % Il est fort, le bélier ; il fera tête au fer. Ê
+Li % Il est fort, le bélier ; il fera tête au fer.
 4 à ET « Ils montent peu à peu les degrés :
 À À Ici, mon frère. Là... derrière le pilier,
 _ Dans le pli d'ombre des colonnes. On ne peut y voir.
@@ -7995,17 +7986,17 @@ Comme un voleur, au cours d'un attentat nocturne.
 Comme on égorge le porc, à la porte de la ferme.
 Et si la Reine vient?
 Que faire alors, Elektre?
-Commence alors par elle, Silence, j;
-Mais, je le sais : elle ne viendra pas. 4
+Commence alors par elle, Silence,
+Mais, je le sais : elle ne viendra pas.
 Il faut qu'elle soit la seconde. Écoute : ils parlent, ;
 Trois hommes du chœur vont et viennent lançant la nouvelle à
 Œnops. D'abord à voix basse ; à la fin ils chuchotent.
-142 2
+142
 
-4 Il vient. Il vient. Bientôt il sera là. .
+Il vient. Il vient. Bientôt il sera là. .
 Ÿ Il renvoie son esclave, il se hâte,
 $  Ilest joyeux. — Plus que cent pas.
-4 Le piège est prêt.
+Le piège est prêt.
 . Comme la Parque passe le fil à la Parque,
 ÿ Prends la nouvelle de ma bouche, et porte-la :
 ;. | Il s'avance : plus que quatrewingts pas,
@@ -8030,16 +8021,16 @@ Frère dépèche-le, s'il parle. |
 Jette-lui son manteau sur la bouche, fais vite, .
 Il ne faut pas qu'on entende ses cris.
 Veillez, plus que vingt pas, enfants! +
-Je l'aperçois sous les arbres, je distingue sa face, ÿ
+Je l'aperçois sous les arbres, je distingue sa face,
 Elle est grise, dans l'ombre comme la roule et la poussière. à
 
-4 #4 : ORESTE, grince des dents 1
+4 #4 : ORESTE, grince des dents
 _ Qu'il vienne! maintenant, je le déchirerai,
 S'il faut avec mes dents, je l'ouvrirai de mes ongles :
 S'il faut, au seuil de la maison, au même lieu, Ex
 ] Le bain de sang, le lit nuptial et la pourpre
 < 2% Elektre s'agenouille et lui baise la main.
-. Béni sois-tu. O frère, tu es là, comme la mort : 1
+. Béni sois-tu. O frère, tu es là, comme la mort
 Terrible : et taciturne, prêt à bondir, comme la vie.
 ee: 'u es le gond de l'heure et sur toi la nuit vengeresse
 Va s'ouvrir à jamais, roulant sur les coupables.
@@ -8056,24 +8047,24 @@ Si À Ægisthe parañt. Elektre va à sa rencontre.
 
 Elektre et Oreste SAT
 - ÆGISTHE, il s'arrête
-Qui parle? Qui es-tu, toi, Elektre? k
+Qui parle? Qui es-tu, toi, Elektre?
 Et c'est moi, sans doute, que tu attends? ;
 C'est toi.
-Ton cœur s'adoucit, à ce que je vois? ; 4
-Pour le croire, il faudrait m'en donner une preuve. 5
+Ton cœur s'adoucit, à ce que je vois?
+Pour le croire, il faudrait m'en donner une preuve.
 | Il s'arrête encore À
 : Mais avec. toi, qui est là, sur le seuil ? « |
-C'est toi, Glaïa? Parle. : 4
+C'est toi, Glaïa? Parle.
 : O roi, c'est moi. ‘3
 
 En vérité, que faites-vous ici, toutes les deux? ES
 La reine m'a prescrit de guetter ton retour. :
 As-tu peur de deux femmes ? $
-4 J'ai peur de toi, Elektre. :
+J'ai peur de toi, Elektre. :
 J'ai peur de t'aimer. Tu ris?
 Le, * ELEKTRE, léger rire, réprimé 15608
-< 5 Pourquoi pas? 5
- Crains pourtant d'être entendu de Klytemnestre. Ë
+< 5 Pourquoi pas?
+ Crains pourtant d'être entendu de Klytemnestre.
 La reine s'inquiète de ton retard, à roi.
 Dans la salle, tout est prêt pour le festin.
  Elektre, est-ce toi qui m'y mènes ? |
@@ -8086,13 +8077,13 @@ O, amis! Ho! Malheur à moi. Ægisthe lutte.
 Oui, maiheur ! Frappe encore.
 Frappe une autre fois.
 ORESTE, la hache levée "417
-5 Non, attends. Écoute : je suis Oreste. 9
+Non, attends. Écoute : je suis Oreste.
 
-Ha! Oreste? — toi? Ou l'ombre...? Ë
+Ha! Oreste? — toi? Ou l'ombre...?
 | .
-ORESTE, le frappe des deux mains D
+ORESTE, le frappe des deux mains
 à Meurs. Et du même couteau. Meurs, infàme. ‘à
-A moi! Klytemnestre... à moi! Ha! ils m'étouffent... 4
+A moi! Klytemnestre... à moi! Ha! ils m'étouffent...
 ELEKTRE, le foule aux pieds #4
 : Meurs donc, meurs plus vite, lâche, et tais-loi. ke
 
@@ -8101,16 +8092,16 @@ Ha, il est mort. ? ; #
 Nourrice, traînons-le hors de la porte. — Là! : à
 Loin de l'entrée, loin du seuil, misérable ! “
 _ Loin de la demeure conjugale, souillée par toi. |
-Bouc impur, adultère pourceau, cuve le vin sanglant 2
+Bouc impur, adultère pourceau, cuve le vin sanglant
 Cette fois, il est mort. LA
-60 Le plus fort reste à faire. ÿ
+Le plus fort reste à faire.
 Fe 4 Bruit derrière la porte. La voix de Klytemnestre se fait entendre. “
 
 Al KLYTEMNESTRE, du dedans *
 2h F Glaïa ! Nourrice ! ni
-;: LA ï . Le chœur est revenu. 11 est près du tombeau. à é
+;: LA ï . Le chœur est revenu. 11 est près du tombeau. à
 
-Elektre et Oreste AL E
+Elektre et Oreste AL
 Comme Gorgone dans son antre, .
 [ Dans la nuit
 La face de l'épouvante montre les dents. -
@@ -8121,16 +8112,16 @@ KLYTEMNESTRE, plus près à
 Nourrice ! Plus près encore,
 C'est nous. Viens ! — tes enfants.
 
-KLYTEMNESTRE, sur le seuil L
+KLYTEMNESTRE, sur le seuil
 J'entends crier. J'ai entendu des plaintes. Qui est là ? .
 Qui a poussé des cris ? Ægisthe, Ægisthe ! Est-ce toi ? :
 Où es-tu, nourrice ? À
 Elle paraît, une lampe à la main. Elektre, brusquement, passe derrière sa mère, lui arrache la lampe, la donne à Glaïa, et pousse la
 Grand cri. Elle entrevoit Oreste.
-Elle voit Elektre à sa gauche. 2e
-150 5
+Elle voit Elektre à sa gauche.
+150
 
-_ Regarde-le bien, ma mère. x.
+_ Regarde-le bien, ma mère.
 PL. KLYTEMNESTRE, les mains en avant, à Elektre
 
 2 : : Toi ? Elle recule et crie.
@@ -8146,40 +8137,38 @@ G ji Ægisthe, Ægisthe ! Elle veut fuir. Oreste la retient.
 
 Der % Je suis celui qui t'attends.
 
-3 C'est moi; ce n'est pas Agamemnon ; c'est ton fils. |
+C'est moi; ce n'est pas Agamemnon ; c'est ton fils. |
 E Ton fils, ma mère : ce n'est pas ton amant, — Oreste,
-
-| 1208
 
 LENS Oreste ? Lui ? Je suis perdue,
 
 _ Si Ægisthe n'arrive. Elle appelle. À moi, Ægisthe!
 
-_ Ne l'appelle plus. J'en ai fait un mort. Il a son compte. 3
+_ Ne l'appelle plus. J'en ai fait un mort. Il a son compte.
 
 ; “Elektre et Oreste FÉES
-Au secours ! Une hache ! Oh, une arme... Ê
+Au secours ! Une hache ! Oh, une arme...
 La hache est dans ma main.
 $ Quoi, personne? personne
 Ne viendra ? Pas un seul de ces làches ? À moi !
 Oreste la saisit. I1 lui met la main sur la bouche.
 ; Je ne veux pas que tu cries : depuis longtemps,
-Je t'entends crier, chaque nuit : c'est l'heure de te taire. n
-KLYTEMNESTRE, elle se débat k
+Je t'entends crier, chaque nuit : c'est l'heure de te taire.
+KLYTEMNESTRE, elle se débat
 | Oui, misérables tous les deux. ‘à
 : Le silence... la nuit... Et qu'a-t-il dit : C'est l'heure ?.. à
 Bien dit: C'est l'heure : toi-même lu le sais. ‘TS
 ; Tigre, mangeur de chair, ton cœur de fauve... +4
-. 152 24
+.
 
-_ Cest toi qui m'as fail ce cœur carnassier, ma mère. 54
-x Ton fils ? Est-ce bien moi que tu appelles ? 3
+_ Cest toi qui m'as fail ce cœur carnassier, ma mère.
+x Ton fils ? Est-ce bien moi que tu appelles ?
 _ Appelle aussi mon père : car, lui aussi, ce soir, ke
 ne 3 KLYTEMNESTRE, elle court }
 _ Hest mort, je l'ai dit. #.
 a ELEKTRE, fort avec joie $
 …_ _ KLYTEMNESTRE, elle fait un pas et voit le corps. Grand cri à
-+114 Oui, là. Regarde ton complice. ù
++114 Oui, là. Regarde ton complice.
 Je l'ai tué, moi. C'est à ton tour. fo
 
 Elektre et Oreste TILIÈESS
@@ -8188,18 +8177,18 @@ Est-il possible. ? .
 : Il le faut, ce soir.
 Elle court sur les degrés. "4
 Elle court comme un rat. Rire rauque. Vite, laisse-toi faire.
-Personne ne viendra. Tous sont avec nous. 4
+Personne ne viendra. Tous sont avec nous.
 Tous vous haïssent. #
 Je suis perdue. C'est fini. &
-| Il faut mourir encore. 24
+| Il faut mourir encore.
 Il la ramène violemment au bas des degrés. La nuit est tout ER
 fait venue. La faible lueur de la lampe éclaire seule la scène. À
-Mon fils, je t'ai porté. 34
-4 Tu as aussi porté mon père sur tes flancs. 24
+Mon fils, je t'ai porté.
+Tu as aussi porté mon père sur tes flancs.
 Tais-toi, je suis ta mère! Tu n'as pas le droit. LR
 | 154 24208
 
-Tu n'avais pas le droit non plus... 35
+Tu n'avais pas le droit non plus...
 ‘8 Prends-le : elle l'a pris.
 
 __ Je te supplie, moi, ta mère! Je tremble, moi!
@@ -8209,8 +8198,8 @@ _ Mourir de ta main? |
 . HD Mon père est bien mort de la tienne. |
 _ Je prends tes genoux, moi qui t'ai pris sur les miens.
 _ Aie pitié, tu m'épouvantes ! Ah, ton père lui-même. ;
-Ne parle pas de notre père. s
-rire Ne parle pas de lui, 4e
+Ne parle pas de notre père.
+rire Ne parle pas de lui,
 
 _ Elektre et Oreste a
 O mon fils, pardonne. Il n'est pas possible que tu veuilles
@@ -8218,13 +8207,13 @@ Déchirer de tes dents le sein où ta bouche a dormi. ;
 | Il n'est crime de mère qui soit sans pardon pour un fils.
 Le père a condamné : qu'Agamemnon pardonne.
 J N'entends pas cette louve qui hurle, mais ta mère quipleure. ;
-Je veux... Pourquoi as-tu commis l'horrible crime? E.
-° Sache, sache, à mon fils! 4
+Je veux... Pourquoi as-tu commis l'horrible crime?
+° Sache, sache, à mon fils!
 Oreste, ne l'écoute pas. À
 Elle pleure? Mais j'ai pleuré plus de dix ans. , à
 Nous avons tous pleuré, ici. Rappelle-toi les morts À
-Perdus de larmes; rappelle-toi l'ordre d'Agamemnon. É
-Fille atroce, vas-tu lui mettre le couteau dans la main? 4
+Perdus de larmes; rappelle-toi l'ordre d'Agamemnon.
+Fille atroce, vas-tu lui mettre le couteau dans la main?
 Je l'ai fait : Agamemnon l'a voulu. Le
 
 LS - Lui-même A
@@ -8233,31 +8222,31 @@ _ Oui, tout à l'heure.
 
 On este, la folie de ta sœur t'égare. =
 
-Comme toi devant moi, ici, là devant je l'ai vu. j
+Comme toi devant moi, ici, là devant je l'ai vu.
 
 _ Ha, ah, je suis perdue.
 
 re Oui, c'est ton tour.
-E # KLYTEMNESTRE, avec égarement 41
+E # KLYTEMNESTRE, avec égarement
 
-Le. ais, je rêve peut-être ? J
+Le. ais, je rêve peut-être ?
 ee, Non, tu l'éveilles.
 
 Elektre et Oreste 5 LR
 KLYTEMNESTRE, avec force ds
-Tu seras maudit, mon fils. É
+Tu seras maudit, mon fils.
 Va, je le sais. Toi non plus, tu ne peux échapper. :
-: Je te maudis! Un fils! Mes entrailles, c'est toi. 73
-Tes entrailles haïssent tes entrailles. Aujourd'hui, d
-2 Tu as horreur de toi. 4
-Horreur de toi, à monstrueux. 0
+: Je te maudis! Un fils! Mes entrailles, c'est toi.
+Tes entrailles haïssent tes entrailles. Aujourd'hui,
+Tu as horreur de toi.
+Horreur de toi, à monstrueux.
 C'est ce que je dis. - #0
 Frappe, ne tarde plus. Re
 
-Ne m'implore pas. s
+Ne m'implore pas.
 _ Que les filles nées de ton ventre, un jour, te... SCFEEER
 ke à elle se traîne aux pieds d'Oreste
-Me déchirent les filles de mon ventre, si jamais Æ
+Me déchirent les filles de mon ventre, si jamais
 _ Mes filles ont en moi une mère semblable à toi.
 
 “28 Tous les deux contre moi... Hélas n'y a-t-il plus d'espoir ?
@@ -8267,18 +8256,18 @@ _ Quand le Destin dit ;: Non!
 <à A ELEKTRE, comme malgré soi
 
 ÆElektre et Oreste BE
-Se peut-il qu'un tel forfait s'accomplisse ? 4
+Se peut-il qu'un tel forfait s'accomplisse ?
 C'est autrefois qu'il fallait te le demander, ma mère. À
-Ÿ Et tu me hais ainsi, mon fils? ÿ.
-ELEKTRE, avec colère 3
-Elle peut en douter! j.
+Ÿ Et tu me hais ainsi, mon fils?
+ELEKTRE, avec colère
+Elle peut en douter!
 .. Je vous en veux étrangement de m'avoir fait "à
 Naïître pour ceci. ‘8
 Assassin, tu n'oses pas dire quoi, =: 2040
 C'est vrai. +&
-Tu es né de ton père aussi. 70
+Tu es né de ton père aussi.
 
-_ De tous les deux. ; Z
+_ De tous les deux.
 10 -
 Æ Finis-en! Elle veut t'attendrir.
 _ Oses-tu bien, misérable, me tenir de la sorte
@@ -8288,7 +8277,7 @@ _ Ha, si c'était la, si c'était tout! Ne fuis pas. :
 _  Vipère, plût aux dieux que je t'eusse écrasée,
 _ Quand il était encore temps.
 #4 ORESTE, la traînant
-…. Malheureuse, je la suis. Malheureuse, je l'ai été, î
+…. Malheureuse, je la suis. Malheureuse, je l'ai été,
 __ O malheureuse, malheureuse ! Lui seul, lui seul,
 _ Il m'a aimée, celui que vous m'avez tué. à
 
@@ -8304,13 +8293,13 @@ De mes nuits, Ô le seul qui m'ait aimée.
 Oreste, tu la vois ? Connaïs-la donc. Tue-la.
 Laisse-la pleurer. Pleure si tu veux, ma mère. Il tourne la tête.
 Comme elle pleure fort!
-ELEKTRE le saisit par le bras 10
+ELEKTRE le saisit par le bras
 \ Vas-tu nous trahir à ton tour ? |
-; Non. Ha repousse avec violence. J
+; Non. Ha repousse avec violence.
 Mais laisse-la pleurer. Elle quitte la vie.
-Son seul bien, c'est les larmes ! J
+Son seul bien, c'est les larmes !
 Je ne pleure que lui, ;
-Et mon seul bonheur. Va, tue-moi sur lui, maudit ! M
+Et mon seul bonheur. Va, tue-moi sur lui, maudit !
 Je l'aime, entends-tu ? Et puisqu'il n'est plus! Je l'aime autant
 Que j'ai haï ton détestable père, ton père n°
 o Maudit, maudit comme elle, et maudit comme toi. pe
@@ -8328,7 +8317,7 @@ ni: ORESTE soupire
 . Le sang lève du sang. Il est mort, tu mourras.
 __ Loi de sang, loi de brute.
 
-Ne _ Allons, suis-moi, II l'entraine. Elle crie. 3
+Ne _ Allons, suis-moi, II l'entraine. Elle crie.
 $ DE - Que tous les dieux me vengent !
 Ne me tords pas le bras, parricide. :
 
@@ -8342,22 +8331,22 @@ Que l'enfer, les supplices et tous les tourments du remords +
 Et toutes les morsures du châtiment s'acharnent |
 Je sais, je sais ! — C'est déjà fait. AA à
 I1 lève la hache. ‘*Ù
-Le crime ! le crime ! 4
+Le crime ! le crime !
 11 la frappe, elle pousse un cri terrible. de
-Oreste ! Ha! — maudits, tous deux. 7
+Oreste ! Ha! — maudits, tous deux.
 Elle s'échappe en sang. Elle court et tombe. Oreste se retourne et Eu
-regarde brusquement derrière lui. L 3
+regarde brusquement derrière lui.
 Un chien, là, — un chien
 Rôde sur mes talons, dans l'ombre. Elektre, chasse-le. À
 
 _ Non. C'est du sang tiède. Bas. Achève ! NE sxc
-_ J'ai horreur de le faire. Je ne veux pas. L
+_ J'ai horreur de le faire. Je ne veux pas.
 Le  Misérable, tu ne sais pas — ce que c'est qu'une femme — |
 Le Re ORESTE court sur elle <
 “x Ce n'est pas moi qui ai frappé. -
 _ Meurs! li s'arrête. Non... Je ne puis.
 - Frappe et ne la regarde pas.
-Re Klytemnestre crie, elle cherche à se relever. È
+Re Klytemnestre crie, elle cherche à se relever.
 
 | ÿ Elektre et Oreste Mr
 « Hâte-toi : va l'achever là-bas, sur l'autre. < :
@@ -8368,67 +8357,67 @@ C'est bien, maudits! Cri. Tu me fais mal.
 Va. Ne regarde pas : j'éteins la lampe. “4
 Elle souffle la lampe. à ;
 Que ma mort soit le tombeau de ta vie! .
-Ces entrailles, qui t'ont conçu dans la douleur, 4
-Tu les a déchirées.. La marque du lien, 7:
-Elle est inscrite sur ton ventre : ainsi ta mort 773
-8 Impie. Où me jettes-tu? — prends garde, mon fils — : 7
-Prends garde à toi, mon tourment — Oreste, 24
+Ces entrailles, qui t'ont conçu dans la douleur,
+Tu les a déchirées.. La marque du lien,
+Elle est inscrite sur ton ventre : ainsi ta mort
+Impie. Où me jettes-tu? — prends garde, mon fils —
+Prends garde à toi, mon tourment — Oreste,
 Obscurité sur la scène. “ 1%
 On entend Oreste qui renverse un corps et qui trébuche, Re.
 
 "1 ORESTE, entre ses dents il souffle à
 _ Assez. Meurs. Ne me parle plus... #e
-‘5e Cependant elle vient près de lui. 5
+‘5e Cependant elle vient près de lui.
 En __- Arrivent sur le premier plan le Chœur, Œnops et Glaïa. Ils chu- a
-_ Une nuit étouffante. Pourquoi ne dis-tu rien, nourrice ? F:
-_ Tu n'oses pas parler, non plus. ë
-“0 Parle enfin. Non, ne parle pas. 3
+_ Une nuit étouffante. Pourquoi ne dis-tu rien, nourrice ?
+_ Tu n'oses pas parler, non plus.
+“0 Parle enfin. Non, ne parle pas.
 Ÿ Ils ont éteint la lampe.
 
 Elektre et Oreste Re #
 & Sais-tu ce qu'ils font ? Silence.
 Va voir.
-Je n'ose pas. J'ai une mère à la maison. 3
+Je n'ose pas. J'ai une mère à la maison.
 Ce silence est effrayant. Silence. +4
 > Ils traînent leur mère. Ils l'ont bâillonnée. ‘
 Ils vont la tuer.
 | Tais-toi, il ne faut pas le dire.
 Ils le feront. +
 Laisse-les faire. À
-Je tremble. C'est elle, pourtant, qui les a... x
+Je tremble. C'est elle, pourtant, qui les a...
 Mais qui pourra fermer les yeux à Jupiter ? EN
 Et l'empêcher de voir? ou l'empêcher d'entendre ? ‘60
 
 _ Maudits, tous deux !... Oreste, sois maudit ! Que... 9 TE
 
-_ Cest bien. Ægisthe!.… Que tous les dieux! Maudits!... L
-_ Nourrice, va rallumer la lampe. ë.
+_ Cest bien. Ægisthe!.… Que tous les dieux! Maudits!...
+_ Nourrice, va rallumer la lampe.
 
 Reine, maîtresse ! Mais vous enfants, qu'avez-vous fait ?
 
-_ Ja, c'est la fin. J'ai peur de ce forfait. 2
+_ Ja, c'est la fin. J'ai peur de ce forfait.
 _ L'œuvre de mort se surpasse elle-même. FM
-_ L'acte maudit est consommé. Où sont-ils ? ï
+_ L'acte maudit est consommé. Où sont-ils ?
 
 _ C'est fait. La chasse est achevée. Oreste vient. à
 
-_ OREsTE sort de l'ombre. — I fait toujours nuit sur la scène F
+_ OREsTE sort de l'ombre. — I fait toujours nuit sur la scène
 Lourde,.. lourde est la mort... Elle me tient.
-LE En tombant, elle m'a fait vaciller. Elle me tire J
+LE En tombant, elle m'a fait vaciller. Elle me tire
 A elle. la hache ? Ii jette la hache au loin. ;
 Pourquoi l'avais-je encore en main ? “4
-Mais moi, comment me rejeter ? 3
+Mais moi, comment me rejeter ?
 k Oreste, hommage à toi! Tu l'es vengé, mon maître. Re.
 + O mon maitre, ::3
-Enfin, enfin Mycènes a secoué le joug; 3
-Enfin, le peuple a recouvré ses princes, 4
-Le bonheur est pour nous, et la gloire est pour toi. E
-Oui... Je n'ai plus rien à craindre, maintenant. 4
-; Je ne sortirai plus d'ici, mes pieds collent au sol. 8
+Enfin, enfin Mycènes a secoué le joug;
+Enfin, le peuple a recouvré ses princes,
+Le bonheur est pour nous, et la gloire est pour toi.
+Oui... Je n'ai plus rien à craindre, maintenant.
+; Je ne sortirai plus d'ici, mes pieds collent au sol.
 
 Le sang coule : que de sang !.. Elle voulait vivre.
 4 , Rentre Glaïa. Elle pose la lampe sur un pilier. On voit les corps:
-7 Klytemnestre morte est tombée sur le côté ; sa tête touche à celle
+Klytemnestre morte est tombée sur le côté ; sa tête touche à celle
 = d'Ægisthe. Elle est couchée en travers sur les plus hautes
 % marches. — Oreste lui jette un regard et frémil.
 3 _ Elle est grande, elle est très grande... et d'un poids accablant.
@@ -8449,35 +8438,35 @@ _ Ne me quitte pas. Reste.
 
 er Qu'est-ce donc ?
 
-38 Là... là... loin d'eux! le plus loin, loin des yeux.
+Là... là... loin d'eux! le plus loin, loin des yeux.
 RS ' Il recule à mesure, en tirant à soi Elektre.
 _ Voilà ce que j'ai fait : c'est moi... Loin d'eux!.. Ici!
 
 < Elektre et Oreste FRS ANNE
-$ Est-ce qu'elle me voit, ici? Elle se tait, 3 a 4
-Elle si impérieuse.. C'est moi, pourtant, Te 4
-: Qui ai fait ce silence. Un jour, un soir, et tout est dit. É
+$ Est-ce qu'elle me voit, ici? Elle se tait, 3 a
+Elle si impérieuse.. C'est moi, pourtant, Te
+: Qui ai fait ce silence. Un jour, un soir, et tout est dit.
 Un jour... un seul moment. Le soleil s'est couché, à
 L Et comme s'il ne s'était jamais levé, c'est la nuit.
 La lampe illuminait et j'ai éteint la lampe.
 J'ai fait ce que je venais faire : mais où irai-je?
-; Tu es le roi, frère chéri. Ordonne, et tous ici 1
+; Tu es le roi, frère chéri. Ordonne, et tous ici
 Ë T'obéiront. Le palais t'attend. Fe.
 
 C'est l'heure d'y rentrer en maître. A
 
 Non, plus tard. FA
-Loin, plus loin... Rien ne presse, mais où aller ?.. D
+Loin, plus loin... Rien ne presse, mais où aller ?..
 : Dis-moi, Elektre : sais-tu ce que j'ai fait ? 1°
 Ton devoir, par tous les dieux, et justice.
 Tu le crois ? is
 
 _ Et l'outrage: tous les dieux sont témoins: ils t'ont conduit. Be
-Et Oui, ton foyer héréditaire. ; 40
+Et Oui, ton foyer héréditaire.
 _ Ha, j'ai retrouvé mon bien ? a
 _ L'abomination, l'infamie séculaire. :
 … Que dis-tu? parle mieux du palais de ton père. ro
-_ A moi? Je n'y entrerai pas ! loin d'eux, plus loin! s
+_ A moi? Je n'y entrerai pas ! loin d'eux, plus loin!
 EE. Î Il chancelle. Glaïa court à lui.
 _ Mal heureux enfant, il défaille. Sur ta vieille nourrice, Apt
 Ÿ | Appuie-toi, viens. Immobile et debout, pourquoi
@@ -8508,26 +8497,26 @@ Il Que dis-tu ? parle mieux du palais de ton père.
 A moi? Je n'y entrerai pas ! loin d'eux, plus loin !
 Malheureux enfant, il défaille. Sur ta vieille nourrice,
 Appuie-toi, viens. Immobile et debout, pourquoi
-173 10.
+173
 
-5 Elektre et Oreste - Ke
+Elektre et Oreste - Ke
 Demeurer ainsi, les yeux toujours là-bas? Sur moi done!
 x a Repose-toi, du moins; tu trembles de fatigue. Viens. Han à
 À Elle monte quelqués degrés avec lui |
 ss Ha, que de sang! Je glisse. : +:
 Êres Oreste pousse un sanglot sec et tombe assis sur les degrés. -
-à : C'est moi. : J
+à : C'est moi.
 11 pleure comme celui dont le cœur se brise Fe
 Quand, tombé sous la roue d'une charrette, elle le broie
 % L'un sur l'autre, voilà les deux morts; et c'est moi! à
 Entourez les cadavres, pour qu'il ne les voie pas. +
-.. Non, restez, vous. 3
+.. Non, restez, vous.
 k Ah, ma fille, qu'avez-vous fait ? ds
 Race terrible, race trop forte, issue des dieux, %
 Race cruelle aux hommes, race qui se déchire; |
 La race de mes maitres... impitoyable, hélas. D. |
 
-Sans pleurs, qui pourrail voir un tel carnage? E
+Sans pleurs, qui pourrail voir un tel carnage?
 _ Heureux, le jour, de n'être plus; et la nuit d'être aveugle ” *
 __ Horrible, en vérité, horrible et nécessaire! :
 …._ ‘Ju dis bien : nécessaire et voulu par le destin.
@@ -8536,16 +8525,16 @@ __ Horrible, en vérité, horrible et nécessaire! :
 _ Mais pour la reine, je ferai moi-même ce qu'il faut. RS
 -_ Sur elle je ramènerai d'abord sa robe ouverte; |
 … Et je lui voilerai le visage.
-Re Vous, fidèles, annoncez dans la ville x
+Re Vous, fidèles, annoncez dans la ville
 …_ Le retour d'Oreste, votre roi.
 
 Exit une partie du chœur. L'autre se range au fond
 
 ; Elektre et Oreste RE
-o Et jusque sur la mer, ; ra 2
+o Et jusque sur la mer, ; ra
 J'irai porter la nouvelle sinistre, é Fe :
 ñ Et pourtant bien heureuse. +4
-Le En les frappant, elle réjouira les hommes, È ; 24
+Le En les frappant, elle réjouira les hommes,
 __ Telen juin, l'orage, qui féconde la terre, <00
 | Épouvanie les cœurs. A
 : Oreste est couché sur le plus bas degré. Elektre et Glaïa viennent
@@ -8553,34 +8542,34 @@ s'asseoir à ses côtés. es
 ee Ne regarde plus par là. De
 Une sueur glacée te coule sur les joues. ‘4
 Plus glacée dans mon cœur. J'ai froid ; mais où aller? SE
-Tu as la fièvre, mon frère; viens, rentre avec nous, 4
+Tu as la fièvre, mon frère; viens, rentre avec nous,
 
 _ Dans le palais. ST
 _ Rentrer ? Quand d'abord y entré-je ? YA
 _ N'y pense plus. ; y
 & J'ai été jusqu'à la porte, d'abord, we
 _ Pour frapper l'homme, tout à l'heure; et il est là. ke
-_ Ne le regarde plus. ‘ 3
-48 Elle, elle me regarde.
+_ Ne le regarde plus. ‘
+Elle, elle me regarde.
 _ Voilà, Elektre, ce que tu as fait de lui. À
 _ Que me veux-tu? que mets-tu sur ma tête? : #
 _ J'éponge la sueur sur ton front. {
 
 Elektre et Oreste es. de
-& : Qui le consolera jamais ? 78
+& : Qui le consolera jamais ?
 ; 5 ELERTRE, se précipite sur lui Fe
 A moi? f tes
-Donne tes mains : vois, je les baise, 74
+Donne tes mains : vois, je les baise,
 Je les mets sur mes yeux, je mets ma bouche sur tes doigts, …
 Je les laverai de mes lèvres, si tu veux. PE:
 è _Ne mens pas, nourrice : je te fais horreur, je le sais. so
-Tu me fais tant pitié que je pleure sur toi. 2.
-Horreur, à moi qui ai nourri ? £ 1
+Tu me fais tant pitié que je pleure sur toi.
+Horreur, à moi qui ai nourri ? £
 - Viens, la nuit te fait mal.
 
 Non, ce n'est pas la nuit; ce n'est pas le silence. &:
 _ Mon tourment vient de ce que je sais et je pense. : ne
-Il fait trop clair ici, sous les étoiles qui voient tout. Ÿ
+Il fait trop clair ici, sous les étoiles qui voient tout.
 _ Tout m'est présent; j'y vois comme en plein jour.
 ne. Ferme les yeux.
 _ J'y vois encore; j'y vois toujours, et je revois_
@@ -8588,15 +8577,15 @@ _ J'y vois encore; j'y vois toujours, et je revois_
 ÿ _ O douleur! Que faire pour lui ?
 Que montres-tu du doigt ?
 ë Là, c'était là, dans la maison,
-(M8 Là, où l'étoile luit, c'était sa chambre, n'est-ce pas? s
+(M8 Là, où l'étoile luit, c'était sa chambre, n'est-ce pas?
 
-Elektre et Oreste s AE: 0
+Elektre et Oreste s AE:
 Dans le lit de ma mère, criant et la faisant crier :
-ù La lune a fui dans la demeure. . ù
+ù La lune a fui dans la demeure.
 Reviens à toi : la lune encore n'est pas levée.
-Rien ne brille, là-bas, que la clarté des lampes. 4
+Rien ne brille, là-bas, que la clarté des lampes.
 É Va voir ce que j'ai fait : tu l'aurais cru de moi? %
-Mais moi-même... 11 se dresse, avec égarement. À k:
+Mais moi-même... 11 se dresse, avec égarement. À
 : Laisse-moi voir, là-dessous. A
 Quoi, que veux-tu?
 Je veux voir le sang.. pourquoi te mets-tu devant le sang?
@@ -8616,8 +8605,8 @@ _ Cest le même...
 4 à Ne crie pas.
 | 4 EN C'est lui qui crie.
 __ La vue de ce feu mort me brûle : il fume dans la nuit.
-14 Oh, elle était jeune encore, elle aurait vécu dix ans.
-2 Il regarde fixement devant lui et frémit.
+Oh, elle était jeune encore, elle aurait vécu dix ans.
+Il regarde fixement devant lui et frémit.
 
 Elektre et Oreste l'IE
 C'est une idée. ”
@@ -8627,26 +8616,26 @@ Une idée ? Est-ce une idée que je sois là, ce soir?
 Une idée, ce que j'ai fait ? Horrible idée, alors.
 O, puissé-je ne l'avoir jamais eue! Pourtant,
 Pourtant ce matin, je n'avais pas fait ce qui, ce soir,
-Est accompli et ne peut se défaire, — fait pour jamais! É
-Il se frappe la tête. 1
+Est accompli et ne peut se défaire, — fait pour jamais!
+Il se frappe la tête.
 Accepte donc ce que tu ne peux plus changer.
 
-Une idée ?.… Comment tuer l'idée ? 4
-11 se bat la tête sur les marches. 4
+Une idée ?.… Comment tuer l'idée ?
+11 se bat la tête sur les marches.
 Les pierres pleureraient : que faire ? \
-Je voudrais être mort. Mort, profondément mort. 4
-Souhaite plutôt de vivre : la vie est douce : 0x
-Et glorieuse à présent; tu règnes : Sois homme, enfin. 10
+Je voudrais être mort. Mort, profondément mort.
+Souhaite plutôt de vivre : la vie est douce
+Et glorieuse à présent; tu règnes : Sois homme, enfin.
 
 " Cesse. Tu ne peux pas savoir, tu ne peux pas comprendre;
-| Tu ne vois pas ce que je vois, tu n'entends pas la nuit, 5
+| Tu ne vois pas ce que je vois, tu n'entends pas la nuit,
 …  Tues femme.
 D, Une vierge, mon frère.
-2 Une femme toujours.
+Une femme toujours.
 - Pourtant, tu étais là, et tu as frappé comme moi. à
 ù Ha, ténèbres, n'avoir plus à mourir!
 _ Je suis coupable, si tu l'es, et plus que toi;
-4 Je veux l'être ; mais nous sommes sans crime, sache-le.
+Je veux l'être ; mais nous sommes sans crime, sache-le.
 - Elle le dit, elle le croit! Mais moi, Elektre,
 _ J'entends celle qui maudit.
 k Personne ne t'appelle,
@@ -8655,24 +8644,24 @@ _ Comme un enfant, viens dormir sur mon sein : ne rêve plus.
 
 G Un tourbillon glacé m'arrache et m'emporte le cœur; :
 : Et chaque battement dont l'écho retentit par toutes
-x Les veines, crie : — du sang! — et — épouvante! — 4
+x Les veines, crie : — du sang! — et — épouvante!
 f N'y pense plus, te dis-je. Ce qui est fait est fait,
 F2 Et les dieux l'ont voulu : ils l'ont osé : aie leur courage.
 à Pardonne-toi, la fatalité jamais ne condamne.
 | ORESTE, tête baissée. Cris très rares
-Je ne me cache pas : c'est moi, furies hargneuses. J
+Je ne me cache pas : c'est moi, furies hargneuses.
 Hypocrites, ne rôdez plus en silence; aboyez! cs
-1 Venez mordre : oui, c'est moi, Oreste, je vous apporte 4:
+Venez mordre : oui, c'est moi, Oreste, je vous apporte
 Ma provende de misère et de crimes. ;
-Elektre te supplie. Je suis à tes genoux, mon frère. h
-Que tes yeux dorment dans mes yeux, et tes mains dans mes m
+Elektre te supplie. Je suis à tes genoux, mon frère.
+Que tes yeux dorment dans mes yeux, et tes mains dans mes
 Reviens à toi : nous voici les maîtres; tout est à nous, :
-A toi; la vie est maintenant ce qu'elle devait être. è
+A toi; la vie est maintenant ce qu'elle devait être.
 | Viens manger, viens dormir dans La demeure, mon Oreste.
 Viens prendre place dans le trône, au haut bout de la table.
 Viens faire honneur à ta fortune. Viens boire aux dieux
-Le vin pur de la libation. Viens, Oreste. 4
-- 4
+Le vin pur de la libation. Viens, Oreste.
+-
 
 _  Oreste ? Elle m'appelle, entends-tu, dans la nuit? "5
 __  Odieux!... Non, c'est moi qui l'appelle.
@@ -8693,16 +8682,16 @@ Glaïa : il pleure. +. à
 ÿ Allez-vous-en, toutes deux ; laissez-moï.
 Pleurer ainsi! Souffrir ainsi, et se désespérer !
 Pourquoi ? Méprise le remords, puisqu'il fallait agir. À
-Il fallait — il fallait — il fallait! — O paroles ! F.
-II fallait ? — Sans trembler, comme elle ose le dire! ; L
+Il fallait — il fallait — il fallait! — O paroles !
+II fallait ? — Sans trembler, comme elle ose le dire!
 Il fallait! — Ces mots éternels tombent sur moi |,
 Comme des pierres, par monceaux et me lapident. , a
-Arrière, tous ! arrière. ; Ê
-Où vas-tu ? pourquoi te penches-tu en frissonnant ? ÿ
+Arrière, tous ! arrière.
+Où vas-tu ? pourquoi te penches-tu en frissonnant ?
 ,
 Elektre, elle est là; elle le veut. #1
-0 1
-186 . 12
+0
+186
 
 _ Je lui parlerai ; elle me fait signe... Elle veut .
 …._ Queje lui parle. Bien.
@@ -8726,15 +8715,15 @@ _ Dors, ferme les yeux dans ma poitrine.
 0,
 
 Elektre et Oreste
-ORESTE, il crie, puis de nouveau, à mi voix F
+ORESTE, il crie, puis de nouveau, à mi voix
 } Tu mens ! Mère, je n'ai pas bu ton sang. O dégoût. !
 Les ombres et les morts tourmentent les vivants.
-C'est leur plaisir souterrain d'empoisonner la terre. 4
+C'est leur plaisir souterrain d'empoisonner la terre.
 ,
 avec horreur /
 Ce n'est pas moi qui l'ai fait cette horrible blessure, À
 O dégoût! Que de sang! Ce n'est pas moi. pi:
-La plaie est de ma main, je l'atteste ! n'y pense plus. k
+La plaie est de ma main, je l'atteste ! n'y pense plus.
 
 Elektre, comprends-tu ? Je suis nu dans le deuil, |
 J'ai perdu à jamais le manteau de la joie ;
@@ -8743,31 +8732,31 @@ De la détresse. A quoi bon vivre désormais ? ne
 J'arrive le dernier, et malheureux plus que les autres. À
 Tout passe, hormis la haine du destin qui n'oublie pas. À
 Les hommes se succèdent : la mort les mène au pas; ‘À
-? Tous marchent sous le fouet, dans les traces les uns des autres … N s
-Et les crimes des fils chaussent les crimes de leurs pères; 4 1
+? Tous marchent sous le fouet, dans les traces les uns des autres …
+Et les crimes des fils chaussent les crimes de leurs pères;
 Le même pied, la même empreinte, la même boue, s A:
 
 .
 
 La même horreur, jusqu'au genou, — la même fin pour tous ;
 Et sous l'äpre aiguillon, la même chute au même tas.
-1 Mon frère, ma douleur ! J'apprends une angoisse nouvelle,
+Mon frère, ma douleur ! J'apprends une angoisse nouvelle,
 -__ (C'est toi qui me l'enseignes : te voir dans cette mort, hélas!
 Ÿ O destin, c'en est trop, et je m'y perds enfin. | ;
 N 1 _ Ce n'était pas assez de tant de mal, sans doute ; ts
 ù Ce n'était pas assez des tortures souffertes,
 de Du crime et des injures, il y avait place encore
-44 Au désespoir suprême et qui survit à tout :
+Au désespoir suprême et qui survit à tout :
 À Au mal que l'on nous fit, le mal que tu te fais s'ajoute ;
 À À Et j'y dois assister impuissante, moi, moi! ;
 D Qui ai tout mis en toi, moi ! qui pour ton bonheur,
 É ‘44 ; Eusse donné avec joie jusqu'à dix fois ma vie.
-1 Tu brises mon courage : à ton tour, aie pitié de moi,
+Tu brises mon courage : à ton tour, aie pitié de moi,
 ‘4 1 Oreste ; je ne te comprends pas, aie pitié cependant,
-4 Épargne-moi, épargne mon espoir, je te supplie.
-5 Si cette œuvre terrible, ordonnée par les dieux,
+Épargne-moi, épargne mon espoir, je te supplie.
+Si cette œuvre terrible, ordonnée par les dieux,
 
-7 Achevée dans le sang comme elle a dû y naître,
+Achevée dans le sang comme elle a dû y naître,
 
 ‘à Ne fait que ton malheur, et consomme ta ruine,
 
@@ -8786,28 +8775,28 @@ Enfin, les voici tous, les fils et les parents.
 Un seul a su les réunir au seuil de l'antre!
 Le pâtre au chien cruel qui ne mord qu'une fois, la mort |
 A fait cette assemblée. La griffe a déchiré la trame, {
-Et d'un fil rouge aux cœurs haïs a recousu les cœurs. 4
+Et d'un fil rouge aux cœurs haïs a recousu les cœurs.
 ; C'est à ton tour, Oreste : tu te fais à la nuit? ; ;
 Tu veilles, et tu fuiras le jour ? ta sœur elle-même se cache;
 Elekire, bond de l'action sous le corps d'une vierge,
 Elektre tient la main devant ses yeux. O nuit,
 Tous t'écoutent : les deux qui sont couchés, et ces deux là ;
-‘ Qui demeurent : le frère tremble, la sœur se tait : f
+‘ Qui demeurent : le frère tremble, la sœur se tait
 Les fauves ont rugi, et maintenant ils font silence. ;
-Si c'est.toi, tu viens pour l'ensevelissement, Tantale. 7; 0
-Éteins la torche. 6
-Je porte la clarté dans ces ténèbres. 4
+Si c'est.toi, tu viens pour l'ensevelissement, Tantale.
+Éteins la torche.
+Je porte la clarté dans ces ténèbres.
 
 Eteins la torche. ‘1
-TANTALE, il va aux morts 4
+TANTALE, il va aux morts
 Je veux les voir aussi, de près. de
-Je me penche vers vous, ainsi ! — morts d'une double mort, ÿ
+Je me penche vers vous, ainsi ! — morts d'une double mort,
 Côte à côte, pareils au gibier dans la carnassière. #4
 Toi, l'homme, tu ne ris plus de contentement ? tu dresses à FA
 Le front, mais ce n'est plus de plaisir au bonheur de vivre. a |
 
 | Ettes lèvres, à toi, ma fille, ne disent plus : — Je t'aime...
-_ Je promène la torche sur vos abîmes d'yeux, — x
+_ Je promène la torche sur vos abîmes d'yeux,
 _ Quatre gouffres jumeaux, où déjà l'éternel hiver
 _  Grand-père, je savais que tu viendrais aux funérailles.
 Mais attends : tout n'est pas fini : un peu de temps encore,
@@ -8815,34 +8804,34 @@ Mais attends : tout n'est pas fini : un peu de temps encore,
 
 En GLAIA secoue la tête
 V4 Ii est trop tard.
-3 Que vont-ils faire, ce vieillard sépulcral et cet enfant ?
+Que vont-ils faire, ce vieillard sépulcral et cet enfant ?
 ._ nya plus qu'à pleurer, — et à l'aider, s'il est possible.
 -_ La mort sur l'amour. La folie sur la mort, —
 à Toutes les morts. La mort appelait : Lionceau,
-4 191
+4
 
 Elektre et Oreste
 ————————————————— ————— — ———.
-Tu es venu. La mort appelle : entends-la, troupeau d'hommes, Ê
+Tu es venu. La mort appelle : entends-la, troupeau d'hommes,
 è Entends, Mycènes ! Que vous faut-il de plus, misérables? À
 Dans le fond, là-dessous, les flambeaux par la ville s'allument. .
 Ils vont et viennent dans les maisons, les esclaves s'éveillent, |:
 C'est la rumeur du rève; elle crie en sursaut : debout ! ;
-| Mais le songe est esclave en ces songeurs esclaves. 1
-Le bond retombe; le sommeil reprend; la rumeur s'apaise. L
+| Mais le songe est esclave en ces songeurs esclaves.
+Le bond retombe; le sommeil reprend; la rumeur s'apaise.
 À l'appel de la mort, tu réponds seul, Oreste. À
-Pas encore ! n'approche pas le feu de mon visage. k
-Tu recules ? Le festin est servi dans le palais. M
-Va près d'eux, ils t'attendent; et moi, je me suis assis > 4
+Pas encore ! n'approche pas le feu de mon visage.
+Tu recules ? Le festin est servi dans le palais.
+Va près d'eux, ils t'attendent; et moi, je me suis assis >
 En d'autres temps, à des banquets plus somptueux À
-Que celui-ci. — Ici, on mange la vie jusqu'à l'os. N:
+Que celui-ci. — Ici, on mange la vie jusqu'à l'os.
 J'entends un grand soupir qui s'élève du précipice,
 L'âme rauque du vent, le fou qui souffle le délire.
 Les pierres sur le roc, des crocs au crépuscule +4
 Dans la gueule des tigres : j'attends la meute qui déchire. LA
-L'âme atroce de cet atroce lieu, c'est toi, Tantale. 4
+L'âme atroce de cet atroce lieu, c'est toi, Tantale.
 
-4 TANTALE »  O chiens, la profonde harmonie ne se définit pas. <
+TANTALE »  O chiens, la profonde harmonie ne se définit pas. <
 _ Où vais-je, si je vis, cacher ma honte et mes remords ?
 He: - Attends d'avoir blanchi dans les délices : il sera temps,
 _ Alors, de te repentir, lorsque tu seras sans forces.
@@ -8857,8 +8846,8 @@ L Nul ne te touchera, non ! pas un cheveu, chère tête !
 e ELEKTRE avec décision
 % Lui, craindre ? Et qui ? tu es folle, nourrice.
 J En haine à tout le peuple, en haine aux morts et aux vivants,
-1 En haine à tous et à moi-même.
-| . 193
+En haine à tous et à moi-même.
+|
 
 Elektre et Oreste |
 Tant de regrets, toujours ?
@@ -8866,12 +8855,12 @@ Il fallait me laisser frapper; je l'aurais dû,
 Moi seule; mais c'était ton office et je n'ai pas voulu
 L'usurper : au maitre de venger l'injure du maître.
 Le cœur des vierges est dur sous la gorge sans lait.
-Le cœur des vierges est tel que leur mère l'a fait. ÿ
+Le cœur des vierges est tel que leur mère l'a fait.
 Certes, cette femme n'a pas permis que je tonnusse
 La joie du jeune amour, ni l'orgueil d'enfanter.
 Crois-tu que je n'ai pas pleuré de vieillir solitaire
-C'est pourquoi tu m'as appelé. É
-Tu embrasses étroitement : à étouffer. 1
+C'est pourquoi tu m'as appelé.
+Tu embrasses étroitement : à étouffer.
 Je n'ai pas d'autre enfant que toi : toi seul me restes. {
 Un tigre à la tigresse : à la vengeance, le vengeur.
 J'étais né pour moi-même, peut-être, et non pas À
@@ -8879,7 +8868,7 @@ Pour servir un tombeau, non pas pour étancher la soif ‘1
 D'un sépulere au désert, ni pour remplir de sang De
 L'urne de la haine. Ke
 
-Homme, maudis et maudis-toi ! d
+Homme, maudis et maudis-toi !
 Tu ne saurais trop maudire les dieux, Fhomme et la vie.
 Les étoiles s'effacent. Le soleiïl pâle de la nuït,
 * Qui éclaire sans bruit les loups en chasse dans la forêt,
@@ -8898,7 +8887,7 @@ _ La faute est effacée, — le justicier, victime.
  Toi-même, Elektre, voici que tu doutes de ton droit,
 
 Elektre et Oreste
-Tu n'oses plus tourner la tête du côté lugubre È
+Tu n'oses plus tourner la tête du côté lugubre
 Où a sévi la terrible fatalité.
 + Si! Si! Je l'ose ! Je l'oserai toujours : je regarde
 L'œuvre en face : Si elle était encore à faire,
@@ -8913,32 +8902,32 @@ La vengeance et les actes puissants y ont tenu à l'aise.
 Dénombre-les un à un, doigt par doigt. Ta plainte ;
 M'irrite, roseau débile. As-tu été conçu ;
 Par des pleureurs sans os, par des esclaves en prison ?
-Ou par les héros de ma race, maîtres de la vie ÿ
-Comme ils sont de la ville ? ' f
+Ou par les héros de ma race, maîtres de la vie
+Comme ils sont de la ville ? '
 Ils ont vécu, eux! À
 Ils ont jouï de leurs crimes, et c'est moi qui les paie. ee
-Moi seul, je ne puis vivre et dois mourir pour eux, ù
+Moi seul, je ne puis vivre et dois mourir pour eux,
 
 Qui parle de payer ? Nie la dette.
 dE Force sourde et sinistre, je n'ai pas ton àme d'airain :
 É _ Je suis de chair. Je suis celui que les dieux ont choisi, ;
-_ Celui à qui ils ont pensé, — perdu, depuis ! g
+_ Celui à qui ils ont pensé, — perdu, depuis !
 _ © justice horrible des dieux!
 î Lâche, brave-la.
 _ Je vis! Arrache-leur la vie, si tu veux vivre.
-_ Destin, as-tu même connu les forfaits des ancêtres ? 3
+_ Destin, as-tu même connu les forfaits des ancêtres ?
 Cest toi qui les connais. Ils se sont réjouis.
 _ Réjouis-toi, à làche. |
-4 Et toi, encore toi, ma mère ?
+Et toi, encore toi, ma mère ?
 _  N'as-tu pas eu ton temps de joie, après le crime ?
 _ | Laisse-moi le mien, à présent.
 LB Läche, prends-le !
 « Tout est à prendre.
 
 Elektre et Oreste jt
-Quelle pitié. Où crois-tu être, Oreste ? ÿ
-Fe C'est moi, Elektre.. Ê
-; Hélas, c'est toi. 4
+Quelle pitié. Où crois-tu être, Oreste ?
+Fe C'est moi, Elektre..
+; Hélas, c'est toi.
 
 Qui t'embrasse les mains. Reviens à toi, mon frère. %
 
@@ -8950,7 +8939,7 @@ Les dieux, jamais, n'ont voulu que je leur résiste. A.
 Que faire ? Je ne sais plus... Ce sanglot frappe à mon cœur
 Comme à la porte, la nuit, un porteur de nouvelles. 4 à
 Injustes, injustes dieux : je n'aurai plus la paix. eo:
-Tout comme le poulain, entravé dans un champ, 1
+Tout comme le poulain, entravé dans un champ,
 Tourne autour du piquet et à la fin s'étrangle, ki
 
 h Tel, dans l'enclos du crime, au poteau de la mort,
@@ -8959,7 +8948,7 @@ Entre des murs infranchissables, Jupiter
 Échappe-toi! Romps le licol. nrit.
 b: S'il le pouvait !
 _ Maïs le peut-il ?
-10 ANS Chacun d'eux a vécu pour lui-même.
+ANS Chacun d'eux a vécu pour lui-même.
 
 …_ Chacun d'eux n'a foulé que ses pas dans lenclos,
 j' k Et chacun d'eux a mesuré sa taille sur le sol
@@ -8974,19 +8963,19 @@ j' k Et chacun d'eux a mesuré sa taille sur le sol
 % Même lui.
 
 Elektre et Oreste Ke:
-Non, ne le dis pas. + 4
+Non, ne le dis pas. +
 Non, non, pas lui, l'infortuné, tombé au seuil
-De sa demeure et du retour rêvé, — pas lui! 3
+De sa demeure et du retour rêvé, — pas lui!
 Pourtant que n'étais-tu, mon père, el que ne suis-je .
-Celui qui pousse la charrue tranquille dans la plaine ? 4
+Celui qui pousse la charrue tranquille dans la plaine ?
 La lune va venir, silencieuse souveraine, \
-Qui rend même à la nuit la très sainte sérénité. « 4
-Bientôt, mon roi, bientôt lu vas aussi goûter 1
-Le mol apaisement de la calme lumière. 410
+Qui rend même à la nuit la très sainte sérénité. «
+Bientôt, mon roi, bientôt lu vas aussi goûter
+Le mol apaisement de la calme lumière.
 Je ne veux plus la voir, la clarté qui révèle ‘3
 L'horreur, — ni celle qui là-bas est couchée sur les dalles.
 J1 se lève aussitôt et va aux morts. ] à À
-Comme elle est immobile et sévère... 4
+Comme elle est immobile et sévère...
 Assez, ne me regarde pas, morte ! c'est moi, un mort ‘10
 Aussi, peut-être... O dégoût. Le palais, l'antre au bétail fa
 De la luxure, la vache chaude et le taureau; ‘12
@@ -9013,7 +9002,7 @@ J'en finirai, j'en finirai! De vous tous et de moi.
 Elektre et Oreste
 Oreste, Oreste que fais-tu ? pourquoi répondre ? fuis
 Plutôt : l'oiseleur de la nuit tire sur le filet. |
-Oreste, ceux qui veillent, t'appellent : Arrive. 4
+Oreste, ceux qui veillent, t'appellent : Arrive.
 Quelle sera la fin, à Jupiter?
 Quelle sera la fin? En doutes-tu? — La mort.
 Seule, la mort achève tout. Il faut l'attendre.
@@ -9022,10 +9011,10 @@ Roi Tantale, affreux vieillard, va, je Vai deviné: :
 Tu voudrais voir mourir aussi cet enfant, d méchant. |
 Il le veut, tu dis vrai, nourrice, — l'aveugle assassin.
 Ha, toi-même, ma fille, cruelle iu Pétais ;
-Tout à l'heure et ne le fus que trop: et voici 4
-La mort de toutes parts, et ce tombeau de deuils. l
-Va, laisse-moi pleurer. h
-202 18
+Tout à l'heure et ne le fus que trop: et voici
+La mort de toutes parts, et ce tombeau de deuils.
+Va, laisse-moi pleurer.
+202
 
 Je n'y tiens plus ; mon cœur se brise.
 $ N'hésite plus, Oreste; viens prendre possession
@@ -9036,12 +9025,11 @@ _ Laissez-moi. Adieu, Elektre. Allons, laisse-moi.
 
 N, ELEKTRE, se jette sur lui et le retient
 Non, non, tu ne le feras pas. Il n'a pas sa raison,
-1 Oreste, enfant. Écoute-nous!
+Oreste, enfant. Écoute-nous!
 
 J'irai. Ne pleure pas, nourrice. Elektre, adieu.
 _ A l'aide, vous ! Œnops! Et vous tous! Se peut-il
 | - Que vous l'abandonniez à son délire ?
-| 203
 
 Elektre et Oreste
 Je ne puis plus prêter les mains aux catastrophes
@@ -9056,20 +9044,20 @@ Hâte-toi ! Les tombes sont au fond, et le lit
 De la nuit séculaire. Un bond, et couche-toi. |
 Hâte-toi ! hâte-toi! Tu auras le sommeil ;
 C'est l'heure du repos.
-Demeure, écoute-moi, frère chéri! Oreste ! 4
-; J'y vais. J'y suis. Je veux dormir avec vous tous, maudits, 14
+Demeure, écoute-moi, frère chéri! Oreste !
+; J'y vais. J'y suis. Je veux dormir avec vous tous, maudits,
 Cette nuit, hôtes noirs, rongeurs du sombre abîme. |
 Vis, toi, si tu veux, Elektre, sœur de pierre.
 Arrête, arrête, je suis à tes genoux, je pleure! |
 Aie pitié, à mon frère chéri, aie pitié de ta sœur, à
-Qui n'a que toi. 1
+Qui n'a que toi.
 
 NUE | Adieu, Elektre, adieu, très chère! de
 À _ Encore un peu de temps, et ce sera le jour, espère ! :
 _ Bientôt va paraître l'innocente lumière, $
-_ Qui rend la vie au cœur. Bientôt, à malheureux, Ÿ
+_ Qui rend la vie au cœur. Bientôt, à malheureux,
 _…— Bientôt l'aurore! Bientôt !
-1 La mort, la mort! |
+La mort, la mort! |
 | #1 & Il s'élance. Entre Jupiter. |
 
 I porte un bâton d'or que termine une main. Il passe entre
@@ -9090,15 +9078,15 @@ Qu'elle périsse, à Jupiter, à ta face qu'elle périssel |
 
 : Elle vivra, Oreste.
 
-5 Et puisqu'il faut que je demeure,
-Puissé-je vivre pour la voir périr totalement. e
+Et puisqu'il faut que je demeure,
+Puissé-je vivre pour la voir périr totalement.
 he 1 Roi d'Athènes, faut-il laisser ainsi à ses blasphèmes
 
 (1 Il faut l'y laisser.
 
 É Je vous défie, esclaves; aboyez, dans la niche.
 
-5 Noire oreille de la nuit, entends-les : tu les connais
+Noire oreille de la nuit, entends-les : tu les connais
 1} De lorigue date : ici, en bas, partout et malgré eux,
 a Ils hurlent à la mort ; tous les chiens de la plèbe
 à Tournent dans le ravin en reniflant la proie.
@@ -9111,7 +9099,7 @@ Ve : Hurlez, dogues de la fosse, donnez de la voix pour elle !
 { Demeure. Ne fais pas un pas.
 
 Elektre et Oreste
-* j Oreste, l'oublies-tu ? ÿ
+* j Oreste, l'oublies-tu ?
 IL faut que tout s'achève, et dans la mort. Descends la pente!
 Déjà, tu es à bien plus de la moitié du chemin.
 La puissance, l'amour, la gloire et les montagnes d'or,
@@ -9123,8 +9111,8 @@ L'auberge du forfait recoit les fils des roïs.
 Entre dans la maison, Oreste, ou meurs. Moi, je demeure.
 ORESTE, hors de lui |
 Non, jamais ! Je n'entrerai pas dans la maison sanglante. :
-; Loin de moi, murs farouches, mâchoires de l'assassinat. Î
-Dormir et oublier !.… É
+; Loin de moi, murs farouches, mâchoires de l'assassinat.
+Dormir et oublier !.…
 Que la race périsse !
 Cours, lionceau; sus au bien que mes deux bras te montrent!
 Bondis ! Ravis ce que je ne puis pas étreindre. Va. :
@@ -9170,7 +9158,7 @@ L Rien ne peut le réduire, — sinon la calme volonté
 | Cependant, j'ai tué. Là-bas, ils sont couchés : le poing
 | De ma mère est encore levé contre moi...
 
-209 12.
+209
 
 Elektre et Oreste ;
 Voilez ces morts, côte à côte. Ne les séparez pas.
@@ -9181,15 +9169,15 @@ les morts et se rangent derrière eux. La porte du palais est ouverte. La lumiè
 L'auguste visiteur dont les regards, — tel l'incendie
 Dans un buisson, — brillent sous les puissants sourcils,
 A prononcé l'arrêt : le sceau du mal, c'est la clémence.
-Ha, tu seras sauvé ! L'épouvante, enfin, se dissipe. ÿ É
+Ha, tu seras sauvé ! L'épouvante, enfin, se dissipe.
 N'écoute plus les abois du remords : la meute est loin. A
 Le lit de ton père l'attend : tu dormiras, mon frère.
 
-Le rachat ? La justice? La loi nouvelle et le pardon? l
-O dieu menteur, en vérité, le roi des dieux! ‘ 1
-Pousse la porte, Oreste, si tu peux : la mort 1
+Le rachat ? La justice? La loi nouvelle et le pardon?
+O dieu menteur, en vérité, le roi des dieux! ‘
+Pousse la porte, Oreste, si tu peux : la mort
 Est sur le seuil, et te défend d'entrer, — la mort— ton œuvre. À
-Essaie de vivre. î
+Essaie de vivre.
 Voilà ce qui ne peut être effacé. NE
 
 se Mais, mon fils, tout s'achève. Chaque forme, à son heure!
@@ -9200,7 +9188,7 @@ EN Prends ce qui t'est donné : la vie comme un beau jour,
 F ORESTE, retient un sanglot
 
 1] La vie pardonne : tu seras pardonné.
-] Oreste, la bonté est l'interprète du Destin; k
+] Oreste, la bonté est l'interprète du Destin;
 à. A sa droite, elle est assise; elle lui tient la main
 Et la réchauffe entre les siennes. Quel autre médecin
 d A la fatalité, que la pitié humaine ?
@@ -9213,21 +9201,21 @@ Car le plus fort se nourrit du plus faible : c'est la loi.
 
 Elekire et Oreste Fe
 Toutleresteestmensongeet vient des dieux, les dieux qui mentent. |
-C'est la loi : de tout temps! et le premier vivant l'a sue, 4
+C'est la loi : de tout temps! et le premier vivant l'a sue,
 La sereine splendeur illumine le fait,
-Et sans y compatir, l'accepte. Accepte aussi. U
+Et sans y compatir, l'accepte. Accepte aussi.
 Tu partiras pour Delphes. Sois fort, marche vers le soleil,
 Sans l'arrêter, jusqu'à ce que tu sois dans la lumière.
 | Sois fort, mon fils : tu seras pur, et ton crime expié,
 Garde à l'avenir l'innocence de tes maux.
 La mort avait choisi pour porter ses armes : prends celles
 De la vie. Règne en paix. Punis et ne te venge pas. ;
-Qui es-tu, à toi qui disperses les serpents, D
-Et rends au cœur le calme? : 4
+Qui es-tu, à toi qui disperses les serpents,
+Et rends au cœur le calme?
 
 Je te l'ai dit : le roi d'Athènes, :
 Thésée, ton hôte, qui sait purifier les hommes. “à
-Qui parle de Thésée? Je te connais, Ô Jupiter, D
+Qui parle de Thésée? Je te connais, Ô Jupiter,
 Père au front immuable : mais moi, Tantale, je te brave. a.
 Tu es le roi des dieux et non le roi d'Athènes : si
 C'est Jupiter lui-même qui te joue, mon lionceau. | A
@@ -9254,16 +9242,16 @@ Tu as puni : c'est moi qui l'ai voulu, tu nr'as sauvée;
 Et tu pourrais ne pas l'être, mon bien aimé?
 La vie porte en soi la purification.
 Oreste, tu dois souffrir : c'est toi qui dois ainsi |
-Connaître enfin le prix de la justice : tu sauras É
+Connaître enfin le prix de la justice : tu sauras
 Dans la douleur, ce que tes pères n'ont pas su. |
 Le savoir est le fils très pur de la souffrance. ;
 Ne cherche pas pourquoi je te pardonne : sache aussi ;
 Que la sérénité est la seule justice.
 Ta route est longue encore ; ton jour se lève à peine.
 Expie donc en vivant. Mon fils, courage! expie. ' ;
-Si les remords te déchirent, laisse-t'en déchirer : 4
-C'est à fin que plus tard ta pensée même se rachète, 1
-Plus tard, beaucoup plus tard. Sois patient. j
+Si les remords te déchirent, laisse-t'en déchirer
+C'est à fin que plus tard ta pensée même se rachète,
+Plus tard, beaucoup plus tard. Sois patient.
 Aurai-je le repos? Aurai-je le sommeil, grand Roi? }
 C'est à toi de les conquérir. Lutte, tu les auras.
 Pour vouloir le pardon, le Destin veut le crime.
@@ -9271,12 +9259,12 @@ Qui élude la loi? Vois, les astres en sont le texte :
 Pour moi-même elle est faite, et non faite sans moi,
 
 Un tribunal divin, qui vient de Jupiter, te dis-je, À ‘
-_ Après la longue guerre du mal contre le mal, 21
+_ Après la longue guerre du mal contre le mal,
 _ Doit te rendre la paix. Il la proclamera Hs
 Sur ta tête souffrante lorsque le temps sera venu. \
-… C'est dans ma ville, dans mon Athènes, que ta misère 4
+… C'est dans ma ville, dans mon Athènes, que ta misère
 Aura son terme : là, mon fils, du même trait de foudre « a
-_ Qui ta brûlé, ce soir, le cœur, ton cœur sera guéri. K
+_ Qui ta brûlé, ce soir, le cœur, ton cœur sera guéri.
 Ne L'absous pas : c'est aux dieux de t'absoudre.
 
 } rez-de-chaussée, Paris, cinquième arrondissement.
@@ -9312,7 +9300,7 @@ au total des prix marqués; ainsi depuis le premier
 
 - janvier 1905 la cinquième série complète se vend
 
-4 M. André Bourgeois, administrateur des cahiers,
+M. André Bourgeois, administrateur des cahiers,
 …. reçoit pour l'administration et pour la librairie tous
 ht les jours de la semaine, le dimanche excepté, — de huit
 Lt heures à onze heures et de une heure à sept heures.
@@ -9362,7 +9350,7 @@ la délation aux Droits de l'Homme; il est sorti brusgs quement, sans aucune pr�
 4 là délation aux Droits de l'Homme; et ce cahier non
 1 prévu m'a forcé même à remanier tout le plan de cette
 
-4 221
+4
 
 la délation aux Droits de l'Homme
 Une lettre du docteur Amieux :
@@ -9390,7 +9378,7 @@ qui pensent comme nous et qui croient devoir rester dans
 la Ligue, je déclare qu'à mon sens c'est un devoir d'en sortir ;
 à l'heure actuelle. C'est le seul moyen de ne pas servir de
 marche-pied à des cyniques politiciens pour lesquels ceux
-qui les ont vus à l'œuvre ne peuvent avoir que de la pitié. ï
+qui les ont vus à l'œuvre ne peuvent avoir que de la pitié.
 Il a fallu l'affaire Dreyfus pour filtrer la nation. Il a fallu {
 l'affaire des fiches pour filtrer la Ligue. Nous arriverons À
 bien à reconnaître les bons et les purs. ne
@@ -9408,7 +9396,7 @@ R il est président honoraire de la section de Paris huitième;
 4 la lettre que l'on va lire a été adressée par le docteur
 < Oyon à M. le Président de la Ligue des Droits de
 ‘4 l'Homme; on verra qu'elle n'est elle-même qu'une
-4 Monsieur le Président,
+Monsieur le Président,
 Ÿ Votre circulaire aux présidents des sections appelle quelf ques réflexions.
 } Une lecture attentive n'a pu me faire découvrir dans les
 3 lettres d'un caractère si élevé qui ont été publiées ni dans
@@ -9463,8 +9451,8 @@ expulsion d'un étranger — au sens strict du mot — pour un
 discours non encore prononcé.
 
 En prenant en mains la cause d'un adversaire, en soi fort
-peu sympathique, la Ligue eût prouvé sans conteste qu'elle 1
-a uniquement en vue la défense des principes et qu'elle pour- f
+peu sympathique, la Ligue eût prouvé sans conteste qu'elle
+a uniquement en vue la défense des principes et qu'elle pour-
 
 suit l'arbitraire partout où il se manifeste. Je sais bien
 qu'un vœu, provoqué sans doute par cet incident, a été for-
@@ -9503,7 +9491,7 @@ Il semble qu'après l'affaire Dreyfus, celle du professeur :
 | suflisamment sentir. L'initiative d'une section provoqua
 . l'étude et la discussion de la question par un comité de
 juristes. Un remarquable rapport fut rédigé sous forme de
-4 225
+4
 
 la délation aux Droits de l'Homme
 ‘projet de loi tout prêt à être mis en délibération. Qu'en
@@ -9540,7 +9528,7 @@ devrions toucher à la politique que pour rappeler les gouvernements, quels qu'i
 des principes de la déclaration, et pour nous efforcer
 
 ; comme vous le dites « à les faire passer dans la législation » et j'ajouterai « dans les mœurs ».
-4 C'est en se tenant constamment bien au-dessus de la poF: ltique courante, dans la région sereine de la morale et du
+C'est en se tenant constamment bien au-dessus de la poF: ltique courante, dans la région sereine de la morale et du
 " droit, que notre Ligue pourra acquérir une autorité incon-
 # testée et s'imposera au respect même de és adversaires.
 k Notre ami Pierre Deloire nous écrit pour nous deman3 der comment il se fait que la Ligue ait besoin de faire
@@ -9565,7 +9553,7 @@ J'en pense que j'admire l'incroyable naïveté de notre
 collaborateur; et ma seule réponse est celle-ci : laissons
 ces misères, et travaillons.
 
-_ Notre catalogue analytique sommaire ............ 1
+_ Notre catalogue analytique sommaire ............
 MR CBCulMers sont édités... VA UN 1. Mara
 
 onzième cahier de la sixième série |
@@ -9581,10 +9569,10 @@ Nous avons donné le bon à tirer après corrections
 pour trois mille exemplaires de ce onzième cahier le
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-Il est impossible de suivre honnêtement le mouve- 2
+Il est impossible de suivre honnêtement le mouve-
 ment littéraire, le mouvement d'art, le mouvement LE
 politique et social si l'on n'est pas abonné aux Cahiers "4
-de la Quinzaine. * 1
+de la Quinzaine.
 
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 
@@ -9598,20 +9586,20 @@ séries des cahiers, 1900-1904, envoyer un mandat de ;
 cinq francs à M. André Bourgeois, méme adresse; On
 recevra en retour le catalogue analytique sommaire,
 1900-1904, de nos cinq premières séries, premier cahier
-de la sixième série, un très fort cahier de XI1+408 - 4
+de la sixième série, un très fort cahier de XI1+408
 pages très denses, in-18 grandjésus,marqué cinq francs.
 
 Pour s'abonner à la sixième série des cahiers, quiest
-la série en cours, envoyer un mandat de vingt francs” 4
+la série en cours, envoyer un mandat de vingt francs”
 à M. André Bourgeois, méme adresse ; on recevra en> à
-retour les cahiers déjà parus de cette sixième série; puis 2
+retour les cahiers déjà parus de cette sixième série; puis
 on recevra de quinzaine en quinzaine, à leur date, les : ‘
 cahiers à paraître ; toute personne qui s'abonne à la
-sixième série reçoit donc automatiquement le premier 2
+sixième série reçoit donc automatiquement le premier
 cahier de cette série, qui est le catalogue analytique
-sommaire de nos cinq premières séries. s 4
+sommaire de nos cinq premières séries.
 
-Nous mettons le présent cahier dans le commerce; j
+Nous mettons le présent cahier dans le commerce;
 onzième cahier de la sixième série: un cahier blanc
 de XII + 232 pages; in-18 grand jésus; nous le
 
@@ -9621,22 +9609,22 @@ paraissant vingt fois par an
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-190f/, un Si
-grand nombre de cahiers de lettres, — nouvelles, « romans, drames, dialogues, poèmes et contes ; — un si È
+grand nombre de cahiers de lettres, — nouvelles, « romans, drames, dialogues, poèmes et contes ; — un si
 grand nombre de cahiers d'histoire et de philosophie ; « et ces cahiers de lettres, d'histoire et de philosophie
 étaient si considérables que nous ne pouvons pas songer *
-à en donner ici l'énoncé même le plus succinct; pour w
+à en donner ici l'énoncé même le plus succinct; pour
 savoir ce qui a paru dans les cinq premières séries des À
 cahiers, il suffit d'envoyer un mandat de cinq francs à
 M. André Bourgeois, administrateur des cahiers, 8, rue “
-de la Sorbonne, rez-de-chaussée, Paris, cinquième 4
+de la Sorbonne, rez-de-chaussée, Paris, cinquième
 arrondissement; on recevra en retour le catalogue
 analytique sommaire, 1900-1904, de nos cinq pre-\
 
 Ce catalogue a été justement établi pour donner, « autant qu'il se pouvait, une image en bref, un raccourci,
 
 . une idée, abrégée, mais complète, de nos éditions anté-
-rieures et de nos cinq premières séries ; tout y est classé 4
-dans l'ordre ; il suffit de le lire pour trouver, à leur « place, les références demandées. 4 4
+rieures et de nos cinq premières séries ; tout y est classé
+dans l'ordre ; il suffit de le lire pour trouver, à leur « place, les références demandées.
 
 Ce catalogue, in-18 grand jésus, forme un cahier
 très épais de XI1+-408 pages très denses, marqué cinq.
@@ -9648,7 +9636,7 @@ sixième série et nos abonnés l'ont reçu à sa date, le
 reçoit, par le fait même de son abonnement, en tête de
 la série ; nous l'envoyons contre un mandat de cinq francs
 
-+403 à toute personne qui nous en fait la demande. R
++403 à toute personne qui nous en fait la demande.
 
 ‘4e partacus sa
 
@@ -9658,30 +9646,30 @@ _ Giovagnoli, traduit de l'italien par madame J.-W.
 D. OCNOMAO, chef des gladiateurs germains. \
 ___ ARTORIX, chef des gladiateurs gaulois.
 pe ‘4 _ CRISSUS, chef des gladiateurs.
-14 À BREXOVIR, chef des gladiateurs. 3
+À BREXOVIR, chef des gladiateurs.
 __ TREBONIUS, intendant de Valeria. |
 | CRISOGONE, intendant de Sylla. ‘
 
 MIRZA, sœur de Spartacus. 1.0
-ATTILIA, affranchie de Sylla. d
+ATTILIA, affranchie de Sylla.
 
 Taverne de Venus Funèbre ;
-Un fossoyeur. Une fille. 4
+Un fossoyeur. Une fille.
 Un vieux légionnaire. Des gladiateurs. .
-Un vieux gladiateur. Des artisans. 4
-Premier citoyen. ë Des mendiants. F
+Un vieux gladiateur. Des artisans.
+Premier citoyen. ë Des mendiants.
 Deuxième citoyen. . Des filles. ne.
 Artorix. La servante de Lutatia.
-Cetegus, Une esclave (muette). k
+Cetegus, Une esclave (muette).
 
-4 Le Triclinium de Sylla
+Le Triclinium de Sylla
 ; Un convive muet. Esclaves pour le service.
 
 É Le Camp des Gladiateurs
 l Artorix. Deuxième soldat.
 : à Crassus. Des chefs ad libitum.
 Simpliciane. Des soldats ad libitum.
-4 Un vieil esclave. Eutibide,
+Un vieil esclave. Eutibide,
 Un centurion romain. Soldats romains (muets).
 ; Un vieil esclave. Cadavres.
 
@@ -9698,19 +9686,19 @@ des artisans, des gueux, des gladiateurs, des filles. :
 27 négresse, vaquant à la cuisine et au service.
 _ Holà! sorcière maudite, et ton boudin? de quelle
 _carne le fabriques-tu? Les jeux seront finis avant
-biique tu ne le serves ? 1
+biique tu ne le serves ?
 
 Cet honorable fossoyeur a sans doute dérobé pour
-elle, aux corbeaux, un morceau de cadavre qu'elle Ê.
+elle, aux corbeaux, un morceau de cadavre qu'elle
 n'arrive pas à cuire dans sa marmite.
-- Morceau de cadavre toi-même, imposteur, avec 4
+- Morceau de cadavre toi-même, imposteur, avec
 tes fausses blessures... Ce n'est pas plus dans mes
--_ caveaux que dans le boudin de Lutatia, que ta car- É
-casse trouvera jamais un asile! 4
+-_ caveaux que dans le boudin de Lutatia, que ta car-
+casse trouvera jamais un asile!
 Par Pluton! veux-tu que, pour commencer, je !
 fasse quatre ou cinq morceaux de la tienne? Si
-japplique mon poing sur tes crocs -de vieux chacal... 4
-Viens un peu... Allons, viens donc |... Tu n'auras 4
+japplique mon poing sur tes crocs -de vieux chacal...
+Viens un peu... Allons, viens donc |... Tu n'auras
 plus besoin de te fabriquer des infirmités, quandje
 taurai cassé les pattes pour de bon.
 Ils vont se jeter l'un sur l'autre.
@@ -9732,7 +9720,6 @@ Et le combat d'aujourd'hui? cent gladiateurs —
 les plus forts, les plus beaux, les plus célèbres de
 | ie — qui vont mourir pour vous amuser
 : canaille! ça ne vous a pas retenus au Cirque?
-| 5
 
 Moi pas. De jeter les morts au charnier ou de les
 réduire en cendres, ça ne me fait rien. Mais de voir
@@ -9786,10 +9773,10 @@ mets-lui, sans bouclier, un glaive espagnol dans
 _* chaque main et deux, trois, quatre adversaires...
 
 Eh! Caius, tu ne viens pas? la grande bataille
-Non. Ça me fait trop d'effet. 34
+Non. Ça me fait trop d'effet.
 Si son pauvre argent allait recevoir un mauvais |
 coup, songe donc! Il n'a pas un cœur de roc,
-pour les sesterces. D
+pour les sesterces.
 Le Cirque est plein? nn |
 Je crois qu'on ne ferait pas entrer mille personnes |
 de plus. Il y a bien, sur les gradins, cent vingt
@@ -9815,11 +9802,11 @@ Non. Mais tu ne peux pas le savoir non plus. Fe.
 
 Je l'ai entendu de mes propres oreilles. Je pre- …
 
-nais les ordres de sa nouvelle femme... 4
+nais les ordres de sa nouvelle femme...
 
-5 Valeria? la sœur d'Hortensius ! Il va bien, notre
-Sylla ; c'est la troisième... 23
-Ah! la belle femme! É
+Valeria? la sœur d'Hortensius ! Il va bien, notre
+Sylla ; c'est la troisième...
+Ah! la belle femme!
 
 Par Venus, elle est admirable. ‘742
 C'est une vraie déesse. Je prenais ses ordres pour
@@ -9844,8 +9831,8 @@ béiens comme ce patricien-là, le peuple romain sortirait de son bourbier. +4
 Possible. Mais si l'on brave Sylla parce qu'ila
 renoncé à la dictature, le premier quis'emparera du
 pouvoir suprême n'y renoncera jamais. Il vous faut
-un maître : vous l'aurez! vous l'aurez! 3
-Plusieurs hommes se précipitent tumultueusement dans 3
+un maître : vous l'aurez! vous l'aurez!
+Plusieurs hommes se précipitent tumultueusement dans
 
 a Hé! vieille Sibylle! fille de Cerbère, Lutatia, ma
 
@@ -9860,10 +9847,10 @@ de Modène ; et le Mirmillon a travaillé chez Accia-
 | nus ; il était entraîné par Spartacus. C'était gagné
 
 Non pas. Nous avons tous baissé le pouce avec
-ensemble. Croiriez-vous que ce coquin a saisi ui- M
+ensemble. Croiriez-vous que ce coquin a saisi ui-
 _ même Fépée de son adversaire à deux mains, et se,
-l'est enfoncée dans la poitrine en hurlant : « Ro- 24
-mains, peuple de bourreaux, soyez maudits ! » 4
+l'est enfoncée dans la poitrine en hurlant : « Ro-
+mains, peuple de bourreaux, soyez maudits ! »
 Oui; c'était un Espagnol; sa voix stridente a
 percé tous les bruits du Cirque : « Romaïns! soyez
 Depuis quelque temps, les gladiateurs affectent « de mourir avec une étrange insolence. On devrait M |
@@ -9875,7 +9862,7 @@ naturel que les gladiateurs montrent des âmes”
 C'est égal. On devrait les fouetter. S'ils s'étaient "W}
 fait tuer sur le champ de bataille où nous les avons » |
 
-_ pris, ils ne seraient pas obligés de se faire tuer dans n:
+_ pris, ils ne seraient pas obligés de se faire tuer dans
 _ le cirque.
 “8 Mais la grande bataille ? les quarante Thraces
 _  comire les quarante Samnites ? +
@@ -9887,19 +9874,19 @@ _  comire les quarante Samnites ? +
 Comment, les Samnites ? Mais Spartacus ?
 ER Mon pauvre vieux, ton Spartacus te coûte cent
 
-Tout n'est pas dit... N'est-ce pas? 1
+Tout n'est pas dit... N'est-ce pas?
 Oh ! à peu près. Quand nous sommes partis, Faffaire n'était plus douteuse. Ca été un combat
 magnifique ; Accianus en avait donné à Sylla pour
 | son argent : quarante paires de jeunes hommes
 - superbes, intrépides, charpentés et musclés comme
-des géants. : 4
+des géants.
 chauds à l'attaque ! Les valets n'avaient pas besoin
-de les y pousser avec les fers rouges. 4
+de les y pousser avec les fers rouges.
 En moins d'une heure, il y en avait soixante-huit
-par terre, morts ou mourants. 4
+par terre, morts ou mourants.
 Non, Spartacus était debout, sans blessure; mais > |
 il n'avait plus que deux de ses hommes. Et tous les
-16 8
+16
 
 4 trois, épaule contre épaule, sur un monceau de
 |_ cadavres, étaient assiégés par une dizaine de Sam__  nites. Ils sont cuits.
@@ -9911,27 +9898,27 @@ _ est content de Sylla.
 ee. Pour ce que l'argent lui coûte, à cet illustre
 ; Quoi? 220.000 sesterces ne te suffisent pas ?
 À qu'est-ce qu'il te faut?
-4 Le camarade veut dire que Sylla n'a pas usé la
+Le camarade veut dire que Sylla n'a pas usé la
 | paume de ses mains pour gagner les trésors dont
 il nous restitue maintenant une parcelle.
 
 Spartacus ne
-Il a pu se fatiguer tout de même; car, sa première F4
+Il a pu se fatiguer tout de même; car, sa première
 fortune, il l'a héritée tout jeune d'une vieille drôlesse
 - Ce n'est rien à côté de ce qu'il a pillé dans la £
-Re Et ses réquisitions en Grèce, donc! :. 400
+Re Et ses réquisitions en Grèce, donc! :.
 | Et les proscriptions! 17 hommes consulaires,
-étranglés, saignés, déportés, dont les biens sont M
+étranglés, saignés, déportés, dont les biens sont
 : allés aux caisses publiques, dans un temps où les
 ‘caisses publiques se confondaient avec la caisse du
 Tout ça ne l'empêche pas de pourrir vivant. Il a
 des temples comme Jupiter, et des statues en or
-massif. Mais il a le cuir d'un cochon malade. M:
+massif. Mais il a le cuir d'un cochon malade.
 
 | Ila la teigne. ESS
 
 _ C'est le sang de ses victimes qui suinte par tous
-_ les pores de sa peau. 3
+_ les pores de sa peau.
 _ Oui, le sang des six mille Samnites qui s'étaient
 _ rendus sur sa parole d'honneur, et qu'il a fait tuer » entas, dans le Cirque, à coups de flèches.
 ; Le sang des douze mille hommes, femmes et
@@ -9948,12 +9935,12 @@ Puisses-tu rôtir sous ses décombres, vieille sor-
 : Athéniens, des Gaulois, des Cimbres, des Thraces,
 des Ibères, des Numides ; je porte douze cicatrices.
 . Mais je n'ai dénoncé personne, et ma bourse est
-Celle de ton général est pleine, sois tranquille. N
+Celle de ton général est pleine, sois tranquille.
 e Bruits et clameurs au dehors. Ne
 : Tous les hôtes du cabaret se tournent vers la porte. ?
 Entrée tumultueuse de gladiateurs, filles, gueux. À
 Puis, Trebonius, criant, gesticulant. #4 ;
-ice Puis, Spartacus, entouré d'Artorix, Crissus, Ocnomao. 4
+ice Puis, Spartacus, entouré d'Artorix, Crissus, Ocnomao.
 
 F Spartacus est mort ? tu as gagné ?
 £ moque ! Tiens, le voilà, ton argent... Je ne voudrais
@@ -9961,25 +9948,25 @@ F Spartacus est mort ? tu as gagné ?
 exploit merveilleux... Spartacus est vainqueur !
 Spartacus est affranchi par le Peuple romain !
 
-- À un héros !... Sept ! ils étaient sept contre lui ! 4
+- À un héros !... Sept ! ils étaient sept contre lui !
 Ses derniers compagnons, en mourant, avaienttué
 chacun leur homme. Sept Samnites restaient contre
-Spartacus. Une immense clameur s'éleva quand les 4
+Spartacus. Une immense clameur s'éleva quand les
 deux Thraces, en tombant, découvrirent les épaules ‘à
 et les flancs de leur chef... Avant que le cri eût à
-expiré sur nos lèvres, il n'y avait plus debout que M
-cinq Samnites. Mais ils étaient tous blessés; Spar- 1
-tacus, intact... Alors, évoquant le souvenir et l'âme É
-; de notre Horace, il rompt, il s'esquive, il fuit. Les Ê
+expiré sur nos lèvres, il n'y avait plus debout que
+cinq Samnites. Mais ils étaient tous blessés; Spar-
+tacus, intact... Alors, évoquant le souvenir et l'âme
+; de notre Horace, il rompt, il s'esquive, il fuit. Les
 | Samnites le poursuivent, se disjoignent, s'écartent.…
-Il se retourne soudain : c'est la foudre qui passe !.… 4
-Un crâne fendu, un poignet abattu d'un coup de È
-revers... Le troisième assommé d'un coup de bou- 4
-clier.. Le glaive dans la gorge du quatrième jusqu'à la garde... Et le voilà, sans armes, tordant les. 4
+Il se retourne soudain : c'est la foudre qui passe !.…
+Un crâne fendu, un poignet abattu d'un coup de
+revers... Le troisième assommé d'un coup de bou-
+clier.. Le glaive dans la gorge du quatrième jusqu'à la garde... Et le voilà, sans armes, tordant les.
 bras du dernier, le précipitant — brisé — sur Le sol,
 appuyant son pied sur la nuque du vaincu, et jetant
 un regard de lion sur la tribune du Sénat... Ah!cent
-? sesterces ! Mais j'en aurais donné deux cents, jen M
+? sesterces ! Mais j'en aurais donné deux cents, jen
 aurais donné cinq cents, pour un pareil spectacle...
 
 … liberté ! la liberté à Spartacus ! » .… On attendait un
@@ -9997,7 +9984,7 @@ que les murailles énormes du Cirque en frémis-
 25 arrêté à la porte, s'avance sur le front de la scène,
 he FAT entouré de ses trois compagnons.
 144 . .
-2 Libre !.. Moi... Et les autres ?...
+Libre !.. Moi... Et les autres ?...
 J a Tout le cabaret est en -émoi. Agitation fiévreuse autour du
 #4 héros ; ses compagnons écartent doucement les gueux
 4 « et les filles qui se pressent. *
@@ -10005,26 +9992,26 @@ J a Tout le cabaret est en -émoi. Agitation fiévreuse autour du
 _ nous sommes à toi... à toi, le plus fort et le plus
 4 brave, à toi l'invincible. Tu es libre et nous
 k sommes tes esclaves … L ;
-4 23
+4
 
 ; SPARTACUS l'écarte et la regarde avec tristesse .
 Je ne veux pas d'esclaves.
-2 TREBONIUS, appelant Spartacus et ses compagnons 13
-dans la petite salle 3
+TREBONIUS, appelant Spartacus et ses compagnons
+dans la petite salle
 Ici, camarades ! nous serons bien... Et toi, Luta- …
-tia, cabaretière du Styx, tâche de te distinguer. 3
+tia, cabaretière du Styx, tâche de te distinguer.
 Ce n'est pas du chat qu'on sert en gibelotte à des …
-hôtes comme celui-ci. É
+hôtes comme celui-ci.
 
 Mauvais plaisant ! Je vous ferai souper comme »
-ne soupera point Lucullus lui-même : 14
+ne soupera point Lucullus lui-même
 « J'ai de petits fromages qui sèchent sur le tamis
 d'osier; j'ai les fruits de cire de la divine Pomone,
 des müres couleur de sang, des châtaignes, et le |
 concombre vert suspendu par un jonc... J'ai des .
 guirlandes dorées mêlées de roses pourpres, et des …
 lys cueillis sur les bords d'Achéloïs…. Chez moi …
-logent Cérès et l'Amour et Bacchus; sur mon toit, 1
+logent Cérès et l'Amour et Bacchus; sur mon toit,
 Priape est en sentinelle. Viens, beau jeune homme,
 cueillir des grappes à notre cep, et des baisers sur -
 deux lèvres fraîches. Ne réserve point les cou- -
@@ -10040,40 +10027,40 @@ Tu ne nous avais pas dit ça !
 Du falerne de quinze ans : du consulat de Domi-
 Mes amis, en l'honneur de cet homme, qui a conquis devant cent mille hommes le droit de vivre
 libre, je bois : à la Liberté !
-25 2
+25
 
 A la liberté! Spartacus a conquis le droit de vivre |
 =. libre. et nous, c'est la mort qui nous affranTrebonius sort de la petite salle pour louer Lutatia ; il
 FE circule dans les groupes, choquant son gobelet et buvant
-à toutes les tables. F4
+à toutes les tables.
 : - Les quatre gladiateurs restent donc seuls. .
 Vite. Quelles nouvelles ? Toi, Crissus, tu viens de
 J'en arrive. A l'École de Lentulle Basiate, sept
 _ mille. Plus de la moitié nous sont acquis. Les derFN
 niers venus seront initiés au dernier moment. Ils
-suivront presque tous. : 4
+suivront presque tous.
 Quatre mille; j'en réponds. Tous nos Gaulois …
 sont prêts. “
 Et les Germains ? LA
 
-Les Germains attendent le signal. r* 2
+Les Germains attendent le signal. r*
 Mais Catilina.… Catilina!.. Marcherat-il avec a
 _ Un patricien, contre Rome, avec des esclaves! FT
-ns Il avait juré. Ë
+ns Il avait juré.
 _ Les serments ne leur coûtent guère. Il nous |
 _ trahirait après : mieux vaut qu'il nous abandonne
-_  Chut!il vient. S
+_  Chut!il vient.
 È AT 5 Catilina vient d'entrer dans le cabaret. Un ample man- EE
 RS. ; teau noir sur sa toge. Il cherche des yeux.
 
-Trebonius se précipite à la rencontre de Catilina. 4
+Trebonius se précipite à la rencontre de Catilina.
 Seigneur, le héros glorieux, l'invincible Spartacus
 est là. C'est lui, je gage, que vous cherchez en ce
-C'est lui. 3
-TREBONIUS, le conduisant 3
-” Seigneur, par ici. 4
+C'est lui.
+TREBONIUS, le conduisant
+” Seigneur, par ici.
 -
-CATILINA, entrant dans la petite salle 3
+CATILINA, entrant dans la petite salle
 28 7714
 
 PA Que vient faire ici cet aristocrate ?
@@ -10081,7 +10068,7 @@ el La salle commune commence à chuchoter ; les regards se
 RS tournent vers la petite salle.
 ÊcS Quand le dialogue est dans la petite salle, scènes muettes
 à dans l'autre.
-2 Jeux d'osselets.. et jeux de mains.
+Jeux d'osselets.. et jeux de mains.
 È L CATILINA, prenant un escabeau, s'asseoit tranquillement à la
 ‘ee table des gladiateurs, le dos tourné vers la salle commune
 % Spartacus, tu m'as fait gagner aujourd'hui dix
@@ -10093,15 +10080,15 @@ n° Notre seul butin, c'est la liberté.
 gladiateurs. Mes amis et moi, nous sommes des
 
 _ gladiateurs parmi les patriciens.. Nous avons les
-mêmes ennemis que vous : combattons ensemble. 53
-2 Lutatia leur apporte du vin. h + +4
+mêmes ennemis que vous : combattons ensemble.
+Lutatia leur apporte du vin. h + +4
 TREBONIUS, entre les deux salles $ ès
 Eh! divine hôtesse, as-tu déterré l'amphore pré-
 cieuse qui convient à ce grand jour? car tune
 verras pas souvent, dans ton antre, un demi-dieu
 comme Spartacus assis en face d'un illustre patricien comme Catilina. nn.
 Quand ce serait Jupiter lui-même assis en face de
-Pluton, son Ganymède ne lui verserait pas d'am- 51
+Pluton, son Ganymède ne lui verserait pas d'am-
 broisie pareille à celle-ci. Un falerne que mon
 pauvre mari a mis en cruches l'année même où fut
 Assassiné traîtreusement, devant sa propre
@@ -10122,15 +10109,15 @@ L Le fait est qu'il doit 500.000 sesterces rien qu'à
 _  l'argentier de la rue Ostilia, qui est mon voisin.
 
 Il faut en avoir, une fortune, pour trouver 500.000
-sesterces de crédit! ê
+sesterces de crédit!
 Et quand on a des fortunes pareilles, qu'est-ce
-qu'on vient faire au cabaret de Venus funèbre, chez 4
+qu'on vient faire au cabaret de Venus funèbre, chez
 Lutatia la sorcière, parmi les gladiateurs, les men-
 diants, les esclaves? à
 Bafouer notre misère. à
 Est-ce qu'ils jouiraient pleinement de leur or, s'ils
 ne jouissaient en même temps de nos souffrances ?
-Il faut qu'ils aient compté nos côtes sous notre 4
+Il faut qu'ils aient compté nos côtes sous notre
 peau d'affamés pour savourer leurs murènes, leurs à
 cervelles de faisans, leurs langues de paons et leurs
 salmis de langoustes. &
@@ -10139,9 +10126,9 @@ x A la porte, l'aristocrate !
 ; C'est à toi qu'ils en ont.
 j A moi, cette vermine ?
 “à Ta laticlave les offusque.
-4 Entrent Mirza (Rodopea) et une autre fille.
+Entrent Mirza (Rodopea) et une autre fille.
 Elles tournent un peu dans la grande salle.
-4 On les appelle dans le coin à droite : « — Hé! là,
+On les appelle dans le coin à droite : « — Hé! là,
 Rodopea! Syria! » Elles y vont et s'asseyent.
 4 * Tandis que sa compagne bavarde et rit, Mirza reste
 r muette et désolée.
@@ -10149,27 +10136,27 @@ r muette et désolée.
 ; Prenez garde à votre peau. Le patricien a de
 4 mauvaises colères, et des bras terriblement mus-
 Les nôtres sont durs.
-Il aura les gladiateurs pour lui. É
+Il aura les gladiateurs pour lui.
 
 Pourquoi? parce que Spartacus est libre depuis
-: une heure, va-t-il déjà passer à l'ennemi? : 4
+: une heure, va-t-il déjà passer à l'ennemi?
 | . Hors d'ici, les espions! De
 CATILINA, se lève, s'avance vers la salle commune, se tourne
 vers Spartacus à
 Demain, chez Eutibide. Mes amis se réunirontà
 souper. Venez aussi. Nous déciderons si nos voies
-doivent se séparer ou se confondre. É
+doivent se séparer ou se confondre.
 Qui, Eutibide?.. L'affranchie grecque de Publius
 Sans doute. Elle est assez connue de Rome. Sa
 beauté fait plus de victimes que ton bras.
-Au Palatin, l'aristocrate! Lx8
+Au Palatin, l'aristocrate!
 | Eutibide. Pourquoi chez cette courtisane?
 
 SR Chez moi, la rencontre serait suspecte. Ici, vous
 voyez l'effet. Chez Eutibide, c'est un terrain
 _S SPARTACUS, consultant les siens du regard
 Ée Soit. Nous irons. :
-3 Nous sommes la canaille plébéienne ! au Palatin,
+Nous sommes la canaille plébéienne ! au Palatin,
 _ la canaïlle patricienne!
 a. J'allais sortir. Mais si vousle prenez ainsi, je veux
 | que vous sortiez d'abord. Entendez-vous, misé-
@@ -10179,37 +10166,37 @@ vous mordez la main qui vous relève... On n'aura
 plus la peine de vous affranchir, s'il faut d'abord
 vous assommer !
 
-Re de Spartacus “ Mn 4
-Nous assommer, toi, pourri! ; F4
+Re de Spartacus “ Mn
+Nous assommer, toi, pourri!
 FE" Il se jette sur Catilina. Mais il est ivre mort. 2 PARTS
 SE Catilina labat d'un coup de poing; puis il saisit, de la.
 cs main gauche, le mendiant à la gorge, et le jette à terre. Eur dx
 AE De la main droite, il tire un glaive court et large, etse A
 Ne rue, en frappant du pommeau sur les crânes. CR
 LS Sur un signe de Spartacus, Ocnomao et Crissus poussent
-EN “ devant eux, sans violence, la foule des ivrognes. 532 0
+EN “ devant eux, sans violence, la foule des ivrognes.
 Be ; Sous les rudes coups de Catilina, quelques-uns tombent,
 F+ -les autres s'enfuient. : ne.
 * CATILINA, sur le seuil, remet son glaive au fourreau F cr à
-a Et c'est avec ça que nous voulons faire des. x
-js Il hausse les épaules, et sort, suivi d'Ocnomao et de 00
+a Et c'est avec ça que nous voulons faire des.
+js Il hausse les épaules, et sort, suivi d'Ocnomao et de
 
 __  MIRZA — et ceux qui sont par terre. Ka
 _ Quelques pas en arrière de Catilina, Spartacus et Artorix se EU
 _ sont avancés dans la salle commune. k à
 -_ Des ivrognes assommés, les uns demeurent immobiles; es
 3 d'autres se relèvent et s'en vont, appuyés le long des
-_ Artorix est déjà sur le seuil. k
-…_  Spartacus va le suivre, quand il aperçoit — dans le coin de k
+_ Artorix est déjà sur le seuil.
+…_  Spartacus va le suivre, quand il aperçoit — dans le coin de
 4 droite — Trebonius et Lutatia qui raniment une jeune
 14 femme (Rodopea-Mirza) renversée par les fuyards.
 _  Qu'a cette enfant?
 HR Rien. Ces ivrognes, en se sauvant, l'ont renversée.
-40 SPARTACUS, la regardant de plus près c
+SPARTACUS, la regardant de plus près
 
 _ Quoi donc?
 
-pie La connais-tu ? Æ
+pie La connais-tu ?
 trs Euh... Quelquefois elle entre ici... Les gens l'ap-
 ù N pellent Rodopea, parce qu'elle a été achetée dans
 ee , le dernier convoi de Thraces.
@@ -10222,7 +10209,7 @@ k enfant... ma chérie.
 74 l'étreinte, se dégage brusquement, puis regarde Spartacus avec |
 stupeur. Elle se jette sur lui avec une joie folle :
 É Toi! oh! frère! frère! Elle recule et se couvre le visage \
-de ses mains. Mon frère! É
+de ses mains. Mon frère!
 “1 SPARTACUS, la rapproche de lui et lui découvre le visage :
 Les autres, là-bas... tous morts? ;
 Et toi. esclave ?
@@ -10232,11 +10219,11 @@ DA SPARTACUS, avec angoisse : HSE
 
 _ Esclave... seulement ?... dans ce bouge. FER
 _ Ils m'ont vendue à Velenius. Re
-a Vendue à cet immonde !... Tu es... 2
+a Vendue à cet immonde !... Tu es...
 _ Frère, ils m'ont battue de verges.. ils m'ont dé- Le
-__ chirée de coups de fouet... ils m'ont brûlée au fer j:
+__ chirée de coups de fouet... ils m'ont brûlée au fer
 _  Monenfant... mon enfant chérie. (Elepleuresurson
-- épaule. Il éclate et brandit son poing.) O race de bandits! ë.
+- épaule. Il éclate et brandit son poing.) O race de bandits!
 _ race de bourreaux! Rome, ville de sang, ville de à
 _  fange... ton heure est venue! cs
 
@@ -10246,7 +10233,7 @@ Mi Stat 3 L pas € Ke
 
 _ fond, à droite et à gauche.
 __ _ EUTIBIDE seule. Assise près d'une petite table, devant un
-_ miroir de métal, elle arrange sa coiffure, polit ses ongles, à » se farde. 3
+_ miroir de métal, elle arrange sa coiffure, polit ses ongles, à » se farde.
 
 _  Ilvadonc venir... Moi à Rome... lui à Rome... Que
 la vie est étrange et terrible !.. Saitil ma destinée?
@@ -10256,9 +10243,9 @@ la vie est étrange et terrible !.. Saitil ma destinée?
 _ beau, plus fort, plus intrépide qu'Athènes ne l'avait :
 __ connu; libre, maintenant, protégé des grands,
 
-_ idole de la populace... Et moi... moi! Rome nous É
+_ idole de la populace... Et moi... moi! Rome nous
 
-‘4 appartiendrait.. Plus sûrement que par ces conspi- 4
+‘4 appartiendrait.. Plus sûrement que par ces conspi-
 _ rations d'esclaves, déjà voués aux trahisons, aux
 
 massacres... Mon Spartacus, grand lion des montagnes, sublime et simple... Si, pourtant, la souffrance l'avait instruit, s'il voulait comprendre la
@@ -10275,7 +10262,7 @@ m'inquiètent.. Il me faut Spartacus.. Ou je ne suis
 plus moi-même, ou je le reprendrai.
 Entrent par le fond, introduits par une esclave, Calpurnius Pison, vieux débauché bruial, Lucius Bestia, jeune
 
-4 Salut à celle devant qui pâlissent et les Grâces et
+Salut à celle devant qui pâlissent et les Grâces et
 _ les Muses; salut à la divine Eutibide.
 x - Salut à la souveraine de Rome, à celle qui com__ mande au Sénat. Même avant que Sylla ne monte
 F au rang des dieux, notre dictateur, à nous, est la
@@ -10283,7 +10270,7 @@ F au rang des dieux, notre dictateur, à nous, est la
 À Ah! que son empire est cruel! Sylla frappe
 3 d'un seul coup ses offenseurs.. Eutibide fait mourir
 ._ à petit feu ses adorateurs.
-1 Depuis que dure ton adoration, tu n'es pas encore
+Depuis que dure ton adoration, tu n'es pas encore
 
 Un peu... Quelles nouvelles ?
 Quoi! tu ne sais pas l'événement dont Rome est
@@ -10295,11 +10282,11 @@ Est-il possible ?
 ; Après tout, pourquoi pas? tu pourrais peut-être
 ? chanter, toi qui n'es pas précisément un coq. <
 Æ Pas un coq... Tu n'as jamais voulu t'en assurer. £
-| Elle préfère s'en rapporter au bruit public. 4
+| Elle préfère s'en rapporter au bruit public.
 _ Jeune présomptueux, je ten souhaite autant à
 _ mon âge... Enfin, vous conviendrez que le fait est
 De. Il est prouvé ? !
-4 Ulpianus lui-même, sa famille et ses clients l'at-
+Ulpianus lui-même, sa famille et ses clients l'at-
 É Le collège des Augures, convoqué d'urgence, s'est £
 +73 réuni tout entier pour en délibérer. On attend
 D. l'oracle. ds
@@ -10322,27 +10309,26 @@ sont pas l'œuvre des dieux, pour la simple raison À
 
 ‘4 que les dieux eux-mêmes sont l'œuvre de votre
 imagination malade. Elle déclame :
-4 Rien n'est sorti de rien. Rien n'est l'œuvre des dieux.
+Rien n'est sorti de rien. Rien n'est l'œuvre des dieux.
 d C'est à force de voir, sur terre et dans les cieux,
-4 Des faits dont la raison cherche en vain l'origine,
-4 Que nous plaçons en tout la volonté divine.
+Des faits dont la raison cherche en vain l'origine,
+Que nous plaçons en tout la volonté divine.
 n. De là cette terreur qui nous accable. Eh bien!
 “ Quand nous saurons que rien ne peut sortir de rien,
 . Nous verrons s'éclairer notre route, et les choses
 | Sans miracle et sans dieu nous révéler leurs causes.
-4 Le Sénat ne devrait pas souffrir ces théories,
+Le Sénat ne devrait pas souffrir ces théories,
 : même en vers. Comment gouverner le peuple, si de
 ) pareilles doctrines se répandent ? Après les dieux,
 4 . .
 
 on mettra fatalement en question le pouvoir des
 | EUTIBIDE, déclamant », Dès que la Vérité, par ma bouche, vous crie
-4 Que l'immense univers n'est pas l'œuvre des dieux,
+Que l'immense univers n'est pas l'œuvre des dieux,
 | Les terreurs de l'esprit se dissipent, les cieux
 | S'ouvrent et, par delà les murailles du monde,
 À Dans le vide se meut la matière féconde. (1)
 } . (1) De Natura rerum, traduction de Pongerville.
-| 19
 
 Mais. il va bien, le jeune homme !
 Non; j'en tiens pour ce que j'ai dit. Et toi, ma
@@ -10360,7 +10346,7 @@ n'y aura pas de sénateur ou de consulaire amoureux
 qui te sauve de leurs coups. Pour prospérer, mon
 enfant, ne heurte point les opinions vénérables.… Et |
 si tu connais le prix d'un bon conseil, tu me prouveras ta gratitude. ;
-Holà ! Calme-toi.. Propose-moi plutôt une explication, du prodige. l
+Holà ! Calme-toi.. Propose-moi plutôt une explication, du prodige.
 Ce n'est pas difficile.
 
 _ C'est un avertissement de Vesta qui, par la voix SE
@@ -10369,7 +10355,7 @@ _  Ah!ah! tu devines déjà. Sr
 
 _ Tu demanderas à Marcus Crassus, ton illustris- Fe -
 Le: sime et richissime seigneur et maître, ce qu'il avait FNTAE
-_ à confier, il y a trois nuits, dans sa villa de Tibur, 38
+_ à confier, il y a trois nuits, dans sa villa de Tibur,
 4 à la vestale Licinia. #
 Re D Entrent Catilina et trois autres personnages. L ÿ Re
 
@@ -10391,18 +10377,18 @@ plus pour me remettre à flot.
 C'est une somme... pour de pauvres diables de
 patriciens comme nous. Mais c'est une misère pour
 Crassus, pour un homme de 5.000 talents.
-3 Un milliard et demi de sesterces !
+Un milliard et demi de sesterces !
 
 Savez-vous qu'il y a, dans Rome, 463.000 citoyens,
 sur lesquels 433.000 ne possèdent pas une obole
 d'argent comptant, et pas un pied carré de terrain ?
 11 faut bien que les trente mille autres possèdent
 
-| Mais un milliard et demi de sesterces… 4
+| Mais un milliard et demi de sesterces…
 Il est fâcheux, vraiment, que je n'aie pas connu |
 £ plus tôt vos statistiques, pour parler affaires avec
 us Son avarice est aussi renommée que sa richesse. |
-Il me semble pourtant qu'avec les vestales… 3
+Il me semble pourtant qu'avec les vestales…
 La Religion !... ma chère.
 
 | Les biens de Crassus s'étalent au soleil. Avec les …
@@ -10417,8 +10403,8 @@ une ville. La moitié des maisons de Rome lui appar-
 Il sera demain ce qu'il voudra dans la Répu-
 
 _  Tribun, préteur, consul : à son choix. Il achètera Ne,
-_ la plèbe, ou bien le Sénat... Tandis que nous, qui 2
-. sommes de vieille souche patricienne, qui avons du L.
+_ la plèbe, ou bien le Sénat... Tandis que nous, qui
+. sommes de vieille souche patricienne, qui avons du
 . tempérament, de la volonté, qui saurions tous rem- es:
 _  plir quelque haute destinée, nous pouvons solliciter 50608
 _ une magistrature ou un commandement !.… : :
@@ -10446,8 +10432,8 @@ nous... Nous, les patriciens pauvres, la réserve
 d'énergies et d'intelligences …
 Nous, qui dépensons plus de génie politique et de
 diplomatie pour tenir tête à nos chefs de famille ou
-à nos créanciers qu'il n'en faudrait pour administrer glorieusement Rome, l'Italie, le monde romain. ï
-Nous sommes des esclaves en toge brodée. k
+à nos créanciers qu'il n'en faudrait pour administrer glorieusement Rome, l'Italie, le monde romain.
+Nous sommes des esclaves en toge brodée.
 
 * Vous gémissez, en effet, comme des esclaves au
 + lieu d'agir comme des patriciens.
@@ -10463,7 +10449,7 @@ bavard poltron, nous aurons la partie belle. Quant
 Celui que tu attends vous la donnera ?
 Je l'espère.
 
-Qui? Spartacus? les gladiateurs ? 4
+Qui? Spartacus? les gladiateurs ?
 : Cette canaïlle? allons donc! mieux vaudrait
 £ _ encore la plèbe. RE
 Ils savent pourtant se battre, et mourir. .
@@ -10478,7 +10464,7 @@ ne sert à rien; faisons-le servir à quelque chose :à
 nous conquérir le pouvoir. he
 
 É Ils demanderont leur part. Quel salaire leur des_ tines-tu? ;
-3 Sans interrompre le dialogue, une esclave avertit Eutibide À
+Sans interrompre le dialogue, une esclave avertit Eutibide À
 de l'arrivée de Spartacus. fe
 - Quand ils nous auront faits les maîtres de la
 _ République, nous serons en situation de régler tous +48
@@ -10514,19 +10500,19 @@ ceux-là que tu viens ? quand ils Vont dit : « Tu nous
 trouveras chez Eutibide », ton être entier n'a pas
 
 tressailli? ton âme at-elle changé? ton corps a-t-il bi
-| oublié mes caresses? Non, Spartacus... non, c'est 3
+| oublié mes caresses? Non, Spartacus... non, c'est
 Après la prise d'Athènes, je n'ai pu retrouver tes |
 traces. Je t'ai crue morte. Lorsque j'ai su, à Rome, |
 | que tu avais conservé la vie, j'ai su du même coup
 l'usage que tu en faisais. La femme que j'avais
 aimée est morte.
-J'étais esclave, comme toi-même. Ceux qui t'obli- E
+J'étais esclave, comme toi-même. Ceux qui t'obli-
 geaient à tuer tes compagnons m'obligeaient à |
 sacrifier ma pudeur. Je suis affranchie et libre, |
 comme tu es affranchi et libre. Nous avons souffert |
 des mêmes fatalités; le destin féroce nous a broyés ;
-‘ dans la même ornière…. Et quand il nous remet l'an 1
-devant l'autre, alors que tes bras devraient s'ouvrir è
+‘ dans la même ornière…. Et quand il nous remet l'an
+devant l'autre, alors que tes bras devraient s'ouvrir
 à ton amie meurtrie par tant de malheurs, tu me ;
 repousses ? tu m'outrages ?.… Est-ce bien toi de qui
 le cœur généreux avait ouvert le mien à la confiance, à
@@ -10540,7 +10526,7 @@ mesurer ce que je suis prête à souffrir de dédain et
 affranchie; mais, pour toi, je serai toujours esclave.
 J Je leur commande à tous; mais, à toi, je t'obéirai.… ;
 $ Oh! je sais tes rêves, tes projets. Oui! tes projets.
-1 Ils sont sublimes, ils sont naïfs, comme ton noble É
+Ils sont sublimes, ils sont naïfs, comme ton noble
 É cœur. Tu veux châtier Rome : moi aussi! Le glaive
 D de tes compagnons, le crois-tu plus redoutable que $
 ma ruse ? leurs muscles de brutes, les crois-tu plus
@@ -10606,13 +10592,13 @@ Salut à Spartacus, vainqueur des vainqueurs. :
 Mes amis, Caïus Cetegus et Lucius Bestia, admirent #
 comme moi le héros qui a brisé ses fers, et conquis >
 sa liberté l'épée au poing. Comme moi, ils pensent
-qu'un tel homme est capable de briser aussi nos 4
+qu'un tel homme est capable de briser aussi nos
 
 « propres chaînes et de conquérir la liberté pour tout :
 
 . un peuple... Où sont tes compagnons ?
 
-4 A l'œuvre... L'un devait me suivre ; je l'attends.
+A l'œuvre... L'un devait me suivre ; je l'attends.
 
 -. Mais je puis parler au nom de tous.
 
@@ -10631,13 +10617,13 @@ k. Bien. Le temps presse. Si nous devons agir de
 ; Que crains-tu? Si nous associons nos eflorts aux
 tiens, nous devons connaître ton apport. Si nous ne
 
-| pouvons nous entendre, notre intérêt te garantit 6
+| pouvons nous entendre, notre intérêt te garantit
 notre discrétion. La seule révélation de nos délibé-
 rations communes suflirait à nous perdre : car le
 
 _ Sénat serait trop heureux de nous traiter comme tes
 
-| 3 67
+|
 
 complices. Et, même séparé de nous, tu travailles
 pour nous : puisque tu ébranles d'un premier choc
@@ -10677,27 +10663,27 @@ Ne sais-tu pas la valeur des mots ? la puissance :
 
 É des noms? Tu laisses trop voir que tu étais, hier
 
-encore, dans le Cirque. Ë
+encore, dans le Cirque.
 
 II s'y est montré digne des plus grands Romains. « Ge n'est pas le nom de Romain qui manque à Spar-
 
 Fe tacus, mais Spartacus qui manque à la gloire de |
 
-notre race... Ami, comprends bien la pensée de « Bestia … 4
+notre race... Ami, comprends bien la pensée de « Bestia …
 
 LEE Je la comprends bien.
 
-Tu comptes que, derrière tes vingt mille com- « pagnons, il s'en lèvera demain cinquante mille, Ë
+Tu comptes que, derrière tes vingt mille com- « pagnons, il s'en lèvera demain cinquante mille,
 
-bientôt cent mille autres. Mais c'est une révolte ÿ
+bientôt cent mille autres. Mais c'est une révolte
 
 d'esclaves, contre laquelle se prononcera toute :
 
 lJtalie aussi bien que Rome... Tandis que, si nous
 
-sommes à la tête de vos légions, l'Italie peut se 1
+sommes à la tête de vos légions, l'Italie peut se
 
-déclarer contre Rome, en haine de l'oppresseur 1
+déclarer contre Rome, en haine de l'oppresseur
 
 commun. De la Sicile jusqu'aux Alpes, tout frémira. $
 
@@ -10708,9 +10694,9 @@ romain sera changée. |
 _ Ce sera toujours le monde romain. Nous ne Dia
 sommes pas des Romains ; nous sommes les vic- +2
 _ times de Rome. ke
-_ Vous serez Romains, puisque vous serez libres 1
+_ Vous serez Romains, puisque vous serez libres
 - dans Rome. |
-4 SPARTACUS 7 » Ainsi, vous voulez notre aide pour conquérir le
+SPARTACUS 7 » Ainsi, vous voulez notre aide pour conquérir le
 
 - Etle premier usage que nous faisons du pouvoir
 
@@ -10719,26 +10705,26 @@ _ Vous serez Romains, puisque vous serez libres 1
 La liberté, nous allons la prendre. Et le pouvoir,
 
 - vous ne sauriez le prendre sans nous.
-- La liberté que, seuls, vous allez prendre, vous la e
+- La liberté que, seuls, vous allez prendre, vous la
 _ garderez deux semaines, ou deux mois : jusqu'à ce
 
-qu'on vous écrase. e
+qu'on vous écrase.
 
 Et si vous ne prenez pas le pouvoir avec notre
 : aide, « vous périssez à la première délation d'un
 traître, à la première imprudence d'un ivrogne
 comme Pison.
-Qu'exiges-tu donc ? 4
+Qu'exiges-tu donc ?
 De savoir, à mon tour, vos vrais desseins. Vous « nous offrez d'être nos chefs ; vous annoncez la naissance d'un monde nouveau, d'une Rome régénérée:
 quelles en seront les lois ? |
 Les débiteurs y seront protégés contre la rigueur
-des créanciers. ÿ
+des créanciers.
 Les fils auront un droit d'hommes et de citoyens,
 devant la tyrannie du père de famille.
 Nous brisons la loi des Douze Tables, nous abat- %
 tons l'insolence du Sénat, nous faisons rendre gorge :
 
-aux financiers, nous abolissons pour jamais la c
+aux financiers, nous abolissons pour jamais la
 Mais. les esclaves ?
 | Tous ceux qui te suivront et qui s'armeront pour
 nous seront libres, comme tu l'es toi-même aujourd'hui.
@@ -10751,27 +10737,27 @@ pour affranchir les seuls révoltés. Nous combattons
 pour affranchir tous les opprimés, surtout ceux qui
 ne sont pas en état de combattre. Vous les laissez
 donc dans la servitude ?
-73 5
+73
 
 Nous adoucirons les lois; nous protégerons la vie ;
 + _de l'esclave contre les violences du maître.
 à Mais vous maintiendrez l'esclavage ? .
-4 Les trois Romains se regardent avec stupeur.
+Les trois Romains se regardent avec stupeur.
 | Nous voulons atténuer les iniquités d'une société
 | mauvaise; nous n'entendons pas détruire la société
 | Et l'esclavage en est le fondement éternel; le droit
 | du vainqueur en est la règle imprescriptible. |
 “ Vous croyez éternel et imprescriptible le prétendu |
 ; droit qui fait d'un homme la chose d'un autre
-homme, qui supprime des existences humaines, qui Ë
+homme, qui supprime des existences humaines, qui
 transforme des enfants et des femmes en objets
 | mobiliers, qui livre les pères aux tueries du cirque (
 et les filles à vos débauches ? |
 Cela fut toujours ; cela sera toujours.
 
 L Nous tentons le possible; nous ne poursuivons #1
-pas des chimères. 4
-| Nous faisons œuvre politique ; nous ne sommes 1
+pas des chimères.
+| Nous faisons œuvre politique ; nous ne sommes
 - pas en proie à la folie de destruction.
 | C'est juste. Votre œuvre est une œuvre politique;
 la mienne est une œuvre humaine. Vous êtes des
@@ -10797,7 +10783,7 @@ frères. Et si je vous suivais aujourd'hui, je déserte-
 oppresseurs. Car je vous reconnais, maintenant !
 Vous êtes bien Romains. Vous êtes de la race des
 égorgeurs de peuples. Vous ne voulez pas de maîtres,
-mais il vous faut des esclaves. Et moi, je veux qu'il È
+mais il vous faut des esclaves. Et moi, je veux qu'il
 n'y ait plus d'esclaves !.. Une alliance entre nous
 serait déloyale et dégradante pour tous. Puisque |
 nos cœurs sont ennemis, notre sang ne doit pas se À
@@ -10816,12 +10802,12 @@ _ queje sers. Sa pureté fait sa grandeur et sa force.
 “2 si jamais de basses compromissions la souillent. La
 défaite ou la victoire d'un jour ne sont rien ; lhonRL E \
 16 neur sans tache : tout est là.
-784 Du moins, si tu les a repoussés... tu me gardes?
-‘330 Oublie-moi. J'ai dit. 0
+Du moins, si tu les a repoussés... tu me gardes?
+‘330 Oublie-moi. J'ai dit.
 
 À C'est impossible ; tu es à moi. Puisque le destin |
-m'a replacée sur ta route, c'est qu'il veut unir nos 4
-4 Prends garde! On ne rejette point Eutibide quand
+m'a replacée sur ta route, c'est qu'il veut unir nos
+Prends garde! On ne rejette point Eutibide quand
 | elle s'offre. J'ai sur toi des droïts que je tiens de
 | notre amour passé... Quel obstacle nous sépare,
 4 autre que ta volonté? Les spectres d'amants qui
@@ -10837,7 +10823,6 @@ auprès de toi... C'est donc une Romaine... une
 _  patricienne, peut-être? Une de ces nobles prêtresses
 de Priape, plus impudentes que des chiennes, plus
 sinistres que des goules, qui courent après les mâles
-| 79
 
 éprouvés dans le Cirque... Ah! ah! pour la pureté
 de ta cause, n'est-ce pas? ;
@@ -10849,16 +10834,16 @@ comme une fille de carrefour... Oh !
 
 Par la porte de droite, l'esclave introduit Ocnomao, magnifique brute, immédiatement subjuguée par la courtisane élégante. £ :
 
-4 Qui es-tu ? que veux-tu ? Rene.
+Qui es-tu ? que veux-tu ? Rene.
 Divine, je viens rejoindre ici Spartacus, quimat-
 
-4 Ah! ah! Spartacus.. t'attend... Tu es son com
+Ah! ah! Spartacus.. t'attend... Tu es son com
 _ Le plus fidèle et, j'ose dire, le plus solide deses
 compagnons, son second, son ami. :. 400)
 wi Comme il la regarde avec des yeux allumés, elle est
 Pi prise d'une idée subite. RUT: <
 e Son émule en tout, je pense. Elle le détaille. Un ne.
-Vaillant comme lui, un homme! #7; 40
+Vaillant comme lui, un homme! #7;
 
 “a Oh! divine! Dans nos forêts de Germanie, j'ai
 
@@ -10875,7 +10860,7 @@ CEE Que ne suis-je Mars lui-même, puisque Venus est À
 
 aujourd'hui mon hôtesse !
 
-À Aussi galant qu'intrépide, ô guerrier !... n1 franchit 4
+À Aussi galant qu'intrépide, ô guerrier !... n1 franchit
 
 la porte... Cette brute... ma vengeance !
 
@@ -10894,7 +10879,7 @@ digestion. Il me revient de l'appétit... Ces faquins
 ne manquaient pas d'un certain brio.
 
 À Un combat de gladiateurs dans un festin : jamais
-# on n'avait eu cette idée avant notre admirable É
+# on n'avait eu cette idée avant notre admirable
 
 pos Parlez-moi de voir un beau combat de près. Au
 Cirque, on peut à peine juger les coups : les détails |
@@ -10909,12 +10894,12 @@ Elle ne sera jamais assez longue, ô le plus grand
 des Romains, pour énumérer tes titres à l'immortalité.
 
 Tais-toi, lâche flatteur. Mes titres de gloire, je les |
-ai inscrits moi-même dans les Annales consulaires, k
+ai inscrits moi-même dans les Annales consulaires,
 - et la postérité n'aura pas besoin de ton témoignage.
 C'est étonnant comme les nègres ont le sang
 ; rouge... Quand le glaive d'Artorix a tranché l'artère
 . de celui-ci, un jet a traversé la table jusqu'à moi... |
-4 Elle regarde au fond de sa coupe. J'en ai presque deux
+Elle regarde au fond de sa coupe. J'en ai presque deux
 - doigts dans ma coupe.
 À Bois-le donc.
 
@@ -10928,11 +10913,11 @@ avec moi, que les dieux puissants te conservent
 longtemps la santé! Qu'ils me conservent longtemps
 ton amour ! }
 Ah ! pourquoi nos femmes ne sont-elles jamaïs ce :
-que savent être nos maîtresses ? 11 l'enlace, et achève de k
+que savent être nos maîtresses ? 11 l'enlace, et achève de
 : vider la coupe. Hola! qu'on m'ôte ces charognes, et
-qu'on aille chercher Spartacus. k
-Il est donc chez toi, cet invincible ? ù
-Je l'ai pris pour exercer mes gladiateurs. Il me ü
+qu'on aille chercher Spartacus.
+Il est donc chez toi, cet invincible ?
+Je l'ai pris pour exercer mes gladiateurs. Il me
 doit bien ses services... Aux esclaves qui vont emporter les .
 cadavres. Laissez deux épées. Aux trois gladiateurs, mon- ]
 trant la porte de droite. Vous, restez là. À
@@ -10956,12 +10941,12 @@ senti que je t'écoutais ; tu les arrêté net. Veux-tu
 me faire la grâce d'achever ?
 Je te permets de parler, de parler vite, de parler
 
-4 Mais... j'en atteste les dieux de l''Olympe... :
+Mais... j'en atteste les dieux de l''Olympe... :
 | Et moi, j'atteste les dieux infernaux que, situne
 | parles pas, les hommes que voilà [les gladiateurs] vont
 te couper en quatre ; et que, pour terminer joyeusement cette petite fête, nous irons jeter les morceaux
 de ta chair à mes poissons.
-Puisque tu l'exiges, voici ce que l'édile a ré M
+Puisque tu l'exiges, voici ce que l'édile a ré
 pondu : « Je ne paierai pas; Sylla n'a pas huit jours
 à vivre; sa mort me donnera quittance. » |
 SYLLA, étranglé de rage
@@ -10977,9 +10962,9 @@ lui. Écoute-moi bien. Tu vas prendre les hommes et
 
 les chevaux qu'il te faudra. Tu connais l'édile de pu
 Cumes. Je veux sa tête demain matin, à l'heure de à
-mon bain... Si je ne vois pas sa tête sur la table de 4
+mon bain... Si je ne vois pas sa tête sur la table de
 marbre, en arrivant au balneum, tu seras cloué sur
-une croix l'heure d'après... Tu entends ?... L'esclave F
+une croix l'heure d'après... Tu entends ?... L'esclave
 s'éloigne. Crisogone !... 11 sarrête. Ne le tuez pas tout
 . de suite ; donnez-lui d'abord cent coups de fouet, en : VE
 lui répétant : « C'est pour te dédommager de ce que
@@ -11001,7 +10986,7 @@ mon maître adoré, pour que nous jouissions éternellement de tes bienfaits. :
 
 Du plafond, des feuilles de roses tombent sur les convives. ;
 
-Des esclaves, vêtus de tuniques blanches, placent des M
+Des esclaves, vêtus de tuniques blanches, placent des
 
 vases d'albâtre sur les tables, et portent aux convives
 
@@ -11012,7 +10997,7 @@ Rome, souveraine du monde! le Destin ta donné
 plus que la puissance : il t'a comblée du bonheur |
 souverain. Car Sylla pense pour toi, Sylla juge #
 
-pour toi, Sylla décide pour toi. Délibérer : quelle M
+pour toi, Sylla décide pour toi. Délibérer : quelle
 
 effort! Les Immortels, ô Peuple romain, te
 l''épargnent. Ils ont envoyé l'un d'eux parmi nous
@@ -11045,7 +11030,7 @@ Pendant ces propos, on a posé devant Sylla un aigle #
 Sylla l'éventre; il en tire des joyaux qu'ii leur jette. !
 
 A Roscius : Tiens ce saphir... A Granius : Attrape ce “
-rubis, plus rouge que ton nez d'ivrogne.… A Attilia : 1
+rubis, plus rouge que ton nez d'ivrogne.… A Attilia
 Pour toi, ma belle, ces perles d'un orient moins pur Ki
 que ton front dé nacre.
 Ê TOUS, levant leurs coupes
@@ -11096,11 +11081,11 @@ Les convives cessent de ricaner, et regardent Spartacus
 avec inquiétude.
 Ceux qui sont sur les lits à l'intérieur du fer à cheval
 passent doucement de l'autre côté.
-97 6
+97
 
-SAN Si c'est ton goût... Aux gladiateurs : Faïtes-lui voir Ê
-1€ vos faces de coquins. F
-1% Ils lèvent leurs visières. L
+SAN Si c'est ton goût... Aux gladiateurs : Faïtes-lui voir
+1€ vos faces de coquins.
+1% Ils lèvent leurs visières.
 L'un d'eux est mon ami. :
 Ton ami! Un gladiateur! un esclave! Mais
 tu es un homme libre, rappelle-toi. Et ta dignité
@@ -11111,31 +11096,31 @@ par lui... Mais c'est trop de paroles. Avant que nous
 ayons vidé cette amphore, vous aurez terminé votre |
 affaire. ou je vous fais couper les mains et les
 pieds, je vous fais crever les yeux, je vous fais …
-| griller à petit feu sur un lit de clous... 4
+| griller à petit feu sur un lit de clous...
 
 +4 AREA GONS ‘qui avait pris les deux épées dans sa main gauche,
 Yo en reprend une dans chaque main. Il plie les jarrets pour
 Eh bien, Sylla, ce n'est pas lui qui va mourir;ee
 _ n'est pas moi... LT
-Ê Ë HE Il va s'élancer ; les trois gladiateurs vont s'élancer aussi D.
+Ê Ë HE Il va s'élancer ; les trois gladiateurs vont s'élancer aussi
 08 sur les convives. CR
 : Derrière eux la draperie s'ouvre; Valeria les écarte, passe VA
 D | entre eux, s'avance, — À. ART
 Dr Au tiers de la scène, elle regarde Spartacus, puis Sylla
-Di La surprise, la colère, le vin, achèvent d'abrutir Sylla. “ 4
+Di La surprise, la colère, le vin, achèvent d'abrutir Sylla. “
 
 Quoi! mon auguste époux donne des festins où je
 ne suis pas conviée?.. Les chants etles rires. ou
 les hoquets..…. pénètrent jusqu'au fond de ma retraite. Ce n'est pas, cependant, que mon sexe soit ;
 banni de vos fêtes. Mais la fille de Valerius Messala,
 la sœur de Quintus Hortensius, n'est pas digne de
-paraître à table aux côtés de l'illustre Dictateur… 1
+paraître à table aux côtés de l'illustre Dictateur…
 Il est d'autres objets plus dignes de ses soins.
 Dans ma maison même, on m'outrage, on me brave.
 Ta verte vieillesse, ô Sylla, ne peut respecter même
 une troisième union... Mais tu as raison, grand
 homme! tu fais bien de me tenir à l'écart de tes « honteux plaisirs. Ma place n'est pas au milieu des
-parasites, des histrions et des filles. Ù
+parasites, des histrions et des filles.
 Je te trouve bien audacieuse, de troubler mes
 joies. Sache que je suis le maître dans Rome, et que
 je serai le maïtre à mon foyer.
@@ -11162,33 +11147,33 @@ Je... te. répudierai. Ce n'est pas toi qui m'ôteras
 ma puissance,
 
 En attendant, chasse ces baladins, chasse ces %
-parasites, chasse cette prostituée de ma demeure... î
+parasites, chasse cette prostituée de ma demeure...
 Songe que tu tiens à la vie, et que tes excès imbé- |
 ciles avancent l'heure de ta mort. : 1 |
 Non. Je ne veux pas mourir. Je ne mourrai pas. ;
 | Mais toi. à
 Allons! Ne sens-tu pas ton mal? et les flammes )
-obscures qui te dévorent? Dictateur débile, 1
-vieillard insensé, n'oublie pas ton médecin, qu M
+obscures qui te dévorent? Dictateur débile,
+vieillard insensé, n'oublie pas ton médecin, qu
 Elle a raison. Le médecin. Cest l'heure du mé-
-à Et ton apothicaire, et tes masseuses, et toutes les 1
+à Et ton apothicaire, et tes masseuses, et toutes les
 | drogues qui doivent conserver, quelques jours encore, ta divine personne à l'adoration du grand
 peuple romain... Sylla, mon auguste époux, hâte-
-: toi, je t'en prie; va cuver tout ce vin et tout ce 1
-sang; une goutte de plus te noierait. 4
+: toi, je t'en prie; va cuver tout ce vin et tout ce
+sang; une goutte de plus te noierait.
 
 _ Elle a raison. Je la répudierai. Maïs elle araison.
 _ Le médecin. soutiens-moi, Roscius... Va devant,
 | TÈ Les musiciens et les danseuses se sont éclipsés. 1} SON
-4 En parlant, Valeria s'est avancée vers la gauche ; elle DT: -
+En parlant, Valeria s'est avancée vers la gauche ; elle DT: -
 4 a passé Spartacus, qui se trouve donc à droite, près du f 3 :
-5 nl | groupe des gladiateurs. 2 70e
+5 nl | groupe des gladiateurs.
 # Les gladiateurs font un mouvement pour suivre les 3118
 % convives. le.
-- à VALERIA, leur montrant les portes de droite, de gauche, : 319 s
+- à VALERIA, leur montrant les portes de droite, de gauche,
 _ Veillez là... et là... Les trois hommes sortent par les :
 _ endroits indiqués. Spartacus attend. Toi, reste. |. VE
-7 122
+7
 
 Dans cette immensité? tu te vantes.
 Je t'ai vue. À la minute effrayante où le peuple
@@ -11197,10 +11182,10 @@ J'ai vu tes yeux briller, j'ai vu tes lèvres s'ouvrir,
 et Sylla ratifier la volonté de cent mille hommes.
 Sais-tu ce que j'ai dit?
 
-4 J'ai dit : qu'il soit libre! il en est digne.
+J'ai dit : qu'il soit libre! il en est digne.
 À Parce que je suis fort?
 È Parce que tu es brave... parce que.
-4 Par Pollux! tu sais contenir les transports de ta
+Par Pollux! tu sais contenir les transports de ta
 reconnaissance. Ne sens-tu pas le prix de la liberté ? ,
 4 me suis-je trompée”? N'as-tu pas maudit la honte de à
 __ l'esclavage?
@@ -11213,29 +11198,29 @@ Que ne savent-ils s'affranchir, si les chaînes leur
 Quel est ton pays? ta famille ? à
 
 ( Sur les flancs du mont Rhodope, mes bergers
-menaient deux cents bœufs, mille chèvres et brebis. 4
+menaient deux cents bœufs, mille chèvres et brebis.
 Mes ancêtres avaient été pasteurs; je l'étais, quand
 les Romains ont apporté chez nous la guerre, la ;
 ruine, la mort. à
 
-Les femmes de ton pays sont belles? 1
+Les femmes de ton pays sont belles?
 
 Elles sont bonnes, elles sont fières; maïs leur …
 
 beauté s'efface dans la mémoire de qui te con-
 
-| Tu m'as donc regardée? F
+| Tu m'as donc regardée?
 
 J'ai regardé tes yeux et tes lèvres, quandtuas
 _ décidé de mon sort. J'ai regardé ta démarche de ee
-__ déesse et, sur tes épaules d'ivoire, les flots de ta 3
+__ déesse et, sur tes épaules d'ivoire, les flots de ta
 _ chevelure sombre. Je les vois mieux aujourd'hui.
 K SPARTACUS, très froid Long
 Comme ta reconnaissance, ton admiration reste nn
 _ maîtresse d'elle-même. Fé
-_ Je ne connais pas ton âme. 2 70 1
+_ Je ne connais pas ton âme.
 _ J'ai brisé tes fers. ne
-_  Tues la femme de Sylla. 0
+_  Tues la femme de Sylla.
 
 # Renierais-tu le monstre?
 À Je viens de lui parler devant toi.
@@ -11267,24 +11252,24 @@ bien que mon triste orgueil s'anéantisse à tes
 pieds. Que veux-tu done de moi ?
 Toi-même.
 SPARTACUS, il se relève
-Je ne m'appartiens pas. ë
-109 7
+Je ne m'appartiens pas.
+109
 
 Comment? qu'as-tu compris ?
 . Je connaïs ton œuvre, et tes desseins.
 D'autres aussi. Parmi tant de milliers d'initiés, |
 comment n'y aurait-il pas des imprudents et des
-traîtres? Sylla n'ignore rien. Tout à l'heure, ÿ
+traîtres? Sylla n'ignore rien. Tout à l'heure,
 il se jouait de toi, comme le tigre joue avec sa .
 proie avant de la déchirer. Il compte ajouter ;
-un dernier exploit à ses forfaits. Mais ses in- f
-stants sont mesurés. La maladie implacable, les J
+un dernier exploit à ses forfaits. Mais ses in-
+stants sont mesurés. La maladie implacable, les
 haines furieuses, l'insomnie, la débauche, l'ont
 usé. Demain, cette nuit peut-être, il aura vécu...
 Catilina et ses gens se taisent, parce qu'ils espèrent  #
 encore vous avoir pour dupes, et que vos cadavres
 leur serviront de degrés pour monter au pouvoir... (
-Dolabella et Crassus, informés en même temps que 1
+Dolabella et Crassus, informés en même temps que
 
 É: Sylla, retardent leurs révélations pour les vendre
 
@@ -11317,14 +11302,14 @@ le feu de la Révolte la purifie ! Lève-toi, Spartacus,
 frappe, frappe fort, et que tes coups fassent jaillir
 du sol un monde nouveau !
 
-Tu m'aimes donc, debout contre les tiens ? l
+Tu m'aimes donc, debout contre les tiens ?
 Mais c'est pour ta Révolte, que je t'aime ! Pourrais-tu croire que tu m'as conquise par tes muscles »
 d'acier, par ton adresse à tuer des hommes, par ta
 carrure d'athlète, par ta gloire de gladiateur ?.. Je
-serais vraiment, alors, la femelle de ce tigre, au lieu 1
-d'être la femme que je suis, que je me glorified'être.. M
+serais vraiment, alors, la femelle de ce tigre, au lieu
+d'être la femme que je suis, que je me glorified'être..
 Oui, tu as soupçonné d'abord en moi l'une de ces ;
-Romaines perverses, qui rêvent de se sentir broyées 4
+Romaines perverses, qui rêvent de se sentir broyées
 aux bras d'un lutteur, et dont les sens émoussés ne }
 se réveillent plus qu'à l'odeur âcre de la sueur, à
 l'odeur fade du sang. Mais c'est mon âme, qui
@@ -11346,7 +11331,7 @@ renaisse des hommes sur la terre. Je aimerai
 _ implacable. Je t'aimerai indomptable. Je t'aimerai
 vaincu... Avec toi, je mourrai... Aimons-nous dans
 ‘4 l'effort, aimons-nous devant la gloire éternelle qui
-3 Vattend — libérateur des terres et des corps — ou
+Vattend — libérateur des terres et des corps — ou
 | libérateur des âmes !.. Aimons-nous dans la mort.
 I Je le jure, ô femme sacrée ! âme divine ajoutée
 | par un prodige à mon âme humaine. Tu seras la
@@ -11364,19 +11349,19 @@ destinés l'un à l'autre, et pour cette œuvre... Oh!
 rêves d'infini, rêves fous, qu'étiez-vous auprès d'une #
 telle réalité ?.. Valeria, que j'adore ton âme, plus &
 
-AUS sublime encore que ta beauté ! : ÿ
+AUS sublime encore que ta beauté !
 
-e On entend des cris et des lamentations. { F
+e On entend des cris et des lamentations. {
 ARTORIX, entrant d'un pas, par la porte de gauche Le
 
 , Pardonnez-moi.. Ces cris... Sylla, dans unaccès,
-4 Le tigre est mort ; les chacals veillent. 1
+Le tigre est mort ; les chacals veillent.
 Laissons-les hurler ; aimons-nous. ' à
 
-Is sortent, enlacés, par la porte de droite. 4
+Is sortent, enlacés, par la porte de droite.
 
 ; Le camp des gladiateurs
-4 Des tentes, des huttes, des feux. — A droite (du spectateur),
+Des tentes, des huttes, des feux. — A droite (du spectateur),
 D. la tente de Spartacus; une sentinelle se promène devant la
 porte; trois soldats sont assis ou demi-couchés, à gauche,
 ; autour d'un feu.
@@ -11384,16 +11369,16 @@ Sonnerie de trompes.
 Cette sonnerie, qu'est-ce que c'est ?
 
 Rien; Brexovir qui rentre au camp.
-Revenant de Nola ? 4
+Revenant de Nola ?
 Oui, qu'ils ont mise à sac. L'assaut a duré deux
 heures, et le pillage deux jours... Spartacus était ;
 Pourquoi ? parce qu'on avait pillé ? à
 Oui; pour venir à bout des Romains, il dit que
-nous devons nous discipliner à la romaine. 4
+nous devons nous discipliner à la romaine.
 Et que, pour n'avoir pas toute l'Italie sur le dos,
 nous ne devons pas traiter les Italiens comme ils
 nous ont traités nous-mêmes dans notre pays. ]
-IL a peut-être raison. L
+IL a peut-être raison.
 
 | RASE NE a toujours eu raison, jusqu'ici, dans tout ce
 Il a le droit de parler en chef, après trois vic-
@@ -11407,7 +11392,7 @@ que les Romains n'en ont jamais construit; et des
 
 Les premiers du monde.
 Naturellement, puisque c'est nous. | ;
-Et que nous avons battu à plate-couture les É
+Et que nous avons battu à plate-couture les
 Nous avons bien gagné le triomphe. À
 Nous l'aurons à Rome. #
 Pas moi. J'ai envie d'être Père conscrit à mon
@@ -11441,7 +11426,7 @@ S'il y avait des dieux, il n'y aurait pas de révolte .
 contre l'oppression : car il n'y aurait pas d'op- ]
 Il en faut bien, me dit Valeria, pour que tu les
 délivres.. ou que tu les venges. ?
-SPARTACUS « Tu es heureuse auprès d'elle? 1
+SPARTACUS « Tu es heureuse auprès d'elle?
 Autant que je puis l'être loin de toi. Elle t'aime.
 Nous t'aimons ensemble.
 
@@ -11449,7 +11434,7 @@ Elle me pardonne le mal que je fais à Rome ? ;
 Oh! frère, Rome, et toute la terre, et l'univers, \
 pour elle, c'est toi.
 SPARTACUS, la caressant
-Chère, chère enfant. É:
+Chère, chère enfant.
 
 a piqué encore cet aurochs de Germanie?
 Entre, et repose-toi quelques heures.
@@ -11458,15 +11443,15 @@ Entre, et repose-toi quelques heures.
 à Spartacus, un peu en avant. .
 | Ocnomao arrive à pas pressés, suivi d'un officier (Euti- \
 % bide) enveloppé de son manteau et masqué de sa
-4 L'officier reste au fond, à gauche, comme par discrétion,
+L'officier reste au fond, à gauche, comme par discrétion,
 . : et se dissimule dans un coin.
 | , .
 
 Quelle est la cause de cette hâte, camarade?
 Quelle nouvelle t'émeut si fort? as-tu quelque infor- ;
-mation sur la marche du consul ? tes éclaireurs f
+mation sur la marche du consul ? tes éclaireurs
 ont-ils repris le contact avec sa cavalerie ? "1
-Ce n'est pas du consul qu'il s'agit, ni de sa cava- F
+Ce n'est pas du consul qu'il s'agit, ni de sa cava-
 
 De qui donc ?
 
@@ -11495,11 +11480,11 @@ Je suis prêt à les déposer. Dès le premier jour, au
 sortir de Capoue, vous m'avez élu pour chef; après
 chaque victoire que nous avons remportée ensemble, |
 vous m'avez confirmé dans le commandement. Vous
-en êtes-vous mal trouvés jusqu'ici ? Î
+en êtes-vous mal trouvés jusqu'ici ?
 Je ne dis pas cela. Maïs nous ne sommes pas des
 Romains, pour que tu nous condamnes, comme leurs
 légionnaires, à ces manœuvres, à ces exercices, à !
-ces besognes de terrassiers. ÿ
+ces besognes de terrassiers.
 Nous ne vaincrons les Romains qu'en égalant
 leur discipline et leur endurance. Pourrais-tu mener
 au- combat ces troupeaux de fugitifs qui nous ar- {
@@ -11523,13 +11508,13 @@ manqué ? ai-je trahi notre amitié d'autrefois ? ai-je
 entendu seulement tes paroles mauvaises ? Si tu
 
 franchement. N'invente pas des raisons puériles
-pour offenser un homme qui t'aime toujours. È
-Mais non... mon ami. 4
+pour offenser un homme qui t'aime toujours.
+Mais non... mon ami.
 D serre la main de Spartacus en baïssani la iêie. ‘44
 Spartacus le contemple avec chagrin, en cherchant le
 Viens. L'armée s'assemble tout entière hors dn « camp. ar A et:
 Ocnomao reste penaud, tournant le dos à son officier,
-qui s'avance alors et le iouche du doigt. 4
+qui s'avance alors et le iouche du doigt.
 
 | C'est pour le serrer dans tes bras que tu accou-
 | rais ici, et que tu m'entraînais sur tes pas ?
@@ -11548,10 +11533,10 @@ pour prévenir mes désirs les plus extravagants..
 Moi qui ai renoncé à une vie exquise pour te rejoindre dans un camp d'esclaves barbares... J'en-
 . . . .
 dure la fatigue, je brave mille dangers, je reste
-cachée sous cette ferraille qui meurtrit ma chair, je É
+cachée sous cette ferraille qui meurtrit ma chair, je
 n'entends que les propos sauvages de tes Germains... Et cela n'est rien, sans doute ? |
 Oh ! toi, je t'adore. Tu sais bien que tu es toute
-ma viè désormais, et que je suis ta chose. Mais... 4
+ma viè désormais, et que je suis ta chose. Mais...
 
 Mais tu te défies de moi. À
 Pourquoi m'obliges-tu à lui chercher des querelles
@@ -11581,19 +11566,19 @@ encore parce que tu es le champion de notre cause
 à tous. Et tu ne me crois pas! Folle que j'étais!
 javais mis en lui tout mon bonheur... et voilà ma
 
-133 8
+133
 
-Oui, tu aimes ma beauté ; tu aimes mes caresses; k
+Oui, tu aimes ma beauté ; tu aimes mes caresses;
 
 je suis une maîtresse qui flatte ta vanité... Mais tu
-| ne comprends pas mon âme; tu ne lis pas dans ma È
-pensée ; tu ne sais pas tout ce que je rêve pour toi 1
-de gloire et de puissance... Tu méprises mon jugement et mon instinct de femme. Ê
+| ne comprends pas mon âme; tu ne lis pas dans ma
+pensée ; tu ne sais pas tout ce que je rêve pour toi
+de gloire et de puissance... Tu méprises mon jugement et mon instinct de femme.
 Non pas; j'en atteste les dieux immortels! Jete
 
-vénère comme une créature céleste, descendue sur. F.
+vénère comme une créature céleste, descendue sur.
 la terre pour me combler d'orgueil et de joie. J'ad- {
-mire souvent ia clairvoyance et la sagesse de tes M
+mire souvent ia clairvoyance et la sagesse de tes
 
 avis. Je ne demande qu'à t''écouter, qu'à tecroire...
 
@@ -11614,7 +11599,7 @@ scelle ma parole de mon sang ?... il va s'ouvrir une
 | les troupes de se débander, de se débaucher…
 | Dans une guerre comme celle-ci? Dans une lutte
 . implacable, où chacun ne doit avoir en vue que
-1 Yextermination de l'adversaire? Allons done! Dis
+Yextermination de l'adversaire? Allons done! Dis
 4 plutôt qu'il se ménage de la reconnaissance et des
 3 protections, pour faire à meilleur compte sa paix
 avec le Sénat.
@@ -11630,18 +11615,18 @@ vous abattrez la puissance romaine. Pourquoi vous
 en tient-il éloignés? Pourquoi ne fonce-til pas
 __ dessus, quand elle est démoralisée par ses dé-
 C'est vrai.
-Ne vous a-t-il pas confessé qu'il avait déjà recu f
+Ne vous a-t-il pas confessé qu'il avait déjà recu
 des propositions du consul Varinus, après la |
-bataille de Fondi? qu'on lui offrait une préfecture, ÿ
+bataille de Fondi? qu'on lui offrait une préfecture,
 ou un commandement à l'armée d'Espagne, s'ilvou
-laït quitter votre camp ? i
+laït quitter votre camp ?
 | C'est-à-dire. il ne l'a pas confessé; il nous la
 déclaré aussitôt, de lui-même, après avoir rejeté
 avec indignation ces offres outrageantes.
 Parce qu'il ne les trouvait pas assez avantageuses.
 Un de ces jours, demain peut-être, un ambassadeur
 viendra de Rome lui apporter de meilleures condi- "
-tions. Ils s'entretiendront tête à tête, secrètement. 4
+tions. Ils s'entretiendront tête à tête, secrètement.
 
 Après, ton héros vous racontera ce qu'il voudra...
 F De surenchère en surenchère, quand il aura son
@@ -11649,10 +11634,10 @@ prix, il signera le marché.
 : Oh!... mais encore, quel prix?
 
 : Le sais-je? n'est-il pas toujours en commerce avec
-1 Rome”? Tiens, cette jeune fille qui arrive au camp
+Rome”? Tiens, cette jeune fille qui arrive au camp
 F de temps en temps et qui repart, toujours sous la
 garde du fidèle Artorix.…
-3 C'est sa sœur. (
+C'est sa sœur. (
 l D'où vient-elle? où retourne-t-elle? quand il a
 | quitté Rome, le bruit a couru qu'il y laissait une
 maîtresse, une grande passion, une patricienne de
@@ -11661,22 +11646,22 @@ la sœur. Il trahira quand le Sénat lui accordera le
 titre de citoyen, un grade militaire, et la main de
 l'illustre matrone.
 Oh! oui. par une femme!
-137 8.
+137
 
 Tu commences à voir clair. C'est par une femme À
 
-qu'ils le prendront... Il y a des hommes qui domi- É.
+qu'ils le prendront... Il y a des hommes qui domi-
 
-nent les femmes, parce qu'ils sont nés réellement 4
+nent les femmes, parce qu'ils sont nés réellement
 
 pour la domination; ce sont des maîtres. Devant. (
 toi, Ô mon guerrier aimé, je ne suis rien... rien
 
 qu'une esclave qui bénit son esclavage... Mais lui,
 
-c'est un homme à grands sentiments, un faible, au J
+c'est un homme à grands sentiments, un faible, au
 
-fond. Même si son caractère est honnête, ils l'atta- 4
+fond. Même si son caractère est honnête, ils l'atta-
 
 queront au cœur. La femme sera l'appät pour |
 
@@ -11684,13 +11669,13 @@ l'attirer dans leurs filets. Si tu ne l'arrêtes pas par \
 
 un coup d'éclat, il vous perdra, vous et la cause... À
 
-Sonneries de trompettes. Clameurs qui se rapprochent. 4
+Sonneries de trompettes. Clameurs qui se rapprochent.
 
 Oui... je vois clair. tu as raison, toujours à
 
 Il rentre au camp. Oui. L'armée vient de l'accla- À
 
-mer Zmperator. C'était arrangé pour la revue d'au- Î
+mer Zmperator. C'était arrangé pour la revue d'au-
 
 Imperator!…. Et tu te laisseras prendre, comme
 tout à l'heure, à ses grimaces bienveillantes, à sa
@@ -11706,9 +11691,9 @@ Aujourd'hui, tu verses ton sang pour satisfaire
 l'ambition d'un maitre nouveau.
 Non. Cela ne sera pas.
 
-: La scène est envahie par la foule des officiers et soldats. l
+: La scène est envahie par la foule des officiers et soldats.
 
-qui précèdent et accompagnent Spartacus et ses lieutenants. F
+qui précèdent et accompagnent Spartacus et ses lieutenants.
 Spartacus a les épaules couvertes d'un grand manteau
 
 Ocnomao reste à l'écart. * À
@@ -11732,14 +11717,14 @@ devant vous; c'est le signe de sa puissance à la tête
 de nos légions. Ainsi, les haches romaines vont
 nous frayer la voie jusqu'au cœur de Rome.
 
-| Les licteurs ! les licteurs ! É.
-8 Nouvelle sonnerie. — Un officier accourt. — La foule 1
+| Les licteurs ! les licteurs !
+Nouvelle sonnerie. — Un officier accourt. — La foule
 Un parlementaire s'est présenté aux avant-postes;
-on l'a conduit à la porte du camp. Il se dit préteur, 4
-envoyé du Sénat vers toi. 1
+on l'a conduit à la porte du camp. Il se dit préteur,
+envoyé du Sénat vers toi.
 Il arrivera juste pour voir les licteurs de son con- '
-sul porter les faisceaux devant notre Imperator. 7
-à Les licteurs ! les licteurs ! 4
+sul porter les faisceaux devant notre Imperator.
+à Les licteurs ! les licteurs !
 
 de Les soldats poussent sur la scène, en les bousculant,
 4 : Is tiennent leurs faisceaux avec la hache au centre.
@@ -11747,7 +11732,7 @@ de Les soldats poussent sur la scène, en les bousculant,
 À au combat, vous porterez les faisceaux devant
 Ÿ Spartacus Imperator comme vous les portiez devant
 : votre consul. Ou bien, gare la corde et la première
-1 Trois licteurs baissent la tête.
+Trois licteurs baissent la tête.
 F L'autre, Simpliciane, jette son faisceau par terre aux
 pieds de Crissus.
 | C'est trop de honte... Mieux valait mourir sur le
@@ -11756,23 +11741,23 @@ champ de bataille.
 Oui ; mais tu n'es pas mort : tu t'es rendu.
 
 Il est encore temps. ; )
-Ü Il arrache la courte épée d'un soldat et se frappe. 4
+Ü Il arrache la courte épée d'un soldat et se frappe.
 \ Les soldats le saisissent, avec des imprécations, et lèvent
-ÿ leurs poings sur sa tête. : ï
+ÿ leurs poings sur sa tête.
 : Arrêtez !.. Cet homme préfère la mort à l'humiliation : il nous enseigne le devoir. Ses pareils ont
 donné à Rome l'empire du monde : et pour les À
 _ vaincre, il faut que nous nous fassions des cœurs
 l de la même trempe... °
-Les trois licteurs emportent le corps de Simpliciane. F
+Les trois licteurs emportent le corps de Simpliciane.
 À Pendant que la fouie les suit du regard, l'officier amène ue
 4 le parlementaire, les yeux bandés. LR ; ;
-La Sur un signe de Spartacus, on lui ôte le bandeau. £ L
+La Sur un signe de Spartacus, on lui ôte le bandeau. £
 
 Les MÈMES (moins les licteurs), CRASSUS
 Que veux-tu ?
-T'apporter un message du Sénat romain. ù
+T'apporter un message du Sénat romain.
 Je dois parler à toi seul.
-145 9
+145
 
 ; Nous délibérons et nous décidons en commun.
 Parle devant tous. UPS CE
@@ -11794,18 +11779,18 @@ pas non plus nés pour l'esclavage. Cependant, vous
 en avez fait des esclaves.
 
 11 y aura toujours des esclaves. Si ce n'était pas
-eux, ce serait nous. Peux-tu nous en vouloir de pré- 4
-férer que ce soit eux ? L
-Est-ce pour développer des sophismes que t'a en- 4
-voyé le Sénat? 4
+eux, ce serait nous. Peux-tu nous en vouloir de pré-
+férer que ce soit eux ?
+Est-ce pour développer des sophismes que t'a en-
+voyé le Sénat?
 Pas précisément. Je dois te proposer... hésite.
 
 D'abord, de fixer la rançon des quatre mille pri- hi |
-sonniers que tu retiens dans ton camp... Quelle M
+sonniers que tu retiens dans ton camp... Quelle
 . somme exiges-tu ? k |
 Quelle somme? dix mille armures : boucliers, de
 _ casques, cuirasses, épées, sortant de vos arse- {
-Je t'offre de l'argent, pas des armes. 4
+Je t'offre de l'argent, pas des armes.
 
 Je veux des armes, pas d'argent.
 Des armes pour nous combattre !
@@ -11820,19 +11805,19 @@ fes quatre mille Romains, qui nous encombrent,
 seront pendus.
 
 Pendus!.. La fleur de nos chevaliers !… :
-Quand je dis pendus. ce sera peut-être crucifés, 1
+Quand je dis pendus. ce sera peut-être crucifés,
 __ comme vous crucifiez les nôtres... A moins que nous
 ne les fassions s'égorger entre eux, sous les piques
 rougies au feu des lorarü, comme vous nous faisiez
 nous entr'égorger au Cirque. Eh ! c'est bien à votre
 tour de nous réjouir par votre mort... à
-Vous osez bien. C'est tout? 4
+Vous osez bien. C'est tout?
 CRASSUS, reprenant son calme
-3 Non. Ce n'est rien. Voici le principal... n jette un :
+Non. Ce n'est rien. Voici le principal... n jette un :
 regard autour de lui. Veux-tu cesser la guerre?
-CRASSUS, avec précaution 4
+CRASSUS, avec précaution
 ll y a, parmi nos patriciennes, une femme quetu
-aimes et qui t'ai... L
+aimes et qui t'ai...
 
 Quoi donc ?.… Tu es jeune. Devant toi s'ouvrent
 de longues années de gloire, de bonheur... Tu as
@@ -11850,24 +11835,24 @@ La clémence du Sénat me touche.
 
 Que vous êtes magnanimes !.. Je vais dire à mes 4 {
 camarades, à mes amis : « Vous vous êtes affranchis
-le glaive au poing, vous avez lutté, vous avez souf- 1
+le glaive au poing, vous avez lutté, vous avez souf-
 fert, vous avez vu tomber vos frères par milliers, ;
 vous avez vaincu trois fois les consuls et les légions A
 de Rome... Et Rome vous fait une grâce, une grâce %
 inouie : elle vous convie à reprendre vos chaînes $
-de bon gré, vous promettant que vous ne serez pas h
+de bon gré, vous promettant que vous ne serez pas
 fouettés le jour même. »... Comment supposes-tu @
 que mes soldats me recevront ? &
-Oh! nous ne prétendons pas que tu leur annonces L
-toi-même les conventions. Disparais seulement de M
+Oh! nous ne prétendons pas que tu leur annonces
+toi-même les conventions. Disparais seulement de
 l'armée... après l'avoir conduite, par exemple... ;
 dans une position... difficile... où les conseils de la dl
-Parce que vos légionnaires tiendraient sous leürs N
+Parce que vos légionnaires tiendraient sous leürs
 piques mes compagnons trahis, n'est-ce pas ?…. ‘4
 
 : Rends grâces à tes dieux de marbre et de boue
 qu'un Barbare aït l'âme assez haute pour respecter
-l'hospitalité, même au profit d'un infime Romain! 6
+l'hospitalité, même au profit d'un infime Romain!
 Tu m'insultes, moi, ambassadeur !
 Tu ne m'insultes donc pas, avec tes suggestions
 | misérables?.. Et tu ne m'as donc pas menti, tout
@@ -11880,19 +11865,19 @@ encore le droit de vous mépriser. Il n'y en a pas un,
 parmi tous mes hommes, qui eût l'âme assez basse
 pour offrir un pacte de trahison. Et s'ils pouvaient
 soupçonner ton audace, les morceaux de ta carcasse
-| 153 9.
+|
 
 ,  orneraient bientôt les pieux de nos palissades.
 
 Que fais-tu ? prends garde!
-L'officier qui avait amené Crassus reparaît. ; j
-Artorix, Crissus, Ocnomao, Brexovir et d'autres chefs F
+L'officier qui avait amené Crassus reparaît.
+Artorix, Crissus, Ocnomao, Brexovir et d'autres chefs
 Ne tremble pas. Tu diras de ma part au Sénat ;
-qu'il dépasse en abjection son peuple de ban- Ë
-dits. Et tu lui transmettras ma décision pour les 1
+qu'il dépasse en abjection son peuple de ban-
+dits. Et tu lui transmettras ma décision pour les
 prisonniers : avant la fin de la deuxième semaine, À
 dix mille armures ou quatre mille pendus... Recon.
-duisez-le. j
+duisez-le.
 L'officier bande les yeux à Crassus et l'emmène. |
 
 BREXOVIR — autres cHers. — Dissimulée dans la foule,
@@ -11906,7 +11891,6 @@ parce que le Romain l'a exigé, et que vous y avez
 consenti. Mais il ne sera plus secret quand je vous
 en aurai répété les termes.
 | Qui nous prouvera que tu dis la vérité?
-| 155
 
 Où veux-tu en venir ?
 En outrageant l'homme que nous avons choisi
@@ -11937,16 +11921,16 @@ soixante mille hommes aguerris, enhardis par la
 victoire, enflammés de courage, d'espoir et de
 haine... Veux-tu foncer sur Rome ?
 Donc, tu trahis.
-Tais-toi, misérable ! g
+Tais-toi, misérable !
 Je vous dis qu'il est vendu aux Romains. Le
 Romain qui sort d'ici lui a compté sans doute le
 
 prix de vos cadavres. Et sa catin romaine l'attend à
 Rome, pour en jouir avec lui dans la débauche.
-Pendant qu'il hurle ces paroles, Spartacus tire son épée 1
+Pendant qu'il hurle ces paroles, Spartacus tire son épée
 et se précipite vers lui. \
-Ocnomao essaie de tirer la sienne; il est retenu par ÿ
-Brexovir et Crissus, tandis qu'Artorix se jette, sup- ù
+Ocnomao essaie de tirer la sienne; il est retenu par
+Brexovir et Crissus, tandis qu'Artorix se jette, sup-
 pliant, au-devant de Spartacus. :
 Î Spartacus se reprend, remet son épée au fourreau, hausse Fi
 les épaules et regarde Ocnomao avec un mépris mêlé ‘
@@ -11955,14 +11939,14 @@ nous la division, pour exciter la défiance contre un
 chef irréprochable. Il nous a conduits à la victoire
 en grand général ; il a toujours combattu au premier À
 rang des soldats.
-Il a fait son devoir au début, pour se vendre plus i
-cher. Maintenant, marché conclu. Je le sais. Je vous È
-le dis. Si vous êtes assez aveugles pour ne rien voir, 1
+Il a fait son devoir au début, pour se vendre plus
+cher. Maintenant, marché conclu. Je le sais. Je vous
+le dis. Si vous êtes assez aveugles pour ne rien voir,
 votre perte est écrite. Suivez-le donc. Suivez-le dans
 la honte. Menez, sur ses pas, vos légions à la mort.
-Pour moi, je vais mettre mes Germains en sûreté. Ce 4
-que vous ne voulez pas faire, je le ferai tout seul. Je L
-158 4
+Pour moi, je vais mettre mes Germains en sûreté. Ce
+que vous ne voulez pas faire, je le ferai tout seul. Je
+158
 
 marche sur Rome. Et quiconque n'est pas vendu,
 quiconque n'est pas traître, nous rejoindra...
@@ -11973,7 +11957,7 @@ que le bien de notre cause, et le salut de l'armée.
 Je te le jure, sur les cendres de ma mère, sur mon
 honneur, sur.
 
-Malheur sur nous, si les meilleurs donnent 4
+Malheur sur nous, si les meilleurs donnent
 Mais quel démon le possède ? ‘4
 Cependant, son avis n'est pas dépourvu de rai- à
 son ; sous ses insultes, il y a des vérités ; pourquoi |
@@ -11981,7 +11965,7 @@ ne pas marcher sur Rome ?
 O mes amis !.. douterez-vous à votre tour ?... Le
 doute est contagieux... Mais il faudrait donc que ma
 ‘  haïne contre notre ennemi ne fût pas égale à la ‘1
-vôtre ? Prendre Rome! l'abattre au ras du sol, puri- È
+vôtre ? Prendre Rome! l'abattre au ras du sol, puri-
 
 fier par le fer et par le feu ce cloaque d'immondices,
 anéantir ce foyer de souffrance, de vice et de servi- .
@@ -12004,11 +11988,10 @@ au nom romain, c'est hors de l'Italie qu'ils achèveront l'entreprise. Allons ou
 dépouille… Et que le monde enfin soulevé par nous
 retombe sur elle pour la broyer.
 Sonneries répétées de trompettes. — Tumulte et cla-
-| 161
 
-Cette brute d'Ocnomao fait des siennes. s Ô
+Cette brute d'Ocnomao fait des siennes.
 L'OFFICIER, à Spartacus « Les Germains achèvent de franchir la Porte de
-.  droïte... Ils sont presque tous hors du camp. Les 1
+.  droïte... Ils sont presque tous hors du camp. Les
 légions gauloises, croyant que tu en as donné
 l'ordre, s'arment pour les suivre... Ocnomao les .
 Il ruinera l'œuvre commune... Vite, allons! À
@@ -12029,11 +12012,11 @@ Qu'attends-tu donc en retour ?
 
 Toi aussi! ii
 
-Pour quelle offense ? Ê
+Pour quelle offense ?
 
 Il m'a pris mes deux fils; et mes deux fils sont
 
-164 4
+164
 
 Oui... Nous vivions heureux, tranquilles; notre
 maître était indulgent... Mais les jeunes gens sont
@@ -12052,27 +12035,26 @@ Est-ce qu'il n'y aura pas toujours des maîtres et des
 * nions, nous avions le nécessaire. Le maître pourvoyait à tout. Ce n'était pas quelque mot un peu
 rude ou quelque châtiment vite oublié qui pouvait
 gâter l'existence. Maintenant, mes fils ont péri. Je
-| 165
 
-n'ai plus qu'à disparaître à mon tour. Mais je veux 4
+n'ai plus qu'à disparaître à mon tour. Mais je veux
 d'abord punir le traître qui les a séduits. k À
 
-Eh bien, si tu m'obéis exactement, il est perdu. 4
+Eh bien, si tu m'obéis exactement, il est perdu.
 
 Le consul, avec six légions, campe devant Bar- ;
-letta; le préteur Aufidius, arrivant de Siponte, le S
-joindra cette nuit même avec quatre légions. Porte ÿ
-à Crassus la nouvelle que l'armée des gladiateurs É
-est coupée en deux. Il faut qu'il accoure sans perdre f
-une heure : car les Germains pourraient com- 1
+letta; le préteur Aufidius, arrivant de Siponte, le
+joindra cette nuit même avec quatre légions. Porte
+à Crassus la nouvelle que l'armée des gladiateurs
+est coupée en deux. Il faut qu'il accoure sans perdre
+une heure : car les Germains pourraient com-
 prendre leur faute et rentrer au camp. Hâte-toi. À
-Les vingt mille hommes qui s'éloignent en ce 3
-moment sont les plus exercés, les plus braves. Ceux L
-qui restent seront ébranlés, démoralisés par une 4
-telle défection. Dix légions réunies les écraseront 4
+Les vingt mille hommes qui s'éloignent en ce
+moment sont les plus exercés, les plus braves. Ceux
+qui restent seront ébranlés, démoralisés par une
+telle défection. Dix légions réunies les écraseront
 
 Le jour qui vient verra tomber ici-même l'invin
-166 4
+166
 
 Fassent les dieux infernaux que la terre s'entr'ouvre pour l'engloutir!
 Non pas: le consul m'a promis sa tête.
@@ -12096,7 +12078,6 @@ avec horreur, avec angoisse.
 Un rayon de lune tombe sur Spartacus. Valeria pousse
 un cri étouffé ; elle accourt en chantcelant.
 Mirza la rejoint.
-| 171
 
 Frère! frère!
 Elles le soutiennent doucement et lui essuient le visage.
@@ -12106,10 +12087,10 @@ plus que vous... pour. oh! la nuit. plus de
 Frère! frère chéri par dessus tout... Toi, ma conscience, ma volonté... sans toi, je ne suis plus!
 Un centurion et des soldats romains, guidés par le vieil |
 esclave et portant des torches, envahissent la scène. ‘4
-Le centurion fait un geste pour ordonner aux soldats de t
+Le centurion fait un geste pour ordonner aux soldats de
 saisir les deux femmes. à
 Valeria se rapproche de Mirza.
-Mirza ramasse un poignard; elle se frappe, chancelle, et ÿ
+Mirza ramasse un poignard; elle se frappe, chancelle, et
 \ tombe sur les genoux.
 Arrachant de son sein le poignard, elle le tend à Valeria. À
 Tiens! cela ne fait pas de mal …
@@ -12130,20 +12111,20 @@ lieu que l'injustice et la cruauté te perdront.. Des
 piques, des glaives, des cadavres, du sang... toujours des cadavres, toujours du sang.. À plein les
 campagnes, plein les cirques.. Un immense charnier pour domaine... et sur les millions de morts,
 des millions d'esclaves qui sont morts aussi à la vie
-173 10,
+173
 
-humaine, morts au bonheur... Mais le châtiment 4
-vient. Le souflle de cet homme-ci a passé sur la 1
-terre. Et la liberté renaîtra, la douleur sera 1
-vengée... Romains, ces Barbares que vous oppri- L
+humaine, morts au bonheur... Mais le châtiment
+vient. Le souflle de cet homme-ci a passé sur la
+terre. Et la liberté renaîtra, la douleur sera
+vengée... Romains, ces Barbares que vous oppri-
 mez, que vous torturez, que vous dépouillez, ils ont À
-des frères! Au delà des limites de l'empire, s'agitent 4
-des centaines de peuples et des hommes innom- 4.
+des frères! Au delà des limites de l'empire, s'agitent
+des centaines de peuples et des hommes innom-
 _ brables qui vous demanderont compte, un jour, de |
 tant de forfaits. Alors, par-dessus les camps
 et les forteresses de vos frontières bondira
 le torrent dévastateur.. Du nord, du midi, de
-l'orient, vont se ruer les libérateurs et les justiciers.. La flamme purificatrice est prête à dévorer 1
+l'orient, vont se ruer les libérateurs et les justiciers.. La flamme purificatrice est prête à dévorer
 vos temples, vos villas, vos lupanars, vos ergastules
 et vos capitoles.. Votre or et votre argent couleront en ruisseaux avec votre sang sous les ruines
 de vos cités. Au fracas des muraïlles croulantes,
@@ -12156,7 +12137,6 @@ de vos femmes et de vos enfants se traîneront sous à
 le fouet vers les marchés d'esclaves; quand vos |
 sœurs et vos filles serviront de jouets aux Barbares
 effrénés : rappelez-vous vos propres crimes, et les
-| 174
 
 nations détruites, les villes en cendres, les pillages
 atroces. Rappelez-vous comment vous avez porté

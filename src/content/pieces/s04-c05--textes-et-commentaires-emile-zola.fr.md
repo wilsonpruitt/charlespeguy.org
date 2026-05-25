@@ -112,7 +112,7 @@ du mari pour- l'alcool fait sombrer dans le désordre de
 la détresse et la folie? Ne sentons-nous pas encore l'an- :
 goisse qui nous étreignait, lorsque, guidés par la main du
 conteur — pourquoi ne pas dire du poète — nous suivions
-les galeries étroites des mines, témoins à chaque pas du É
+les galeries étroites des mines, témoins à chaque pas du
 labeur dangereux et dur, de la si rude vie du mineur ?
 Cette vision peut-elle désormais s'effacer de notre esprit?
 Combien d'autres aussi émouvantes hantent notre souvenir !
@@ -225,7 +225,7 @@ brise les idoles et qui fait les révolutions.
 Tandis qu'il posait une par une, avec son calme et sa
 sûreté coutumière, les assises de ce nouvel édifice, son
 imagination devançait encore la tâche d'aujourd'hui et lui
-en préparait d'autres pour demain. Ce passionné de gran- s
+en préparait d'autres pour demain. Ce passionné de gran-
 deur, qu'on a incriminé de bassesse et de terre à terre,
 atteignait la chimère et l'utopie. Il avait déjà choisi les titres
 de ces quatre livres d'apostolat qu'il appelait des évangiles :
@@ -243,7 +243,7 @@ véridique de l'actuel, ce prophète convaincu de l'avenir,
 cet artiste de la démocratie.
 
 Je sais bien qu'en portant sur lui ce jugement — auquel
-souscrit d'ailleurs le monde entier — je vais contre une L
+souscrit d'ailleurs le monde entier — je vais contre une
 certaine critique de chez nous, dont la malice habituelle
 consiste à nier aux grands écrivains les qualités qu'ils revendiquent, pour leur en attribuer perfidement d'autres dont
 on espère qu'ils ne se soucient pas. Et comme Zola s'est
@@ -321,7 +321,7 @@ unique, toujours son personnage préféré.
 
 Elle fut son public aussi. C'est à elle qu'est dédiée son
 œuvre; c'est d'elle qu'il a obtenu cette renommée anormale; c'est auprès d'elle qu'il est en instance d'immortalité.
-Non point qu'il ait été si avide de cette popularité qu'on 6
+Non point qu'il ait été si avide de cette popularité qu'on
 appelle dédaigneusement et à bon droit la gloire en gros
 sous. Son ambition était plus haute. Il prétendait communier avec les masses populaires et faire vibrer en elles
 l'âme qu'il leur attribuait. Il ne leur sacrifiait rien, comme
@@ -474,7 +474,7 @@ Puis-je taire leurs crimes? Ce serait taire sa vertu.
 
 Puis-je taire les outrages et les calomnies dont ils
 
-l'ont poursuivi ? Ce serait taire sa récompense et ses ñ
+l'ont poursuivi ? Ce serait taire sa récompense et ses
 honneurs. Puis-je taire leur honte ? Ce serait taire sa
 
 gloire. Non ! je parlerai.
@@ -532,7 +532,7 @@ majesté puissantes ; elles s'étendent indéfiniment : elles
 ont déterminé un mouvement d'équité sociale qui ne
 s'arrêtera pas. Il en sort un nouvel ordre de choses
 
-19 4
+19
 
 fondé sur une justice meilleure et sur une connaissance
 plus profonde des droits de tous.
@@ -581,8 +581,8 @@ On fait halte soudain avec délices en de charmantes
 oasis : la Faute de l'Abbé Mouret, une Page d'Amour
 font pendant aux visions sinistres de l'Assommoir et
 de la Débâcle. Plus souvent on ahanne avec peine.
-Parfois on s'arrête, rebuté. On admire, on subit, plus 4
-qu'on n'aime… W
+Parfois on s'arrête, rebuté. On admire, on subit, plus
+qu'on n'aime…
 
 S'il faut préciser ce qui manque à cette œuvre rude et
 massive, ce sera sans doute un soupir, le pressentiment
@@ -1003,7 +1003,7 @@ Hélas! non par vertu, mais par compassion ;
 Dans l'invisibie essaim des condamnés à naître,
 Je fais grâce à celui dont je sens l'aiguillon.
 L'homme à qui son pain blanc maudit des populaces
-Pèse comme un remords des misères d'autrui, L
+Pèse comme un remords des misères d'autrui,
 A l'inégal banquet où se serrent les places, |
 N'élargira jamais la sienne autour de lui! \
 Selon que l'on résout ou non cette difficulté, on est ou
@@ -1050,7 +1050,7 @@ né avec son pain. » (1) Nicolas, fils de Mathieu, fait
 pousser des moissons plus débordantes encore, non plus
 seulement dans des pays incultes, mais dans des pays
 incivilisés, aux plaines infinies du Soudan. Mathieu
-continue à vivre en paysan. Nicolas court avec une 7
+continue à vivre en paysan. Nicolas court avec une
 audace folle et froide les risques lointains de coloniser. |
 Cela masque l'usurpation; cela ne fait que la masquer.
 Marianne enfante une race de bourgeois.
@@ -1086,7 +1086,7 @@ ponctuellement volés qu'ils étaient volés sous le gouvernement malade de Beau
 pas fait, au seuil de leur vie nouvelle, cette simple
 
 () Relire dans la revue blanche l'article déjà cité de Gustave
-@) Venus Victrix, dans la Petite République du mercredi 25 octobre. j
+@) Venus Victrix, dans la Petite République du mercredi 25 octobre.
 
 cinquième cahier de la quatrième série
 réflexion, que Mathieu et Marianne ont recommencé
@@ -1167,7 +1167,7 @@ dans la gaie journée de printemps, la campagne éclaiante, chantante, odorante,
 triomphale de cette beauté de la mère qui, le sein libre |
 sous le soleil, aux yeux du vaste horizon, allaitait son
 enfant. » (2) « De toutes parts, la vie féconde charriaït -
-les germes, créait, enfantait, nourrissait. Et, pour l'éter- l
+les germes, créait, enfantait, nourrissait. Et, pour l'éter-
 nelle œuvre de vie, l'éternel fleuve de lait coulait par le |
 monde. » (3) Jamais sans doute un hymne aussi écla- |
 tant ne fut chanté à la gloire de Vénus perpétuelle, et |
@@ -1218,12 +1218,12 @@ condition : c'est que de la charité abandonnée on monte
 à une action plus eflicace, à la solidarité, mais non pas
 que l'on redescende à la bourgeoise acquisition des
 richesses. Quand un bourgeois qui monte s'arrête à la |
-charité, il s'arrête beaucoup trop tôt. Mais cela vaut L
+charité, il s'arrête beaucoup trop tôt. Mais cela vaut
 assurément beaucoup mieux que de rester bourgeois |
 simplement. Fécondité n'est pas un livre de bonté,
-Fécondité n'est pas un livre de paix. Jé prie qu'on le 4
-relise et que l'on n'oublie pas de voir cette guerre inces- ï
-sante. Ne nous laissons pas séduire à un nouvel artifice ï
+Fécondité n'est pas un livre de paix. Jé prie qu'on le
+relise et que l'on n'oublie pas de voir cette guerre inces-
+sante. Ne nous laissons pas séduire à un nouvel artifice
 quelques exceptions près, une victoire si facile, si
 écrasante, si abondante, que la pensée du lecteur ne À
 s'attache pas à la considération de la bataille. Mais les À
@@ -1276,9 +1276,9 @@ sous l'apparente uniformité de la fète en commun, des
 riches et des pauvres. Et même avant, si l'avant-dernier |
 des fils, Nicolas, quitte le Chantebled de la métropole
 et va fonder un Chantebled colonial, soudanais, ce n'est
-pas, remarquons-le bien, qu'il manque de place pour 4
+pas, remarquons-le bien, qu'il manque de place pour
 travailler, car la ferme est grande, l'usine est grande, |
-la maison d'Ambroise est grande : c'est qu'il manque 4
+la maison d'Ambroise est grande : c'est qu'il manque
 de place pour fonder, pour commander, pour être à son ;
 
 tour un patriarche, un chef de dynastie. « Ses frères,
@@ -1349,7 +1349,7 @@ les Anglais, quand leur envahissement sera barré,
 feront-ils des expéditions pour passer le Vaal? Feront-ils
 eux-mêmes la guerre? La feront-ils faire à des mercenaires ? Auront-ils des esclaves, comme ils ont des salariés ? Tout cela finira-t-il par du nationalisme ?
 - Telle fut la déception que l'Aurore nous apportait de
-jour en jour. Cette famille en qui nous avions mis n0s
+jour en jour. Cette famille en qui nous avions mis
 espérances les plus chères tournait mal, sous nos yeux.
 Zola n'était pas devenu socialiste. Par quel mystère ce
 révolutionnaire admirablement ardent avait-il pu ne
@@ -1397,12 +1397,12 @@ nature, patient comme elle, et, pour qui ne sait pas,
 ennuyeux comme elle. Plusieurs, ayant commencé le |
 la page 345. On peut remarquer qu'il se succède ensuite à des :
 s intervalles presque réguliers de 27, 29, 26, 31 et 23 pages, qu'il ne
-commande, sauf erreur, que 136 pages, au milieu du livre, sur 751, t
+commande, sauf erreur, que 136 pages, au milieu du livre, sur
 laissant libres les 344 premières pages, et les 270 dernières. Le
 motif ne consiste pas seulement en cette phrase fidèle, mais en
 tout un cortège de phrases ou identiques {A Chantebled, Mathieu et (
 Marianne fondaient, créaient, enfantaient.), ou apparentées.
-(2) Paul Brulat, dans Les Droits de l'Homme du dimanche 2 octobre. È
+(2) Paul Brulat, dans Les Droits de l'Homme du dimanche 2 octobre.
 
 poème, se sont ennuyés de ces recommencements.
 J'ai peur que ceux-là ne s'ennuient aussi des inévitables recommencements de la vie. « Deux ans se passèrent. »
@@ -1423,7 +1423,7 @@ pauvre. Marianne laisse à la maison ses quatre enfants
 endormis pour aller le soir, très tard, au devant de
 Mathieu. Naturellement la vieille servante, Zoé, s'endort
 avec les enfants sur qui elle doit veiller. (3) Ou cela
-n'est pas vrai, ou cela n'est pas bien. Je crois surtout que Ê
+n'est pas vrai, ou cela n'est pas bien. Je crois surtout que
 beaucoup mieux. Mathieu aussi, du moins je l'espère,
 
 (3) Fécondité, page 82 et suivantes.
@@ -1450,7 +1450,7 @@ le propriétaire ancien doit justement profiter de ce que
 besoin de nouveaux morceaux pour faire monter de
 plus en plus ses prix. Commercialement, les territoires
 de chasse non achetés encore prennent de la valeur, |
-comme on dit, parce qu'ils sont contigus aux labours s
+comme on dit, parce qu'ils sont contigus aux labours
 de la ferme et parce que le fermier veut y mettre la
 charrue. Cela n'a aucun sens. Mais cela est de la réa5 SRE
 () Fécondité, page 85 et suivantes.
@@ -1500,7 +1500,7 @@ tomba, dans l'ombre, sur les genoux. » (1)
 Ce coup de brique opère vraiment le déclanchement
 final de Paris. Dans Fécondité, c'est un embarras de
 voitures qui résout facilement une crise de passion bien
-mal engagée : « ... brusquement, une autre image se l
+mal engagée : « ... brusquement, une autre image se
 dressa ». (2) Il était temps.
 Je ne nie pas qu'il n'y ait une assez grande quantité
 de personnes dont la psychologie soit aussi grossière et
@@ -1575,7 +1575,7 @@ ivrogne rencontré dans la rue. De même la plupart des
 1 anciens personnages de Zola sont d'une fréquentation
 très pernicieuse.
 
-Le malheur fut, si nous en croyons les indications É
+Le malheur fut, si nous en croyons les indications
 données au verso du faux-titre de Fécondité, que cette
 
 fréquentation devint très nombreuse. (1) Le romancier
@@ -1664,11 +1664,11 @@ aussitôt que nous le pourrons. C'est aussi pour donner
 Dans ce méme numéro 94%, deuxième arnée, du :
 18 octobre 1902, Pages libres reproduit le texte de
 Jaccuse et donne un curieux fac-simile de l'Aurore
-même, première page, numéro du jeudi 13 jan N
+même, première page, numéro du jeudi 13 jan
 vier 1898. Nous avons fait composer sur le texte de
 Pages libres. Nous avons collationné sur le texte publié |
 dans la Vérité en marche. La présente édition est
-donc, si l'on veut, une édition critique. k
+donc, si l'on veut, une édition critique.
 
 La lettre que l'on va relire a été publiée définitivement
 dans le recueil intitulé la Vérité en marche, un volume
@@ -1735,7 +1735,7 @@ Un homme néfaste a tout mené, a tout fait, c'est le
 lieutenant-colonel (1) du Paty de Clam, alors simple
 commandant. Il est l'affaire Dreyfus tout entière; (2) on
 ne la connaîtra que lorsqu'une enquête loyale aura
-établi nettement ses actes et ses responsabilités. T° 0
+établi nettement ses actes et ses responsabilités. T°
 apparaît comme l'esprit le plus fumeux, le plus compliqué, hanté d'intrigues romanesques, se complaisant
 aux moyens des romans-feuilletons, les papiers volés, …
 les lettres anonymes, les rendez-vous dans les endroits
@@ -1746,7 +1746,7 @@ de dicter le bordereau à Dreyfus; c'est lui qui rêva de à
 l'étudier dans une pièce entièrement revêtue de glaces;
 c'est lui que le commandant Forzinetti nous représente
 
-armé d'une lanterne sourde, voulant se faire introduire w
+armé d'une lanterne sourde, voulant se faire introduire
 
 près de l'accusé endormi, pour projeter sur son visage ;
 
@@ -1916,9 +1916,9 @@ soupçons à ses supérieurs hiérarchiques, le général
 Gonse, puis le général de Boisdeffre, puis le général |
 Billot, qui avait succédé au général Mercier comme
 ministre de la guerre. Le fameux dossier Picquart, dont
-il a été tant parlé, n'a jamais été que le dossier Billot, M
+il a été tant parlé, n'a jamais été que le dossier Billot,
 j'entends le dossier fait par un subordonné pour son
-ministre, le dossier qui doit exister encore au ministère w
+ministre, le dossier qui doit exister encore au ministère
 de la guerre. Les recherches durèrent de mai à septembre 1896, et ce qu'il faut affirmer bien haut, c'est
 que le général Gonse était convaincu de la culpabilité
 d'Esterhazy, c'est que le général de Boisdeffre et le
@@ -2051,9 +2051,9 @@ sang de ces soldats, ne suflit-elle à infirmer leur pouvoir
 même (1} d'équité? Qui dit discipline dit obéissance.
 Lorsque le ministre (2) de la guerre, le grand chef, a
 établi publiquement, aux acclamations de la représentation nationale, l'autorité absolue (3) de la chose
-() leur pouvoir d'équité? dans la Vérité en marche. ï
+() leur pouvoir d'équité? dans la Vérité en marche.
 (2) ministère dans l'Aurore par coquille.
-(3) l'autorité de la chose jugée. dans la Vérité en marche. 3
+(3) l'autorité de la chose jugée. dans la Vérité en marche.
 
 jugée, vous voulez qu'un conseil de guerre lui donne
 un formel démenti? Hiérarchiquement, cela est impossible. Le général Billot a suggestionné les juges par sa
@@ -2436,7 +2436,7 @@ ligne; et cela ressort clairement de la lecture du premier
 épisode, la Fortune des Rougon, où je ne pouvais poser les
 origines de la famille, sans arrêter avant tout la filiation et
 les âges. La difficulté était d'autant plus grande, que je mettais face à face quatre générations, et que mes personnages |
-s'agitaient dans une période de dix-huit années seulement. Ë
+s'agitaient dans une période de dix-huit années seulement.
 
 La publication de ce document sera ma réponse à ceux
 qui m'ont accusé de courir après l'actualité et le scandale.
@@ -2493,7 +2493,7 @@ A la Mémoire
 Je dédie ce roman
 qui est le résumé et la conclusion |
 de toute mon œuvre
-Au commencement de ce volume l'arbre généalogique, portant 32 noms. j
+Au commencement de ce volume l'arbre généalogique, portant 32 noms.
 
 Lourdes, édition complète en un volume, 598 pages;
 
@@ -2518,7 +2518,7 @@ moins vertueux, ont fait une grimace de dégoût, en le prenant avec des pincett
 feuilles littéraires elles-mêmes, ces petites feuilles qui
 donnent chaque soir la gazette des alcdves et des cabinets
 particuliers, se sont bouché le nez en parlant d'ordure et
-de puanteur. Je ne me plains nullement de cet accueil; au k
+de puanteur. Je ne me plains nullement de cet accueil; au
 
 contraire, je suis charmé de constater que mes confrères
 ont des nerfs sensibles de jeune fille. Ilest bien évident que
@@ -2756,10 +2756,10 @@ Elles ont été écrites par un enfant nerveux et aimant qui
 s'est donné entier, avec les frissons de sa chair et les élans
 de son âme. Elles sont la manifestation maladive d'un tempérament particulier qui a l'âpre besoin du réel et les espé-
 rances menteuses et douces du rêve. Tout le livre est là,
-dans la lutte entre le songe et la réalité. Si les amours 4
+dans la lutte entre le songe et la réalité. Si les amours
 honteuses de Claude le font juger sévèrement, qu'on lui |
 pardonne au dénoùment, lorsqu'il se relève plus jeune et )
-plus fort, voyant jusqu'à Dieu. 4
+plus fort, voyant jusqu'à Dieu.
 Il y a du prêtre dans cet enfant. Il s'agenouillera peut-être |
 un jour. Il cherche avec un désespoir immense une vérité À
 qui le soutienne. Aujourd'hui, il nous conte sa jeunesse ;
@@ -2842,10 +2842,10 @@ Mon SALON. — A mon ami Paul Cézanne;
 Les réalistes du salon ;
 Adieux d'un critique d'art ;
 Épouarp MANET. — L'homme et l'artiste ;
-Les œuvres ; l
-Le Roman expérimental, édition complète en un k
+Les œuvres
+Le Roman expérimental, édition complète en un
 Cinq de ces études ont d'abord paru, traduites en russe,
-dans le Messager de l'Europe, une revue deSaint-Pétersbourg. t
+dans le Messager de l'Europe, une revue deSaint-Pétersbourg.
 Les deux autres : Du roman et De la critique, ne sont que
 des recueils et des classements d'articles, publiés dans Le
 Bien public et dans le Voltaire.
@@ -2893,7 +2893,7 @@ du roman naturaliste, étudié dans les chefs qui en ont suc- .
 cessivement apporté et modifié la formule. |
 On se souvient peut-être du vacarme que souleva mon |
 étude sur les romanciers contemporains, qu'on trouvera à :
-la fin de ce volume. Aujourd'hui seulement, elle y prend É
+la fin de ce volume. Aujourd'hui seulement, elle y prend
 son vrai sens, sa valeur exacte. Elle n'est, après les autres
 études, qu'une suite de notes rapides, destinées à rendre ;
 montravail complet. J'espère qu'on voudra bien comprendre.
@@ -3012,7 +3012,7 @@ même parmi celles qui ont soulevé le plus de clameurs. Si
 des esprits impartiaux se décident à instruire mon procès,
 la besogne devient donc pour eux très facile. Qu'ils lisent
 et qu'ils prononcent. Les terribles pièces sont entre leurs
-mains : ils ont mes crimes, dont les bâcleurs de copie s'indignent ou se moquent depuis seize ans. 4
+mains : ils ont mes crimes, dont les bâcleurs de copie s'indignent ou se moquent depuis seize ans.
 
 J'ai un orgueil, je l'avoue : c'est, depuis seize ans, d'avoir
 gardé les mêmes croyances littéraires, d'être allé tout droit
@@ -3215,7 +3215,7 @@ Lettre à M. Brisson, président du conseil des ministres, |
 publiée dans l'Aurore du 16 juillet 1898;
 Justice, article publié dans l'Aurore du 5 juin 1899;
 Cinquième acte, publié dans l'Aurore du 12 septembre 1899;
-Lettre à Madame Alfred Dreyfus, publiée dans 7
+Lettre à Madame Alfred Dreyfus, publiée dans
 l'Aurore du 29 septembre 1899;
 Lettre au Sénat, publiée dans /'Aurore du 29 mai 1900; |
 Lettre à M. Émile Loubet, président de la Répu- :
@@ -3247,7 +3247,7 @@ cieusement tous les articles publiés, j'ai créé pour chaque
 pièce un dossier, que j'ai mis à mürir dans mon grenier.
 Un jour, je compte en secouer la poussière et faire un petit
 travail. Certaines citations, avec le temps, pourront prendre
-de l'intérêt. 3
+de l'intérêt.
 
 Voilà les faits. J'ai voulu les constater et dresser moimême le procès-verbal. Lorsque j'ai commencé à écrire mes
 romans, il y a eu contre eux, dans le publie et dans la
@@ -3303,7 +3303,7 @@ nos tendances littéraires.
 
 ÉmLE ZoLa. — L'Attaque du Moulin ;
 
-Léon HENNIQUE. — L'afjaire du Grand 7;
+Léon HENNIQUE. — L'afjaire du Grand
 
 PauLz ALExIs. — Après la Bataille.
 
@@ -3318,7 +3318,7 @@ Macquart, en résumant Jeurs faits et gestes à travers vingt
 volumes, l'auteur n'a pas perdu de vue que, pour avoir un ;
 intérêt véritable, son livre devait respecter, non seulement |
 le fond, mais la forme même de l'œuvre si considérable |
-d'Émile Zola. Aussi trouvera-t-on ici certaines tournures K
+d'Émile Zola. Aussi trouvera-t-on ici certaines tournures
 caractéristiques, des phrases entières, jusqu'à des alinéas
 complets, puisés dans le texte du grand écrivain. Mais toute
 pensée de plagiat doit être écartée, puisque l'unique et très
@@ -3339,7 +3339,7 @@ en effet, le Docteur Pascal est la conclusion scientifique de
 cette œuvre immense, s'il résume en larges traits la vie
 d'Adélaïde Fouque et de ses descendants jusqu'à la quatrième génération, il laisse volontairement de côté tout ce
 qui gravite autour d'eux, les mille autres personnages
-créés par Zola, véritable monde où s'agite toute l'humanité. € 4
+créés par Zola, véritable monde où s'agite toute l'humanité. €
 
 Qu'on lise avec soin cette nomenclature, qui commence à
 la petite brunisseuse Adèle pour finir à Zoé la proxénète. à
@@ -3482,7 +3482,7 @@ méme corps, ni les interlignes égales ; :
 
 que ces quarante-sept volumes, marqués uniformé-
 ment à trois francs cinquante, font un prix marqué
-total de 164 francs 5o.
+total de 164 francs
 
 Nous sommes en mesure d'envoyer les quarante-six
 ou à l'étranger pour la somme de 435 francs.
@@ -3496,7 +3496,7 @@ sans compter les exemplaires non millésimés, des
 autres volumes, et sans compter les traductions, qui
 sont, paraît-il, innombrables.
 
-En dehors de la Bibliothèque-Charpentier, Char- 1
+En dehors de la Bibliothèque-Charpentier, Char-
 
 pentier puis Fasquelle ont édité de Zola : |
 
@@ -3525,7 +3525,7 @@ la scène de l'Académie Nationale de Musique, le
 L'Ouragan, drame lyrique en quatre actes, poème de
 Émire ZocA, musique de Arrrep BRUNEAU, représenté
 pour la première fois sur le Théâtre National de l'OpéraComique, le 29 avril 1907 ; le poème, un volume grand
-in-18 de 54 pages, Paris, Fasquelle, 1901, un franc L
+in-18 de 54 pages, Paris, Fasquelle, 1901, un franc
 
 Le Rêve, drame lyrique en quatre actes, huit tableaux, d'après le roman de ÉmIre ZoLA, poème de
 Lours GALLET, musique de ALFRED BRUNEAU, représenté
@@ -3572,7 +3572,7 @@ sins de F. Fau, gravés à l'eau-forte par
 
 F. Massé, un volume
 
-Thérèse Raquin, avec 2 dessins de G.
+Thérèse Raquin, avec 2 dessins de
 
 Alaux, gravés à l'eau-forte par Manesse,
 
@@ -3592,8 +3592,8 @@ Lourdes, illustration par Henri Lanos, un volume
 La Terre, illustration de G. Ibels, un volume in-18 |
 
 La Fête à Coqueville, un volume in quarto raisin,
-avec de nombreuses aquarelles de André Devambez, Î
-reproduites en couleurs, 5 francs L
+avec de nombreuses aquarelles de André Devambez,
+reproduites en couleurs, 5 francs
 
 Il y a une grande lithographie, un portrait de Zola,
 
@@ -3601,8 +3601,8 @@ par Henry de Groux; cette lithographie se vend
 
 vingt francs; il y en « a une réduction, qui se vend
 
-Discours de M-/Abel Hérmant. : .. .:... 08
-Gabriel Trarieux. — Émile Zola, homme d'action. . . . 92
+Discours de M-/Abel Hérmant. : .. .:...
+Gabriel Trarieux. — Émile Zola, homme d'action. . .
 Émile Zola. — Lettre à M. Félix Faure, président de la
 
 Fini d'imprimer deux mille exemplaires de ce
@@ -3620,7 +3620,7 @@ Lahure, tirage à la presse à bras, limité à 225 exemplaires
 Un exemplaire — numéro 1 — sur whatman, contenant
 tous les dessins originaux, avec une double suite
 d'épreuves d'artiste signées, sur japon et sur chine;
-Un exemplaire — numéro 2 — sur whatman, contenant une j
+Un exemplaire — numéro 2 — sur whatman, contenant une
 aquarelle sur chacun des faux-titres, — soit neuf, — avec
 une double suite d'épreuves d'artiste signées, sur japon |
 et sur chine;
@@ -3669,7 +3669,7 @@ Il sera tiré en outre :
 
 sur chine. ?
 
-à Nous avons reçu de M. Urbain Gohier, sur papier é
+à Nous avons reçu de M. Urbain Gohier, sur papier
 _ libre, la rectification suivante : us DA
 
 Monsieur le rédacteur
@@ -3700,7 +3700,7 @@ Mais l'approbation « du fond » me suflisait.
 
 cinquième cahier de la quatrième série
 
-Mon loyal ami, M. de Pressensé, m'approuvait si bien ï
+Mon loyal ami, M. de Pressensé, m'approuvait si bien
 qu'il me fournissait quelquefois des munitions. Par |
 exemple, à propos des manœuvres qu'exécuta le citoyen
 Jaurès pour tirer d'un multi-millionnaire des subsides |
@@ -3782,33 +3782,33 @@ f...umer sa pipe dans son village, à condition qu'on ne
 le revoie pas.
 Nous nous quittâmes fort tard, avec des larmes dans |
 les yeux. |
-Il n'est donc pas juste d'écrire que M. de Pressensé j
+Il n'est donc pas juste d'écrire que M. de Pressensé
 m'a éliminé de l'Aurore. Si j'avais trouvé dans les |
 Montagnes Rocheuses, d'où j'arrive, un gisement auri- |
 fère, je rentrerais à l' Aurore par la grande porte et j'y fi
-reprendrais, avec l'approbation de mon loyal ami, f
+reprendrais, avec l'approbation de mon loyal ami,
 l'œuvre si nécessaire du nettoyage socialiste. Est-ce la }
-faute de mon loyal ami si je n'ai pas trouvé le filon ? l
+faute de mon loyal ami si je n'ai pas trouvé le filon ?
 Veuillez agréer, monsieur, mes compliments les |
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
 Nous prions tous nos abonnés de vouloir bien acheter
-tous leurs livres à la librairie des cahiers. — Adresser ÿ
-les ordres et les mandats à M. André Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, Paris, d
+tous leurs livres à la librairie des cahiers. — Adresser
+les ordres et les mandats à M. André Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, Paris,
 
-Vient de paraître chez Fasquelle, en vente à la 1 h
-librairie des cahiers : ï
+Vient de paraître chez Fasquelle, en vente à la
+librairie des cahiers
 
 Joserx ReINACK. — Histoire de l'Affaire Dreyfus. — |
-IT. — Esterhazy, un gros volume in octavo carré de k.
+IT. — Esterhazy, un gros volume in octavo carré de
 
-Table des matières : î
+Table des matières
 
 l'île du Diable; À
 le petit bleu; à
 la double boucle;
 Appendice. — Henry et les cornets; {
-Boisdeffre et Picquart; 4
+Boisdeffre et Picquart;
 Le testament de Picquart; à
 Ma visite chez Lebon; |
 Les télégrammes Blanche-et Speranza.
@@ -3816,5 +3816,5 @@ Les télégrammes Blanche-et Speranza.
 Dans le dixième cahier de la deuxième série, cahier |
 d'annonces, nous avons annoncé l'apparition du premier
 volume : le Procès de 1894; ce tome I, même prix,
-parut aux éditions de la revue blanche; on sait que les 114
+parut aux éditions de la revue blanche; on sait que les
 éditions de La revue blanche ont passé récemment chez

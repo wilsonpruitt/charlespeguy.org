@@ -28,9 +28,9 @@ s'acclimatera, le jour où il se répandra, le jour où
 
 il s'imposera au pouvoir lui-même et où ce ne seront
 plus seulement des allégories sociales comme celles
-de Marsolleau qui seront représentées à la scène, 4
+de Marsolleau qui seront représentées à la scène,
 mais de véritables drames humains, dans lesquels
-les principes et les forces de la société nouvelle seront le ressort même du drame, ce jour-là, citoyens, 1
+les principes et les forces de la société nouvelle seront le ressort même du drame, ce jour-là, citoyens,
 la Révolution sociale sera bien près de s'accomplir ;
 car le théâtre n'est pas et par sa constitution ne
 peut pas être une force d'avant-garde, ilne proclame
@@ -79,12 +79,12 @@ siècle, il apparaît comme une critique partielle que
 la société bourgeoise, vaincue par l'évidence de ses
 propres maux et de ses propres contradictions, est
 obligée de s'appliquer à elle-même. C'est là ce que
-nous constatons partiellement, incomplètement, 4
+nous constatons partiellement, incomplètement,
 avec Dumas fils; d'une façon plus hardie et plus
 étendue, avec Ibsen; — et enfin, nous entrons avec
 les œuvres dramaliques de Hauptmann, Avant
 l'Aurore, les Tisserands, avec des œuvres dans le
-sens de celle de Marsolleau, avec le Germinal in- ÿ
+sens de celle de Marsolleau, avec le Germinal in-
 terdit de Zola... (Applaudissements. — Cris de
 Vive Zola!) nous entrons dans la période où ce
 n'est plus la société bourgeoise qui se critique timidement elle-même, où c'est le prolétariat, où c'est la
@@ -393,7 +393,7 @@ journaux, la presse, mais qui infecte tous ces morceaux de papier des mensonges 
 
 Donc, nous avons le droit de protester contre la
 
-société d'aujourd'hui, non seulement avec Marx, î
+société d'aujourd'hui, non seulement avec Marx,
 
 au nom du prolétariat qui souffre, maïs encore avec
 Ibsen, au nom de la vérité qui se meurt... (Applaudissements, cris de : À bas Rochefort ! et huées prolongées) — Ne rapetissons pas un mouvement
@@ -557,7 +557,7 @@ ment et de progrès, d'où qu'elles viennent, tous
 ensemble, citoyens et camarades, nous préparerons
 une société nouvelle, jusqu'au jour où l'humanité
 n'aura plus besoin de traduire sur la scène, sur les
-planches, les conflits ou les rêves de sa propre vie; L
+planches, les conflits ou les rêves de sa propre vie;
 jusqu'au jour où tous les hommes seront assez
 libres, assez éduqués, assez conscients pour être
 la fois les spectateurs et les acteurs du grand drame

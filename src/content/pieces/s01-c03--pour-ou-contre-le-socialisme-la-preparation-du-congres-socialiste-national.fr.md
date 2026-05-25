@@ -26,8 +26,8 @@ vous vous proposez de travailler à votre propre dé-
 (1) Ce titre est donné dans la Petite République.
 veloppement, vous rechercherez ce qui est vraiment ,
 utile et ce qui est vraiment beau.
-Les connaissances utiles à la vie ne sont pas seu- L
-lement celles des métiers et des arts. S'il est nécessaire que chacun sache son métier, il est utile à d
+Les connaissances utiles à la vie ne sont pas seu-
+lement celles des métiers et des arts. S'il est nécessaire que chacun sache son métier, il est utile à
 chacun d'interroger la nature qui nous a formés et
 la société dans laquelle nous vivons. Quel que soit
 notre état parmi nos semblables, nous sommes
@@ -44,7 +44,7 @@ Croyez-vous, par exemple, citoyens, que, si les
 savants avaient connu plus tôt la vraie situation du
 globe terrestre tournant en compagnie de quelques
 autres globes, ses frères, autour d'un soleil qui nage
-lui-même dans l'espace infini, peuplé d'une multi- ù
+lui-même dans l'espace infini, peuplé d'une multi-
 tude d'autres soleils, pères ardents et lumineux
 
 d'une multitude de mondes, pensez-vous que, si
@@ -95,11 +95,11 @@ nécessités de la vie sur la planète et des conditions
 particulières où chacun se trouve dans la société
 actuelle. Votre association est constituée pour vous
 solliciter les uns les autres à penser et à réfléchir
-la place des privilégiés qui ne s'en donnent plus la l
+la place des privilégiés qui ne s'en donnent plus la
 peine et pour vous assurer ainsi une part dans l'éla-
 boration d'un ordre de choses nouveau et meilleur,
 puisque, malgré les coups de force, c'est la pensée qui
-conduit le monde, comme la boussole dans la tem- h
+conduit le monde, comme la boussole dans la tem-
 pête montre encore la route aux navires.
 Votre association recherchera ce qu'il y a de plus
 
@@ -176,7 +176,7 @@ nos pauvres, truands, cagoux, piètres et malingreux,
 callots et sabouleux, francs-mitoux, drilles, courtauts
 de boutanche. Mais, subissant l'effacementuniversel
 
-des caractères, et se conformant à la médiocrité f
+des caractères, et se conformant à la médiocrité
 générale des mœurs, ils n'étalaient pas, comme aux
 âges du grand Coësre, des difformités horribles et
 des plaies épouvantables. Ils n'entouraient point de
@@ -550,7 +550,7 @@ futur, un changement commencé avant sa naissance, qui s'opère sous ses yeux, s
 et qui ne deviendra sensible que dans un siècle. »
 
 Le Figaro du vendredi 12 janvier publiaït un article
-de M. Jules Roche, intitulé : Contre le Socialisme. — I.
+de M. Jules Roche, intitulé : Contre le Socialisme.
 — Le danger, dont nous donnons le commencement
 la fin de son admirable Histoire d'Angleterre
 depuis l'avènement de Jacques IT, Macaulay, écrivant après les événements de 1848, disait
@@ -740,7 +740,7 @@ homme, ou par un événement particulier. Même on peut
 dire qu'il n'est pas devenu socialiste. Il a toujours été
 socialiste, au sens large de ce mot. La culture générale
 qu'il avait reçue, la philosophie qu'il enseignait enveloppaient déjà le socialisme qui n'avait plus qu'à se développer et à s'armer. De même que toute civilisation
-harmonieuse, achevée sincèrement, aboutit à l'établissement de la cité socialiste, de même toute culture vrai- k
+harmonieuse, achevée sincèrement, aboutit à l'établissement de la cité socialiste, de même toute culture vrai-
 ment humaine, vraiment harmonieuse, achevée sincèrement, aboutit à l'établissement de la pensée socialiste
 dans la conscience individuelle. Si bien que la question
 que l'on doit se poser à l'égard de tout homme harmonieusement cultivé n'est pas de savoir comment et pourquoi il pourra devenir socialiste, mais bien de savoir
@@ -798,7 +798,7 @@ tous les ordres d'enseignement pour élever peu à peu
 l'enseignement primaire, alors vous aurez assuré à la
 démocratie française un enseignement digne d'elle, vous
 
-(2) Action Socialiste, première série, pages 26 et 27.
+(2) Action Socialiste, première série, pages 26 et
 
 aurez préparé par la coordination et la coopération de
 tous les enseignements, d'un bout à l'autre de l'échelle,
@@ -1142,9 +1142,9 @@ lente histoire de la patience paysanne : « Toujours,
 depuis dix-huit siècles, sous la discipline des grands
 domaines gallo-romains, sous la hiérarchie de la pro-
 
-(1) Action Socialiste, première série, pages 225 et 226.
+(1) Action Socialiste, première série, pages 225 et
 
-(2) Action Socialiste, première série, pages 227 et 228.
+(2) Action Socialiste, première série, pages 227 et
 
 priété féodale, sous l'égoïsme de la propriété bourgeoise
 et financière, toujours ils ont laissé couler vers d'autres,
@@ -1285,7 +1285,7 @@ fat. Les théoriciens avaient fait quelques réserves et
 certains même avaient fait quelques critiques au grand
 discours qu'il avait prononcé sur la crise agricole. Plus
 tôt même on avait fait des critiques assez vives à la
-solution qui fut adoptée par les verriers de Carmaux k
+solution qui fut adoptée par les verriers de Carmaux
 après l'échec de la grève. On sait que, pour donner un
 asile et du pain aux militants qui avaient si opiniàtré- ‘
 ment, si admirablement combattu pour sauvegarder
@@ -1378,8 +1378,8 @@ grecque. Il avait défendu ces indépendances non seulement contre la tyrannie d
 contre les complices du Sultan rouge, contre la politique
 néfaste de M. Hanotaux, contre les violences allemandes,
 contre les duplicités russes, contre l'oppression de la
-(1) Action Socialiste, première série, pages 454 et 455.
-(2) Action Socialiste, première série, pages 470 et 471.
+(1) Action Socialiste, première série, pages 454 et
+(2) Action Socialiste, première série, pages 470 et
 
 finance cosmopolite : « J'ai bien le droit de dire que le
 poids des intérêts financiers a pesé et pèse encore d'une
@@ -1605,7 +1605,7 @@ violents, désordonnés, comme si la Révolution Sociale,
 
 ce coup de génie universel de l'humanité, ne devait pas
 être, ainsi que le génie individuel des hommes, l'effet
-bien ordonné d'une longue et invincible patience ; ils se l
+bien ordonné d'une longue et invincible patience ; ils se
 croyaient socialistes parce qu'ils étaient envieux,
 comme si le socialisme au contraire n'était pas l'ignorance même de toute concurrence, et ainsi de toute
 jalousie, de toute envie; ces malheureux, résidu du
@@ -1706,7 +1706,7 @@ mes camarades d'école, d''hommes qui ont été toute leur
 vie absorbés par des recherches désintéressées, ce qui
 
 () Article déjà cité de la Petite République; deuxième partie: une
-lettre fausse; publié dans les Preuves, pages 230 et 231.
+lettre fausse; publié dans les Preuves, pages 230 et
 
 les a décidés en grand nombre à sortir de leur service
 et de leur neutralité et à descendre sur la place publique
@@ -1733,7 +1733,7 @@ Jaurès ait rendu socialistes les universitaires par une
 présentation particulière du socialisme; il est, en un
 sens, inexact que Jaurès ait rendu socialistes les universitaires par l'exemple qu'il avait donné un des premiers. Ceux des universitaires, et ils sont assez nombreux, qui sont devenus récemment socialistes le sont
 
-(1) Procès Zola, audience déjà citée. ÿ
+(1) Procès Zola, audience déjà citée.
 
 justement devenus par ce même mouvement par lequel
 nous avons expliqué, au commencement de cet article,
@@ -1904,7 +1904,7 @@ source même qui est la science. On parle beaucoup
 depuis quelque temps de la banqueroute de la science
 et on nous adresse à un banquier qui, lui, ne fait jamais
 
-(1) Action Socialiste, première série, pages 261 et 262,
+(1) Action Socialiste, première série, pages 261 et
 
 faillite, parce que ses traites, étant tirées sur l'invisible
 et l'invérifiable, ne sont jamais protestées. » (1)
@@ -2318,7 +2318,7 @@ un cheval. Je suis, moi, pour l'amélioration par lobsti-
 - nation de la santé. Je suis ainsi fidèle au commencement
 de Jaurès. Vous vous êtes laissé emporter à l'éloquence
 du modèle. Parce que ce discours est sans aucun doute
-le plus beau que Jaurès ait prononcé, VOuS nous l'avez! 1.
+le plus beau que Jaurès ait prononcé, VOuS nous l'avez!
 présenté comme le couronnement de son éloquence.
 Vous n'avez pas vu que ce discours admirable est en
 opposition formelle avec le Jaurès initial, avec le Jaurès
@@ -2331,7 +2331,7 @@ ce que nous pensons, de tout ce que nous faisons. IIme
 tarde, citoyen, d'en causer avec vous. En attendant je
 ne suis pas plus étonné que vous que Jaurès nous ait
 laissé là-dessus des ouvertures de liberté, car je
-remarque la place considérable que la considération de k
+remarque la place considérable que la considération de
 la liberté tient dans son livre : liberté de l'enseigne- »
 
 syndicales et coopératives, libertés nationales, de
@@ -2384,7 +2384,7 @@ sommes coincés. Nous n'avons pas fait ce réel, ou du
 moins nous avons contribué bien peu à le faire; nous
 en sommes aussi peu responsables ; ayons-en du remords si nous le voulons, mais qu'au moins ce remords
 ne se résolve pas en fausses délicatesses, réellement
-injustes et barbares pour plusieurs. Quand nous ména- È
+injustes et barbares pour plusieurs. Quand nous ména-
 geons les personnalités que nous devons attaquer, pour
 cette seule raison que nous ne voulons pas faire des
 personnalités, comme les coups de cognée ou de hache
@@ -2757,7 +2757,7 @@ les dispositions qui nous ont constitué en parti de classe et
 d'opposition, je n'aurais jamais consenti à sanctionner la
 funeste tactique des excommunications.
 
-Je crois que le parti socialiste ne doit proscrire aucun j
+Je crois que le parti socialiste ne doit proscrire aucun
 effort loyal, aucune énergie, aucune valeur, si ces efforts, ces
 énergies et ces valeurs peuvent accroître son action et son
 
@@ -2991,7 +2991,7 @@ se terminait par une adhésion précise au communisme.
 Que ceux des signataires du manifeste me dénonçant
 comme un prétendu socialiste, un dupeur du prolétariat, et
 comme ayant méconnu la lutte de classe, qui ont arboré
-aussi franchement le drapeau communiste de l'expropriation capitaliste et de la lutte de classe, lèvent la main! k
+aussi franchement le drapeau communiste de l'expropriation capitaliste et de la lutte de classe, lèvent la main!
 
 Il est vrai que j'ai été battu. Ça m'apprendra à ne pas af-
 
@@ -3164,7 +3164,7 @@ on ne m'aurait pas donné lecture au préalable, déclaration
 que j'avais déjà faite avec Carnaud, au sein du conseil ”
 national, en présence de Guesde et de Lafargue.
 
-Je désapprouve toutes les critiques qui ont été faites ÿ
+Je désapprouve toutes les critiques qui ont été faites
 contre certains membres du parti socialiste, puisque l'ancienne tactique de la lutte de classe, qui consistait à ne
 jamais contracter d'alliance avec les partis bourgeois, a été
 abandonnée depuis bien longtemps déjà par tous les signataires de ce manifeste, sans qu'aucun d'eux ait jamais
@@ -3873,7 +3873,7 @@ N'ont pas pris part au vote les citoyens Chassaing et Narbonne.
 
 Tous les autres citoyens ont voté pour.
 M. LE PRÉSIDENT. — Je donne lecture du deuxième para-
-graphe : l
+graphe
 
 jeune ouvrière de seize à vingt ans ne pourra jamais
 excéder la moitié de la durée de la journée de travail fixée
@@ -3928,7 +3928,7 @@ Vous pourrez alors, avec deux équipes d'enfants très distinctes ne pouvant jam
 l'une sur l'autre, déterminer une durée de travail régulière.
 
 Vous ne pouvez le nier, la solution qui consiste à proté-
-ger à la fois l'enfant et l'ouvrier adulte répond complète- j;
+ger à la fois l'enfant et l'ouvrier adulte répond complète-
 ment au problème que la commission nous invite à ré-
 soudre : elle le résout à l'avantage de l'ouvrier et de l'enfant.
 
@@ -3944,7 +3944,7 @@ Il y a une demande de scrutin signée de MM. Walter,
 
 Nombre des votants. .".,.11 0101. AN ONENNNNSES
 
-Pour adoption: eee MO OUEIERE 97
+Pour adoption: eee MO OUEIERE
 
 La Chambre des députés n'a pas adopté.
 
@@ -3997,7 +3997,7 @@ par la force même des choses.
 La loi l'a déjà établie partiellement dans divers pays.
 C'est ainsi que déjà depuis de nombreuses années les ateliers fédéraux aux États-Unis sont régis par la loi du tra-
 vail de huit heures. Ce n'est pas seulement pour les ateliers
-fédéraux, mais encore dans nombre d'États, par exemple k
+fédéraux, mais encore dans nombre d'États, par exemple
 dans l'État de New-York, que nous voyons les travaux pu-
 blics exécutés sous la loi de la journée de huit heures.
 Les effets en ont été excellents, et chaque rapport fait
@@ -4033,7 +4033,7 @@ que sans abaissement des salaires la journée de travail
 était réduite à huit heures.
 
 le ministre du commerce disait, il y a quelques instants, qu'il jugeait impossible d'établir immédiatement la
-journée de huit heures. j
+journée de huit heures.
 
 Le gouvernement anglais, lui, n'a pas hésité à décréter
 pour tous les ateliers la journée de huit heures et à en réaliser l'application.
@@ -4058,10 +4058,10 @@ tant pour lui-même, patron, que pour ses ouvriers. À ce
 propos, je dirai que l'introduction de cette journée de huit
 heures dans l'industrie est non seulement d'intérêt privé
 mais aussi réellement d'intérêt national, que c'estune vraie ‘4
-réforme d'intérêt public sans dommage pour personne. f
+réforme d'intérêt public sans dommage pour personne.
 
-Telle qu'elle est établie maintenant dans les cas particu- ù
-liers dont j'ai cité les exemples, la journée de huit heures d,
+Telle qu'elle est établie maintenant dans les cas particu-
+liers dont j'ai cité les exemples, la journée de huit heures
 ne nous donne pas la satisfaction que nous sommes en
 droit d'espérer, car nous voudrions limiter en même temps
 que la durée de la journée de travail l'intensité même du
@@ -4082,9 +4082,9 @@ allemands et jusqu'en Russie, prouve que la production, .
 n'a pas été réduite quand on a réduit seulement la durée de
 la journée de travail. Ce n'est pas seulement dans les ateliers de construction mécanique, de chimie, mais aussi dans
 les ateliers de tissage que la journée de huit heures donne
-de bons effets. d
+de bons effets.
 
-Vous vous rappelez l'expérience que j'ai citée ici d'une i
+Vous vous rappelez l'expérience que j'ai citée ici d'une
 maison de tissage de Brünn, dont le patron a déclaré que
 la réduction de la journée de dix heures à huit heures, bien ee
 loin de causer aucun préjudice, avait procuré de nombreux
@@ -4094,7 +4094,7 @@ Mais ce qu'il nous faut, ce n'est pas une réforme locale et
 individuelle, mais la réforme, la journée de huit heures
 généralisée par la loi et capable alors de produire tous ses
 Si l'expérience faite dans les ateliers publics et privés
-montre que la journée de huit heures est avantageuse à la n
+montre que la journée de huit heures est avantageuse à la
 production, elle montre aussi qu'elle est pour les ouvriers
 plus avantageuse encore.
 Le fait est indéniable, et du moment qu'il est reconnu
@@ -4127,7 +4127,7 @@ cette loi, pourtant insuflisante.
 
 C'est pourquoi nous demandons, non pas que l'expérience
 privée, non pas seulement que telle ou telle industrie éta-
-blisse la journée réduite de travail, mais que la loi l'établisse dans toutes les industries. Le relèvement individuel j
+blisse la journée réduite de travail, mais que la loi l'établisse dans toutes les industries. Le relèvement individuel
 des salaires obtenu par la diminution des heures de travail
 dans telle ou telle industrie serait certes un progrès, mais ce
 ne serait qu'une expérience. Or, l'expérience est faite maintenant : la journée de huit heures est bonne, nécessaire,
@@ -4139,7 +4139,7 @@ que vous n'allongerez pas la durée de la journée de travail
 de l'enfant, que vous ne vous contenterez pas d'une réduc-
 
 tion à venir, d'une promesse de réduction dans la durée de
-la journée de l'adulte, que le Sénat repousserait, mais de i
+la journée de l'adulte, que le Sénat repousserait, mais de
 décider que la journée sera réduite à huit heures pour
 l'adulte et à moitié pour l'enfant. Vous montrerez ainsi
 votre bonne volonté, et vous pouvez être certains que, si !
@@ -4152,7 +4152,7 @@ Sénat, les résistances patronales et les résistances gouver- à
 Cette réforme est la plus importante que nous puissions
 faire ; c'est une réforme sociale, politique et ouvrière: ce
 sera l'affermissement définitif de la République, et an
-moment où l'on parle de mesures de défense républicaine, x
+moment où l'on parle de mesures de défense républicaine,
 on ne peut en prendre de plus efficace. En associant ainsi
 vos efforts à ceux de la classe ouvrière, vous travaillerez
 la fois et pour elleet pour la République /Très bien! très
@@ -4163,8 +4163,8 @@ M. LE RAPPORTEUR, — La commission etle Gouvernement
 les repoussent.
 M. LE PRÉSIDENT. — Il y a une demandede scrutin, signée
 de MM. Walter, Vaillant, Bourrat, Poulain, Lamendin,
-Nombre! des votants 41. 04 cute EONENTS F
-Majorité absolue. le. CREUSER 44
+Nombre! des votants 41. 04 cute EONENTS
+Majorité absolue. le. CREUSER
 La Chambre des députés n'a pas adopté.
 Pour ladophon rip
 
@@ -4195,13 +4195,13 @@ M. LE PRÉSIDENT. — Vous allez statuer, messieurs.
 
 Je consulte la Chambre sur le renvoi de la discussion
 
-(La Chambre, consultée, décide que la discussion continue.) i
+(La Chambre, consultée, décide que la discussion continue.)
 
 notre amendement que de quelques mots seulement. Il se
 
 semble au premier abord, car la commission elle-même
 indique que la durée de la journée de travail sera de dix
-heures dans un délai de six années. Mon premier para- é
+heures dans un délai de six années. Mon premier para-
 graphe pose le principe de la fixation à dix heures du
 maximum de cette durée pour toutes les catégories de travailleurs, mais, étant donné que la commission et le Gouvernement ont pensé qu'il était nécessaire d'accorder un
 délai pour les catégories qui font en ce moment plus de
@@ -4215,12 +4215,12 @@ vailleurs, qui, d'après la commission, feraient toutes onze
 heures, puis dix heures et demie et dix heures, je distrais
 de ces quatre catégories une seule, celle des jeunes enfants
 qui ont moins de seize ans et qui, eux, comme sous l'application de la loi du 2 novembre 1892, ne pourront pas être
-astreints à un travail de plus de dix heures, laissant les i
+astreints à un travail de plus de dix heures, laissant les
 trois autres catégories, c'est-à-dire les jeunes gens de seize
 à dix-huit ans, les femmes et les adultes travailler onze
 heures, cette durée de onze heures devant être réduite
-dix heures dans un délai à fixer. ÿ
-C'est là un texte transactionnel entre le désir de la com- s
+dix heures dans un délai à fixer.
+C'est là un texte transactionnel entre le désir de la com-
 mission et du Gouvernement qui entendent laisser un délai
 pour arriver à la journée de dix heures, et, d'autre part, le
 désir d'un très grand nombre de nos collègues qui veulent
@@ -4271,7 +4271,7 @@ loi pour l'enfant.
 C'est pourquoi j'insiste d'une façon toute particulière pour
 
 l'adoption de l'amendement de mon collègue et ami
-M. Groussier. /Applaudissements à l'extrême gauche) J
+M. Groussier. /Applaudissements à l'extrême gauche)
 M. LE PRÉSIDENT. — Je mets aux voix l'amendement de
 M. Groussier et ses collègues.
 M. CuaRLes Ferry, président de la commission. — La com- À
@@ -4279,10 +4279,10 @@ mission, d'accord avec le Gouvernement, repousse l'amendement.
 de MM. Groussier, Walter, Vaillant, Renou, Poulain, Paschal Grousset, Lamendin, Laloge, Fournière, Florent,
 La Chambre des députés n'a pas adopté.
 Nombre des votants," IE CENTRE ASS
-La Chambre des députés n'a pas adopté. d
+La Chambre des députés n'a pas adopté.
 Tous les citoyens ont voté pour.
 Ce cahier est composé par des ouvriers syndiqués
-Suresnes. — Imprimerie G.-A. RicHarD & C!*, 9, rue du Pont. — 1950 14
+Suresnes. — Imprimerie G.-A. RicHarD & C!*, 9, rue du Pont. — 1950
 
 qui nous servirions utilement des abonnements éventuels
 ou des abonnements gratuits payés d'ailleurs
@@ -4294,7 +4294,7 @@ communication, c'est-à-dire que nous donnons à chacun
 des deux le nom et l'adresse de la personne — qui reçoit
 
 l'abonnement payé, — qui paye l'abonnement reçu.
-Ce troisième cahier vaut 1 fr. 50.
+Ce troisième cahier vaut 1 fr.
 Nous vendons l'exemplaire au prix marqué: nous
 vendons pour la propagande
 
@@ -4322,8 +4322,8 @@ Au 31 janvier les souscriptions mensuelles régu=
 _lières, les souscriptions extraordinaires, les abonnements fermes et les abonnements gratuits payés
 d'ailleurs nous avaient donné. . . . . 1,580 fr.
 la même date le premier établisse- er
-ment et l'établissement des deux pré- £ Emiers cahiers nous avaient coûté . . . 2,140 fr. 40 14
-Nos recettes montaient donc à 73 °|, 4
+ment et l'établissement des deux pré- £ Emiers cahiers nous avaient coûté . . . 2,140 fr.
+Nos recettes montaient donc à 73 °|,
 de nos dépenses.
 . Nous avions donc à cette date un “+
 égal environ à 27 °|, de nos -dépenses.
@@ -4333,7 +4333,7 @@ au moins possible: mais il dépend de nos correspondants
 de faire monter les recettes.
 Je dois à plusieurs correspondants des réponses prie
 vées. Je prie ces correspondants de vouloir bien me
-pardonner si je fais passer devant la rédaction, 1a
+pardonner si je fais passer devant la rédaction,
 fabrication et l'administration de ces cahiers. * “4
 
 Nous prions nos correspondants de vouloir bien nous « pardonner si le quatrième cahier paraît en retard Ou

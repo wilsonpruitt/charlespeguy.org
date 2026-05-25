@@ -301,7 +301,7 @@ Raison et Révélation
 4. *Demande.* — Comment un homme peut-il montrer sa foi dans la vérité ?
 *Réponse.* — En élevant sa conduite à la hauteur de son savoir.
 
-(1) La vérité est définie par Thomas d'Aquin « *adaequatio intellectus et rei* ». Kirchhoff définit le savoir une « description de faits ». — Cf. Carus. *Primer of Philosophy,* pages 37 et 46.
+(1) La vérité est définie par Thomas d'Aquin « *adaequatio intellectus et rei* ». Kirchhoff définit le savoir une « description de faits ». — Cf. Carus. *Primer of Philosophy,* pages 37 et
 (2) Le savoir nous révèle les choses telles qu'elles sont ; donc la vérité, qui est le plus haut savoir, est un reflet de la réalité. « La sagesse, » dit Schopenhauer, n'est pas la perfection purement théorique mais aussi pratique ; c'est la connaissance ultime et vraie de toutes choses en gros et en détail, qui a tellement pénétré l'être humain qu'elle apparaît comme le guide de toutes ses actions. » — Zimmern. *Vie de Schopenhauer.*
 
 *le monde sans Dieu*
@@ -422,7 +422,7 @@ j'obéis intelligemment et avec l'approbation de ma raison, alors c'est à ma ra
 
 ————
 
-(1) « Perdu à la nuit tombante dans une forêt, je n'ai qu'une faible chandelle, dit-il, c'est mon guide. Arrive un étranger : : Souffllez votre chandelle », dit-il, « et vous serez à même de mieux voir le chemin ». Cet étranger est un théologien. » (Diderot). — « Toutes les religions ont demandé le sacrifice de la raison. La religion de l'avenir rendra ce sacrifice inutile. » Cf. la brochure de l'auteur *Religion of the future*, page 6.
+(1) « Perdu à la nuit tombante dans une forêt, je n'ai qu'une faible chandelle, dit-il, c'est mon guide. Arrive un étranger : : Souffllez votre chandelle », dit-il, « et vous serez à même de mieux voir le chemin ». Cet étranger est un théologien. » (Diderot). — « Toutes les religions ont demandé le sacrifice de la raison. La religion de l'avenir rendra ce sacrifice inutile. » Cf. la brochure de l'auteur *Religion of the future*, page
 (2) Théodore de Bèze, le successeur de Jean Calvin comme chef de l'église réformée de Genève, fit publiquement l'éloge de Poltrot de Meré, l'assassin de François de Guise, prince catholique, et lui promit une croix lumineuse dans le ciel. Jean Calvin lui-même, au nom de « la parole de Dieu », condamna Michel Servet aux flammes. L'assassin d'Henri III de France n'est presque pas dénoncé par les divins des mains des catholiques. Son nom fut introduit dans les litanies de l'église, [?] son portrait fut exhibé sur les autels, et son livre forfait fut assimilé aux sacres mystères de la religion. Le maire de Jacques Clément, l'assassin, vint à Paris demander une récompense pour le crime de son fils, et les prêtres organisèrent une souscription en sa faveur, et la portèrent en procession comme la femme bénie qui avait donné le jour à l'assassin d'un roi qui favorisait les hérétiques... Cf. *Esprit de la ligne*, Estoile, volume III, page 94 ; aussi Jules Simon, *la liberté de conscience*, pages 86, 87. — On pourrait aisément fournir bien des exemples similaires, pour montrer que la Révélation, loin de protéger les hommes, leur a souvent rendu plus violentes. Tout les supposés enseignements de l'ancien Testament cités ici commis avec la formule : « Et le Seigneur parla à Moïse, disant, etc. »
 
 *le monde sans Dieu*
@@ -799,7 +799,7 @@ d'Écritures saintes nous comprenons tous les livres canoniques du Vieux et du N
 
 ————
 
-(1) « Il existe des personnes vulgaires et il faut qu'elles aient leur religion. » (James Martineau) — Mais ne laissons pas oublier qu'il existe aussi des hommes et des femmes cultivés, savants et raffinés, qui ont un droit égal à avoir une religion pour eux. — Voir les *James Martineau's Speeches*, etc., page 433.
+(1) « Il existe des personnes vulgaires et il faut qu'elles aient leur religion. » (James Martineau) — Mais ne laissons pas oublier qu'il existe aussi des hommes et des femmes cultivés, savants et raffinés, qui ont un droit égal à avoir une religion pour eux. — Voir les *James Martineau's Speeches*, etc., page
 (2) Quand l'Église était toute puissante, personne n'avait la permission de rejeter une partie quelconque de la Bible. Pour sanctionner les persécutions contre les savants et les philosophes, on citait les versets 18 et 19 du dernier chapitre de l'Apocalypse, qui menacent d'horribles fléaux tous ceux qui ajouteront ou retrancheront quelque chose à la Parole écrite. L'auteur d'un livre hérétique devait signer la rétractation suivante pour échapper au bûcher : « L'auteur a fait une soumission louable et réprouvé son livre. » *(Auctor laudabiliter se subjecit et opus reprobavit.)*
 
 1. *Demande.* — Dites-moi quelque chose des idées courantes au sujet de Dieu.
@@ -1398,7 +1398,7 @@ meilleur en grandissant, il est impossible qu'il ait été parfait depuis sa nai
 *Réponse.* — Il y en eut plusieurs. (3)
 
    (1) Une tradition de l'Église primitive relatait que Jésus avait vécu jusqu'à près de cinquante ans.
-   (2) « N'est-ce pas le charpentier, le fils de Marie, le frère de Jacques, de Joses, de Jude et de Simon? Ses sœurs ne sont-elles pas ici parmi nous? » — Marc, VI, 3.
+   (2) « N'est-ce pas le charpentier, le fils de Marie, le frère de Jacques, de Joses, de Jude et de Simon? Ses sœurs ne sont-elles pas ici parmi nous? » — Marc, VI,
    (3) Plusieurs centaines d'années avant que Jésus fût né, Gautama, le Buddha, était adoré comme le Sans Péché. On racontait qu'il était né sans avoir eu de père, et qu'il faisait des miracles. Les mêmes choses ont été dites de Sérafis, d'Apollonius, et de bien d'autres. Les Chinois croient que Lao-Tseu, le fondateur d'une des religions de cet empire, est né à l'âge de quatre-vingt-quatre ans, avec des cheveux gris, afin qu'il pût posséder la sagesse dès sa naissance.
 
 33. *Demande.* — Eurent-ils eux aussi leurs fidèles?
@@ -1944,7 +1944,7 @@ munié les Ariens (1) et a fulminé l'anathème contre eux pour avoir mis en dou
   29. *Demande*. — Comment ce symbole recommande-t-il la force matérielle contre l'hérésie ?
   *Réponse*. — Il dit : « Le pouvoir séculier a le droit et le devoir de prendre des mesures pour que l'unité et la paix soient maintenues dans les Églises, *pour que toutes les hérésies soient supprimées* et pour que les abus du culte soient empêchés ; et l'article 4 du chapitre XX (3) porte : « Ils (les hérétiques) peuvent être valablement cités à comparaître et poursuivis par *le pouvoir séculier*. » Et le verset 109 du catéchisme porte que les
 
-  (1) Les calvinistes modernes admettent la *probabilité* de salut pour *tous* les enfants. — Schaff, volume I, page 795.
+  (1) Les calvinistes modernes admettent la *probabilité* de salut pour *tous* les enfants. — Schaff, volume I, page
   (2) Le péché originel était considéré comme si grand qu'un des clergymen déclara : « Si un homme n'était jamais né, il serait néanmoins damné à cause de ce péché. »
   (3) Les Eglises américaines ont modifié cet article.
 
@@ -2038,7 +2038,7 @@ pur partout où il le trouve. De la même manière il peut croire à la divinit�
   17. *Demande*. — Mais un prêtre n'est-il pas obligé d'attendre que ses fidèles soient prêts pour des idées nouvelles ?
   *Réponse*. — Oui, si son intention est de *suivre* ses fidèles, mais non, s'il désire être un éducateur et un guide.
 
-  (1) James Martineau cite la louange suivante déversée par un Français sur cette catégorie de prêtres : « Notre clergé, bien certainement, est tout entier parjure ; mais aussi, comme il est délicieusement libéral. » — *Essays and Reviews*, volume II, page 187.
+  (1) James Martineau cite la louange suivante déversée par un Français sur cette catégorie de prêtres : « Notre clergé, bien certainement, est tout entier parjure ; mais aussi, comme il est délicieusement libéral. » — *Essays and Reviews*, volume II, page
 
                               Prière et Salut
 
@@ -2181,7 +2181,7 @@ louanges, des pénitences et des offrandes, nous pouvons influencer sa volonté.
   9. *Demande*. — Mais est-elle toujours un malheur ?
   *Réponse*. — Quand elle termine une carrière utile, sépare des cœurs aimants et rend des enfants orphelins, elle paraît une calamité. Mais quand elle apporte la délivrance à ceux qui sont fatigués, âgés et souffrants, elle est une bénédiction. (1)
 
-  (1) « Parmi les légendes à moitié païennes qui avaient cours en Irlande au Moyen-Age, une des plus belles est celle des Iles de la vie et de la mort. Dans un certain lac, à Munster, est-il raconté, se trouvaient deux îles ; dans la première la mort ne pouvait jamais entrer, mais l'âge, la maladie et le dégoût de la vie y étaient tous connus. Ils firent leur œuvre à tel point que les habitants, fatigués de leur immortalité, apprirent à jeter leurs yeux sur l'autre île comme sur un port de refuge ; ils lancèrent leurs barques sur les flots sombres ; ils touchèrent son rivage, et furent en repos. » — Lecky, *History of European morals*, volume I, page 214.
+  (1) « Parmi les légendes à moitié païennes qui avaient cours en Irlande au Moyen-Age, une des plus belles est celle des Iles de la vie et de la mort. Dans un certain lac, à Munster, est-il raconté, se trouvaient deux îles ; dans la première la mort ne pouvait jamais entrer, mais l'âge, la maladie et le dégoût de la vie y étaient tous connus. Ils firent leur œuvre à tel point que les habitants, fatigués de leur immortalité, apprirent à jeter leurs yeux sur l'autre île comme sur un port de refuge ; ils lancèrent leurs barques sur les flots sombres ; ils touchèrent son rivage, et furent en repos. » — Lecky, *History of European morals*, volume I, page
 
   10. *Demande*. — Pourrait-il exister aucun progrès dans le monde sans la mort ?
   *Réponse*. — Comme les vieilles feuilles doivent tomber des branches pour faire place aux nouvelles, — plus vertes, — ainsi nous devons mourir pour faire place aux hommes et femmes de l'avenir, — meilleurs que nous.
@@ -2330,7 +2330,7 @@ mais elles s'incorporent à de nouvelles formes de la vie, et ainsi de suite tou
   35. *Demande*. — Quel effet une pareille croyance produirait-elle sur nous ?
   *Réponse*. — Elle nous encouragerait à ne cultiver en nous, — pour l'amasser comme un trésor, — que ce qui est vrai et noble, pour en faire le cerveau et l'âme de l'avenir. (2)
 
-  (1) « Sous cet aspect la mort cesse d'apparaître comme un anéantissement ; car notre âme ne peut pas plus être effacée que la loi de causalité ne peut être suspendue. » — Paul Carus, *Whence and Wither*, page 135.
+  (1) « Sous cet aspect la mort cesse d'apparaître comme un anéantissement ; car notre âme ne peut pas plus être effacée que la loi de causalité ne peut être suspendue. » — Paul Carus, *Whence and Wither*, page
   (2) Quand nous serons au-dessus de cette illusion que l'existence est limitée à notre individualité personnelle, quand nous étendrons notre être jusqu'à le fondre dans l'humanité, qui est immortelle, et par laquelle nous continuons à vivre à jamais, — la mort, à la vérité, ne sera plus que le « clignement d'une paupière qui n'interrompt pas le regard ».
 
                               La fin suprême de l'homme
@@ -2407,7 +2407,7 @@ son autorité que nous pouvons appeler la « conscience ».
   22. *Demande*. — Quelles autres théories de la conscience ont cours ?
   *Réponse*. — Quelques philosophes enseignent que la conscience est une faculté ou organe spirituel, distinct, dont la fonction consiste à distinguer par intuition le Bien du Mal. On admet aussi qu'il existe une loi morale, qui est éternelle et absolue, et dont les comman-
 
-  (1) Nos habitudes nous relient au passé, notre liberté à l'avenir ; le conflit entre l'habitude ou instinct et la liberté ou volonté est la lutte pour la suprématie entre le Passé et l'Avenir. L'homme est le champ clos de cette lutte. Le professeur Clifford définit ainsi la conscience : « Les instincts accumulés de la race coulant à flots dans chacun de nous, et débordant comme si l'océan était versé dans une tasse » — page 134.
+  (1) Nos habitudes nous relient au passé, notre liberté à l'avenir ; le conflit entre l'habitude ou instinct et la liberté ou volonté est la lutte pour la suprématie entre le Passé et l'Avenir. L'homme est le champ clos de cette lutte. Le professeur Clifford définit ainsi la conscience : « Les instincts accumulés de la race coulant à flots dans chacun de nous, et débordant comme si l'océan était versé dans une tasse » — page
 
                               *le monde sans Dieu*
 
@@ -2461,11 +2461,11 @@ dements sont impératifs, (1) mais tout ceci est de la spéculation métaphysiqu
 
   (1) Giordano Bruno et de Tocqueville.
 
-Chapitre premier. — Raison et Révélation . . . . . . . 13
-Chapitre II. — La Révélation chrétienne . . . . . . . . 23
+Chapitre premier. — Raison et Révélation . . . . . .
+Chapitre II. — La Révélation chrétienne . . . . . . .
 
-Chapitre VIII. — Les enseignements de Jésus . . . . . 72
-Chapitre XVI. — La fin suprême de l'homme . . . . . . 128
+Chapitre VIII. — Les enseignements de Jésus . . . .
+Chapitre XVI. — La fin suprême de l'homme . . . . .
 
   *Nous avons donné le bon à tirer après corrections pour deux mille exemplaires de ce onzième cahier le mardi premier mars 1904.*
 

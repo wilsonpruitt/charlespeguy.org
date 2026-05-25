@@ -69,7 +69,7 @@ ne sais pas si elle est en paradis, parce que je suis his-
 torien et que nous n'avons aucun monument qui nous
 renseigne sur l'histoire du paradis.
 — Nous venons te souhaiter la bonne année, répéta
-gravement Pierre Baudouin. Au temps que nous vivons, F
+gravement Pierre Baudouin. Au temps que nous vivons,
 cela veut dire que nous te souhaitons que tu sois et que
 tu demeures juste et vrai. Nous ie souhaitons aussi que
 beaucoup d'honnêtes gens t'apportent beaucoup de bonne
@@ -190,7 +190,7 @@ femme de chambre et donner à cette ordure les propor-
 tions d'un événement ? Tout ce que tu publies aujourd'hui a déjà été dit la dernière fois. Ce n'est que du
 
 5° Les annonces de l'école des hautes études sociales
-occupent 15 pages de ton cahier! k
+occupent 15 pages de ton cahier!
 
 — Il pouvait dire seize.
 
@@ -198,7 +198,7 @@ occupent 15 pages de ton cahier! k
 
 — de ton cahier! Cette publication n'a aucune utilité, ni pour les lecteurs de province qui n'iront jamais
 à cette école, ni pour les lecteurs de Paris qui ont pu lire
-ces afliches sur tous les murs. Ne pouvais-tu remplir ces j
+ces afliches sur tous les murs. Ne pouvais-tu remplir ces
 pages par quelque chose de plus utile, par une critique d'un abus dont nous souffrons, par exemple ?
 
 6° L'amplification de Boutroux est parfaitement insignifiante, quand elle n'est pas infectée d'esprit métaphysique et bourgeois.
@@ -317,7 +317,7 @@ les interruptions qu'il m'avait promis qu'il ne ferait pas.
 Mais quand j'eus fini Pierre Deloire me demanda froidement
 — C'est tout?
 
-— Non. Celui de mes camarades qui fut pendant cinq j
+— Non. Celui de mes camarades qui fut pendant cinq
 
 bonnes années mon ami le plus proche m'a écrit deux
 lettres qui m'ont fait beaucoup plus de peine.
@@ -465,14 +465,14 @@ rien écrit qui ressemblât à ce que je voulais écrire.
 Mais je croyais que mes amis ne m'abandonneraient
 pas, puisque je ne serais pour ainsi dire que leur manifestation.
 
-Je me présentai sans aucun retard devant le conseil f
+Je me présentai sans aucun retard devant le conseil
 d'administration de la Société Nouvelle. Je demandai,
 simple formalité, que la maison éditât la publication
 que je préparais. Je mnrattendais que cela me fût
 accordé sans débat. Le sens de cette publication était
 conforme à la conscience de mes cinq amis et camarades. Je ne demandais à la Société que le travail
 d'administration, que je proposais de payer. Tout le
-déficit éventuel de l'édition me reviendrait. Je parlais ÿ
+déficit éventuel de l'édition me reviendrait. Je parlais
 encore et j'indiquais rapidement le plan de l'opération,
 que les conseillers m'interrompirent. Et au ton de leur
 interruption j'eus l'impression soudaine et ineffaçable
@@ -557,14 +557,14 @@ sion universitaire ; question d'Alsace-Lorraine ; la
 La bee religieuse ; Léon France et l'Allemagne
 et le catholicisme social
 seignant; interpellation Thierry | double alliance »; le Tsar
-L'enseignement laïque et l'en- ï
+L'enseignement laïque et l'en-
 seignement clérical ; réponse à La France en Orient; les masM. d'Hulst; sacres d'Arménie; la guerre de
 
 Science et socialisme ; l'indépendancecrétoise; la guerre
 
 des socialistes dans l'enseigne- 4 nie
 ment bourgeois ; La guerre hispano-américaine
-La question sociale dans l'en- k
+La question sociale dans l'en-
 seignement. L'affaire de Fashoda.
 
 En même temps je demandai au conseil à faire en
@@ -688,7 +688,7 @@ défendis pas. Quand lauteur eut fini sa lecture je
 
 générale pour un cas individuel. Ceux de vous qui
 après avoir entendu l'accusation voudront m'entendre
-en ma défense me trouveront au siège des cahiers, 19,
+en ma défense me trouveront au siège des cahiers,
 rue des Fossés-Saint-Jacques, le lundi et le jeudi, de
 
 — Y allèrent-ils ?
@@ -1152,7 +1152,7 @@ guerre. Mais qu'est-il advenu ? et c'est ici, vous m'entendez, qu'intervient ce 
 Les citoyens qui se préparaient aux travaux déplorables
 de la guerre, au lien de garder précieusement en eux
 
-l'esprit de la cité, se laissèrent contaminer par les pas- ÿ
+l'esprit de la cité, se laissèrent contaminer par les pas-
 sions qui naissent malheureusement de la guerre. Et il
 
 n'y eût eu que demi-mal, et contamination partielle.
@@ -1267,7 +1267,7 @@ aille voter pour tels ou tels candidats au conseil municipal, au conseil d'arron
 ou national, que nous nommons Chambre des Députés.
 Mais le citoyen qui, son bulletin mis, rentrant à la
 maison, dirait à sa femme : à présent nous allons voter
-pour savoir si nous ferons ce soir un pot au feu me sem- ÿ
+pour savoir si nous ferons ce soir un pot au feu me sem-
 blerait un dangereux maniaque. Pourtant c'est là que il
 nous en sommes. La votation parlementaire bourgeoise
 ne nous a pas seulement contaminés en ce sens que
@@ -1322,7 +1322,7 @@ fidèlement déférente. Le censeur n'admet pas que le
 texte imprimé paraisse seul, pauvre et nu au regard du
 simple citoyen. Le censeur n'admet pas que le discours
 parvienne seul, pauvre et nu à l'ouïe du simple citoyen. De
-Honte à ces habilleurs! Nous demandons qu'en ce sens- h
+Honte à ces habilleurs! Nous demandons qu'en ce sens-
 
 là il n'y ait parmi nous aucune autorité individuelle, et
 encore moins une autorité collective. Nous demandons
@@ -1374,7 +1374,7 @@ Tout cela se tient. L'autoritaire ment, en ce sens que
 pour asseoir son autorité il faut qu'il donne au propagandisé une image menteuse du monde. Jamais le
 monde n'a marché aussi mal qu'aujourd'hui. Les
 massacres d'Arménie et la digestion de la Finlande, les
-sadismes africains et les sadismes chinois, la condam- s
+sadismes africains et les sadismes chinois, la condam-
 nation de Rennes et l'alcoolisme français, la guerre de
 Madagascar et la guerre du Transvaal, tant de guerres
 et tant d'épouvantes où le socialisme universel n'a rien
@@ -1438,9 +1438,9 @@ sommes ni des chevaux ni des cyclistes. Nous ne
 faisons pas des courses. Nous voulons faire un travail
 raisonnable. Nous ne voulons pas de propagandeurs (
 professionnels. Nous n'admettons pas que la propa-
-gande ne soit pas la communication pure et simple de ñ
+gande ne soit pas la communication pure et simple de
 la vérité que l'on sait. Ce qui revient à dire que c'est
-Péguy l'accusé qui fait de la propagande et que ce sont k
+Péguy l'accusé qui fait de la propagande et que ce sont
 les censeurs qui n'en font pas Ce sera le premier point
 de ma défense. Fi
 

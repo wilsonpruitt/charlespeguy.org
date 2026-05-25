@@ -502,7 +502,7 @@ Prenant la parole après le ministre, le général Legrand déclara que l'effect
 
 562.000 hommes. Aux termes du contre-projet, l'effectif minimum serait de 600.000 hommes et l'effectif à l'incorporation de 658.000.
 
-La Commission prit donc notre contre-projet pour base de ses délibérations. Elle adopta, dès la séance suivante, notre article 3 (fixité des effectifs), par 16 voix contre 7, et les chiffres du Conseil supérieur de la Guerre qui furent inscrits à l'article 2.
+La Commission prit donc notre contre-projet pour base de ses délibérations. Elle adopta, dès la séance suivante, notre article 3 (fixité des effectifs), par 16 voix contre 7, et les chiffres du Conseil supérieur de la Guerre qui furent inscrits à l'article
 
 M. Paté a donné dans son rapport un tableau comparatif du projet du Gouvernement, de notre contre-projet et du texte qui fut finalement adopté par la Commission. J'ai déjà rappelé que la Commission avait accepté le principe de la deuxième portion du contingent, mais en la constituant en majorité par le tirage au sort. Le nombre des « élus » n'en serait pas accru ; tous les « appelés » participaient à l'espoir d'une libération anticipée ; on pouvait soutenir que l'institution de la seconde portion du contingent s'en trouverait consolidée. Au chapitre des engagements et rengagements, la Commission avait accepté nos principales propositions. Le général de Lacroix, ancien généralissime, écrivit que jamais loi de recrutement n'aurait été assise sur des fondements plus solides.
 
@@ -672,7 +672,7 @@ M. le président. — Je prie la Chambre d'écouter en silence un des Vice-Prés
 
 M. Joseph Reinach. — L'armée allemande du pied de paix, qui est aujourd'hui de 653.000 hommes, sera demain, au 1er octobre prochain, de 871.000 hommes, dont 37.000 officiers et 115.000 sous-officiers, presque tous rengagés.
 
-Défalcation faite de 63.000 hommes qui sont engagés au Maroc, notre armée active, sous le régime de la loi de 1905, est d'environ 580.000 hommes. Différence : 400.000 hommes. Notre armée du pied de paix est à l'armée allemande du pied de paix ce que 1 est à 2.
+Défalcation faite de 63.000 hommes qui sont engagés au Maroc, notre armée active, sous le régime de la loi de 1905, est d'environ 580.000 hommes. Différence : 400.000 hommes. Notre armée du pied de paix est à l'armée allemande du pied de paix ce que 1 est à
 
 Voilà le fait simple, le fait brutal qui a frappé d'abord l'opinion, lorsque l'annonce de cet extraordinaire effort militaire de l'Allemagne a été connu au mois de mars dernier. Et il a paru tout de suite que, du seul fait d'un tel accroissement numérique, entraînant une telle disproportion entre notre armée active et l'armée allemande, notre sécurité était gravement menacée et que notre indépendance pouvait l'être ; il était, par conséquent, urgent de prendre des mesures pour parer à un pareil péril. Cette énorme augmentation numérique de l'armée allemande n'est cependant, pour ainsi dire, que la moitié du danger dont nous sommes menacés. (Très bien ! très bien !)
 
@@ -1618,7 +1618,7 @@ J'ai dit précédemment quelle était l'étendue des connaissances militaires de
 
 La discussion générale ayant été close (1) avant que M. Jaurès ait pu prendre la parole, son contre-projet lui permettait d'y rentrer. Aussi bien en dit-il à peine quelques mots dans le discours qu'il prononça dans les deux séances des 17 et 18 juin.
 
-(1) Le passage à la discussion des articles fut voté par 381 voix contre 189 ; la déclaration d'urgence par 355 voix contre 190.
+(1) Le passage à la discussion des articles fut voté par 381 voix contre 189 ; la déclaration d'urgence par 355 voix contre
 
 M. Jaurès me prit constamment à parti. Il avait dans son dossier mon livre l'Armée toujours prête. Liseur admirable, il embelllit par son art les citations qu'il fit de mon rapport sur l'artillerie et de mes discours sur la loi des cadres. Ces citations avaient pour objet de me mettre en contradiction avec moi-même. Très ancienne tactique qui réussit assez souvent. (Voir la Logique parlementaire de Hamilton). Le fait nouveau des armements allemands était pour M. Jaurès comme s'il n'existait pas. Pour nous, c'était l'ultima ratio.
 
@@ -1824,7 +1824,7 @@ fallait pas se déterminer par des considérations politiques. Or des considéra
 
 Dès qu'apparut cette conséquence logique, automatique de l'incorporation à vingt ans, elle fut, pour beaucoup de partisans de la loi de trois ans, un argument en plus en faveur de la mesure projetée. Ils avaient approuvé de leur vote la forte déclaration par laquelle M. Barthou avait annoncé le maintien de la classe 1910 ; (1) ils auraient sanctionné, sans plus d'hésitation,
 
-(1) Séance du 15 mai : « Nous persistons dans une décision qui se confond pour nous avec l'accomplissement d'un devoir indiscutable. La loi de 1905, en conférant au Gouvernement le droit de maintenir la classe sous les drapeaux, a laissé juge d'apprécier sous sa responsabilité les circonstances et l'heure de sa décision... On peut affirmer que ces circonstances, dès aujourd'hui irréfutables, ne seront pas devenues, en octobre, moins pressantes et moins impérieuses. L'est semblable certitude qui intéresse la défense nationale impose au Gouvernement l'obligation d'arrêter et d'annoncer ses résolutions assez longtemps à l'avance pour qu'elles puissent recevoir à l'heure voulue leur réalisation... En ne préparant pas ces mesures, le Gouvernement faillirait au devoir que lui confère le souci de la défense nationale. » — L'ordre du jour approuvant la décision du Gouvernement fut voté par 59 voix contre 158.
+(1) Séance du 15 mai : « Nous persistons dans une décision qui se confond pour nous avec l'accomplissement d'un devoir indiscutable. La loi de 1905, en conférant au Gouvernement le droit de maintenir la classe sous les drapeaux, a laissé juge d'apprécier sous sa responsabilité les circonstances et l'heure de sa décision... On peut affirmer que ces circonstances, dès aujourd'hui irréfutables, ne seront pas devenues, en octobre, moins pressantes et moins impérieuses. L'est semblable certitude qui intéresse la défense nationale impose au Gouvernement l'obligation d'arrêter et d'annoncer ses résolutions assez longtemps à l'avance pour qu'elles puissent recevoir à l'heure voulue leur réalisation... En ne préparant pas ces mesures, le Gouvernement faillirait au devoir que lui confère le souci de la défense nationale. » — L'ordre du jour approuvant la décision du Gouvernement fut voté par 59 voix contre
 
 l'article du projet (1) portant que la loi s'appliquerait aux classes sous les drapeaux au moment de sa promulgation ; ils n'avaient pas pris au tragique, s'ils en avaient été émus, les mutineries de Toul, Belfort et Rodez ; ils ne s'inquiétaient pas à l'excès de la prédiction que des mouvements plus étendus éclateraient au mois d'octobre et qu'il y aurait des désertions en masse ; — tout de même, ils accueilleraient avec satisfaction une solution qui, sans que la défense nationale eût à en souffrir, permettrait d'éviter tout risque de troubles et de renvoyer dans leurs foyers des hommes qui ne croyaient devoir que deux années de service et qui s'étaient montrés à l'épreuve disciplinés et patriotes.
 
@@ -1922,7 +1922,7 @@ complexité du problème, mais avec la conviction que la solution esquissée ét
 
 M. Barthou et ses collègues ont, quelque temps après, pris d'autres positions. C'était leur droit absolu. Leur fut-il démontré que notre texte comportait plus d'inconvénients que d'avantages ? Nous n'y contredirions pas par un amour-propre d'auteurs qui serait puéril. Peut-être M. Barthou aurait-il pu qualifier autrement, devant la Haute Assemblée, la solution qui était devenue celle de sénateurs qui n'étaient point parmi les moins compétents sur les questions militaires. Répondant à M. Clemenceau, ayant affaire à aussi forte partie, il a, sans doute, cru nécessaire de frapper plus dur que juste afin de gagner le vote de la fraction de l'Assemblée qui hésitait. De fait, ce fut l'amendement Vincent (3) qui conduisit le Gouvernement et la Chambre à l'incorporation, presque totale, de la classe 1913, et, par conséquent, au renvoi total, en novembre, de la classe 1910. Et ce n'est pas moi qui reprocherai au Gouvernement de M. Barthou d'avoir, à plusieurs reprises, sacrifié, si important fût-il, l'accessoire au principal qui était le vote de la loi. Dans une bataille
 
-(1) Voir l'article 10 de l'amendement, paragraphe 1.
+(1) Voir l'article 10 de l'amendement, paragraphe
 (2) Voir même article, paragraphes 2 et suivants.
 
 aussi rude que celle qu'il conduisit, il ne suffit pas de résister, d'attaquer, de foncer, avec une belle vaillance, sur l'adversaire ; il n'est pas moins nécessaire de savoir louvoyer et « il y faut parfois, selon Mirabeau, plus de peine et de véritable habileté que pour combattre ». Ni le courage ni la souplesse n'ont manqué à M. Barthou. Avec des erreurs qui furent sans doute inévitables, mais qui ne sont pas irréparables, la loi, telle qu'elle est, restera pour son gouvernement un grand titre d'honneur.
@@ -2315,7 +2315,7 @@ Pour cette démocratie de paysans, de propriétaires, à laquelle vous vous int�
 
 M. Jaurès, malgré l'assurance qu'il affectait, redoutait-il le vote de l'amendement de M. Breton ? Quoi qu'il en soit, il reconnaissait que, réglementairement, légalement, l'égalité effective de M. Vincent comportait des exceptions.
 
-M. Charles Benoist se déclara hostile à l'amendement ; M. de Montebello demanda instamment à la Chambre de l'adopter. Il fut repoussé par 345 voix contre 217.
+M. Charles Benoist se déclara hostile à l'amendement ; M. de Montebello demanda instamment à la Chambre de l'adopter. Il fut repoussé par 345 voix contre
 
 L'article qui instituait le service de trois ans ne fut combattu que par M. Dejeante ; il tint à la Chambre, très loyalement, le langage qui était le sien et celui
 
@@ -2325,7 +2325,7 @@ Le paragraphe de l'article 18 : « De l'armée active pendant trois ans... » fu
 
 La suppression de ces deux articles fut demandée par M. Voilin. Il découvrit le jeu que M. Jaurès avait caché la veille. Le vote de l'amendement Vincent rendait superflus les articles sur les effectifs.
 
-« Dans le premier projet présenté par le ministre de la Guerre, dit M. Voilin, il n'était pas question du tout de modifier les effectifs et les cadres. » Les articles de notre contre-projet sur le minimum des effectifs n'avaient pas d'autre but que de « fixer le surnombre et de délimiter le nombre des congés ». — « Si la Commission et le Gouvernement considèrent l'application stricte de l'amendement de M. Daniel Vincent, ils doivent se ranger à mon avis et accepter la suppression de l'article 2
+« Dans le premier projet présenté par le ministre de la Guerre, dit M. Voilin, il n'était pas question du tout de modifier les effectifs et les cadres. » Les articles de notre contre-projet sur le minimum des effectifs n'avaient pas d'autre but que de « fixer le surnombre et de délimiter le nombre des congés ». — « Si la Commission et le Gouvernement considèrent l'application stricte de l'amendement de M. Daniel Vincent, ils doivent se ranger à mon avis et accepter la suppression de l'article
 
 fixant le minimum d'effectifs. » Et, soit qu'il crût, soit qu'il affectât de croire que le Gouvernement et la Commission seraient capables d'une pareille défaillance et tomberaient au piège : « S'il en est ainsi, je n'aurai pas à insister et, si la Commission et le Gouvernement acceptent la suppression des articles 2 et 3, je suis tout prêt à descendre de cette tribune. »
 
@@ -2573,7 +2573,7 @@ Il était rare que nous fussions, sur 44 membres, plus de 20 en séance. C'est l
 
 La motion préjudicielle de M. Jaurès sur les congés à longs termes avait été repoussée à égalité de voix, celle du président (M. de Montebello ce jour-là) étant prépondérante, 8 contre 8. Nous n'étions plus que 14 en séance lorsque mon amendement fut discuté au fond. M. Jaurès avait, avec raison, battu le rappel de ses amis. M. Bénazet et moi, nous défendîmes de notre mieux, contre l'une de ses plus furieuses attaques, notre amendement. Il avait déjà contre lui l'opposition du Gouvernement. S'il était réglementaire, s'il ne constituait, en droit, qu'une exception à la règle admise par la Chambre, il me faut bien convenir que l'exception était grosse. Pourtant, nous aurions pu le
 
-faire admettre par la Commission, ce qui aurait peut-être changé bien des choses, si, au moment du vote, le président Le Hérissé n'avait point fait une déclaration anormale. À l'ordinaire, comme président, il ne prenait point part au vote. C'était son droit d'y prendre part ; M. de Montebello et moi, lorsque nous présidions en son absence, nous ne nous abstenions pas des scrutins. Il avait été élu, la veille, sénateur. C'était son droit de continuer à siéger et à voter à la Chambre tant qu'il n'avait pas été validé au Sénat. Il demanda au Sénat d'ajourner sa validation, parce qu'il considérait de son devoir, et ce sentiment était honorable entre tous, de continuer à prendre toute sa responsabilité, comme député et comme président de la Commission de l'Armée, jusqu'au vote de la loi militaire. Mais il outrepassa ses droits en déclarant que, respectueux du vote de la Chambre sur l'amendement de M. Vincent, il donnerait, si la Commission acceptait le nôtre, sa démission de président. Le rapporteur fit, en ce qui le concernait, la même déclaration. Notre amendement fut repoussé par 9 voix contre 5.
+faire admettre par la Commission, ce qui aurait peut-être changé bien des choses, si, au moment du vote, le président Le Hérissé n'avait point fait une déclaration anormale. À l'ordinaire, comme président, il ne prenait point part au vote. C'était son droit d'y prendre part ; M. de Montebello et moi, lorsque nous présidions en son absence, nous ne nous abstenions pas des scrutins. Il avait été élu, la veille, sénateur. C'était son droit de continuer à siéger et à voter à la Chambre tant qu'il n'avait pas été validé au Sénat. Il demanda au Sénat d'ajourner sa validation, parce qu'il considérait de son devoir, et ce sentiment était honorable entre tous, de continuer à prendre toute sa responsabilité, comme député et comme président de la Commission de l'Armée, jusqu'au vote de la loi militaire. Mais il outrepassa ses droits en déclarant que, respectueux du vote de la Chambre sur l'amendement de M. Vincent, il donnerait, si la Commission acceptait le nôtre, sa démission de président. Le rapporteur fit, en ce qui le concernait, la même déclaration. Notre amendement fut repoussé par 9 voix contre
 
 L'idée m'était venue de retirer avant le vote, en manière de protestation, notre amendement ; mais l'incident n'aurait fait que du bruit.
 
@@ -2689,7 +2689,7 @@ refoulé la réaction pseudo-nationale de la présidence Poincaré. »
 
 M. Deschanel le rappela à l'ordre.
 
-Au scrutin public, l'ensemble de la loi fut adopté par 355 voix contre 204.
+Au scrutin public, l'ensemble de la loi fut adopté par 355 voix contre
 
 La Chambre avait accepté, sans débat, de lui donner l'intitulé que nous avions proposé dans l'article 1er de notre contre-projet. (1)
 
@@ -2705,7 +2705,7 @@ Il importe d'avoir immédiatement le renforcement de notre armée. Ailleurs, on 
 
 Le sacrifice peut d'autant mieux être accepté que le mal est réparable et réparable promptement. Une loi nouvelle peut modifier demain, sur certains points, les dispositions que vous allez voter. On a opéré ainsi, après le vote de la loi du 21 mars 1905 qui établissait le service de deux ans.
 
-Le Sénat consacra à la discussion du projet les séances du 31 juillet, des 1er, 5, 6 et 7 août. Un discours admirable du général Pau fit apparaître tout l'intérêt qu'il y avait au vote immédiat de la loi. L'ensemble du projet fut adopté, sans modification, par 254 voix contre 37.
+Le Sénat consacra à la discussion du projet les séances du 31 juillet, des 1er, 5, 6 et 7 août. Un discours admirable du général Pau fit apparaître tout l'intérêt qu'il y avait au vote immédiat de la loi. L'ensemble du projet fut adopté, sans modification, par 254 voix contre
 
 Avec des erreurs, sans doute inévitables, la loi du 7 août 1913, je l'ai déjà dit, est un acte. Mais cet acte, si important qu'il soit, en appelle d'autres ; l'effort immense du pays impose de grands devoirs au Gouvernement, aux chefs de l'armée ; la loi n'est qu'un commencement.
 
@@ -3029,7 +3029,7 @@ de leur délai quinquennal, séjourneront plus de trois mois en France dans le c
 
 L'article 51 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 
-« Les jeunes gens réunissant les conditions prévues à l'article 50 ci-dessus peuvent contracter, pour les troupes métropolitaines, des engagements de quatre et cinq ans et, pour les troupes coloniales, ainsi que pour certains corps métropolitains d'Afrique désignés par le Ministre de la Guerre, des engagements de trois, quatre et cinq ans, sous réserve toutefois, pour les troupes coloniales, de la restriction imposée par le paragraphe 1er de l'article 50.
+« Les jeunes gens réunissant les conditions prévues à l'article 50 ci-dessus peuvent contracter, pour les troupes métropolitaines, des engagements de quatre et cinq ans et, pour les troupes coloniales, ainsi que pour certains corps métropolitains d'Afrique désignés par le Ministre de la Guerre, des engagements de trois, quatre et cinq ans, sous réserve toutefois, pour les troupes coloniales, de la restriction imposée par le paragraphe 1er de l'article
 
 « Le service militaire compte, pour les engagés, du jour de la signature de l'acte d'engagement. Ils passent dans la réserve à l'expiration de leur service actif et suivent ensuite le sort de la classe incorporée dans l'année de leur engagement.
 

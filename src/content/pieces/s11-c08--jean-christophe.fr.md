@@ -13,7 +13,7 @@ un de ses mauvais jours. — Puis, le surlendemaiïn, elle
 le redemanda. Il vint. Il la trouva convalescente, assise
 près de la fenêtre, à demi étendue. C'était le premier
 printemps, le ciel ensoleillé, les jeunes pousses des
-… arbres. Elle était plus affectueuse et plus douce qu'il ne ÿ
+… arbres. Elle était plus affectueuse et plus douce qu'il ne
 Pavait encore vue. Elle dit que, l'autre jour, elle ne
 … pouvait voir personne : elle l'eût détesté, comme tous
 les autres hommes.
@@ -47,13 +47,13 @@ trouva, ce soir-là, qu'elle se laissa aller à se confier à |
 Triste enfance! Un père de rencontre, qu'elle n'avait
 ! pas connu. Une mère, qui tenait une auberge mal famée, |
 dans un faubourg d'une ville du Nord de la France; les … à
-rouliers y venaient boire, couchaïent avec la patronne, 1
+rouliers y venaient boire, couchaïent avec la patronne,
 et la brutalisaient. Un d'eux l'épousa, parce qu'elle
 avait quelques sous; il la battait, se soûlait. Françoise #1
 avait une sœur plus âgée, qui était servante dans l'au
 berge; elle s'épuisait à la tâche ; le patron en avait fait :
 phtisique; elle était morte. Françoise avait grandi au
-milieu des coups et des ignominies. C'était une enfant î
+milieu des coups et des ignominies. C'était une enfant
 blême, bilieuse, concentrée, avec une petite âme |
 ardente et sauvage. Elle voyait sa mère et sa sœur
 pleurer, souffrir, se résigner, s'avilir, mourir. Et elle
@@ -67,7 +67,7 @@ qu'elle se hâtait de dénouer la corde avec ses doigts
 crispés et maladroïts, se convulsait en elle un désir
 furieux de vivre. Et puisqu'elle ne pouvait pas s'évader
 par la mort, — (Christophe souriait tristement, se rappelant des épreuves semblables), — elle se jura de vaincre,
-de devenir libre, riche, et de fouler aux pieds tous ceux 4
+de devenir libre, riche, et de fouler aux pieds tous ceux
 
 qui Vopprimaient. Elle s'était fait ce serment dans son
 taudis, un soir qu'elle entendait dans la chambre à côté
@@ -76,13 +76,13 @@ taudis, un soir qu'elle entendait dans la chambre à côté
 et les pleurs de la sœur. Comme elle se sentait misé-
 rable! Et pourtant, son serment l'avait soulagée. Elle
 
-‘4 - serrait les dents, et pensait : s
+‘4 - serrait les dents, et pensait
 
 1 — Je vous écraserai tous.
 
 ‘2 Dans cette enfance sombre, un seul point lumineux.
 
-Le Un jour, un des gamins avec qui elle polissonnait è
+Le Un jour, un des gamins avec qui elle polissonnait
 ; … dans le ruisseau, le fils du concierge du théâtre, l'avait
 
 .. fait entrer, -bien que ce füt défendu, à une répétition.
@@ -93,7 +93,7 @@ _ Is se glissèrent tout au fond de la salle, dans le noir.
 
 _ dans ces ténèbres, et des choses magnifiques et incom-
 
--_ préhensibles qu'on disait, et de l'air de reine de É
+-_ préhensibles qu'on disait, et de l'air de reine de
  lactrice, — qui jouait en effet une reine dans un mélo
 
 _ romantique. Elle était glacée d'émotion; et en même +
@@ -155,7 +155,7 @@ lui, que la servante : il l'accusa. Elle nia effrontément;
 il menaça de la faire fouiller; elle se jeta à ses pieds,
 elle lui avoua tout, et aussi les autres vols, et les
 feuilles déchirées : tout le pot-aux-roses. Il sacra d'une
-façon terrible; mais il était moins méchant qu'il n'en ë
+façon terrible; mais il était moins méchant qu'il n'en
 avait l'air. Il demanda pourquoi elle avait fait cela. }
 
 _ Lorsqu'elle dit qu'elle voulait devenir actrice, il rit très
@@ -190,15 +190,15 @@ son rôle. Ensuite, j'ai continué. On me trouvait d'ail-
 
 alors. Je le suis restée jusqu'au jour où l'on m'a décré
 tée, — sinon « divine », comme l'Autre, — supérieu- |
-rement, idéalement femme, « la Femme »... Les Î
-imbéciles ! — Quant au jeu, on le jugeait incorrect, extra- F
-vagant. Le public ne me goûtait pas. Les camarades ‘se j
+rement, idéalement femme, « la Femme »... Les
+imbéciles ! — Quant au jeu, on le jugeait incorrect, extra-
+vagant. Le public ne me goûtait pas. Les camarades ‘se
 moquaient de moi. On me gardait, parce que je rendais à
 des services malgré tout, et que je ne coûtais pas cher. À
-Non seulement je ne coûtais pas cher, mais je payais. J
-Ah! chaque progrès, chaque avancement, pas à pas, je d
+Non seulement je ne coûtais pas cher, mais je payais.
+Ah! chaque progrès, chaque avancement, pas à pas, je
 l'ai payé de ma souffrance, de mon corps. Camarades,
-directeur, impresario, amis de l'impresario… É
+directeur, impresario, amis de l'impresario…
 
 Elle se tut, blême, les lèvres serrées, le regardfixe, si
 ne pleurant pas: mais on sentait que son âme pleurait des larmes de sang. En un éclair elle revivait
@@ -206,13 +206,13 @@ toutes ces hontes passées et cette volonté dévorante de
 vaincre qui l'avait soutenue, d'autant plus dévorante à
 chaque saleté nouvelle qu'il lui fallait endurer. Elle |
 eût souhaité de mourir; mais c'eût été trop abominable
-de succomber au milieu des humiliations, de ne pas j
+de succomber au milieu des humiliations, de ne pas
 aller plus loin. Se suicider avant, soit! Ou après la
 victoire. Mais pas quand on s'est avili, sans en avoir :
 
 Elle se taisait. Christophe marchaït avec colère dans
 la chambre; il aurait voulu assommer ces gens, qui
-avaient fait souffrir, qui avaient souillé cette femme. È
+avaient fait souffrir, qui avaient souillé cette femme.
 Puis, il la regarda avec pitié; et, debout auprès d'elle, :
 il lui prit la tête, les tempes, le front entre ses mains,
 les serra affectueusement, et dit : $
@@ -235,7 +235,7 @@ Ensuite, il se rassit. Elle s'était ressaisie, et reprit
 
 LE: avec calme la suite de son récit :
 
-4 Un auteur enfin l'avait lancée: Il avait découvert en
+Un auteur enfin l'avait lancée: Il avait découvert en
 
 …._ cette étrange créature un démon, un génie, — mieux
 
@@ -300,7 +300,7 @@ rien. Et, en vérité, ceux que je vois sont presque tous
 de grands enfants vaniteux, qui ne sont guère tour- ,
 mentés que de petites questions d'amour-propre. Jene
 sais pas si ce sont eux qui ne sont pas de vrais comé-
-diens, ou si c'est moi. Je crois bien que c'est moi. En 4
+diens, ou si c'est moi. Je crois bien que c'est moi. En
 tout cas, je paye pour les autres.
 
 - Elle s'arrêta de parler. Il était trois heures de la nuit.
@@ -318,7 +318,7 @@ le silence de la maison.
 — Je suis libre. Une leçon vers onze heures. Et puis,
 je suis solide.
 
-— Raison de plus pour solidement dormir. 4
+— Raison de plus pour solidement dormir.
 
 — Oui, je dors comme une masse. Il n'y a pas de
 peine qui y résiste. Je suis furieux parfois de si bien
@@ -327,8 +327,6 @@ me venger du sommeil, pour une fois, de lui voler une
 nuit,
 
 Ils continuèrent de causer, à mi-voix, avec de longs |
-
-| 122
 
 silences. Et Christophe s'endormit. Françoise sourit,
 lui appuya la tête, pour qu'il ne tombât point... Elle
@@ -402,28 +400,28 @@ d'orage tomber; l'haleine de la terre d'automne — :
 
 j pénétrait la maison et leurs corps. Silence de la nuit.
 
-- - Sommeil à deux. Silence. Très loin, les aboïiements des 2
+- - Sommeil à deux. Silence. Très loin, les aboïiements des
 chiens. Chants des coqs. L'aube point. L'angélus grêle
 
 tinte au clocher lointain, dans le petit jour gris et froid,
 
 qui fait frissonner les corps dans la tiédeur dunidetles |
 
-fait se serrer plus amoureusement. Réveil des voix p.
+fait se serrer plus amoureusement. Réveil des voix
 
-d'oiseaux dans la treille agrippée au mur, Christophe 5
+d'oiseaux dans la treille agrippée au mur, Christophe
 
-ouvre les yeux, retient son souffle, et, le cœur attendri, 3
+ouvre les yeux, retient son souffle, et, le cœur attendri,
 
-regarde auprès de lui le cher visage las de l'amie x
+regarde auprès de lui le cher visage las de l'amie
 
-endormie, et sa pâleur d'amour... 7
+endormie, et sa pâleur d'amour...
 
 Leur amour n'était point une passion égoïste. C'était
 
 une amitié profonde, où le corps voulait aussi sa part.
 
-Ils ne se gênaient pas. Chacun travaillait, de son côté. 4
+Ils ne se gênaient pas. Chacun travaillait, de son côté.
 
 Le génie de Christophe, sa bonté, sa trempe morale, À
 
@@ -431,7 +429,7 @@ Le génie de Christophe, sa bonté, sa trempe morale, À
 
 certaines choses, et elle en avait un plaisir maternel. …
 
-Elle regrettait de ne rien comprendre à ce qu'il jouait : 4
+Elle regrettait de ne rien comprendre à ce qu'il jouait
 
 elle était fermée à la musique, sauf à de rares moments
 
@@ -467,7 +465,7 @@ _ plus belles qu'elles n'étaient en lui, — d'une beauté
 … connaissait bien mal encore et qu'elle jugeait avec une
 
 S _clairvoyance aiguë. Surtout il lui dut de comprendre ;
-mieux le théâtre; elle le fit pénétrer dans l'esprit de 3
+mieux le théâtre; elle le fit pénétrer dans l'esprit de
 —. cet art admirable, le plus parfait des arts, le plus sobre
 et le plus plein. Elle lui révéla la beauté de cet instrument magique du rêve humain, — et qu'il fallait écrire
 
@@ -508,7 +506,7 @@ métier sans âme, le mécanisme intelligent et froid.
 Mais l'intéressant est l'exception, — l'éclair à la lueur
 duquel on entrevoit le gouffre, l'âme commune des
 millions d'êtres dont la force s'exprime en vous, pour
-une seconde d'éternité. 3
+une seconde d'éternité.
 C'était cette âme commune, que devait exprimer le …
 grand artiste. Son idéal devait être ce vivant objectivisme, où l'aède s'assimile à ceux pour qui il chante,
 et se dépouille de soi, pour vêtir les passions collectives
@@ -520,7 +518,7 @@ du lyrisme individuel a, depuis un siècle et demi,
 quelque chose de maladif. La grandeur morale consiste …
 à beaucoup sentir et à beaucoup dominer, à être sobre
 de mots et chaste avec sa pensée, à ne la point étaler, à
-« parler d'un regard, d'une parole profonde, sans exagéra128 F
+« parler d'un regard, d'une parole profonde, sans exagéra128
 
 ; tions enfantines, sans effusions féminines, pour ceux qui
 
@@ -564,14 +562,14 @@ dédaigneux du piétisme larmoyant de son temps et de
 sa race, il écrivait des Anthems colossaux et des ora-
 
 | la fin du voyage “VEN
-torios, épopées héroïques, chants des poule bad des ë
+torios, épopées héroïques, chants des poule bad des
 peuples. Le difficile était de trouver des sujets d'inspiration qui pussent, comme la Bible au temps de
 Haendel, éveiller des émotions communes chez les
 peuples de l'Europe d'aujourd'hui. L'Europe d'aujour— …
-d'hui n'avait plus un livre commun : pas un poème, pas. 2
-une prière, pas un acte de foi, qui fût le bien de tous. É
+d'hui n'avait plus un livre commun : pas un poème, pas.
+une prière, pas un acte de foi, qui fût le bien de tous.
 O honte qui devrait écraser tous les écrivains, tous les
-artistes, tous les penseurs d'aujourd'hui! Pas un n'a 4
+artistes, tous les penseurs d'aujourd'hui! Pas un n'a
 - écrit, pas un n'a pensé pour tous. Le seul Beethoven a.
 laissé quelques pages d'un nouvel Evangile consolateur
 et fraternel ; mais les musiciens seuls peuvent le lire,et
@@ -581,13 +579,13 @@ religieux, qui relie tous les hommes. Maïs sa grande
 âme était trop peu simple et trop marquée de toutes
 les tares de la musique et de la pensée décadentes de
 son temps : sur la colline sacrée, ce ne sont pas les
-pêcheurs de Galilée qui sont venus, ce sont les pha- 24
+pêcheurs de Galilée qui sont venus, ce sont les pha-
 Christophe sentait bien ce qu'il fallait faire; mais il #
-lui manquait un poète, il devait se suffire à lui-même, se 3
+lui manquait un poète, il devait se suffire à lui-même, se
 restreindre à la seule musique. Et la musique, quoi
-qu'on dise, n'est pas une langue universelle : il faut 1
+qu'on dise, n'est pas une langue universelle : il faut
 l'arc des mots pour faire pénétrer la flèche des sons
-dans le cœur de tous. J
+dans le cœur de tous.
 Christophe projetait d'écrire une suite de symphonies,
 inspirées de la vie quotidienne. Il concevait entre autres
 une Symphonie Domestique, à sa façon, qui n'étaitpas
@@ -652,7 +650,7 @@ tous, dans ce qu'il a de meilleur. Il en choisissait
 deux : Joseph et Niobé. Mais là, Christophe seheurtaît
 non seulement au manque de poète, mais à la question |
 périlleuse, discutée depuis plusieurs siècles, et jamais ;
-conversations avec Françoise le ramenaïent aux projets, esquissés autrefois avec Corinne, d'une forme de Ë
+conversations avec Françoise le ramenaïent aux projets, esquissés autrefois avec Corinne, d'une forme de
 drame musical tenant le milieu entre l'opéra récitatif |
 et le drame parlé, — l'art de la parole libre unie à la
 musique libre, — art dont ne se doute presque aucun
@@ -698,16 +696,16 @@ ensemble des moments de plénitude de vie; mais ils
 É heurts ne prenaient- jamais un caractère vulgaire : car à
 Christophe avait le respect de Françoise. Et Françoise,
 qui pouvait être si cruelle parfois, était bonne pour ceux “
-qui étaient bons envers elle; pour rien au monde, elle 4
+qui étaient bons envers elle; pour rien au monde, elle
 n'eût voulu leur faire de mal. L'un et l'autre avaient |
 d'ailleurs un fond de joyeuse humeur. Elle était la
 
 première à se moquer d'elle. Elle ne s'en rongeaït pas
 moins : car l'ancienne passion la tenait toujours; elle
-continuait de penser au pleutre qu'elle aimaït; et elle R
+continuait de penser au pleutre qu'elle aimaït; et elle
 ne pouvait supporter cet état humiliant, ni surtqut que +4
-Christophe le soupçonnât. 4
-Christophe, qui la voyait silencieuse et crispée … L
+Christophe le soupçonnât.
+Christophe, qui la voyait silencieuse et crispée …
 s'absorber des jours entiers dans sa mélancolie, s'étonnait qu'elle ne fût pas heureuse. Elle était parvenue au
 : but : elle était une grande artiste, admirée, adulée… à
 — Oui, disait-elle; si j'étais une de ces fameuses
@@ -715,7 +713,7 @@ comédiennes, qui ont des âmes de boutiquières, et
 qui font du théâtre, comme elles feraient des affaires.
 Celles-là sont contentes, quand elles ont « réalisé » une
 belle situation, un riche mariage bourgeois, et — le nec
-plus ultra — décroché la croix des braves. Moi, je voulais 4
+plus ultra — décroché la croix des braves. Moi, je voulais
 plus. Quand on n'est pas un sot, est-ce que le succès
 
 Lars ne
@@ -816,8 +814,8 @@ monde les fortes œuvres d'art.
 
 — On s'épuise en vain. Et cela n'en vaut pas la
 
-la fin du voyage  -. S
-peine. Dès qu'une de ces fortes œuvres touche la scène, 5
+la fin du voyage  -.
+peine. Dès qu'une de ces fortes œuvres touche la scène,
 elle perd sa grande poésie, elle devient mensongère. Le à
 souffle du public la flétrit. Public de villes étouffées, id
 ne sait plus ce que c'est que le plein air, que la nature, :
@@ -828,11 +826,11 @@ ne remplit pas encore la vie, cela ne remplit pas ma ee
 
 — Tu penses toujours à lui. ARR
 — Tu le sais bien. A cet homme. :
-— Même si tu l'avais, cet homme, et s'il Vaïimait, 5
+— Même si tu l'avais, cet homme, et s'il Vaïimait,
 avoue-le, tu ne serais pas encore heureuse, tu trouverais moyen de te tourmenter. gs
 — C'est vrai... Ah! qu'est-ce que j'ai donc? Vois-tu,
 j'ai eu trop à lutter, je me suis trop rongée, je ne peux
-plus retrouver le calme,. j'ai une inquiétude en moi, d
+plus retrouver le calme,. j'ai une inquiétude en moi,
 * une fièvre... Fe
 — Elle devait être en toi, même avant tes épreuves.
 — C'est possible. Oui, déjà, quand j'étais petite fille,
@@ -843,7 +841,7 @@ aussi loin que je me rappelle. Elle me dévorait. à
 — Oui, mais tu es devenu homme. Moi, je resterai
 une éternelle adolescente. Je suis un être incomplets
 — Personne n'est complet. Le bonheur est de con- ;
-naître ses limites et de les aimer. î
+naître ses limites et de les aimer.
 — Je ne peux plus. J'en suis sortie. La vie m'a forcée, ne
 
  fourbue, estropiée. IL me semble pourtant que j'aurais
@@ -871,7 +869,6 @@ lécrasait ; alors, elle ne pouvait résister, elle se livrait,
 en pleurant, dans ses bras; et il passait ensuite des
 heures à la consoler, bonnement, sans se fâcher; mais
 _ cette inquiétude perpétuelle ne laissait point de l'as-
-| 139
 
 la fin du voyage 5. <<
 sommer, à la longue. Françoise tremblaït que sa fièvre
@@ -931,9 +928,9 @@ ment femme, et non pas seulement femelle, lorsqu'elle |
 a une âme riche et une vie exigeante, elle est faite
 pour tant de choses, qu'elle ne peut accomplir seule, si “
 on ne lui vient en aide! L'homme est beaucoup
-moins seul, même quand il l'est le plus : son monologue é
+moins seul, même quand il l'est le plus : son monologue
 suffit à peupler son désert; et quand il est seul à deux,
-il s'en accommode mieux, car il le remarque moins, il 4
+il s'en accommode mieux, car il le remarque moins, il
 monologue toujours. Et il ne se doute pas que le son : à
 de cette voix qui continue imperturbablement de se <
 parler dans le désert, rend le silence plus terrible et.
@@ -944,7 +941,7 @@ sur l'amour, comme la femme, sa vie entière comme
 enjeu : sa vie est ailleurs occupée... Qui occupera la a
 vie de la femme et son désir immense, ces millions de ;
 forces ardentes et généreuses, qui depuis quarante
-siècles que dure l'humanité se brûlent inutiles, offertes 4
+siècles que dure l'humanité se brûlent inutiles, offertes
 en holocauste à deux seules idoles : l'amour éphémère, sé
 et la maternité, cette sublime duperie, qui est refusée à
 à des milliers d'entre les femmes, et ne remplit jamais
@@ -982,7 +979,7 @@ trop; et cet être lié contre elle, qui étouffait sa vie,
 … bien qu'il souffrit aussi, elle ne pouvait s'empêcher de
 … le faire souffrir davantage, afin de se venger. Ensuite,
 … elle était plus accablée, elle se détestait; et elle sentait
-5 143
+5
 
 la fin du voyage .
 
@@ -1071,17 +1068,17 @@ elle avait envie de lui dire : |
 — Va, ne t'aflige pas, m'ami. Cest encore toi que
 j'aime le mieux. À
 Mais elle ne le disait point ; et ils se laissaient aller
-tous trois à l'aventure : Christophe ne se doutant de 4
+tous trois à l'aventure : Christophe ne se doutant de
 rien, Jacqueline ne sachant pas ce qu'elle voulait au à
 juste, et s'en remettant au hasard de le lui faire savoir,
 Olivier seul, prévoyant, pressentant, mais par pudeur
 d'amour-propre et d'amour, ne voulant pas y penser.
 Lorsque la volonté se tait, l'instinct parle ; en l'absence
-de l'âme, le corps va son chemin. È Ë è
+de l'âme, le corps va son chemin.
 Un soir, après diner, la nuit leur sembla si belle, —
 nuit sans lune, étoilée, — qu'ils voulurent se promener
 dans le jardin. Olivier et Christophe sortirent de la
-maison. Jacqueline monta dans sa chambre, pour î
+maison. Jacqueline monta dans sa chambre, pour
 
 = prendre un châle. Elle ne redescendait point. Chris-
 
@@ -1106,7 +1103,7 @@ Elle ne répondit pas. Christophe se tut aussi : il allaït
 en tâtonnant dans l'ombre; et un trouble le prit.
 I s'arrêta, le cœur battant. Il entendit tout près le
 souffle léger de Jacqueline. Il fit encore un pas, et
-s'arrêta de nouveau. Elle était près de lui, il le savait, x
+s'arrêta de nouveau. Elle était près de lui, il le savait,
 mais il ne pouvait plus avancer. Quelques secondes de
 silence. Brusquement dèux mains qui saisissent les
 siennes et l'attirent; une bouche sur sa bouche. Il l'étreignit. Sans un mot, immobiles. — Leurs bouches se
@@ -1117,7 +1114,7 @@ de la chambre. Christophe, frémissant, la suivit. Ses
 jambes tremblaient. Il resta un instant appuyé au mur,
 attendant que le battement de son sang s'apaisât.
 Enfin, il les rejoignit. Jacqueline causait tranquillement
-avec Olivier. Ils marchaient, de quelques pas en avant. ï
+avec Olivier. Ils marchaient, de quelques pas en avant.
 
 - Christophe les suivait, écrasé. Olivier s'arrêta pour
 Yattendre. Christophe s'arrêta aussi. Olivier l'appela
@@ -1183,7 +1180,7 @@ Elle sortit. Sur le seuil de la porte, elle cria :
 
 Christophe avait fini par se faire des ennemis de ses |
 protecteurs du Grand Journal. Cela était facile à ne
-prévoir. Christophe avait reçu du ciel cette vertu . É
+prévoir. Christophe avait reçu du ciel cette vertu
 célébrée par Goethe : « la non-reconnaissance ».
 « La répugnance à se montrer reconnaissant, écrivait .
 Goethe ironiquement, est rare et ne se manifeste que À.
@@ -1198,7 +1195,7 @@ de leurs débiteurs, que Christophe refusât d'écrire la
 musique d'un hymne stupide, pour une fête-réclame
 organisée par le journal. Ils lui firent sentir l'incon- « venance de sa conduite. Christophe les envoya promener.
 Il acheva de les exaspérer, par le démenti brutal qu'il
-infligea, peu après, à des assertions que le journal lui w
+infligea, peu après, à des assertions que le journal lui
 avait prêtées. ë TER
 Alors, commença une campagne contre lui. On usa |
 de toutes armes. On ressortit une fois de plus de =
@@ -1226,7 +1223,7 @@ fournir des armes à ses ennemis, au besoin pour en
 - inventer. Ils'en trouva en France. Les nationalistes de la ‘
 presse musicale — dont plusieurs étaient des étrangers —
 … lui jetèrent sa race à la tête comme une insulte. Le EL
-4 succès de Christophe avait beaucoup grandi; et, la L
+4 succès de Christophe avait beaucoup grandi; et, la
 — mode s'en mêlant, on concevait qu'il irritât, par ses
 …. exagérations, même des gens sans parti-pris, — à plus
 2 forte raison, les autres. Christophe avait maintenant,
@@ -1237,7 +1234,7 @@ _ dans le public des concerts, parmi les gens du monde
 Certains expliquaient ses œuvres, et y trouvaient des
 intentions philosophiques, dont il était ébahi. D'autres » y voyaient une révolution musicale, l'assaut donné aux
 
-la fin du voyage 2
+la fin du voyage
 traditions, que Christophe respectait plus que quiconque. Il n'eût servi de rien qu'il protestât. Ils lui
 eussent démontré qu'il ne savait ce qu'il avait écrit. Ils
 s'admiraient eux-mêmes, en l'admirant. Aussi, la campagne contre Christophe rencontra-t-elle de vives sympathies parmi ses confrères, qu'exaspérait ce « battage »,
@@ -1262,7 +1259,7 @@ Christophe était donc livré à des adversaires et à des
 
 ; admirateurs qui rivalisaient à qui lui ferait le plus de
 mal. Dégoûté, il ne répondait point. Quand il lisait les -
-arrêts que prononçait sur lui, du haut d'un grand F
+arrêts que prononçait sur lui, du haut d'un grand
 journal, tel de ces critiques présomptueux qui régentent
 l'art, avec l'insolence que donnent l'ignorance et l'impunité, il haussait les épaules, en disant : |
 
@@ -1312,32 +1309,32 @@ que voici, je vous ai alloué une somme de trois cents
 francs, payable jusqu'à due concurrence, à raison de La
 trente centimes par exemplaire vendu de l'édition originale. Moyennant quoi, vous m'avez cédé, sans aucune
 restriction ni réserve, tous vos droits sur votre œuvre.
-— Même celui de la détruire ? ; SHTPS e
+— Même celui de la détruire ? ; SHTPS
 Hecht haussa les épaules, sonna, et dit à un employé:
-— Apportez-moi le dossier de Monsieur Krafft. ee é.
+— Apportez-moi le dossier de Monsieur Krafft. ee
 Il lut posément à Christophe le texte du traité, que
 Christophe avait signé sans le lire, — duquelilrésultait,
 selon la règle ordinaire des traités que souscrivaient à
 alors, en ces temps très anciens, les éditeurs de #
 musique, — « que Monsieur Hecht était subrogé dans
-tous les droits, moyens et actions de l'auteur, et avait, à È
+tous les droits, moyens et actions de l'auteur, et avait, à
 l'exclusion de tout autre, le droit d'éditer, publier, - ;
-graver, imprimer, traduire, louer, vendre à son profit, 3
+graver, imprimer, traduire, louer, vendre à son profit,
 sous telle forme qu'il lui plaisait, faire exécuter dans les #4
-concerts, cafés-concerts, bals, théâtres, etc!, l'œuvre. 4
+concerts, cafés-concerts, bals, théâtres, etc!, l'œuvre.
 dite, publier tout arrangement de l'œuvre pour quelque . à
 instrument et même avec paroles, ainsi que d'en
-changer le titre, etc., etc. » | 4
+changer le titre, etc., etc. »
 — Vous voyez, lui dit-il, que je suis fort modéré.
 — Évidemment, dit Christophe, je dois vous remer- °3
-cier. Vous auriez pu faire de mon septuor une chanson 2 1
+cier. Vous auriez pu faire de mon septuor une chanson
 de café-concert. É 5°
-. Ise tut, consterné, la tête entre les mains. Free s8
+. Ise tut, consterné, la tête entre les mains. Free
 — J'ai vendu mon âme, répétait-il. ; :5s *
 — Soyez sûr, dit Hecht ironiquement, que je n'en
 abuserai pas. r AFS
 — Et dire, fit Christophe, que votre République auto:
-rise ces trafics! Vous dites que l'homme est libre: Et 4
+rise ces trafics! Vous dites que l'homme est libre: Et
 vous vendez la pensée à l'encan. Ress
 
 “4 — Vous avez touché le prix, dit Hecht.
@@ -1411,8 +1408,8 @@ nom, l'avait pris comme tête de Turc : il ne se passait |
 | pas de semaine qu'il ne parût dans les Échos quelque À
 note perfide pour le rendre ridicule. Le critique musical
 achevait l'œuvre de son confrère masqué : le moindre
-prétexte lui était bon pour exprimer en passant son ù
-animosité. Ce n'étaient encore que les premières escarmouches : il promettait d'y revenir à loisir, et de pro- S
+prétexte lui était bon pour exprimer en passant son
+animosité. Ce n'étaient encore que les premières escarmouches : il promettait d'y revenir à loisir, et de pro-
 céder sous peu à une exécution en règle. Ils ne se pressaient point, sachant qu'aucune accusation précise ne
 vaut pour le public une suite d'insinuations obstinément
 
@@ -1462,18 +1459,18 @@ les changeait; il fallait apprendre à s'en passer, et dire,
 comme ce vieux homme du dix-septième siècle : >
 « Dieu m'a donné des amis; il me les a ôtés. Ils
 mont laissé. Je les laisse, et n'en fais point men- :
-Depuis qu'il avait quitté la maison d'Olivier, Olivier 4
-ne lui avait plus donné signe de vie; tout semblait 3
+Depuis qu'il avait quitté la maison d'Olivier, Olivier
+ne lui avait plus donné signe de vie; tout semblait
 fini entre eux. Christophe ne tenait pas à faire des
 amitiés nouvelles. Il se représentait le comte et la com- +4
 tesse Berény, à l'image de tant de snobs qui se disaient : À
 ses amis; et il ne fit rien pour les rencontrer. Il les eût
 C'était Paris tout entier qu'il eût voulu fuir. Il avait
-un besoin de se réfugier, pour quelques semaines, dans E.
+un besoin de se réfugier, pour quelques semaines, dans
 une solitude amie. S'il avait pu se retremper, quelques « jours, seulement quelques jours, dans son pays naïial ! A
 Peu à peu, cette pensée devenait un désir maladif. Il
 voulait revoir son fleuve, son ciel, la terre de ses morts. #
-Il fallait qu'il les revit. Il ne le pouvait point, sans risquer sa liberté : il était toujours sous le coup de l'arrêt L
+Il fallait qu'il les revit. Il ne le pouvait point, sans risquer sa liberté : il était toujours sous le coup de l'arrêt
 
 _ lancé contre lui, lors de sa fuite d'Allemagne. Mais il se
 
@@ -1483,7 +1480,7 @@ qu'un seul jour.
 
 __ Par bonheur, il en parla à un de ses nouveaux pro-
 
-__  tecteurs. Comme un jeune attaché à l'ambassade d'Al- g
+__  tecteurs. Comme un jeune attaché à l'ambassade d'Al-
 lemagne, rencontré à la soirée où l'on donnait ses
 œuvres, lui disait que son pays était fier d'un musicien
 tel que lui, Christophe répondit amèrement :
@@ -1575,7 +1572,7 @@ sous le lierre. Quelques gouties de pluie commençaient
 — Il sera vite effacé. Tant mieux! Pour toi seule.
 Pour nul autre.
 
-Il revit aussi le fleuve, ies rues familières, où tant de 2
+Il revit aussi le fleuve, ies rues familières, où tant de
 choses étaient changées. Aux portes de la ville, sur les
 promenades des anciens bastions, un petit bois d'acacias
 qu'il avait vu planter avait conquis La place, étouffait
@@ -1590,19 +1587,19 @@ fraîche, grasse, réjouie, qui l'examinaïit curieusement. À
 Elle fit une exclamation de surprise. A son geste, la :
 voiture s'arrêta. Elle dit : :
 Elle dit, en riant : Fe.
-Il courut à elle, presque aussi troublé qu'au jour de ë
+Il courut à elle, presque aussi troublé qu'au jour de
 la première rencontre. Elle était avec un monsieur -
-grand, gros, chauve, avec des moustaches relevées 4
-d'un air vainqueur, qu'elle présenta comme « Herr. 4
+grand, gros, chauve, avec des moustaches relevées
+d'un air vainqueur, qu'elle présenta comme « Herr.
 Reichsgerichtsrat von' Brombach », — son mari. Elle
 voulut que Christophe entrât à la maison. Il cherchait à
-à s'excuser. Mais Minna s'exclamait : 4
-— « Non, non, il devait venir, venir dîner. » L
+à s'excuser. Mais Minna s'exclamait
+— « Non, non, il devait venir, venir dîner. »
 Elle parlait très fort et très vite, et, sans attendre les À
-questions, racontait déjà sa vie. Christophe, abasourdi 3
-par sa volubilité et par son bruit, n'entendait qu'à 3
-moitié, et il la regardait. C'était là sa petite Minna. 4
-Elle était florissante, robuste, rembourrée de toutes 3
+questions, racontait déjà sa vie. Christophe, abasourdi
+par sa volubilité et par son bruit, n'entendait qu'à
+moitié, et il la regardait. C'était là sa petite Minna.
+Elle était florissante, robuste, rembourrée de toutes
 
 | parts, une jolie peau, un teint de rose, mais les traits
 
@@ -1617,7 +1614,7 @@ les mêmes; mais le volume avait changé.
 = Christophe les histoires de son passé, ses histoires
 intimes, la façon dont elle avait aimé son mari et dont
 son mari l'avait aimée. Christophe était géné. Elle ;
-avait un optimisme sans critique, qui lui faisait trouver 5
+avait un optimisme sans critique, qui lui faisait trouver
 parfait et supérieur aux autres, — (du moins quand
 elle était en présence des autres), —sa ville, sa maison,
 sa famille, son mari, sa cuisine, ses quatre enfants, et
@@ -1644,7 +1641,7 @@ et déclarait à Christophe qu'elle « était une femme hau-
 
 ” elle parlait toujours. Quand elle eut abondamment » parlé d'elle à Christophe, elle parla de lui; elle le har-
 
-_ cela de questions aussi intimes que l'avaient été les e
+_ cela de questions aussi intimes que l'avaient été les
 
 - réponses aux questions supposées, qu'il ne lui avait
 
@@ -1688,7 +1685,7 @@ Christophe. L'immobilité de la petite ville, son étroi- À
 tesse d'horizon, lui étaient pénibles. Ses hôtes passèrent
 une partie de la soirée à l'entretenir de commérages
 sur le compte de gens qu'il ne connaissait pas.
-Ils étaient à l'affüt des ridicules de leurs voisins, et ils F
+Ils étaient à l'affüt des ridicules de leurs voisins, et ils
 
 décrétaient ridicule tout ce qui différait d'eux et de leurs
 façons. Cette curiosité malveillante, perpétuellement
@@ -1738,10 +1735,10 @@ certaines sonorités qui réveillaient des échos émou- #
 -_ vants. Il s'absorbaït en eux, se taisant, n'écoutant pas
 les paroles qu'elle disait, ayant l'air d'écouter, ne
 | cessant de lui témoigner un respect attendri. Maïs il +.
-= avait du mal à concentrer son esprit : elle faisait trop 54
+= avait du mal à concentrer son esprit : elle faisait trop
 de bruit, elle lempêchaït d'entendre Minna. A la fin, il te
 se leva, un peu las : É PRE
-— Pauvre petite Minna! Ils voudraient me faire 0
+— Pauvre petite Minna! Ils voudraient me faire
 $ croire que tu es là, dans cette belle grosse personne,
 qui crie fort et qui m'ennuie. Mais je sais bien que non.
 Allons-nous en, Minna. Qu'avons-nous à faire de ces PE
@@ -1842,18 +1839,18 @@ sauts de cette torpeur, — moite de sueur, frissonnante, FE
 avec un éclair de révolte. Elle se débattait contre le
 filet où la nature l'avait prise. Elle voulait vivre, elle
 voulait être libre, il lui semblait que la nature l'avait
-dupée. Puis, elle avait honte de ces pensées, elle se 4
+dupée. Puis, elle avait honte de ces pensées, elle se
 trouvait monstrueuse, elle se demandait si elle était »
 donc plus mauvaise, ou autrement faite que les'autres a
-femmes. Et peu à peu, elle s'apaisait de nouveau, en- 4
-gourdie comme un arbre dans la sève et le rêve du fruit F
-vivant qui mûrissait dans ses entrailles. Qu'était-il? | 5
-Qu''allait-il être 2. 4
+femmes. Et peu à peu, elle s'apaisait de nouveau, en-
+gourdie comme un arbre dans la sève et le rêve du fruit
+vivant qui mûrissait dans ses entrailles. Qu'était-il?
+Qu''allait-il être
 Lorsqu'elle entendit son premier cri à la lumière, ci
 lorsqu'elle vit ce petit corps pitoyable et touchant, tout |
 son cœur se fondit. Elle connut, en une minute d'éblouissement, cette glorieuse joie de la maternité, la plus :
-* puissante qui soit au monde : avoir créé de sa souf- 4
-france un être de sa chair, un homme. Et la grande 4
+* puissante qui soit au monde : avoir créé de sa souf-
+france un être de sa chair, un homme. Et la grande
 vague d'amour qui remue l'univers l'étreignit de la tête #4
 aux pieds, la roula, la noya, la souleva jusqu'aux cieux. ‘4
 O Dieu, la femme qui crée est ton égale; et tu necon. À
@@ -1865,7 +1862,7 @@ et, souriant à Jacqueline, il tâchait de comprendre quel
 … lien de vie mystérieux il y avait entre eux deux et cet
 être misérable encore à peine humain. Tendrement,
 avec un peu de dégoût, il effleura de ses lèvres cette
-petite tête jaune et ridée. Jacqueline le regardait : jalou- 4
+petite tête jaune et ridée. Jacqueline le regardait : jalou-
 | sement, elle le repoussa ; elle saisit l'enfant, et le serra
 - contre son sein, elle le couvrit de baisers. L'enfant cria,
 - elle le rendit; et, la tête tournée contre le mur, elle
@@ -1955,24 +1952,24 @@ se sentir fondre dans la grande piscine fade et volups
 tueuse de la civilisation, ce tiède bain de boue, où se
 liquéfient les énergies humaines, les rudes puissances
 vitales, l'animalité primitive et ses floraisons de foi, de
-volonté, de devoirs et de passions. Dans cette pensée 2
+volonté, de devoirs et de passions. Dans cette pensée
 gélatineuse, le joli corps de Jacqueline se baignaït”
 Olivier ne pouvait rien pour l'en empêcher. D'ailleurs,
 il était, lui aussi, touché par la maladie du temps: il
 il ne se croyait pas le droit d'entraver la liberté dun
-autre ; de celle qu'il aimait, il ne voulait rien obtenir, 4
-si ce n'était par l'amour. Et Jacqueline ne lui en savait 4
-aucun gré, puisque sa liberté était pour elle un droit F
-Le pire était qu'elle apportait dans ce monde amphibie 4
+autre ; de celle qu'il aimait, il ne voulait rien obtenir,
+si ce n'était par l'amour. Et Jacqueline ne lui en savait
+aucun gré, puisque sa liberté était pour elle un droit
+Le pire était qu'elle apportait dans ce monde amphibie
 un cœur entier qui répugnait à toute équivoque : quand
-elle croyait, elle se donnait; sa petite âme ardente et 2h
-généreuse, dans son égoïsme- même, brüûlait tous ses | 3
+elle croyait, elle se donnait; sa petite âme ardente et
+généreuse, dans son égoïsme- même, brüûlait tous ses
 vaisseaux; et, de sa vie en commun avec Olivier, elle | à Ee
 avait conservé une intransigeance morale, qu'elle était
-prête à appliquer jusque dans l'immoralité. 14
+prête à appliquer jusque dans l'immoralité.
 Ses nouveaux amis étaient bien trop prudents pour CE
 se montrer aux autres comme ils étaient. S'ils aff
-chaïent, en théorie, une liberté complète à l'égard des « préjugés de la morale et de la société, ils s'arrangeaient, æ
+chaïent, en théorie, une liberté complète à l'égard des « préjugés de la morale et de la société, ils s'arrangeaient,
 dans la pratique, de façon à ne rompre en visière avec ES
 aucun qui leur fût avantageux; ils se servaient de la ‘1
 morale et de la société, en les trahissant, comme des +t ;
@@ -2010,7 +2007,7 @@ Jacqueline passait son temps à s'étudier dans son ;
 
 … de ne jamais voir : car, après les avoir vues, elle n'avait
 … plus la force d'en détacher les yeux; et, au lieu de les
-combattre, elle les regardait grossir : elles devenaient É
+combattre, elle les regardait grossir : elles devenaient
 $ énormes, elles finissaient par s'emparer de ses yeux et
 
 Ÿ de sa pensée.
@@ -2018,11 +2015,11 @@ $ énormes, elles finissaient par s'emparer de ses yeux et
 n'avait pu lallaiter; le petit dépérissait avec elle.
 
 - IL avait fallu prendre une nourrice. Gros chagrin,
-d'abord... Ce fut bientôt un soulagement. Le petit se Ù
+d'abord... Ce fut bientôt un soulagement. Le petit se
 
 - portait maintenant à merveille; il poussait vigoureuse-
 
-- ment, comme un brave petit gas, qui ne donnait ë
+- ment, comme un brave petit gas, qui ne donnait
 . point de tracas, passait son temps à dormir, et criait
 
 _ à peine, la nuit. La nourrice, — une robuste Niver-
@@ -2064,7 +2061,7 @@ inquiétudes, qu'entretenaient les médecins, en cultivant
 
 son oisiveté qui en était la source, — (séparation de
 l'enfant, inaction forcée, isolement absolu, semaines de
-néant à rester étendue et se faire gaver dans son lit, j
+néant à rester étendue et se faire gaver dans son lit,
 comme une bête à l'engrais), — avaient achevé de
 concentrer ses préoccupations sur elle. Étranges cures
 modernes de la neurasthénie, qui substituent à une
@@ -2095,24 +2092,24 @@ cœur d'un être qu'on aime et dont on se croit aimé?
 Du jour au lendemain, tout est changé. Elle aimait, la
 veille, elle le semblait, elle le croyait elle-même. Elle
 
-n'aime plus. Celui qu'elle a aimé est rayé de sa | pensée. 1
+n'aime plus. Celui qu'elle a aimé est rayé de sa | pensée.
 Il s'aperçoit tout à coup qu'il n'est plus rien pour elle Se Lee
 à qui se faisait en elle; il ne s'est point douté de l'hostilité | Rte
-: secrète qui s'amassait contre lui; il ne veut pas sentir é
-les raisons de cette vengeance et de cette haïne. Raï. < 4
+: secrète qui s'amassait contre lui; il ne veut pas sentir
+les raisons de cette vengeance et de cette haïne. Raï. <
 sons souvent lointaines, multiples et obscures, — cer
-taines, ensevelies sous les voiles de lalcôve, — ; 4
+taines, ensevelies sous les voiles de lalcôve, —
 d'autres, d'amour-propre blessé, secrets du cœur ce
 aperçus et jugés, — d'autres... qu'en sait-elle, elle … »
-même ? Il est telle offense cachée, qu'on lui fit sans le” M
-savoir, et qu'elle ne pardonnera jamais. Jamais on ne 73
+même ? Il est telle offense cachée, qu'on lui fit sans le”
+savoir, et qu'elle ne pardonnera jamais. Jamais on ne
 parviendra à la connaître, et elle-même ne la connaît
 
 plus bien; mais l'offense est inscrite dans sa chair:
-jamais sa chair n'oubliera. 3
+jamais sa chair n'oubliera.
 Contre cet effrayant courant de désaffection, il eût
 fallu pour lutter être un autre homme qu'Olivier, —plus À
-près de la nature, plus simple et plus souple à la fois, 4
+près de la nature, plus simple et plus souple à la fois,
 ne s'embarrassant pas de scrupules sentimentaux, ?
 riche d'instinct, ét capable, au besoin, d'actes que sa
 raison eût désavoués. Il était vaincu d'avance, découragé : trop lucide, il reconnaissait depuis longtemps à
@@ -2126,12 +2123,12 @@ la chute. Il se contraignait au calme. Elle, par un …
 < calcul inconscient, tâchait de l'en faire sortir, de lui AE
 faire dire des choses violentes, brutales, grossières,
 afin de se donner des raisons de le mébpriser. S'il un
-cédait à la colère, elle le méprisait. S'il en avait honte Ve 5
-ensuite et prenait un air humilié, elle le méprisait encore 04
+cédait à la colère, elle le méprisait. S'il en avait honte Ve
+ensuite et prenait un air humilié, elle le méprisait encore
 
 _ plus. Et s'il ne cédait pas à la colère, s'il ne voulait pas
 
-| céder, — alors, elle le haïssait. Et le pire de tout : ce ë
+| céder, — alors, elle le haïssait. Et le pire de tout : ce
 
 4 silence où ils se muraient, des jours, en face l'un de
 
@@ -2139,7 +2136,7 @@ e l'autre. Silence asphyxiant, écrasant, affolant, où les
 
 . plus doux des êtres finissent par devenir enragés, où À
 
-ils sentent par moments un désir de faire du mal, de È
+ils sentent par moments un désir de faire du mal, de
 
 crier et de faire crier. Silence, noir silence, où l'amour
 
@@ -2157,7 +2154,7 @@ achève de se désagréger, où les êtres, comme des
 
 | Depuis un an, Cécile Fleury venait souvent chez les
 
- Jeannin. Olivier l'avait rencontrée chez Christophe; ù
+ Jeannin. Olivier l'avait rencontrée chez Christophe;
 
 puis Jacqueline l'avait invitée: et Cécile continuait de
 
@@ -2171,7 +2168,7 @@ d'eux. Jacqueline avait été bonne pour elle : bien qu'elle
 
 … influence apaisante. Olivier avait plaisir à faire de la |
 
-musique avec elle. Peu à peu, elle était devenue une l
+musique avec elle. Peu à peu, elle était devenue une
 
 amie de la maison. Elle inspirait confiance : quand elle
 
@@ -2190,7 +2187,7 @@ __ _— Non, restez, restez encore, j'ai froid!
 
 à Pendant l'absence de Jacqueline, Olivier.avait vu
 
-7 179
+7
 
 la fin du voyagé CORRE".
 Cécile plus souvent; et il n'avait pu lui cacher un peu
@@ -2222,7 +2219,7 @@ Et le hasard voulut que ces pages tombassent sous
 les yeux de Jacqueline. C'était un jour où elle se sentait
 plus près d'Olivier qu'elle ne l'avait été depuis des
 années. En rangeant son armoire, elle avait relu les
-180 15
+180
 
 vieilles lettres d'amour qu'il lui écrivait : elle en avait
 été émue jusqu'à pleurer. Assise à l'ombre de l'armoire,
@@ -2257,24 +2254,24 @@ trahi, le reste n'est plus rien.)
 Jacqueline ne pensa pas une minute à reconquérir
 Olivier. Trop tard! Elle ne l'aimaït plus assez. Ou peut-
 
-. être qu'elle l'aimait trop. Non, ce n'était pas de la X
+. être qu'elle l'aimait trop. Non, ce n'était pas de la
 jalousie qu'elle avait. C'était toute sa confiance qui
 s'écroulait, tout ce qui lui restait secrètement de foi
 
 et d'espoir en lui. Elle ne se disait pas qu'él “ ëme
 
-en avait fait fi, qu'elle l'avait découragé, poussé à cet ÿ
+en avait fait fi, qu'elle l'avait découragé, poussé à cet
 amour, que cet amour d'ailleurs était innocent, et que
 l'on n'est pas le maître, enfin, d'aimer ou de n'aimer
 pas. Il ne lui venait pas à l'idée de comparer à cet
 entraînement sentimental son flirt avec Christophe:
-Christophe, elle ne l'aimait point, il ne comptait point! 5
-Dans son exagération passionnée, elle pensa qu'Olivier 4
+Christophe, elle ne l'aimait point, il ne comptait point!
+Dans son exagération passionnée, elle pensa qu'Olivier
 
 lui mentait, et qu'elle n'était plus rien pour lui. Le der- ee: :
-nier appui lui manquait, au moment où elle tendait 1x
+nier appui lui manquait, au moment où elle tendait
 main pour le saisir. Tout était fini. DR.
-Olivier ne sut jamais ce qu'elle avait souffert, dans 4
+Olivier ne sut jamais ce qu'elle avait souffert, dans
 
 cette journée. Mais quand il la revit, il eut l'impression, va
 
@@ -2294,9 +2291,9 @@ la souhaiter, mais se laissant aller à l'espérance d'un :
 accident imprévu, et se flattant de part et d'autre d'être …
 
 le plus robuste des deux. Il y avait des minutes où
-Jacqueline et Olivier s'imaginaient presque que l'autre. F4
+Jacqueline et Olivier s'imaginaient presque que l'autre.
 avait cette pensée. Et ni l'un ni l'autre ne l'avait; mais
-c'était déjà trop de la prêter à l'autre, comme Jacque- 5
+c'était déjà trop de la prêter à l'autre, comme Jacque-
 line, qui, la nuit, dans des secondes d'insomnie ballucinée, se disait que l'autre était le plus fort, Vusait
 peu à peu, et bientôt triompherait.. Délire monstrueux à
 
@@ -2327,7 +2324,7 @@ venirs, son orgueil de soi et son respect des autres. Et
 _nature nouvelle qui surgit des ruines, une nature
 . souvent sans bonté, sans pitié, sans jeunesse, sans
 illusions, qui ne pense plus qu'à ronger la vie comme
-- l'herbe qui ronge les monuments détruits ! c
+- l'herbe qui ronge les monuments détruits !
 Cette fois, comme à l'ordinaire, l'idée fixe s'attacha à
 # l'être le mieux fait pour décevoir le cœur. La pauvre
 
@@ -2354,7 +2351,7 @@ héroïnes du qu'en dira-t-on.
 
 Mais Jacqueline était une folle : non seulement elle
 était capable de faire ce qu'elle disait, mais de dire ce
-qu'elle faisait. Elle apportait à ses folies une absence J
+qu'elle faisait. Elle apportait à ses folies une absence
 de calculs, un désintéressement absolu. Elle avait ce |
 dangereux mérite d'être toujours franche avec elle- |
 même et de ne pas reculer devant les conséquences de
@@ -2412,14 +2409,14 @@ attachée à leurs flancs, à les replacer avec mille égards
 dans leur coin habituel. Elle tenait un entretien silen-
 
 | cieux avec eux. Elle souriait au beau meuble ancien,
-le seul qu'elle possédât, un fin bureau à cylindre 224
-Louis XVI. Elle éprouvait, chaque jour, la même joie M
+le seul qu'elle possédât, un fin bureau à cylindre
+Louis XVI. Elle éprouvait, chaque jour, la même joie
 
 à le voir. Elle n'était pas moins occupée de faire la ©
 revue de son linge : elle passait des heures debout
 
 * sur une chaise, la tête et les bras enfoncés dans la à
-grande armoire paysanne, regardant et rangeant, tandis 4 5
+grande armoire paysanne, regardant et rangeant, tandis
 
 que le chat, intrigué, des heures la regardait. ES +
 Mais le bonheur était quand, toutes les affaires finies,
@@ -2460,17 +2457,17 @@ une traduction de romans anglais. Elle lisait très peu, ‘
 genoux, restait longtemps ouvert à la même page,
 ou même ne s'ouvrait point : elle le connaissait déjà, FE
 — elle le révait. Ainsi, les longs romans de Dickens et de ns
-—_ ÆMhackeray se prolongeaient pendant des semaines, 4
+—_ ÆMhackeray se prolongeaient pendant des semaines,
 -_ dont sa rêverie faisait des années. Ils l'enveloppaient
 - de leur tendresse. Les gens d'aujourd'hui qui lisent
 vite et mal ne savent plus la force merveilleuse qui
 _ rayonne des beaux livres que l'on boit lentement.
 - Madame Arnaud n'avait aucun doute que la vie de ces
-_ êtres de romans ne fût aussi réelle que la sienne. Il Ë
+_ êtres de romans ne fût aussi réelle que la sienne. Il
 __ en était à qui elle eût voulu se dévouer : la téndre
 à _ jalouse, lady Castlewood, l'amoureuse silencieuse, au
 
-la fin du voyage CRE" 7
+la fin du voyage CRE"
 cœur maternel et virginal, lui était une sœur; le
 petit Dombey était son cher petit enfant; elle était
 Dora, la femme-enfant, qui va mourir; elle tendait les
@@ -2499,12 +2496,12 @@ déformaient. Elle se sentait noyée dans cet immense
 
 univers. Il lui fallait rentrer chez elle, pour reprendre
 Mais qu'avait-elle besoin de lire ou de voir les autres?
-Elle n'avait qu'à regarder en elle. Cette existence pâle, R
+Elle n'avait qu'à regarder en elle. Cette existence pâle,
 éteinte, — vue du dehors, — comme elle s'illuminaït,
-du dedans! Quelle vie abondante et pleine! Que de s
+du dedans! Quelle vie abondante et pleine! Que de
 souvenirs, de trésors, dont nul ne soupçonnaït l'existence!.…. Avaient-ils jamais eu quelque réalité? — Sans
 doute, ils étaient réels, puisqu'ils l'étaient pour elle...
-188 2
+188
 
 O pauvres vies, que la baguette magique du rêve
 
@@ -2547,9 +2544,9 @@ tout de même, — étant si innocentes, — un pêu de
 ÿ soleil au cœur... Elle aimait bien son mari, quoiqu'il À
 ne fût pas tout à fait celui qu'elle révait. Mais il était
 bon; et un jour qu'il lui avait dit: — « Ma chèrefemme,
-tu ne sais pas tout ce que tu es pour moi. Tu es toute ñ
-ma vie », — son cœur s'était fondu; et ce jour-là, elle 3
-s'était sentie unie à lui, tout entière, pour toujours, 4
+tu ne sais pas tout ce que tu es pour moi. Tu es toute
+ma vie », — son cœur s'était fondu; et ce jour-là, elle
+s'était sentie unie à lui, tout entière, pour toujours,
 sans idée de retour. Chaque année les avait attachés
 plus étroitement l'un à l'autre. Ils avaient fait de
 
@@ -2561,15 +2558,15 @@ enfant, auquel elle avait si souvent, si profondément
 songé, qu'elle le connaissait presque comme s'il était
 là. Elle y avait travaillé, des années, l'embellissant
 sans cesse de ce qu'elle voyait de plus beau, de ce
-qu'elle aimait de plus cher... Silence!… É
+qu'elle aimait de plus cher... Silence!…
 C'était tout. C'étaient des mondes. Combien de tragé- ;
 dies ignorées, même des plus intimes, au fond des vies :
 les plus calmes, les plus médiocres en apparence! Etla …
 plus tragique peut-être : — qu'il ne se passe rien dans
 ces vies d'espoir, qui crient désespérément vers ce qui ;
-est leur droit, leur bien promis par la nature, et refusé, 4
+est leur droit, leur bien promis par la nature, et refusé,
 — qui se dévorent dans une angoisse passionnée, —et
-qui n'en montrent rien au dehors! 3
+qui n'en montrent rien au dehors!
 Madame Arnaud, pour son bonheur, m'était pas ;
 occupée que d'elle-même. Sa vie ne remplissait qu'une
 
@@ -2634,12 +2631,12 @@ ne se doutait point ‘de l'univers, où elle avait vécu.
 Le difficile avait été de maintenir ensemble, sans …
 heurts, les deux vies : la vie quotidienne, et l'autre, la
 grande vie de l'esprit, aux horizons lointains. Ce ne fut
-pas toujours aisé. Heureusement, Arnaud vivait, lui k
+pas toujours aisé. Heureusement, Arnaud vivait, lui
 aussi, une vie en partie imaginaire, dans les livres,
 les œuvres d'art, dont le feu éternel entretenait la
 flamme tremblante de son âme. Mais il était de plus
 en plus, dans ces dernières années, préoccupé par les
-petits tracas de sa profession, les injustices, les passe- 4
+petits tracas de sa profession, les injustices, les passe-
 
 droïts, les ennuis avec ses collègues ou avec ses
 élèves ; il était aigri; il commençait à parler de politique, à déblatérer contre le gouvernement et contre
@@ -2668,21 +2665,21 @@ pur de leurs souffrances et de leur sang.
 
 Madame Arnaud était seule, chez elle. Le soir
 La sonnette de la porte retentit. Madame Arnaud, à
-réveillée de sa songerie avant l'heure habituelle, tres F4
+réveillée de sa songerie avant l'heure habituelle, tres
 $ saillit. Elle rangea soigneusement son ouvrage, etsen
-alla ouvrir. Christophe entra. Il était très ému. Elle lu 23
+alla ouvrir. Christophe entra. Il était très ému. Elle lu
 KE prit affectueusement les mains. SPRICE RO
 D — Qu'avez-vous, mon ami”? demanda-t-elle. Ve 170: Va
 — Ah! dit-il. Olivier est revenu. RENE
-5 — Ce matin, il est arrivé, il m'a dit : « Christophe, É
-viens à mon secours! » Je l'ai embrassé. Il pleurait. 2
-Il m'a dit: « Je n'ai plus que toi. Elle est partie. » M
+5 — Ce matin, il est arrivé, il m'a dit : « Christophe,
+viens à mon secours! » Je l'ai embrassé. Il pleurait.
+Il m'a dit: « Je n'ai plus que toi. Elle est partie. »
 Madame Arnaud, saisie, joignit les mains, et dit À 53%
 — Elle est partie, répéta Christophe. Partie avec son
 SES — Et son enfant ? demanda madame Arnaud. | PEN
 — Mari, enfant, elle a tout laissé. : HUE
 — La malheureuse! redit madame Arnaud. … ns EN
-— Il l'aimait, dit Christophe, il l'aimait uniquemen 2e
+— Il l'aimait, dit Christophe, il l'aimait uniquemen
 I ne se relèvera pas de ce coup. Il me répète: « ChrisFA tophe, elle m'a trahi, ma meilleure amie m'a trahi. »
 re J'ai beau lui dire : « Puisqu'elle t'a trahi, a elle
 3 n'était pas ton amie. Elle est ton ennemie, O: ublie-la,
@@ -2697,7 +2694,7 @@ prêcher lindulgente raison! Les bons apôtres! IL est
 beau de voir s'indigner contre le retour à l'animalité ce
 troupeau de chiens mêlés. Après avoir outragé la vie, à
 après lui avoir enlevé tout son prix, ils l'entourent d'un
-culte religieux... Quoi! cette vie sans cœur, sans hon- L
+culte religieux... Quoi! cette vie sans cœur, sans hon-
 peur, sans signification, un pur souflle physique, un
 battement de sang dans un morceau de chair, voilà ce
 qui leur semble digne de respect! Ils n'ont pas assez
@@ -2705,7 +2702,7 @@ d'égards pour cette viande de boucherie, c'est un
 crime d'y toucher. Tuez l'âme, si vous voulez, maïs le
 corps est sacré.
 
-— Les assassins de l'âme sont les pires assassins; œ
+— Les assassins de l'âme sont les pires assassins;
 mais le crime n'excuse pas le crime, et vous le savez
 bien.
 
@@ -2808,24 +2805,24 @@ occasion ; il suffisait de la moindre chose, à ce moment,
 pour me perdre ou me sauver... Quand je suis sortie de
 chez vous, je suis rentrée chez moi, je me suis enfermée, :
 j'ai pleuré tout le jour... — Et après, c'était bien : la ”
-crise était passée. 4
+crise était passée.
 / — Et aujourd'hui, demanda Christophe, vous le re- …
 — Aujourd'hui? dit-elle. Ah! si j'avais fait cette »
 folie, je serais au fond de la Seine, depuis longtemps.
-Je n'aurais pu supporter cette honte, et le mal que j'au- « rais fait à mon pauvre homme. 2
-— Alors, vous êtes heureuse? 24
+Je n'aurais pu supporter cette honte, et le mal que j'au- « rais fait à mon pauvre homme.
+— Alors, vous êtes heureuse?
 — Oui, autant qu'on peut être heureux, dans cette—
-vie. C'est une chose si rare, d'être deux qui se com- « prennent, qui s'estiment, qui savent qu'ils sont sûrs É
+vie. C'est une chose si rare, d'être deux qui se com- « prennent, qui s'estiment, qui savent qu'ils sont sûrs
 lun de l'autre, non par une simple croyance d'amour ;
-qui est souvent une illusion, mais par une expérience M
+qui est souvent une illusion, mais par une expérience
 même avec — surtout avec le souvenir de ces dangers
-que l'on a surmontés. À mesure que l'on vieillit, cela M
+que l'on a surmontés. À mesure que l'on vieillit, cela
 Elle se tut, et brusquement rougit. à
 — Mon Dieu, comment ai-je pu raconter? Qu'est-ce
 que j'ai fait? Oubliez, Christophe, je vous en prie.
 Personne ne doit le savoir. %
 — Ne craignez rien, dit Christophe, en lui serrant la
-main. C'est une chose sacrée. 5
+main. C'est une chose sacrée.
 tourna un moment. Puis elle dit : DR
 — Je n'aurais pas dû vous raconter... Mais voyez- %
 
@@ -2837,7 +2834,7 @@ de souffrance réelle, intolérable, qui peuvent conduire
 à des folies, et détruire toute une vie, voire deux. Il ne
 - faut pas être trop sévère. On se fait bien souffrir,
 même quand on s'aime le mieux.
-= — Faut-il donc vivre seuls, chacun de son côté ? 2e
+= — Faut-il donc vivre seuls, chacun de son côté ?
 — C'est encore pis pour nous. La vie de la femme $
 qui doit vivre seule, lutter comme l'homme, (et souvent
 « contre l'homme), est quelque chose d'affreux, dans une
@@ -2857,9 +2854,9 @@ collègues du lycée de garçons les tiennent à l'écart,
 - soit parce qu'ils ont peur des cancans de la ville, soit par
 hostilité secrète, ou par sauvagerie, l'habitude du café,
 - des conversations débraillées, la fatigue après le travail
-4 199
+4
 
-la fin du voyage k
+la fin du voyage
 du jour, le dégoût, par satiété, des femmes intellec- |
 tuelles. Elles-mêmes, elles ne peuvent plus se voir,
 elles ne peuvent plus se supporter, surtout si elles sont
@@ -2873,12 +2870,12 @@ une telle existence n'est pas soutenue par un sentiment
 religieux ou moral exceptionnel, — (je dirai même, anor- :
 mal, maladif : car iln'est pas naturel de se sacrifier totale- $
 ment), — c'est une mort vivante... — A défaut du tra- :
-vail de l'esprit, la charité offre-t-elle plus de ressources 4
+vail de l'esprit, la charité offre-t-elle plus de ressources
 aux femmes ? Que de déboires elle réserve à celles qui « ont une âme trop sincère pour se satisfaire de la cha- »
-rité officielle ou mondaine, des parlottes philanthro- « piques, de ce mélange odieux de frivolité, de bienfaisance et de bureaucratie, de cette façon de jouer avec F
+rité officielle ou mondaine, des parlottes philanthro- « piques, de ce mélange odieux de frivolité, de bienfaisance et de bureaucratie, de cette façon de jouer avec
 la misère, entre deux flirts, en papotant! Quand l'une Ed'elles, écœurée, a l'incroyable audace de se risquer +
-seule au milieu de cette misère qu'elle ne connaît que M
-par oui-dire, quelle vision pour elle! presque impossible 3
+seule au milieu de cette misère qu'elle ne connaît que
+par oui-dire, quelle vision pour elle! presque impossible
 à supporter! C'est un enfer. Que peut-elle pour lui venir « en aide? Elle est noyée dans cette mer d'infortunes.
 Elle lutte cependant, elle s'efforce de sauver quelques-“
 uns de ces malheureux, elle s'épuise pour eux, elle se
@@ -2910,34 +2907,34 @@ livrer les femmes indépendantes contre la société d'aujourd'hui, cette socié
 se meurt, et qui dépense le peu qui lui reste d'énergie
 à empêcher les autres de vivre.
 
-la fin du voyage © CR" | 1
+la fin du voyage © CR"
 = — Ma pauvre amie, ce n'est pas le lot seulement des °
 femmes. Nous connaissons tous ces luttes. Je connais
 aussi le refuge. E :
 — Bon pour vous, non pour nous. Et même parmi les À
 hommes, combien sont-ils, ceux qui en peuvent pro- »
-— Voyez notre amie Cécile. Elle est heureuse. 4
+— Voyez notre amie Cécile. Elle est heureuse.
 — Qu'en savez-vous ? Ah! que vous avez vite fait de
 juger! Parce qu'elle est vaillante, parce qu'elle ne à
 s'atitarde pas sur ce qui lattriste, parce qu'elle le À
-cache aux autres, vous dites qu'elle est heureuse! Oui, 4
-elle est heureuse d'être bien portante et de pouvoir É
-lutter. Mais vous ne savez pas ses luttes. Croyez- F
+cache aux autres, vous dites qu'elle est heureuse! Oui,
+elle est heureuse d'être bien portante et de pouvoir
+lutter. Mais vous ne savez pas ses luttes. Croyez-
 vous qu'elle était faite pour cette vie décevante à À
 l'art? L'art! Quand on pense qu'il y a de pauvres »
 femmes qui aspirent à la gloire d'écrire, ou de jouer, …
-ou de chanter, comme au faîte du bonheur! Faut-il 3
+ou de chanter, comme au faîte du bonheur! Faut-il
 qu'elles soient assez dénuées de tout, qu'elles ne |
 sachent plus à quelle affection se prendre! L'art!
-qu'avons-nous à faire de l'art, si nous n'avons tout le Ë.
-reste, avec? Il n'y a qu'une chose au monde qui peut î
-faire oublier tout le reste, tout le reste : c'est un cher « petit enfant. j
+qu'avons-nous à faire de l'art, si nous n'avons tout le
+reste, avec? Il n'y a qu'une chose au monde qui peut
+faire oublier tout le reste, tout le reste : c'est un cher « petit enfant.
 — Et quand on l'a, vous voyez qu'il ne suffit même
-— Oui, pas toujours... Les femmes ne sont pas très É.
+— Oui, pas toujours... Les femmes ne sont pas très
 heureuses. Il est difficile d'être une femme. Beaucoup
-plus que d'être un homme. Vous ne vous en doutez Æ
+plus que d'être un homme. Vous ne vous en doutez
 pas assez. Vous, vous pouvez vous absorber en une
-passion d'esprit, en une activité. Vous vous mutilez, é î
+passion d'esprit, en une activité. Vous vous mutilez,
 
 _ mais vous en êtes plus heureux. Une femme saine ne le
 peut pas sans souffrance. [l est inhumain d'étouffer toute
@@ -2977,9 +2974,9 @@ ESS — Oui. Et d'abord s'aimer les uns les autres. Si
 
 : l'homme voulait sentir davantage qu'il est le frère de
 la femme, et non pas seulement sa proie, ou qu' elle doit
-us être la sienne! S'ils voulaient tous les deux. dépouiller Ë
+us être la sienne! S'ils voulaient tous les deux. dépouiller
 
-leur orgueil, et penser, chacun, un peu moins à soi, et F
+leur orgueil, et penser, chacun, un peu moins à soi, et
 “ un peu plus à l'autre! Nous sommes faibles : aidons-
 
 nous. Ne disons pas à celui qui est tombé : « Je ne te
@@ -3027,7 +3024,7 @@ Christophe dit : ..
 justement, tout à l'heure. Quand elle a su la chose,
 quand elle a vu l'enfant, elle était si émue, elle a mon-
 
-« tré tant de joie, elle m'a dit : « Christophe... » 3
+« tré tant de joie, elle m'a dit : « Christophe... »
 
 Le sang de madame Arnaud s'arrêta ; elle n'entendit
 pas la suite ; tout se brouilla devant ses yeux. Elle avait
@@ -3038,9 +3035,9 @@ envie de crier : :
 Christophe parlait. Elle n'entendait pas ce qu'il disait.
 Mais elle fit effort sur elle-même. Elle pensa aux confidences de Cécile. Elle pensa : 1 À
 
-— Elle en a plus besoin que moi. Moi, j'ai mon cher L
+— Elle en a plus besoin que moi. Moi, j'ai mon cher
 Arnaud, et puis toutes mes choses. Et puis, je suis
-plus vieille. 4
+plus vieille.
 
 Et elle sourit et dit : |
 
@@ -3104,10 +3101,10 @@ d'être privé de sa souffrance. Olivier était comme LE:
 un fiévreux, qui se nourrit de sa fièvre. Une véri- « table fièvre, dont les accès reparaissaient, aux mêmes :
 heures, le soir, à partir du moment où la lumière
 tombe. Et le reste du temps, elle le laissait brisé, à
-intoxiqué par l'amour, rongé par le souvenir, ressassant la même pensée, pareil à un idiot qui remâche M
+intoxiqué par l'amour, rongé par le souvenir, ressassant la même pensée, pareil à un idiot qui remâche
 la même bouchée sans pouvoir l'avaler, toutes les %
-forces du cerveau paralysées, pompées par la seule Ë
-Il n'avait pas la ressource, comme Christophe, de « 208 F
+forces du cerveau paralysées, pompées par la seule
+Il n'avait pas la ressource, comme Christophe, de «
 
 : maudire son mal, en calomniant de bonne foi celle
 qui en était cause. Plus clairvoyant et plus juste,
@@ -3150,23 +3147,23 @@ péchés. Sophar de Naamath le taxe de présomption.
 de Ram, entra dans une grande colère, et se fâcha
 contre Job, parce que Job assurait qu'il était juste ;
 devant Dieu. » — Peu de gens vraiment tristes. Beaucoup d'appelés, peu d'élus. Olivier était de ceux-ci.
-Comme disait un misanthrope, « il paraissait se e
+Comme disait un misanthrope, « il paraissait se
 complaire à être maltraité. On ne gagne rien à ce
-personnage d'homme malheureux : on se fait dé- É
-Olivier ne pouvait parler de ce qu'il sentait à personne, même à ses plus intimes. IL s'apercevait que 3
-cela les assommait. Même son cher Christophe était k
+personnage d'homme malheureux : on se fait dé-
+Olivier ne pouvait parler de ce qu'il sentait à personne, même à ses plus intimes. IL s'apercevait que
+cela les assommait. Même son cher Christophe était
 impatienté de cette peine tenace et importune. Il :
-se savait trop maladroit à y porter remède. Pour 4
+se savait trop maladroit à y porter remède. Pour
 dire la vérité, cet homme dont le cœur était généreux “4
-et qui avait fait pour son compte l'épreuve de la 1
-souffrance, ne parvenait pas à sentir la souffrance de ; 4
-son ami. Telle est l'infirmité de la nature humaine. l
+et qui avait fait pour son compte l'épreuve de la
+souffrance, ne parvenait pas à sentir la souffrance de
+son ami. Telle est l'infirmité de la nature humaine.
 morts : vous ne sentirez pas la douleur de votre ami à
 qui a mal aux dents. Si la maladie se prolonge, on est :
-tenté de trouver que le malae exagère ses plaintes. 24
-Combien plus, lorsque le mal est invisible, tapi au 24
+tenté de trouver que le malae exagère ses plaintes.
+Combien plus, lorsque le mal est invisible, tapi au
 fond de l'âme! Celui qui n'est pas en cause trouve irri- “À
-tant que l'autre se fasse tant de bile pour un sentiment 4
+tant que l'autre se fasse tant de bile pour un sentiment
 
 qui ne lui importe guère. Et enfin, l'on se dit, pour ;
 
@@ -3191,7 +3188,7 @@ moins; ils cherchent à se faire oublier, et à oublier
 eux-mêmes. Et si le malheur importun s'obstine, si
 un écho indiscret pénètre jusqu'à leur retraite, ils en
 viennent à juger sévèrement cet homme sans courage,
-qui supporte mal l'épreuve. Soyez sûrs que s'il suc- Ë
+qui supporte mal l'épreuve. Soyez sûrs que s'il suc-
 combe, il se trouvera au fond de leur pitié sincère ce
 sous-entendu dédaigneux :
 
@@ -3206,7 +3203,7 @@ reste est pauvre, à côté d'elle! Elle rapprochaïit
 
 ; Olivier de madame Arnaud, plus que de tout autre,
 
-15 211
+15
 
 la fin du voyage | |
 même de son Christophe. Cependant Christophe s'obligeait à une patience méritoire; il lui cachaït, par
@@ -3229,15 +3226,15 @@ par moments, de fuir Olivier. Il était trop fort, il se |
 portait trop bien, il étouffait dans cette peine sans air.
 Qu'il était honteux de lui! Il avait la mort dans l'âme
 de ne pouvoir rien pour son ami; et comme il avait
-besoin de se venger sur quelqu'un, il en voulait à 4
+besoin de se venger sur quelqu'un, il en voulait à
 Jacqueline. En dépit des paroles clairvoyantes de ;
 madame Arnaud, il continuait de la juger durement, .
 comme il sied à une âme jeune, violente et entière, |
 qui n'a pas encore assez appris de la vie pour n'être ;
-pas impitoyable envers ses faiblesses. 4
+pas impitoyable envers ses faiblesses.
 Ïl allait voir Cécile et l'enfant qui lui avait été confié. ;
 Cela lui rafraîchissait l'âme. Cécile était transfigurée
-par sa maternité d'emprunt; elle paraissait toute jeune, 4
+par sa maternité d'emprunt; elle paraissait toute jeune,
 
 heureuse, affinée, attendrie. Le départ de Jacqueline
 
@@ -3316,7 +3313,7 @@ personne, à écrire à ses amis, serrant les dents, atten-
 : dant, seule, la mort.
 
 D Obsédé par ces pensées, il évitait le monde; et il
-5 215
+5
 
 la fin du voyage LE
 s'était retiré dans un petit salon à l'écart. Adossé au
@@ -3336,16 +3333,16 @@ et qu'il la connaissait; et les yeux attachés à ses
 yeux, appuyé contre le mur, il continuaït de trembler.
 Elle lui souriait. Il ne voyait ni le dessin de son visage ;
 et de son corps, ni la nuance de ses yeux, ni si elle
-était grande ou petite, et comment habillée. Une seule i
-. chose il voyait : la divine bonté de son sourire compatissant. 4
+était grande ou petite, et comment habillée. Une seule
+. chose il voyait : la divine bonté de son sourire compatissant.
 Et ce sourire subitement évoqua en Christophe un à
 souvenir disparu de sa petite enfance. Il avait six à
-sept ans, il était à l'école, il était malheureux, il venait C
+sept ans, il était à l'école, il était malheureux, il venait
 d'être humilié et battu par des camarades plus âgés et
 plus forts, tous se moquaient de lui, et le maître l'avait
-injustement puni ; accroupi dans un coin, délaissé, tandis que les autres jouaient, il pleuraït tout bas. Une 4
-petite fille mélancolique qui ne jouait pas avec les ï
-autres, — (il la revoyait en ce moment, lui qui n'y avait ñ
+injustement puni ; accroupi dans un coin, délaissé, tandis que les autres jouaient, il pleuraït tout bas. Une
+petite fille mélancolique qui ne jouait pas avec les
+autres, — (il la revoyait en ce moment, lui qui n'y avait
 jamais pensé, depuis : elle était courte de taille, la tête |
 
 grosse, les cheveux et les cils d'un blond tout à fait
@@ -3361,7 +3358,7 @@ dit, timidement, précipitamment, avec le même sourire :
 
 Alors, Christophe n'y avait plus tenu, il avait éclaté
 en sanglots, appuyant son nez contre le tablier de la
-petite qui répétait, d'une voix tremblante et tendre : e
+petite qui répétait, d'une voix tremblante et tendre
 
 — Ne pleure pas...
 
@@ -3388,7 +3385,7 @@ la fin du-voyage' "0.
 remarqué. Mais quand il fut plus calme, il voulut la revoir. Il avait peur qu'elle ne fût déjà partie. Il entra
 = aussitôt, quoiqu'elle ne fût plus de même qu'elle lui .
 était apparue dans la glace. Maintenant, il la voyait de
-profil, assise dans un cercle de dames élégantes; un É
+profil, assise dans un cercle de dames élégantes; un
 coude sur le bras du fauteuil, le corps un peu penché,
 la tête appuyée sur sa main, elle écoutait les causeries,
 avec un sourire intelligent et distrait; elle avait l'air et
@@ -3397,12 +3394,12 @@ yeux à demi fermés, souriant à sa propre pensée, dans :
 la Dispute de Raphaël...
 Alors, elle leva les yeux, le vit, et ne fut pas étonnée. ;
 Et il vit que son sourire était pour lui. Il la salua, ému,
-— Vous ne me reconnaissez pas? dit-elle. 5
+— Vous ne me reconnaissez pas? dit-elle.
 A cet instant, il la reconnut : :
 — Grazia… dit-il. :
 Au même moment, l''ambassadrice, qui passait, se :
-félicitait que la rencontre, depuis longtemps cherchée, E
-se fat enfin produite; et elle présentait Christophe à 3
+félicitait que la rencontre, depuis longtemps cherchée,
+se fat enfin produite; et elle présentait Christophe à
 . « la comtesse Berény ». Mais Christophe était si ému
 qu'il n'entendait même pas; et il ne remarquaït point :
 ce nom étranger. C'était toujours pour lui sa petite.
@@ -3433,7 +3430,7 @@ la fin du voyagé: "ORNE
 conservé de son enfance un peu sauvage dans la villa
 solitaire au milieu des champs, une indépendance
 secrète, que le monde fatiguait tout en l'amusant, mais
-qui savait déguiser son ennui sous l'aimable sourire 4
+qui savait déguiser son ennui sous l'aimable sourire
 d'un cœur courtois et bon.
 
 Elle n'avait pas oublié son grand ami Christophe.
@@ -3453,19 +3450,19 @@ revoir. Elle l'avait invité, en ajoutant sur la lettre d'invitation son ancien 
 
 avait pas fait attention, et il avait jeté l'invitation au
 panier, sans répondre. Elle ne s'en était pas offensée. |
-Elle avait continué de suivre, sans qu'il le sût, ses tra- 4
+Elle avait continué de suivre, sans qu'il le sût, ses tra-
 vaux et même un peu sa vie. C'était elle, dont la main
 bienfaisante l'avait secouru, dans la campagne récente
 menée contre lui par certains journaux. La proprette
-Grazia n'avait guère de rapports avec le monde de la 1
-presse; mais quand il s'agissait de rendre service à un s:
-ami, elle était capable d'enjôler, avec une innocente et 4
-malicieuse rouerie, les gens qu'elle aimait le moins. Elle 4
-invita le directeur du journal qui menait la meute des 4
-aboyeurs; et en moins de rien, elle lui tourna la tête; 4
+Grazia n'avait guère de rapports avec le monde de la
+presse; mais quand il s'agissait de rendre service à un
+ami, elle était capable d'enjôler, avec une innocente et
+malicieuse rouerie, les gens qu'elle aimait le moins. Elle
+invita le directeur du journal qui menait la meute des
+aboyeurs; et en moins de rien, elle lui tourna la tête;
 elle sut si bien flatter son amour-propre, elle le séduisit -
 
-220 14
+220
 
 si bien, tout en lui en imposant, qu'elle n'eut besoin que
 de quelques mots, négligemment jetés, d'étonnement
@@ -3494,8 +3491,8 @@ saint Jean qui lui souriait dans le miroir.
 Ils causaient du passé. Ce qu'ils disaient, Christophe
 ne le savait guère. Pas plus qu'on ne la voit, on n'entend
 celle qu'on aime. On l'aime. Et quand on l'aime bien, on
-ne songe même point qu'on l'aime. Christophe ne s'en 2
-doutait pas. Elle était là : c'était assez. Le reste É
+ne songe même point qu'on l'aime. Christophe ne s'en
+doutait pas. Elle était là : c'était assez. Le reste
 n'existait plus. js
 
 Grazia s'arrêta de parler. Un jeune homme, très
@@ -3509,16 +3506,16 @@ Le bruit du salon reparut. La lumière intérieure
 s'éteignit. Christophe, glacé, se tut, et répondant au
 salut, il se retira aussitôt. #
 
- Ridicules et dévorantes exigences de ces âmes 4
+ Ridicules et dévorantes exigences de ces âmes
 d'artistes et des lois enfantines qui régissent leur vie a
-passionnée ! Cette amie, qu'il avait négligée jadis quand 4
+passionnée ! Cette amie, qu'il avait négligée jadis quand
 elle l'aimait, et à qui il n'avait plus pensé depuis des
-années, à peine la retrouvait-il qu'il lui semblait qu'elle 4
+années, à peine la retrouvait-il qu'il lui semblait qu'elle
 était à lui, qu'elle était son bien, et que si un autre
 l'avait prise, c'est qu'on la lui avait volée : elle-même
 n'avait pas le droit de se donner à un autre. Christophe : ;
-ne se rendait pas compte de ce qui se passait en lui. 44 4
-Mais son démon créateur s'en rendait compte pour lui, Re 2
+ne se rendait pas compte de ce qui se passait en lui.
+Mais son démon créateur s'en rendait compte pour lui, Re
 et enfanta, ces jours-là, certains de ses plus beaux ne.
 chants de douloureux amour. 3}
 
@@ -3593,9 +3590,9 @@ Elle dit :
 vous. Je vous dois tant!
 
 — Quoi donc? demanda-t-il. Je n'ai rien fait pour .
-vous. ÿ
+vous.
 
-— Vous ne savez pas, dit-elle, ce que vous avez été 1
+— Vous ne savez pas, dit-elle, ce que vous avez été
 pour moi. à
 
 Elle parla du temps, où, fillette, elle le rencontra chez À
@@ -3658,7 +3655,7 @@ Mais au reproche de ses yeux, il répondit aussitôt :
 — Je penserai toujours à vous, dit-elle.
 
 — Hélas! fit:il, je ne puis même pas penser à vous. -
-Je ne sais rien de votre vie. | 4
+Je ne sais rien de votre vie.
 
 Tranquillement, elle lui décrivit en quelques mots sa
 vie habituelle, et comment ses journées se passaient. |
@@ -3720,12 +3717,12 @@ et de celles qui ne se marient pas. Le bonheur est le
 parfum de l'âme, l'harmonie qui chante au fond du
 cœur. Et la plus belle des musiques de l'âme, cestla
 Olivier entra. Ses mouvements étaient calmes; une
-sérénité nouvelle l'éclairait. Il sourit à l'enfant, serra la 4
+sérénité nouvelle l'éclairait. Il sourit à l'enfant, serra la
 main à Cécile et à madame Arnaud, et se mit à causer |
 tranquillement. Ils l'observaient avec un étonnement
 affectueux. Il n'était plus le même. Dans l'isolement où
 il s'était enfermé avec son chagrin, comme la chenille
-dans le nid qu'elle s'est filé, après un dur travail äl 54
+dans le nid qu'elle s'est filé, après un dur travail äl
 avait réussi à dépouiller sa peine comme une coque
 * . vide. Quelque jour, nous raconterons comment il avait
 cru trouver une belle cause à laquelle faire le don de
@@ -3736,7 +3733,7 @@ rallumée. Ses amis le regardaient. Ils ne savaient point …
 ce qui s'était passé, et ils n'osaient le lui demander;
 
 .. mais ils sentaient qu'il s'était délivré, et qu'il ny avait
-plus en lui ni regret, ni amertume, pour quoi que ce fût, 3
+plus en lui ni regret, ni amertume, pour quoi que ce fût,
 contre qui que ce fût. HER
 
 Christophe, se levant, alla au piano, et dit à”

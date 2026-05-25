@@ -14,7 +14,7 @@ Ces cahiers sont édités ‘ar des souscriptions mensuelles régulières et par
 la rédaction ni sur l'admin. ‘ration : ces fonctions
 des abonnements de souscriptior: à cent franess L+
 des abonnements orainaires à vin, t francs; Hu te
-des abonnements de propagande à huit francs, 1.
+des abonnements de propagande à huit francs,
 et des abonnements gratuits. EN mn
 Nous faisons des services. Li
 
@@ -67,7 +67,7 @@ et des concours, parce que les examens et les concours
 
 douzième ét dernier cahier de la première série ee:
 sont aussi, en un sens, une vacance du travail sérieux. 4 .
-Pour situer vingt cahiers en huit mois, de novembre à $ 4
+Pour situer vingt cahiers en huit mois, de novembre à $
 juin, nous aurons même à les serrer un peu. — Ces
 cahiers auront de quatre-vingts à cent vingt pages.
 Dans ces cahiers nous continuerons à dire entièrement
@@ -76,14 +76,14 @@ Nous dirons entièrement vrai. Nous continuerons à En
 donner des documents et des renseignements impartialement choisis de ce que nous aurons vu et de ce que Re:
 nous saurons qui intéresse la révolution sociale au sens a “
 où nous la préparons quand nous préparons la naïs- k 2108
-sance et la vie de la cité harmonieuse. Les hommes. ÿ! & k
+sance et la vie de la cité harmonieuse. Les hommes. ÿ! &
 et surtout les événements ont d'eux-mêmes à peu près
 déterminé une période écoulée de l'action socialiste en
 France, — incluse du premier congrès national au
 deuxième. La Société nouvelle de librairie et d'édition, :  """h
 rue Cujas, Paris, nous a donné le compte rendu
 sténographique officiel de ce premier congrès. La même.
-Société nous prépare et va nous donner le compte  h
+Société nous prépare et va nous donner le compte
 rendu sténographique officiel de ce deuxième congrès.
 Mais les congrès ne sont que les manifestations céré- ÉNe
 à monielles de mouvements profonds et durables. Et s'il
@@ -92,7 +92,7 @@ tions, il n'est pas moins indispensable que les mou- a.
 vements profonds et durables soient conservés pour js
 l'historien. Sous ce titre courant: du premier congrès at
 
-ù deuxième ces cahiers publieront, les documents et ls 0 N
+ù deuxième ces cahiers publieront, les documents et ls
 renseignements que nous pensons que l'historien doit
 avoir de l'action socialiste incluse entre les deux pren i'Hr
 miers congrès nationaux. Nous ferons en particulier

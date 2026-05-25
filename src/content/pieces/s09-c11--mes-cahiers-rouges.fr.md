@@ -44,8 +44,6 @@ Ce ne fut qu'un geste, un éclair.
 tard, le 25 mai 1872, devant le conseil de guerre. Condamné à
 mort. Fusillé à Satory le 18 septembre 1872.
 
-| 160
-
 Fortin tira son sabre du fourreau — le sabre que lui
 avait donné Ferré l'avant-veille. Il le tendit à Sicard,
 qui, sans lever l'arme — les exécuteurs étaient tellement
@@ -89,7 +87,7 @@ de feu, vous avez rechargé votre arme pour tirer de nouveau.
 arrondissement) ; blessé boulevard Voltaire le 25 mai, mort à lPhô-
 pital de Versailles le 20 juin 1871.
 
-un peu de vérité sur la mort des otages # ÿ
+un peu de vérité sur la mort des otages #
 devait être grièvement blessé le lendemain, Jourde, (1) |
 
 — Eh bien! c'est fait, leur dit Genton, en s'approchant. Nous venons de fusiller l'archevêque !
@@ -116,13 +114,13 @@ répandue rapidement dans la foule qui encombraït les
 Les hommes du peloton avaient raconté les détails
 du drame. L'odeur de sang qui flottait depuis le matin $
 
-(1) Jourde (François), membre de la Commune (einquième arron- é
+(1) Jourde (François), membre de la Commune (einquième arron-
 
 (2) Theïsz (Albert), membre de la Commune (douzième arrondis- ;
-sement) ; délégué aux postes et télégraphes (6 avril). L
+sement) ; délégué aux postes et télégraphes (6 avril).
 
 enivrait les combattants, sûrs désormais que la mort
-les attendait à brève échéance, la pire mort, celle des j
+les attendait à brève échéance, la pire mort, celle des
 représailles qui déciment les vaincus.
 Un de mes amis, Francis Privé, (1) traversait à ce
 moment la place, avec Jourde, le délégué aux finances,
@@ -386,11 +384,11 @@ pas été question une seule fois de Jecker, ni d'aucun
 (1) Pour suivre ce récit, il est indispensable de se reporter à une
 carte du Paris de 1871. Ici, par exemple, le lecteur ne comprendrait pas, sans consulter une carte, pourquoi, pour atteindre les
 hauteurs de Ménilmontant, on passe par la rue des Partants. Cette
-rue, ce « chemin », comme on disait alors, était la seule voie d'accès à ces hauteurs. L'avenue Gambetta, qui longe le côté nord du ï
+rue, ce « chemin », comme on disait alors, était la seule voie d'accès à ces hauteurs. L'avenue Gambetta, qui longe le côté nord du
 Père-Lachaise, a été percée après les événements.
 (2) Dans le récit des Droits de l'Homme, c'est Clavier, désigné
 sous le nom de « l'homme », qui apporte de la mairie l'ordre de
-fusiller Jecker. C'est une erreur. Clavier n'est pas monté à la 5
+fusiller Jecker. C'est une erreur. Clavier n'est pas monté à la
 
 un peu de vérité sur la mort des otages
 ; Le nom du banquier mexicain (x) est prononcé pour la ;
@@ -455,7 +453,7 @@ Le Ce fut Clavier qui sonna à la porte.
 À Sur une réponse aflirmative, tous cinq entrèrent dans
 . à la cour et ensuite au greffe, où était François.
 Après échange de poignées de main, tous étant de
-| vieux camarades de luttes politiques : E
+| vieux camarades de luttes politiques
 — Tu as ici Jecker? demanda Clavier.
 ‘ — Eh bien! nous venons le prendre.
 J — Vous avez des ordres ? ;
@@ -467,7 +465,7 @@ F — Ne t'occupe pas de cela. C'est notre affaire.
 8 — Vous me donnerez un reçu? reprit encore Fran-
 
 un peu de vérité sur la mort des otages LS
-Clavier écrivit un reçu de la remise du prisonnier, 1
+Clavier écrivit un reçu de la remise du prisonnier,
 reçu qu'il déposa sur la table du greffe. |
 François donna l'ordre d'extraire Jecker de sa cellule,
 : la cellule 28. La figure inquiète, il tournait et retournait dans ses doigts le reçu de Clavier.
@@ -492,9 +490,9 @@ du greffe. ;
 , (r) Ici, comme partout, j'enregistre purement et simplement ce
 qui s'est dit. G... m'a affirmé que telles avaient'été les paroles de
 François, mais qu'il n'ajoutait aucune foi à son dire.
-176 9
+176
 
-Clavier questionna le prisonnier pendant un grand k
+Clavier questionna le prisonnier pendant un grand
 s quart d'heure. Il lui reprocha « l'immense fortune »
 
 E acquise dans les spéculations mexicaines.
@@ -551,7 +549,7 @@ montant, on s'engagea dans la rue des Amandiers,
 étroite, bordée de maisons grises, avec des échappées
 sur le Paris des faubourgs, vitrages d'ateliers pauvres,
 cheminées d'usines, jardins entourés de murs galeux.
-Malgré l'heure matinale, des fédérés, des femmes, Ë
+Malgré l'heure matinale, des fédérés, des femmes,
 des gamins, sont sur le pas des portes, à l'entrée des
 On dévisage le prisonnier, dont la tenue correcte,
 l'attitude sévère, augmentent la curiosité,
@@ -646,7 +644,7 @@ François « fouilla le cadavre, prit le portefeuille et le porte-
 « monnaie ». Or, François n'était pas là.
 
 (2) Nous répétons le mot tel qu'il nous a été rapporté par l'un
-des acteurs du drame. Voir aux Annexes, note VI, page 229.
+des acteurs du drame. Voir aux Annexes, note VI, page
 
 Jecker venait de tomber, quand deux hommes, attirés
 . par les coups de feu, arrivèrent en courant.
@@ -692,8 +690,8 @@ détenus à la Grande Roquette et tous les otages que le peloton d'escorte pourr
 Cet ordre vague n'a jamais existé que dans l'imagination de
 M. Maxime du Camp. Là aussi, comme dans ses récits de la mort
 maintes fois faussé compagnie à la vérité. « Gois monte à cheval. »
-(page 307) Ranvier dit à Gois à la mairie de Belleville: « Va me 7
-fusiller tout cela aux remparts. » (page 310) Autant d'inventions, 5
+(page 307) Ranvier dit à Gois à la mairie de Belleville: « Va me
+fusiller tout cela aux remparts. » (page 310) Autant d'inventions,
 sans oublier la fameuse vivandière à cheval, vêtue de rouge et le LR
 sabre à la main ! Ce n'est pas de l'histoire que fait Maxime du
 Camp, c'est du roman.
@@ -729,7 +727,7 @@ les bastions 12 à 24, de la route de Montreuil à la route de Metz,
 et les portes de Montreuil, Bagnolet, Ménilmontant, Romainville, Saint-Gervais et Pantin, d'un développement de 40 kilo-
 
 . mètres, était commandé par le général Callier. Le quartier géné-
-ral était rue Haxo, 99.
+ral était rue Haxo,
 
 (2) C'était ce qu'on appelait la Cité de Vincennes. Aujourd'hui
 une Société civile a acquis le terrain, et, au-dessus de la porte
@@ -769,7 +767,7 @@ feuille volante les noms qu'il choisissait.. les Jésuites.
 ceux de Picpus... Maintenant les gardes de Paris... Et
 puis, avant tout, les quatre mouchards... à
 
-François avait relevé la tête. l
+François avait relevé la tête.
 
 — Oui, disait Gois. Ah! je sais bien que tu voudrais
 en sauver un... Mais, sois tranquille, j'ai l'œil dessus...
@@ -965,7 +963,7 @@ Lorsque Giffault pénétra dans le cabinet de Lagrange,
 le foyer de la cheminée était encore plein de papiers
 presque entièrement consumés, qui étaient les fameuses
 fiches au moyen desquelles il était possible de retrouver
-les noms des agents secrets. Quant au casier A. S.
+les noms des agents secrets. Quant au casier A.
 (Agenis Secrets), il était entièrement vide. En fin limier,
 Lagrange avait garé tout son monde.
 
@@ -1059,7 +1057,7 @@ Ruault le 16 mai. Il lui dit que s'il ne faisait pas de révélations, il
 serait fusillé le lendemain. Le lendemain, Ruault faisait des révé-
 lations, et l'affaire n'eut pas de suite. » (Gazette des Tribunaux.
 (2) Regnard (Albert), docteur en médecine, secrétaire général de
-la Préfecture de police. ÿ
+la Préfecture de police.
 
 On mit devant Ruault une feuille de papier blanc, et
 on lui dit d'écrire quelques lignes.
@@ -1161,8 +1159,6 @@ Dereste, droit, correct, pantalon et paletot noirs.
 
 l'un de ceux qui les ont pris à la prison, C., le revolver
 
-| 197
-
 un peu de vérité sur la mort des otages {
 chargé en main, prêt à faire feu sur celui des quatre
 qui tenterait de fuir.
@@ -1193,7 +1189,7 @@ J'ai retrouvé, dans cette rue de Paris qui vit passer
 (2) Ranvier (Gabriel), membre de la Commune, vingtième arron- ;
 dissement. Membre du Comité de Salut public (2 mai).
 
-Une après-midi, je parcourais ces quartiers, à la recherche des souvenirs des inoubliables jours, quand 14
+Une après-midi, je parcourais ces quartiers, à la recherche des souvenirs des inoubliables jours, quand
 j'avisai une pauvre boutique de brocanteur, s'ouvrant,
 sur le trottoir étroit, à mi-chemin environ de la rue
 Dans cette humble boutique, dont la porte grande
@@ -1335,7 +1331,7 @@ En même temps que les otages entraient au secteur
 par l'allée, la foule envahissait le jardin. (1)
 Quelque chose lui disait-il, à cette foule exaspérée
 par la déroute, qu'une vengeance terrible allait lui
-être offerte, et qu'au pied de ce mur qu'elle regardait Ç
+être offerte, et qu'au pied de ce mur qu'elle regardait
 depuis l'arrivée du cortège, les otages allaient être
 Un quart d'heure avant la fusillade, trois hommes,
 dont un membre de la Commune, Avrial, et deux journalistes, Lissagaray (2) et Alphonse Humbert (3) se ]
@@ -1384,7 +1380,7 @@ grille du secteur.
 Alavoine se précipite pour barrer l'entrée. Il se heurte
 à un fédéré à barbe blanche qui, se plaçant devant lui,
 
-* lui ferme le chemin: f
+* lui ferme le chemin:
 
 — Voilà huit jours qu'on fusille les nôtres en tas! crie
 
@@ -1576,7 +1572,7 @@ on ne savait d'où, avait crié :
 — C'est ignoble !
 
 Il n'avait pas fermé la bouche qu'un canon de fusil,
-s'abattant sur l'épaule de C., visait l'homme à bout portant et lui fracassait la tête. l
+s'abattant sur l'épaule de C., visait l'homme à bout portant et lui fracassait la tête.
 
 Deux pas séparaient cette nouvelle victime du tas
 des morts.
@@ -1639,14 +1635,14 @@ le sixième conseil de guerre qui jugea l'affaire de la rue
 
 François, qui avait refusé de livrer les otages ; Dalivous, un de ceux qui avaient commandé le feu;
 Bénot, (1) qui n'avait même point assisté au massacre
-et que perdit la déposition d'un de ses anciens officiers, k
+et que perdit la déposition d'un de ses anciens officiers,
 Victor-Clément Thomas, le propre neveu du général
 fusillé à Montmartre; Saint-Omer, qui y avait assisté,
 mais sans y prendre d'autre part; et trois petits soldats
 de vingt ans, Aubry, Trouvé et Racine, dont le grand
 
 (1) Bénot (Victor), colonel du 1* régiment Bergeret. Condamné
-à mort, affaire Haxo, fusillé à Satory le 22 janvier 183.
+à mort, affaire Haxo, fusillé à Satory le 22 janvier
 
 un peu de vérité sur la mort des otages
 crime était d'avoir déserté le 18 mars et d'être entrés
@@ -1666,7 +1662,7 @@ et pas une lueur de vérité!
 Et les condamnations pleuvent quand même, frappant innocents et comparses, quand les vrais acteurs
 
 François fut fusiilé à Satory, le' 24 juillet 1872, en
-même temps que Dalivous, Aubry et Saint-Omer. Bénot i
+même temps que Dalivous, Aubry et Saint-Omer. Bénot
 
 f: devait attendre encore six mois avant de s'adosser, le
 
@@ -1702,7 +1698,7 @@ son, peine enviable en ces temps où le bagne guettait
 
 « Saint-Omer, nous raconta son ancien Compagnon,
 était un homme d'environ quarante-cinq ans, à l'allure
-de Don Quichotte. Il était le propre fils du fameux SaintOmer, professeur, avec Brard, de calligraphie. Henri 4
+de Don Quichotte. Il était le propre fils du fameux SaintOmer, professeur, avec Brard, de calligraphie. Henri
 Monnier rendit illustres les deux associés. Il avait été
 négociant à Cuba, et il était arrivé en France aux premiers jours de la guerre. Garde national, Saint-Omer
 s'était battu à Champigny et à Buzenval, où il fut
@@ -1721,7 +1717,7 @@ de Satory !
 
 « La figure d'Omer s'éclairait d'un gros rire.
 
-un peu de vérité sur la mort des otages 1
+un peu de vérité sur la mort des otages
 « — Moi fusillé ? clamait-il. Mais comment pourrait-on
 5 me condamner. Je n'avais que ma canne à la maïn! »
 Dans ce récit du massacre, une silhouette se détache,
@@ -1804,7 +1800,7 @@ prêtres, très vieux. Ils marchèrent lentement vers le
 
 mur. Nous les vimes s'agenouiller.
 
-Nous nous dissimulâmes, attendant, pour poursuivre ù
+Nous nous dissimulâmes, attendant, pour poursuivre
 notre visite, qu'ils se fussent éloignés.
 
 Quand les trois prêtres furent partis, nous nous
@@ -1875,24 +1871,24 @@ concernant cette exécution.
 ; un peu de périté sur la mort des otages ?
 Autant de phrases, autant d'erreurs. Fi DA
 - Comment M. Lefrançais, si véritablement il s'est renseigné auprès de tous, si seulement il a été présent à la
-mairie, n'a-t-il eu aucune connaissance des pas et dé- L
-marches de Genton et de Fortin, ses amis, non plus que d:
-des deux ordres signés de Ferré? ê
-Monseigneur Sura au nombre des six otages du mer- 4
+mairie, n'a-t-il eu aucune connaissance des pas et dé-
+marches de Genton et de Fortin, ses amis, non plus que
+des deux ordres signés de Ferré?
+Monseigneur Sura au nombre des six otages du mer-
 Lefrançais dit encore que c'est vers cinq heures qu'il
 apprit l'exécution, qui, d'après lui, aurait donc eu lieu
-entre quatre et cinq. Or, les otages, nous l'avons 2
+entre quatre et cinq. Or, les otages, nous l'avons
 montré, furent exécutés un peu avant huit heures. |
-Malon n'est pas plus exact dans sa Troisième 5
+Malon n'est pas plus exact dans sa Troisième
 défaite du Prolétariat Français (Neuchâtel, 1831), :
 Dans cette journée du 26 (vendredi), écrit-il, furent exé- Les
 cutés de nouveaux otages à la Roquette.
 Aucun otage ne fut fusillé le 26 à la Roquette. Jecker
 fut fusillé rue de la Chine. Les cinquante otages de |
-l'après-midi furent conduits rue Haxo. d
+l'après-midi furent conduits rue Haxo.
 Lissagaray dans son Histoire de la Commune, Da
 Costa dans sa Commune Vécue, semblent ignorer les
-circonstances dans lesquelles Beaufort se mêla au mou- 2
+circonstances dans lesquelles Beaufort se mêla au mou-
 Da Costa, parlant de Beaufort, dit : « .… le comte de #4
 
 Beaufort, élégant et vigoureux jeune homme, venu, on
@@ -1920,7 +1916,7 @@ Le citoyen auquel s'adresse notre collègue s'éloigne atterré.
 — C'est Moreau, du Comité Central. Les hommes du 166°
 viennent de fusiller de Beaufort, son beau-frère. |
 - Beaufort était donc, d'après Lefrançais, lé propre beaufrère d'Édouard Moreau. Gouhier (voir note page 146)
-dit qu'il n'était que cousin du membre du Comité cen223 s
+dit qu'il n'était que cousin du membre du Comité cen223
 
 un peu de vérité sur la mort des otages . |
 tral. Cette parenté explique, dans l'un ou l'autre £as,
@@ -1932,7 +1928,7 @@ partie du 66° bataillon, et non du 166°.
 © (Page 147. — Sur la prise du Panthéon)
 Voici l'épisode des journées de juin 1848 auquel je fais
 allusion à propos de la lutte autour du Panthéon. Il est
-consigné dans le Prologue d'une Révolution de Louis ù
+consigné dans le Prologue d'une Révolution de Louis
 à | Ménard (page 162. Édition des Cahiers de la Quinzaine {
 L'insurrection s'était concentrée pendant la nuit dans le
 quartier Saint-Jacques, dans la Cité, dans les faubourgs
@@ -1945,7 +1941,7 @@ général Damesme y fut blessé et mourut quelques jours
 après. Le canon brisa les portes du Panthéon et renversa
 une statue colossale qui se trouvait à l'extrémité du monument.
 En écrivant que le Panthéon a été occupé « presque
-sans combat », j'ai éveillé, bien involontairement, les È
+sans combat », j'ai éveillé, bien involontairement, les
 susceptibilités de quelques anciens camarades de lutte
 du cinquième arrondissement.
 
@@ -1988,17 +1984,17 @@ bien. Vous pouvez dire à votre empereur et à l'archevêque
 de Paris (considérés comme ennemis), que le pape se porte |
 
 M. Hyacinthe Loyson a confirmé ce grave propos …
-dans un article, paru dans le Siècle du 22 janvier 1906, R
+dans un article, paru dans le Siècle du 22 janvier 1906,
 
-suit sa conversation avec Pie IX : 3
+suit sa conversation avec Pie IX
 
 Ce fut dans de telles conjonctures qu'eut lieu l'un de mes
 principaux entretiens avec Pie IX.
 
-« Vous retournez à Paris, me dit-il, vous verrez votre archevêque, vous verrez votre empereur. Dites-leur que le x
+« Vous retournez à Paris, me dit-il, vous verrez votre archevêque, vous verrez votre empereur. Dites-leur que le
 pape se porte bien, qu'il n'en veut à personne, mais qu'il ;
 
-Je répondis : « Très-Saint-Père, je ne fréquente pas les É
+Je répondis : « Très-Saint-Père, je ne fréquente pas les
 Tuileries, mais quant à l'archevêque de Paris, je crois à
 
 ë pouvoir assurer Votre Sainteté qu'elle ne le trouvera jamais Fe
@@ -2015,10 +2011,10 @@ Au sujet des dissentiments bien connus qui s'élevèrent,
 entre Monseigneur Darboy et le Saint-Siège, lire la fameuse lettre du 26 octobre 1865 : « Le Pape Pie IX au
 Vénérable Frère Georges, Archevêque de Paris »; repro-
 
- duite par M. Emile Ollivier dans son livre Le 19 Jan- s
-vier (à partir de la 3° édition). j
-; Lire encore l'étude très documentée parue dans la i
-Revue d'Histoire et de Littérature religieuses, numéro de : 3
+ duite par M. Emile Ollivier dans son livre Le 19 Jan-
+vier (à partir de la 3° édition).
+; Lire encore l'étude très documentée parue dans la
+Revue d'Histoire et de Littérature religieuses, numéro de
 
 Paris) intitulée: Monseigneur Darboy et le Saint-Siège.
 (Page 159. — Sur deux lanternes)
@@ -2037,13 +2033,13 @@ perron de l'escalier de secours par où étaient descendus les otages, au lieu d
 L'heure de l'exécution est confirmée par plusieurs
 A l'audience du 8 août 1871 du troisième conseil de
 guerre (Procès des membres de la Commune), Trinquart,
-pharmacien de la prison, dépose : « J'ai entendu ÿ
+pharmacien de la prison, dépose : « J'ai entendu
 à huit heures un feu de peloton. »
 . Dans son livre, Un prétre et la Commune de Paris en
 1871, l'abbé G. Delmas, vicaire à Saint-Ambroise, -
 ex-otage à la Roquette, écrit (page 202) : « Vers les huit
 
-un peu de vérité sur la mort des otages ; 1
+un peu de vérité sur la mort des otages
 heures, nous bondîmes sous la détonation d'un feu de |
 peloton qui sortait du chemin de ronde. » Le même
 abbé, qui, ne l'oublions pas, était enfermé à la Roquette,
@@ -2085,7 +2081,7 @@ passer les otages, etc. »
 
 Ce Vaitier, qui éclairait le corridor sur lequel s'ou-
 
-228 4
+228
 
 vraient les cellules, a certainement éclairé l'escalier, . |
 plus obscur encore.
@@ -2095,7 +2091,7 @@ donc pas, comme l'écrit Da Costa, une « invention de
 
 (Page 180, — Laissez là « cette charogne »)
 
-4 Comme le fait remarquer notre note en bas de
+Comme le fait remarquer notre note en bas de
 page, nous enregistrons le mot, tel qu'il nous a été
 rapporté par l'un des acteurs du drame.
 
@@ -2116,9 +2112,9 @@ Il a été tiré de ce cahier vingt exemplaires sur
 premier exemplaire de souche, exemplaire du gérant;
 deuxième exemplaire de souche, exemplaire de 'administrateur ;
 : troisième exemplaire de souche, exemplaire de l'imprimeur;
-neuf exemplaires d'aëonnement, numérotés de I à 9
+neuf exemplaires d'aëonnement, numérotés de I à
 et huit exemplaires d'auteur numérotés a, b, c, d,e,
-Tous nos exemplaires sur whatman sont numérotés x
+Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur ; nos
 tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque instant souscrits; nous ne vendons point d'exemplaires
 sur whatman en dehors de l'abonnement; l'abonnement
@@ -2149,8 +2145,8 @@ Bourgeois, même adresse, le prix de l'abonnement; on
 recevra les cahiers parus, et de quinzaine en quinzaine,
 à leur date, les cahiers à paraître de cette neuvième
 
-rez-de-chaussée, Paris, cinquième arrondissement. S
-Nos Cahiers sont édités par des souscriptions men- 5
+rez-de-chaussée, Paris, cinquième arrondissement.
+Nos Cahiers sont édités par des souscriptions men-
 suelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur :
 la rédaction ni sur l'administration ; ces fonctions |
 Nos Cahiers paraissent par séries; une série paraît

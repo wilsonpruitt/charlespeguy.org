@@ -138,8 +138,8 @@ Les religieuses se firent donner des corvées d'infirmiers, qu'elles menaient au
 ont retrouvé sous les ruines des objets de haute
 
 valeur, fourrures, meubles, etc. D'ailleurs elles n'en
-tiennent pas boutique et en font bénéficier libéra- Ê
-lement les malades; inutile de dire que les infir- û
+tiennent pas boutique et en font bénéficier libéra-
+lement les malades; inutile de dire que les infir-
 miers ne se sont pas oubliés.
 On discute sur le nombre de caisses emportées
 par un officier très haut placé. Les uns disent deux
@@ -260,7 +260,7 @@ Les Russes ont pillé et massacré sauvagement.
 J'ai déjà dit le dégoût général qu'ils inspiraïent.
 
 J'ai interviewé un officier qui m'a donné des impressions. Je les donne d'une façon générale, en
-reliant ensemble des aperçus, des phrases, qu'il i
+reliant ensemble des aperçus, des phrases, qu'il
 m'a dites en divers entretiens, après son retour
 de Pékin :
 « Je suis dégoûté d'être venu ici, car j'ai vu
@@ -292,7 +292,7 @@ de la moralité chez tous ceux qui arrivent ici. »
 l'infanterie de marine (et ils ont des officiers qui ont
 réfléchi, qui se rendent compte des choses et qui les
 
-tiennent, par exemple le capitaine D****à T°******), 1
+tiennent, par exemple le capitaine D****à T°******),
 nos troupes sont encore celles qui ont le moins
 pillé. J'ai rencontré ces officiers allemands si chics
 qui redescendent de Pékin en étalant des fourrures
@@ -342,7 +342,7 @@ Cujas, Paris. On doit toujours s'abonner à tout, du
 moins autant qu'on le peut. On ne doit jamais boycotter
 personne. Jamais on ne doit boycotter un travail sérieux.
 Quand un article de revue ou de journal, quand un
-livre parait mauvais, on doit écrire dans une revue, ï
+livre parait mauvais, on doit écrire dans une revue,
 dans un journal ou dans un livre que cela paraît
 La Bibliothèque Socialiste, que nous annoncerons
 bientôt plus en détail, a déjà publié

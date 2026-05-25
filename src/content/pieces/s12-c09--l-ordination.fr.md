@@ -563,8 +563,6 @@ vie, ses larmes, sa jeunesse... Et ses bras
 retombèrent... Et ce fut la dernière convul-
 sion d'un amour expirant... Il quitta son
 
-                                          1910
-
    *Nous avons donné le bon à tirer après corrections*
 *pour deux mille exemplaires de ce neuvième cahier*
 *et pour quatorze exemplaires sur whatman le mardi*

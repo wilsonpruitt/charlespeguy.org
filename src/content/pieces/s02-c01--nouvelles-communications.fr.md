@@ -64,7 +64,7 @@ j'applaudirais à l'heureuse idée qu'a eue l'Aurore de
 nous donner Zadig, puis le Père Goriot. Je n'avais
 pas lu Zadig. Je n'avais pas lu le Père Goriot. Tout le
 monde en parle. Mais qui les a lus? De même la Petite
-République a fort bien fait de nous donner l'Égalité, de s
+République a fort bien fait de nous donner l'Égalité, de
 Bellamy et même À Perpétuité, roman australien. Cela
 vaut toujours mieux que Borgia! de ce pauvre Michel
 Zévaco. — En attendant le Triboulet du même.
@@ -203,7 +203,7 @@ trois possessions où vous n'avez réussi qu'à implanter des
 douaniers, des fonctionnaires et des dévoyés, lie de votre
 Je vous salue bien.
 
-Le Matin a commencé à donner souvent, en particulier sous cette rubrique, des consultations interindivi- Û
+Le Matin a commencé à donner souvent, en particulier sous cette rubrique, des consultations interindivi-
 duelles où le pour et le contre étaient honnêtement
 
 proposés. La méthode gagnerait-elle de proche en proche ? Ton
@@ -292,7 +292,7 @@ suit, que l'éclatante ignominie du commandant comte
 
 avait le plus fortement contribué à cet ébranlement de
 
-Or j'attendais serein le mercredi demain matin habi- ù
+Or j'attendais serein le mercredi demain matin habi-
 tuel quand hier lundi M. Bourdieu vint me trouver
 après sa classe à la maison, triomphant. Je pressentis
 un malheur. Lisez, me disait-il, me tendant un carré de
@@ -446,7 +446,7 @@ camarade Dubois-Desaulle, pour son affiche sur les Crimes militaires
 aux cocos de Madagascar. Pour le juger, on a choisi Nancy, ville
 ultra-militariste. Un nommé Legros, capitaine commandant la
 deuxième compagnie des disciplinaires coloniaux à Diégo-Suarez, se
-prétend diffamé. Il paraît que ces gens-là sont diffamables. R.
+prétend diffamé. Il paraît que ces gens-là sont diffamables.
 (2) Nous donnerons les documents et les renseignements que nous
 aurons et que nous pourrons donner sur ces interprétations dans la
 deuxième série de ces cahiers, sous le titre courant : du premier
@@ -573,7 +573,7 @@ femme de chambre. Dès [a repue blanche le roman se
 nommait le Journal d'une Femme de chambre. Le jour-
 
 premier cahier de la deuxième série
-naliste aura pensé obscurément que Mémoires était plus 4,
+naliste aura pensé obscurément que Mémoires était plus
 grand, plus historique. M. Gaston Méry n'a:t-il pas, autant
 
 que je me rappelle, publié les Mémoires de Vacher ?
@@ -588,17 +588,17 @@ cation était immonde, et les bons journalistes, qui depuis
 ont tartiné avec enthousiasme, constataient que c'était
 immonde. Il n'était pas nécessaire d'avoir une extraor- Fe:
 dinaire perspicacité pour 's'en apercevoir.
-Il est tartuffe et basile de nommer d'avance hypo- Ë
+Il est tartuffe et basile de nommer d'avance hypo-
 crites et farceurs les bonnes gens qui auront trouvé que ‘À
 ce roman est ignoble et qui Le diront.
 Mirbeau devait s'attendre à cela. Pareille explosion de
 pudibonderie, même déchaînement de colères simulées
-avaient accueilli son Jardin des supplices, où notre collabo- k
+avaient accueilli son Jardin des supplices, où notre collabo-
 rateur B. Guinaudeau conduisit et promena nos lecteurs, ta
 éblouis de tant de lumière crue, mais toujours tenus sous ‘
 le charme puissant de la haute pensée de l'écrivain.
-La colère que nous avons eue contre le Jardin des j1
-Supplices n'était nullement simulée. Nous avons sincè- ñ
+La colère que nous avons eue contre le Jardin des
+Supplices n'était nullement simulée. Nous avons sincè-
 rement pensé que ce volume était immonde et qu'il révé-
 lait la mentalité antisémitique de son auteur, comme les
 araignées venimeuses de M. Rochefort et les chemises : À
@@ -672,7 +672,7 @@ sombre Saint-Lazare — a mis patiemment à nu la plus
 
 }_  hideuse de nos plaies sociales : la domesticité avec toutes
 
-- ses misères physiques et morales, la domesticité, ce mo- Î
+- ses misères physiques et morales, la domesticité, ce mo-
 
 -_ derne esclavage dont les affranchies forment les gros contingents de la prostitution, libre ou cloîtrée, ne faisant en
 somme que changer d'ergastule.

@@ -120,7 +120,7 @@ Au congrès d'Amiens, une minorité de 45.000 syndiqués sur 300.000 disposait d
 
 atteindre la majorité dans les votes. (Guérard, Humanité du 31 mai 1907)
 
-On a cherché bien des fois à modifier cette situation illogique, mais en vain jusqu'ici. Les révolutionnaires ont recours à tous les moyens pour conserver la direction de la C. G. T.
+On a cherché bien des fois à modifier cette situation illogique, mais en vain jusqu'ici. Les révolutionnaires ont recours à tous les moyens pour conserver la direction de la
 
 Ils justifient leur attitude par le droit des minorités. Si la représentation proportionnelle était appliquée, disent-ils, les petites organisations seraient submergées par les grandes, ce qui ne serait pas juste. Mais ils trouvent plus juste d'imposer les vues de la minorité à la majorité.
 
@@ -128,7 +128,7 @@ Cet état de choses ne peut être modifié que par un vote du congrès et tout v
 
 Il y a d'ailleurs, chez les syndicalistes réformistes, une difficulté morale à réagir, avec toute l'énergie qu'il faudrait, contre les déclamations du syndicalisme révolutionnaire ; ce dernier en effet est aux yeux de beaucoup d'ouvriers très sincères, mais peu éclairés, le représen-
 
-tant par excellence des intérêts des travailleurs ; il faut donc du courage et de l'habileté à des secrétaires de syndicats réformistes pour s'élever dans la presse ou les réunions publiques contre des conceptions aussi attirantes pour le prolétariat que l'action directe ou la grève générale révolutionnaire. Les militants révolutionnaires n'hésitent pas à accuser de modérantisme ou même de trahison les syndiqués qui ne marchent pas avec eux ou qui discutent leur tactique. Aussi, par la crainte de paraître trop modérés en s'élevant ouvertement contre certaines propositions ou certains actes, beaucoup de secrétaires réformistes acceptent momentanément la domination usurpée de la minorité révolutionnaire, comptant sur la propagande corporative qu'ils mènent énergiquement dans leurs propres organisations pour convaincre les camarades. Dans les congrès confédéraux, en effet, l'action est difficile et dangereuse ; le terrain et les armes du combat sont très variés. D'ailleurs les organisations réformistes se groupent toujours de manière à s'assurer la majorité. C'est donc avec la quasi-certitude d'être vaincus que les réformistes se rendent aux congrès de la C. G. T.
+tant par excellence des intérêts des travailleurs ; il faut donc du courage et de l'habileté à des secrétaires de syndicats réformistes pour s'élever dans la presse ou les réunions publiques contre des conceptions aussi attirantes pour le prolétariat que l'action directe ou la grève générale révolutionnaire. Les militants révolutionnaires n'hésitent pas à accuser de modérantisme ou même de trahison les syndiqués qui ne marchent pas avec eux ou qui discutent leur tactique. Aussi, par la crainte de paraître trop modérés en s'élevant ouvertement contre certaines propositions ou certains actes, beaucoup de secrétaires réformistes acceptent momentanément la domination usurpée de la minorité révolutionnaire, comptant sur la propagande corporative qu'ils mènent énergiquement dans leurs propres organisations pour convaincre les camarades. Dans les congrès confédéraux, en effet, l'action est difficile et dangereuse ; le terrain et les armes du combat sont très variés. D'ailleurs les organisations réformistes se groupent toujours de manière à s'assurer la majorité. C'est donc avec la quasi-certitude d'être vaincus que les réformistes se rendent aux congrès de la
 
 Il faut signaler d'ailleurs quelques exceptions à cette attitude beaucoup trop timide des réformistes. À propos du mouvement du 1er mai 1906, en particulier, deux protestations très vives ont été élevées contre les procédés de polémique de la C. G. T. par Keufer, secrétaire général de la Fédération du Livre, et Coupat, secrétaire général de la Fédération des ouvriers mécaniciens de France. Le premier, dans un article longuement documenté de la Revue Syndicaliste, a prouvé qu'Émile Pouget, rédacteur en chef de la Voix du
 
@@ -138,7 +138,7 @@ Il ne faut pas que cette situation paradoxale dure beaucoup plus longtemps, car 
 
 D'ailleurs, la raison pratique triomphe toujours chez les esprits sérieux et sincères. Et c'est ainsi que nous avons vu plusieurs des militants les plus en vue du syndicalisme révolutionnaire évoluer progressivement vers l'action réformiste. Guérard, par exemple, secrétaire général du Syndicat National des Chemins de fer, fut, il y a quelques années, secrétaire de la
 
-C. G. T., avant Griffuelhes ; il était alors partisan résolu de la grève générale et tout faisait craindre qu'il ne versât dans le syndicalisme le plus révolutionnaire. L'expérience des faits et des hommes s'est chargée de modifier ses dispositions, il a mis grands mots et formules de côté, et il est devenu le plus puissant des syndicalistes. De même Niel, secrétaire de la Bourse du Travail de Montpellier, était en 1904 encore un fervent révolutionnaire. Or, il a publié depuis quelques mois, dans l'Humanité, des articles d'inspiration réformiste, très opposés aux tendances des libertaires de la C. G. T.
+C. G. T., avant Griffuelhes ; il était alors partisan résolu de la grève générale et tout faisait craindre qu'il ne versât dans le syndicalisme le plus révolutionnaire. L'expérience des faits et des hommes s'est chargée de modifier ses dispositions, il a mis grands mots et formules de côté, et il est devenu le plus puissant des syndicalistes. De même Niel, secrétaire de la Bourse du Travail de Montpellier, était en 1904 encore un fervent révolutionnaire. Or, il a publié depuis quelques mois, dans l'Humanité, des articles d'inspiration réformiste, très opposés aux tendances des libertaires de la
 
 Ce mouvement des esprits n'est pas à constater seulement chez les militants les plus en vue ; une évolution correspondante est visible dans la masse des syndiqués. C'est ainsi, par exemple, que sur la question de la représentation proportionnelle dans les congrès de la C. G. T., alors que au congrès de Lyon ne s'en était pas occupé, il y eut au congrès de Montpellier 75 mandats favorables ; au congrès de Bourges en 1905, cette minorité grandit considérablement, il y eut 388 mandats favorables et 822 opposés à la représentation proportionnelle.
 
@@ -334,7 +334,7 @@ J'assistai ainsi il y a quelques mois à la scène suivante qui se passait dans 
 
 Loin de moi la pensée de me scandaliser de cette manière de faire : chacun est libre de penser comme il veut et de chercher à répandre ses idées parmi ceux qui l'approchent. Je ne doute pas de la sincérité de ceux qui font une aussi naïve propagande. (1) Mais les questions qui, sur ce point, se posent à nous, comme, je le sais, à beaucoup de socialistes, sont les suivantes : Le P. S. a-t-il raison ou a-t-il tort, au point de vue de l'expansion de ses idées dans la masse électorale, de
 
-(1) Griffuelhes. Congrès d'Amiens, page 166.
+(1) Griffuelhes. Congrès d'Amiens, page
 « Aurait-il tante trop sur la croyance des libertaires au sein du comité confédéral, ils n'y sont pas si nombreux que le veut la légende. Mais c'est une tactique pour faire surgir un péril libertaire, le condamner et faire des économies. Et bien, dans les vagues affirmations, il fallait produire des faits, des résolutions, des documents, démontrant la mainmise de la C. G. T. et inspiré par l'unique objectif anarchiste. Il n'y en a pas !! Qu'il y ait chez certains d'entre nous des idées libertaires, oui ; mais qu'il en naisse des résolutions anarchistes, non ! » — Griffuelhes ne parle pas de cette propagande modeste et officieuse qui porte des fruits souvent plus durables que les exhortations de la propagande officielle.
 
 paraître approuver, ou simplement tolérer une semblable propagande ? Est-il conforme à ses intérêts que les électeurs puissent croire qu'il existe une entente cordiale, pour ne pas dire une alliance, entre les syndicalistes anarchistes antiparlementaires et les syndicalistes qui par définition sont parlementaires ?
@@ -361,8 +361,8 @@ La polémique qui précéda le Congrès de Nancy fut particulièrement instructi
 
 Prenant prétexte de la motion qui devait être proposée par la Fédération de la Dordogne (1) au Congrès de Nancy et s'inspirant des débats qui avaient eu lieu au congrès de la Fédération de la Seine, (2) Griffuelhes, collaborateur régulier de l'Humanité, fit paraître, le 30 juillet, un article dans lequel il prétendait que la motion de la Dordogne était bien une déclaration de guerre ; parce qu'elle parlait de concerter et de combiner les efforts en certaines occasions, il en concluait
 
-(1) Voir le texte de la motion page 57.
-(2) La première escarmouche eut lieu au sujet du congrès de la Fédération de la Seine (22 juillet 1907). Renard de la 13e section avait déclaré au congrès qu'il était partisan des rapports entre le Parti et les Syndicats. Griffuelhes, déformant volontairement sa pensée, écrivit le 31 à l'Humanité : « Le citoyen Renard voudrait que tous les syndicats fissent acte de présence, mais sans rapport auprès des gros bonnets du Parti pour concerter de la besogne journalière à réaliser. Nous sommes d'un avis contraire. Nous nous considérons assez grands garçons pour nous conduire sans demander à Renard et à ses amis un avis quelconque. » Les délégués de la 13e section protestèrent le 25.
+(1) Voir le texte de la motion page
+(2) La première escarmouche eut lieu au sujet du congrès de la Fédération de la Seine (22 juillet 1907). Renard de la 13e section avait déclaré au congrès qu'il était partisan des rapports entre le Parti et les Syndicats. Griffuelhes, déformant volontairement sa pensée, écrivit le 31 à l'Humanité : « Le citoyen Renard voudrait que tous les syndicats fissent acte de présence, mais sans rapport auprès des gros bonnets du Parti pour concerter de la besogne journalière à réaliser. Nous sommes d'un avis contraire. Nous nous considérons assez grands garçons pour nous conduire sans demander à Renard et à ses amis un avis quelconque. » Les délégués de la 13e section protestèrent le
 
 que le Parti socialiste voulait imposer le mariage à la C. G. T. « S'il se réalisait, ce serait de par la volonté d'une partie et malgré l'hostilité de l'autre ; il y aurait, par conséquent, subordination puisque le Parti aurait imposé son caprice à l'organisation ouvrière », considérée comme une « quantité négligeable ». Guesde est aux yeux de Griffuelhes responsable de ces déplorables projets ; et pour qu'il se repente d'avoir osé s'élever contre le syndicalisme qui, progressivement, envahit le socialisme, le secrétaire général de la C. G. T. attaque avec violence le vieux vétéran de ce parti auquel il appartient longtemps.
 
@@ -374,7 +374,7 @@ Le 8 août, le conseil d'administration de l'Humanité qui avait reçu des prote
 
 Le 9 août, Griffuelhes avait ce qu'il appelait lui-même,
 
-reprenant l'expression de Lafargue, « une nouvelle crise d'épilepsie ». Le deuxième article constitue, comme le premier, un précieux document qui nous éclaire très exactement sur la méthode suivie par le secrétaire général de la C. G. T.
+reprenant l'expression de Lafargue, « une nouvelle crise d'épilepsie ». Le deuxième article constitue, comme le premier, un précieux document qui nous éclaire très exactement sur la méthode suivie par le secrétaire général de la
 
 Voici comment il la définit lui-même : « J'ai tenu, dit-il à propos de son premier article, à frapper fort, très fort, pour mettre en garde les camarades. » Et plus loin : « En fait de tactique, il est souvent utile de prendre l'offensive. Comprenez-vous maintenant le pourquoi de ma crise ? »
 
@@ -434,7 +434,7 @@ Voilà la lutte politique de classe qui se livre à Roubaix sans trêve ni merci
 
 * C'est ne donc qu'à Griffuelhes antivotard, à Griffuelhes
 
-anarchiste briseur d'énergie et d'unité que nous en voulons. Nous lui en voulons, parce qu'il nous frappe et qu'il est l'ennemi déclaré du P. S.
+anarchiste briseur d'énergie et d'unité que nous en voulons. Nous lui en voulons, parce qu'il nous frappe et qu'il est l'ennemi déclaré du
 
 Cet article qui correspondait aux pensées intimes de beaucoup de socialistes fut le seul du genre. Les chefs du Parti gardèrent le silence. Paul Faure avait, en particulier, sollicité l'intervention de Jaurès :
 
@@ -502,7 +502,7 @@ Au point de vue théorique, d'ailleurs, le syndicalisme est une force croissante
 
 contraire dans toute la vie sociale, et jusque dans l'État par les syndicats de fonctionnaires. « La C. G. T. a le sens du droit et du rôle révolutionnaire du syndicalisme, et c'est quand on semble lui contester ce droit et ce rôle qu'elle se plaint qu'on lui déclare la guerre. Le danger de la motion de la Dordogne est d'inspirer à la C. G. T. la crainte, bien que mal fondée, que l'on veut limiter son action et que l'on prétend nier sa valeur révolutionnaire, sans doute, elle se trompe. Mais il faut donner aux faits la possibilité de la disparaître. La motion du Cher ménage au contraire toutes susceptibilités et c'est pourquoi nous devons, en laissant l'avenir libre. Au reste, le seul moyen de faire l'accord est de pratiquer souvent, comme nous le faisons au Premier Mai, une action commune. » (1)
 
-Le vote de la motion du Cher, par 167 voix contre 141 à la motion de la Dordogne, consacra le triomphe des idées syndicalistes dans le P. S.
+Le vote de la motion du Cher, par 167 voix contre 141 à la motion de la Dordogne, consacra le triomphe des idées syndicalistes dans le
 
 Ce fut tout au moins le sens qui fut attribué à ce vote ; mais pour préciser toute la portée pratique de la motion du Cher, il importe d'examiner dans leur détail les diverses propositions qui la composent :
 
@@ -692,7 +692,7 @@ Les vues partielles qui ont différencié jusqu'ici les divers partis socialiste
 
 C'est ce lien commun des opinions socialistes sur la tactique syndicale qu'il est nécessaire de déterminer sans retard.
 
-Divers motifs militent en faveur de la publication officielle d'un programme syndicaliste du P. S.
+Divers motifs militent en faveur de la publication officielle d'un programme syndicaliste du
 
 D'abord, au point de vue pratique immédiat, on ne pourra plus accuser une fraction importante du socialisme d'être antisyndicaliste, le jour où tous les socialistes auront fait connaître comment ils sont syndicalistes.
 
@@ -787,7 +787,7 @@ Le P. S. accepte-t-il ces violences ? Si ce n'est pas le cas, qu'il le proclame 
 
 Au point de vue syndical proprement dit, le P. S. doit se prononcer sur les points principaux de tactique qui séparent les diverses écoles du syndicalisme et tracer dans un plan général la ligne de conduite qu'il voudrait voir suivre par tous les socialistes : l'action syndicale socialiste devant avoir la même direction que l'action parlementaire, il est indispensable que tous les socialistes dans leurs syndicats respectifs suivent une même tactique afin de donner une orientation commune au mouvement syndical de toutes les corporations. Le P. S. doit donc indiquer à ses adhérents l'attitude qu'il leur recommande comme la plus favorable aux intérêts du prolétariat sur les points principaux que révolutionnaires et réformistes discutent avec passion au sein des syndicats : ce sont par exemple les questions qui touchent à la neutralité politique du syndicat, à son importance numérique, à sa puissance financière, aux institutions de solidarité et de prévoyance qui grandissent autour de lui ; celles aussi qui se rapportent à la manière dont la grève doit être recherchée ou
 
-évitée, à son caractère révolutionnaire ou économique ; celles enfin qui ont trait au fonctionnement et à la direction de la C. G. T.
+évitée, à son caractère révolutionnaire ou économique ; celles enfin qui ont trait au fonctionnement et à la direction de la
 
 À chaque instant de leur vie syndicale les socialistes se trouvent en présence de ces diverses questions de détail : les solutions les plus diverses leur sont proposées, parmi lesquelles ils sont parfois embarrassés de choisir. Évidemment ce ne sont que des directions générales, de principe, que le P. S. peut proposer à ses adhérents ; ceux-ci devront s'en inspirer dans la lutte quotidienne.
 
@@ -920,7 +920,7 @@ Dans un tel amalgame, l'unité sociale est successivement le syndiqué, le syndi
 
 La Fédération des allumettiers, par exemple, qui compte 1.500 membres, groupe 90 0/0 des travailleurs de l'incorporation ; à côté d'elle, la Fédération des ardoisiers, avec 6.000 cotisants, ne groupe probablement que 25 0/0 de l'effectif corporatif ; ne peut-il pas paraître illogique qu'une Fédération qui groupe 50 0/0 de syndiqués ait voix plus prépondérante que celle qui en groupe 90 0/0 ? Qui plus est, demain, quand les travailleurs de la terre, qui sont déjà passablement nombreux à la Confédération, y seront venus en foules considérables, sera-t-il logique qu'ils aient voix prépondérante, sous prétexte que leur nombre dépassera l'effectif de toutes les Fédérations d'industrie réunies ?
 
-Il serait assurément peu logique de n'appliquer qu'au troisième palier le système de la R. P. Aussi ai-je indiqué précédemment où devait à mon sens commencer logiquement l'application de la R. P.
+Il serait assurément peu logique de n'appliquer qu'au troisième palier le système de la R. P. Aussi ai-je indiqué précédemment où devait à mon sens commencer logiquement l'application de la
 
 La question du rapport entre le nombre des syndiqués et le total des ouvriers de la corporation doit assurément être prise en considération. Pour y donner une sanction pratique, il n'y a qu'à tenir compte dans l'attribution du nombre des voix à chaque fédération du rapport approximatif entre les syndiqués et le total des ouvriers. L'on est convenu à débattre un prix juste : on peut dire par exemple que cette proportionnalité sera représentée par un coefficient fixé arbitrairement d'un commun accord :
 

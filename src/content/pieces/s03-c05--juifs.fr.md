@@ -53,17 +53,17 @@ soixante centimes à M. André Bourgeois, administrateur des cahiers, 8, rue de 
 Le trois francs cinquante on recevra six cahiers spécimens.
 * Nous mettons ce cahier dans le commerce: nous le
 & vendons un franc.
-1 Je serai aux cahiers le jeudi 2 janvier 1902 de une
+Je serai aux cahiers le jeudi 2 janvier 1902 de une
 heure à sept heures et le vendredi 3 de huit heures à
 ; onse heures. ; j sa. ER
 
 Le mémoire que l'on va lire a été publié pour la pre-
 : mière fois chez Ollendorff, en 1901. L'auteur l'avait à
-écrit en 1900, quand l'affaire battait son plein, quand c
+écrit en 1900, quand l'affaire battait son plein, quand
 A elle finissait en effet. L'auteur est un Juif. Il a même un
 _ beau nom juif. Mais il a dû garder ici un pseudonyme
-4 Cette seconde édition est complètement refondue.
-_ Mais nous n'avons pas pu lui enlever cette marque par- b,
+Cette seconde édition est complètement refondue.
+_ Mais nous n'avons pas pu lui enlever cette marque par-
 ticulière d'une affaire qui reste ineffaçable, et qui dans
 la mémoire de l'humanité sera grande longtemps après
 que les États-Majors constitués pour elle et par elle
@@ -110,7 +110,7 @@ ne l'Europe orientale.
 ne Mais il n'a pas lui-même un caractère historique. Iln'a
 f % jamais été que polémique.
 Après dix-neuf cents années, malgré les Révolu4 tions, le peuple errant poursuit sa course in- : °
-Sur le quai de la gare presque désert, ils attendent. Le train qui va les emporter, à la nuit tom- s bante, les jettera demain matin, après huit heures F
+Sur le quai de la gare presque désert, ils attendent. Le train qui va les emporter, à la nuit tom- s bante, les jettera demain matin, après huit heures
 de roulis monotone à travers les petites stations
 interminablement échelonnées sur la ligne, dans
 le Paris houleux, dans l'Inconnu. Ils sont là tous
@@ -219,11 +219,11 @@ seul israélite; parmi les colonels, un seul également.
 — Il ne suflit sans doute pas, au Conseil d'État, de
 | deux conseillers israélites sur quarante-cinq et de
 4 deux maîtres des requêtes sur trente-deux, — à la
-4 Cour de Cassation, d'un conseiller sur quaranteLe.
+Cour de Cassation, d'un conseiller sur quaranteLe.
 
 4 cinq, — à la Cour d'Appel de Paris, de deux conseil-
 | , lers sur soixante-deux, — pour rendre la haute jus4 tice en France boiïteuse et vénale. — A la Cour des
-1 Comptes, pas un. — Aux Affaires Étrangères, par » principe, personne. — A l'Instruction Publique
+Comptes, pas un. — Aux Affaires Étrangères, par » principe, personne. — A l'Instruction Publique
 2 voyez les directeurs, les recteurs, même les doyens
 à] rien. — Feuilletez tous les autres annuaires' spé4 ciaux : Agriculture, Finances, Commerce : mêmes
 4 : constatations partout : on peut dire, d'une façon
@@ -244,7 +244,7 @@ F2 camaraderies politiques ou par le fonctionnement
 ci __ paresseux des hiérarchies automatiques, et personne
 da : encore dans ce pays ne reprocherait sérieusement à
 
-un Darmesteter son traitement de Professeur à la. è
+un Darmesteter son traitement de Professeur à la.
 Faculté des Lettres, à M. Henri Weil ou à M. Salomon Reinach leurs jetons de présence à l'Académie
 des Inscriptions. — Et je n'oublie pas non plus les
 
@@ -300,7 +300,7 @@ jeunes gens israélites vers les professions libérales
 soit que cette autre vie leur apparaisse comme plus
 
 élevée intellectuellement que celle de leurs pères,
-ee soit pour échapper par une « carrière sûre » aux ha- F.
+ee soit pour échapper par une « carrière sûre » aux ha-
 : sards et aux tracas des affaires, ce n'est pas à notre
 démocratie de leur en faire un reproche, ni surtout
 à cette bourgeoisie française dont la bourgeoisie
@@ -350,9 +350,9 @@ blämaient autour d'eux, jusque chez ceux dont la .
 | volonté de « gagner de l'argent » leur avait assuré
 44 les moyens d'être des mandarins. Ils ont dû s'aper-
 
-cevoir que l'argent est indispensable pour vivre, Ç
-qu'il faut en acquérir par sa propre activité sil'on : Ç
-veut un jour donner à ses enfants la même vie qu'on S
+cevoir que l'argent est indispensable pour vivre,
+qu'il faut en acquérir par sa propre activité sil'on
+veut un jour donner à ses enfants la même vie qu'on
 a vécue soi-même, qu'on est plus indépendant quand
 on a « du bien » derrière soi, et que le jour où ces
 messieurs s'aviseraient de vous battre froid dans
@@ -363,7 +363,7 @@ femme et vos enfants, fermer votre boutique ou
 | envoyer votre démission au ministre ?... Et voilà
 comment, au lieu de se reposer de père en fils sur
 un domaine une fois acquis, sur une fortune une
-fois faite, sur un nom une fois établi, et de s'abà- Ë
+fois faite, sur un nom une fois établi, et de s'abà-
 tardir de génération en génération dans la nonchalance d'une existence assurée, presque tous les
 hommes de ce peuple, perpétuellement fouetté par
 des persécutions violentes ou sournoises, sont coniraints de faire eux-mêmes leur apprentissage et à
@@ -382,7 +382,7 @@ tous leurs coreligionnaires. J'ai sous les yeux une
 statistique intéressante établie par M. Louis Du-
 ; rieu dans un article sur Le Prolétariat juif en
 | Algérie (1), et j'y remarque, par exemple, qu' « à
-Constantine, sur 1.249 ménages, on en compte 208
+Constantine, sur 1.249 ménages, on en compte
 aisés, en considérant comme tels ceux où l'on peut
 ; dépenser un franc par jour et par personne. Il y a
 | 1.016 ménages d'une indigence extrême, 364 seulement sont secourus, 717 ont pour logis un bouge
@@ -446,7 +446,7 @@ d'argent, des hommes de Bourse. Quand, à la nou-
 é. n'y avait pas de Rothschild, petits ni grands, à la
 “ Bourse de Paris.
 
-A la foule de ceux qui, sans être antisémites en é
+A la foule de ceux qui, sans être antisémites en
 principe, suspectent le Juif toujours, on peut citer les
 exemples les plus variés de la misère juive, depuis
 le marchand de poissons algérois jusqu'au savetier
@@ -454,7 +454,7 @@ le marchand de poissons algérois jusqu'au savetier
 -de la rue des Rosiers : leur assurance est inébran-
 | lable. Il y a des Juifs pauvres? — Peut-être; mais
 ils seront riches : « Ils se connaissent tous, ils se
-soutiennent, ils se poussent les uns les autres. » e
+soutiennent, ils se poussent les uns les autres. »
 Eh bien, ici encore, il faut, les hommes et les-
 - _ faits étudiés, ramener à plus de justesse des appréciations portées à la légère, et nier avec énergie,
 si audacieuse qu'en puisse paraître la négation aux
@@ -519,7 +519,7 @@ ils aimaient mieux la nouvelle, qui glorifie, que
 l'ancienne, qui humiliait, et pour paraître moins
 Juifs, voulaient paraître d'autant plus soldats
 ê M. Jourdain premier ministre serait plus royaliste
-que le roi. L
+que le roi.
 À côté de cette erreur, qui provient d'une obser-
 *vation psychologique insuflisante, il y en a une
 | autre qui repose sur une connaissance trop superficielle des faits. On se représente la société juive
@@ -535,7 +535,7 @@ quoi qu'en pensent et qu'en disent les gens qui ne
 | la connaissent que de loin. Parmi ces Juifs de Paris,
 en effet, il y a d'abord ceux qu'on pourrait appeler
 4 les vieux Français : les uns, venus de leur province ”
-| à Paris au milieu de ce siècle, avec quelques francs F
+| à Paris au milieu de ce siècle, avec quelques francs
 Ro en poche, ont fait à Paris leur apprentissage de
 +. commis et d'employés, puis, à force de travail,
 3 d'initiative et de perspicacité, sont arrivés à la
@@ -548,7 +548,7 @@ TRE dans les hasards et les périls, avant de revenir en À
 France, d'y établir la « maison de commission »,
 à d'y vieillir dans le contentement du pays retrouvé
 “4 Rè et de l'aisance conquise. Ils se nomment Lévy, À
-5 L'autre catégorie est beaucoup moins autochtone.
+L'autre catégorie est beaucoup moins autochtone.
 É 4 Originaires d'au delà du Rhin et du Danube, nés
 | de familles qui avaient pour la plupart acquis
 déjà quelque fortune dans les Bourses de Francfort
@@ -565,16 +565,16 @@ parisienne, Les relations étaient plutôt correctes que
 vraiment cordiales, on se classait réciproquement,
 dans le jargon juif, sous des épithètes spéciales, on a
 ne se mariait pas volontiers d'un clan à l'autre, le
-snobisme du Boulevard Malesherbes méprisait la Ë
+snobisme du Boulevard Malesherbes méprisait la
 roture de la Pointe Rivoli ; leSentier, vibrant deses ‘s
 origines lorraines ou aisaciennes, répugnait à l'exotisme de la Plaine Monceau. Et quand éclata l'affaire
-en 1894, je crois bien quele Boulevard Malesherbes e
+en 1894, je crois bien quele Boulevard Malesherbes
 n'éprouva pas toute la tristesse qu'on s'imagine
 volontiers : pas de doute attristé, plutôt des sourires à
 et des insinuations : « Ce n'est pas un des nôtres, à
 celui-là, un de ceux dont se défie toujours votre
 patriotisme étroit : pas de mélange chez ce Dreyfus,
-il est de chez vous tout à fait, c'est un vieux Fran- è
+il est de chez vous tout à fait, c'est un vieux Fran-
 
 çais sans alliances et sans origines suspectes, un
 À bourgeois, un Mulhousien.. »
@@ -645,16 +645,16 @@ s- | c'est l'étranger. Mais je ne sache pas que, dans les
 F salons les plus élégamment antisémites, on soit si
 F1 _ exclusivement et si farouchement Français. La
 # s société française dans son ensemble me rappelle
-M: cette grande dame qui aeçueillait dans son cercle, È
-avec une faveur marquée, un bonhomme suspect l
+M: cette grande dame qui aeçueillait dans son cercle,
+avec une faveur marquée, un bonhomme suspect
 "1 qui se présentait comme capitaine roumain, et
 F4 fit une moue glaciale, tout un jour, à quelqu'un
 À À . qui voulait lui présenter un polytechnicien du nom
 Dr de Lévy... Lisez les avis mondains du Gaulois, du "
-54 Figaro, de l'Écho de Paris : vous y trouverez les î
+Figaro, de l'Écho de Paris : vous y trouverez les
 Litres les plus éclatants de la vieille noblesse fran-
 
-| çaise accolés aux blasons les plus hétéroclites de ù
+| çaise accolés aux blasons les plus hétéroclites de
 _ l'étranger. On parle très haut de sang français, de
 race pure, et, parmi les plus acharnés nationalistes,
 on échange son nom contre des millions américains
@@ -750,9 +750,9 @@ gosse qui joue à la marelle sur les dalles du boulevard Richard-Lenoir, quand i
 LE: et chanté, sac au dos, sur la route de Louviers
 À ou de Saint-Nazaire, la chanson des pousse- à
 cailloux entre Pitou et Dumanet battant de l'épaule
-contre lui, celui-là a quelque chance d'être aussi L
+contre lui, celui-là a quelque chance d'être aussi
 ! Français qu'homme de France. J'imagine, après
-6 tout, que les royalistes, qui forment une moitié È
+6 tout, que les royalistes, qui forment une moitié
 
 du nationalisme militant, ne vont pas jusqu'à
 renier le cardinal Giulio Mazarini, et que les impérialistes qui en forment l'autre moitié ne refusent
@@ -822,7 +822,7 @@ Juifs qu'on vilipende représentaient un peu parmi
 ; nous cet esprit anglo-saxon qu'on exalte. Et M. Jules
 | Lemaître, qui a « lancé » le livre de Demolins et le
 Les Juifs de France, dont le sens naturel s'avivait
-; encore sous les piqûres d'épingle de l'injure quoti- s
+; encore sous les piqûres d'épingle de l'injure quoti-
 dienne, devaient souffrir péniblement de tant
 d'inconséquences. Mais c'était pour eux autre
 chose qu'une souffrance intellectuelle et théorique
@@ -839,8 +839,8 @@ odieuse persécution, à dire qu'en France « cela ne
 se passait pas ainsi », qu'ils étaient égaux aux nonJuifs, qu'ils pouvaient aspirer comme eux aux plus
 | hautes situations. Je me rappelle une page de
 J.-J. Weiss, un peu oubliée peut-être, qu'il écrivit
-< il y a quinze ans au retour d'un voyage en Alsace. t
-Le spirituel et sagace écrivain s'amuse, pour résu- Î
+< il y a quinze ans au retour d'un voyage en Alsace.
+Le spirituel et sagace écrivain s'amuse, pour résu-
 mer d'une façon vivante ses observations sur l'état
 d'âme de nos concitoyens perdus, à mettre en scène
 _ quatre personnages importants de petite ville (x), À
@@ -897,7 +897,7 @@ baïssant la voix, il s'exprima de la sorte : « Et moi,
 « pour aller travailler à Nancy, à Épinal, à Paris. —
 « Eh bien! après? Ces jeunes gens font bien de
 « s'en aller... A Paris, le Juif est l'égal de tout le
-5 Et en fait, je sais de ces Israélites d'Alsace des
+Et en fait, je sais de ces Israélites d'Alsace des
 t traits de délicatesse patriotique et de fidélité tenace
 
 qui mériteraient d'être contés. Et je sais quelle
@@ -960,7 +960,7 @@ France du fond du cœur, comme les naufragés aiment la grève hospitalière, co
 ne loyaux, ils se donnèrent corps et âme à leur nou- ‘4
 4 velle patrie, ils l'aimèrent avec d'autant plus de fer-
 *} veur sans doute qu'il se mêlait à leur amour une À
-4 À sorte d'amertume à l'égard des frères d'autrefois qui
+À sorte d'amertume à l'égard des frères d'autrefois qui
 n'avaient plus voulu d'eux, et peut-être un âpre
 
 désir, très humain, de mettre en valeur avec plus
@@ -1023,7 +1023,7 @@ remède, mais, directement, commodément, d'accuser les autres, de jeter la resp
 mal personnel et du mal social sur un homme ou
 sur un groupe d'hommes : cela soulage délicieusement la conscience : c'est la faute à Voltaire — c'est
 la faute à Rousseau — c'est la faute aux Juifs, — et,
-quand ces idées ont pénétré dans son esprit, l'honnête ouvrier qui gagne cinq ou six francs par jour L
+quand ces idées ont pénétré dans son esprit, l'honnête ouvrier qui gagne cinq ou six francs par jour
 s'imagine qu'il serait patron millionnaire depuis
 longtemps si les Rothschild étaient toujours restés
 dans le ghetto de Francfort.
@@ -1148,7 +1148,7 @@ le trouva « tout bouleversé dans sa chambre : le caà pitaine Dreyfus avait l'
 | que par des sons rauques »... (1) Il se frappait la
 “À tête contre les murs, il tournait « comme un lion en
 | . cage » (2), ahuri, fou de douleur et de surprise, cherchant, ne comprenant pas...
-4 Cette rage folle du prisonnier contre les murs de
+Cette rage folle du prisonnier contre les murs de
 | sa prison, c'était par avance comme un symbole des
 * colères également légitimes et naturelles, également
 EX insensées et impuissantes, qui devaient soulever à
@@ -1163,14 +1163,14 @@ x tomber de sa voix pâle, avec la conscience d'une
 2 | autorité tranquillement brutale, ces mots : « La quesF: tion ne sera pas posée »; lorsque M. Cavaignac,
 dans son cabinet ministériel, tenant devant lui le
 colonel Henry désemparé, eut la discrétion de ne
-; pas pousser l'interrogatoire plus loin qu'il ne convenait aux désirs secrets d'un état-major embarrassé, — ou, au sortir de cet entretien, l'adresse de j
+; pas pousser l'interrogatoire plus loin qu'il ne convenait aux désirs secrets d'un état-major embarrassé, — ou, au sortir de cet entretien, l'adresse de
 n'en communiquer aux agences qu'un compte rendu
 qui suffit à expliquer l'arrestation d'Henry, maïs
 ; non pas à expliquer sa conduite ; lorsque, par des
 sentiments de dignité et de réserve d'ailleurs explicables, les juges de Rennes se refusèrent à interroger Schwarzkoppen, et que Schwarzkoppen, non
 interrogé, décida de ne point parler, — nous avons
 tous compris, atterrés, à quelle triste impuissance
-est réduit l'homme qui veut savoir en face de F
+est réduit l'homme qui veut savoir en face de
 l'homme qui ne veut rien dire, et frémi de rage
 devant cette main de plomb de l'Impossibilité Matérielle qui, immanquablement, s'abattait sur la
 | Vérité chaque fois que, penchée en avant, la Vérité
@@ -1201,7 +1201,7 @@ tenu dans l'humanité? Les Juifs sont les Armé-
 ! odieuse manifestation, ce qu'étaient, devant l'abso-
 " lutisme monarchique, les hommes de 1789. Ils
 À sont ce qu'est depuis 1871 la France elle-même.
-1 Ils représentent, en face de la Force et du Nombre,
+Ils représentent, en face de la Force et du Nombre,
 ge l'inéluctable Droit.
 
 On peut à présent publier qu'il y a longtemps que
@@ -1218,7 +1218,7 @@ sûreté, quittant la séance, rencontra M. Gustave Téry.
 — Eh bien il est condamné, et vous pouvez vous .
 vanter d'y avoir contribué pour beaucoup.
 — Tant mieux, répondit Téry, c'est ce que nous
-| Puisque nos États-Majors continuent à nous faire ù
+| Puisque nos États-Majors continuent à nous faire
 battre d'un cœur léger, puisque dans cette affaire, où
 à tant et de si grosses libertés se jouaient, M. Gustave
 ; Téry s'est fait général en chef à trente ans et dictateur,
@@ -1285,9 +1285,9 @@ qui nous exploite ! »
 À Ce jour-là, la guerre de nation à nation aura vécu.
 Et quand ce jour arrivera-t-il ?
 Il arrivera, prolétaires des champs et des villes,
-quand vous le voudrez, quand une minorité énergique c
+quand vous le voudrez, quand une minorité énergique
 se trouvera parmi vous qui le voudra résolument.
-Ouvrier français, les journaux et les gens bien pen- é
+Ouvrier français, les journaux et les gens bien pen-
 | — Allons en Chine; obligeons les Chinois à nous
 ji - laisser construire chez eux des voies ferrées, et exploi- À
 { ter leurs mines. Plus nous introduirons en Chine de à
@@ -1295,7 +1295,7 @@ ji - laisser construire chez eux des voies ferrées, et exploi- À
 . rails, de locomotives, de machines de toutes sortes,
 
 ; plus tu auras de travail à l'usine, plus tes salaires s'élèveront.
-1 Et moi je te dis
+Et moi je te dis
 | — Il y a là-bas, en Chine, 400 millions d'habitants
 | habitués à se contenter pour toute nourriture d'une
 poignée de riz et d'une pincée de thé; un salaire de
@@ -1308,13 +1308,13 @@ tuées par la concurrence, se fermeront peu à peu; et
 s les chômages commenceront pour toi et les maigres
 | salaires. Ouvrier français, veux-tu que la France fasse
 | la guerre aux Chinois ?
-5 Paysan français, les journaux et les gens bien pen-
+Paysan français, les journaux et les gens bien pen-
 | — C'est ton intérêt aussi que la France se crée des
 # débouchés en Chine; plus les gros financiers français
 n et les gros manufacturiers français seront riches, plus
 41 : les ouvriers des villes auront du travail et seront à
 je l'aise, plus le bien-être général sera grand et le tien avec.
-1 Et moi je te dis
+Et moi je te dis
 æ — Les gros usiniers et les gros financiers peuvent
 F s'enrichir et tu n'auras pas un sou de plus en poche.
 Une guerre en Chine, loin de t'enrichir, ne pourra
@@ -1334,7 +1334,7 @@ Et moi je vous dis : À
 — Quand les troupes européennes auront vaincu les
 Chinois, les gouvernements anglais, russe, allemand,
 français, japonais voudront chacun avoir les meilleurs
-morceaux du gâteau; ils ne se mettront pas facilement D
+morceaux du gâteau; ils ne se mettront pas facilement
 d'accord et alors ils se battront; tôt ou tard, soyez-en
 sûrs, peut-être bientôt, ces affaires de Chine amèneront
 de terribles guerres en Europe, et c'est vous qui, à votre
@@ -1384,9 +1384,9 @@ Avec la candeur immense et la grosse naïveté que nos
 autre que celui de l'empereur allemand. J'avais rêvé
 _ qu'il tiendrait aux troupes à peu près celangage: « Mes
 enfants, nos pères ont eu de graves torts envers les ?
-Chinois; ils ont commis contre eux de grands crimes; S
+Chinois; ils ont commis contre eux de grands crimes;
 ils se sont introduits chez eux avec effraction, à main
-armée, et ils les ont violentés. Les Chinois ont fini par Ë
+armée, et ils les ont violentés. Les Chinois ont fini par
 se révolter contre nos procédés; la vérité m'oblige à
 confesser que leur insurrection est sainte et légitime.
 
@@ -1509,7 +1509,7 @@ de leurs rivaux; alors, ces messieurs saisissent toutes
 les occasions — quand ils ne les font pas naître —
 d'étendre par la force leur champ d'exploitation : les
 guerres de Chine n'ont pas d'autre raison. Elles ont
-donc pour cause profonde le régime actuel de production, régime de concurrence meurtrière pour tous, F
+donc pour cause profonde le régime actuel de production, régime de concurrence meurtrière pour tous,
 régime de lutte à outrance entre les producteurs,
 maîtres et ouvriers, régime de lutte à main armée pour
 louverture de nouveaux marchés. Rien ne fait mieux
@@ -1521,18 +1521,18 @@ Mais ces actes de brigandage seraient beaucoup plus
 difficiles à perpétrer, si la conscience publique n'était
 pas empoisonnée par une religion aussi imbécile et à
 aussi sanglante que la religion catholique, je veux dire
-la nouvelle religion des peuples modernes la religion é
+la nouvelle religion des peuples modernes la religion
 de la patrie. Cette religion que l'enfant apprend à £
-l'école et que les journaux bourgeois entretiennent dans g
+l'école et que les journaux bourgeois entretiennent dans
 l'âge mûr, enseigne cette stupidité que tous les Français
 forment une grande famille, qu'il faut aimer et défendre
 tous les membres de cette grande famille, que leurs
-intérêts sont communs, qu'ils ont un patrimoine com- l
+intérêts sont communs, qu'ils ont un patrimoine com-
 mun de gloire à défendre, qu'il faut toujours être prêt à
 mourir pour l'honneur du drapeau et autres balivernes; ‘
 qu'il nous faut tenir notre rang dans le monde — sans
 doute notre rang parmi les peuples de proie. Il n'y a
-plus, après cette belle éducation, qu'à affubler nos glorieux soldats et leurs illustres chefs de culottes aux cou- e
+plus, après cette belle éducation, qu'à affubler nos glorieux soldats et leurs illustres chefs de culottes aux cou-
 
 : leurs criardes, de plumets tapageurs : après avo
 ur grisé la vue par des exhibitions carnavalesques, il ne - mA , s'agit plus que de flatter l'oreille par des musiques, ÿ trompettes, cymbales et tambours; quand on a ainsi ä , inculqué, par tous les sens, par tous les pores, le
@@ -1578,10 +1578,10 @@ TE leur commerce
 Nous connaïissions l'armée, école de discipline et
 . d'abrutissement, étouffant l'esprit d'initiative, de libre
 examen et de révolte par une discipline de fer et des
-exercices machinaux complétant ou remplaçant avan- t
+exercices machinaux complétant ou remplaçant avan-
 tageusement l'éducation de l'Église, faiseuse de résignés, d'esclaves ou de machines
 Nous connaissions l'armée qui tire à bout portant sur
-des grévistes désarmés, pour intimider la classe ouvrière, la glorieuse armée de Fourmies ou du François; > F
+des grévistes désarmés, pour intimider la classe ouvrière, la glorieuse armée de Fourmies ou du François; >
 Il:appartenait au ministère de « défense républicaine »
 — c'est ainsi que les gogos l'appellent — de vulgariser,
 sinon de découvrir, un autre emploi de la troupe;
@@ -1737,7 +1737,7 @@ _ Sud-Ouest nous écrivait récemment qu'il ne s'abonnerait
 EX cahiers lui paraissaient moins indispensables que
 
 “Pages libres” et autres publications. Je suis ainsi “4
-conduit à publier ici la lettre ouverte que j'adressais à h
+conduit à publier ici la lettre ouverte que j'adressais à
 M. Charles Guieysse au commencement de l'année
 CS scolaire et que lui-même a fort libéralement publiée _
 
@@ -1748,7 +1748,7 @@ Cahiers de la Quinzaine, 8, rue de la Sorbonne
 - beaucoup, parce que les cahiers, dit-il, ne lui profitent
 qu'à lui seul.
 Vous le connaissez; nous le nommerons pour la
-commodité du récit le docteur Durand : médecin dans 71
+commodité du récit le docteur Durand : médecin dans
 un petit village de la Brie, abonné à ‘ Pages libres”, Fra
 il est venu vous voir au 16 de la rue de la Sorbonne,
 _ où nous demeurions. Dans le petit village où il exerce,
@@ -1811,7 +1811,7 @@ avoir scrupuleusement préparé ses programmes: celui
 qui vivrait toute sa vie sur sa première préparation
 professionnelle, celui qui referait perpétuellement les
 mêmes leçons, qui resservirait perpétuellement les
-mêmes cours, les mêmes notes, quand même ces cours s
+mêmes cours, les mêmes notes, quand même ces cours
 à l'origine auraient été les cours des meilleurs maîtres,
 celui-là ferait bientôt des leçons de plus en plus mauvaises, raides, sèches, mortes. Celui-là s'encroûterait.
 : C'est la condition même et la loi de la liberté que er
@@ -1852,7 +1852,7 @@ ne et du travail exige une réparation perpétuelle. On ne ,
 : toutes leurs leçons. Mieux vaut une leçon moyenne,
 . exprès préparée, qu'une ancienne leçon meilleure, que
 L- rh _ l'on sért sans la penser. Mais la préparation est rigou-
-“à ! reusement indispensable quand on veut parler au 124
+“à ! reusement indispensable quand on veut parler au
 peuple, parce que cet auditoire est nouveau pour nous.
 °" Les plus compétents, parce qu'ils sont les plus hon-
 "2 nêtes, éprouvent le besoin de se repréparer ainsi. Ni
@@ -1973,9 +1973,9 @@ Nous avons eu par les soins de Léon Deshairs une
 à photographie de Tolstoi et Gorki se promenant ensemble
 Es. à Iasnaia Poliana. Cette photographie a été prise par
 Ë *. une des filles de Tolstoi. Elle a été communiquée à
-4 Deshairs par le docteur Schlepianoff. Nous l'avons fait —
+Deshairs par le docteur Schlepianoff. Nous l'avons fait —
 ‘4 reproduire à trois cents exemplaires. Nous la vendons
 Lu Nous publierons bientôt une lettre inédite de Tolstoi,
 Fe. adressée à Romain Rolland.
-8 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
+Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 7 unes DE Sourses (E. PAYEN, administrateur), 9,rue du Pont. —

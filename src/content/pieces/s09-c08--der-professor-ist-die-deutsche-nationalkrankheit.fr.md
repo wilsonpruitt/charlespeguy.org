@@ -10,16 +10,16 @@ wordCount: 30096
 Dans les vingt cahiers de leur cinquième série, année ‘à
 scolaire 1903-1904, nos cahiers ont publié :- |
 V-1. — HENRI DAGAN. — les massacres de Kichinef. 2 »
-V-o. — Pauz Duruy.— la vie d'Évariste Galois .. 2 » Ÿ
+V-o. — Pauz Duruy.— la vie d'Évariste Galois .. 2 »
 V-6. — DANIEL HALÉvy. — Histoire de quatre ans,
-; V-7. — Henri Michel.— Notes sur la Hollande et sur L
+; V-7. — Henri Michel.— Notes sur la Hollande et sur
 l'intimité. — Henri Lebeau, Jérôme et Jean Tharaud.—
 V-9.— Romain RoLLanp. — Jean-Christophe. — CRT Ca
-la seule édition complète. — II. — le matin......... 3 50 4
+la seule édition complète. — II. — le matin.........
 + V-11. — M.M.MaAnGAsARIAN. — Le monde sans Dieu 2 » Sail
 V-15. — Émrze Mosezcy. — Jean des Brebis ou le Fa
 V-18. — Lours MéÉnaRD ». — Prologue d'une Révo- TEA
-Voir à l'intérieur en fin de ce cahier les conditions $ 4
+Voir à l'intérieur en fin de ce cahier les conditions $
 Nous mettons le présent cahier dans le commerce; |
 septième cahier de la neuvième série; un cahier vert NIK
 de 120 pages; in-18 grand jésus; nous le vendons SE
@@ -52,14 +52,14 @@ autant qu'il se pouvait, une image en bref, un raccourci,
 ce ù une idée, abrégée, mais complète, de nos éditions anté-
 _ rieures et de nos cinq premières séries ; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur
-place, les références demandées. ; 3
+place, les références demandées.
 Ce catalogue, in-18 grand jésus, forme un cahier
 & très épais de XII+408 pages très denses, marqué cinq
 ‘francs ; ce cahier comptait comme premier cahier de la
 ‘sixième série et nos abonnés l'ont reçu à sa date, le
 _ 2 octobre 1904, comme premier cahier de la sixième
 Ÿ série; toute personne qui jusqu'au 31 décembre 1905
-s'abonnait rétrospectivement à la sixième série le recevait, par le fait même de son abonnement, en tête de la i
+s'abonnait rétrospectivement à la sixième série le recevait, par le fait même de son abonnement, en tête de la
 \ série; nous l'envoyons contre un mandat de cinq francs à
 à toute personne qui nous en fait la demande.
 
@@ -116,22 +116,22 @@ Les brochures, les livres, les articles de revues sur ce
 sujet deviarent innombrables. L'agitation gagna bientôt
 le roman et le théâtre. « En ce moment il n'est point de
 thème plus aimé que les mauvais traitements infligés |
-par des parents dénués d'intelligence et de cœur à des . É
-fils ou filles aux nobles aspirations ; que le martyre que N.
+par des parents dénués d'intelligence et de cœur à des
+fils ou filles aux nobles aspirations ; que le martyre que
 font subir des pédagogues encroûtés dans la tradition, à \
 des jeunes gens avides de pensée libre et personnelle. |
-Dans les assemblées et les congrès d'éducation on étale w
+Dans les assemblées et les congrès d'éducation on étale
 les horreurs de ce régime, on montre comment les
 esprits les plus capables et Les plus originaux sont pour- }
 suivis, torturés jusqu'à leur épuisement, jusqu'à ce
-qu'on retire de l'eau les cadavres de malheureux M
+qu'on retire de l'eau les cadavres de malheureux
 Dans leur haine les adversaires de l'école ne recu- ‘4
 lèrent pas devant les solutions les plus féroces. « Le
 moyen le plus simple et le plus radical serait de ras- ‘4
-Page 235. — Il est à noter que de la traduction allemande du livre M
+Page 235. — Il est à noter que de la traduction allemande du livre
 d'Ellen Key : Le siècle de l'enfant, qui est une apologie des droits ‘4
 de l'enfant, il a été vendu pius de vingt mille exemplaires en
-16 10
+16
 
 MUR sembler tous nos Altphilologen (1) sur quelque mont
 | Carmel pédagogique, et là de les abattre tous comme
@@ -162,7 +162,7 @@ une foule d'autres du même genre. Elles ne mériteraient
 a (1) Ceux qui s'occupent particulièrement des antiquités grecque
 ww et latine.
 “is (2) Arthur Bonus. Cité par Münch : Æltern, Lehrer und Schalen.
-< Fr 6) L. Gurlitt : Der Deutsche und seine Schule. Page 153.
+< Fr 6) L. Gurlitt : Der Deutsche und seine Schule. Page
 
 pas davantage une attention sérieuse. Mais les exagérations mises à part, un fait important reste acquis : les
 Allemands sont peu satisfaits de l'enseignement donné
@@ -177,20 +177,20 @@ qu'on ouvre le procès de l'école allemande. Ils prennent
 la parole, moins pour plaider innocent, que pour apporter
 dans le débat plus de calme, réclamer moins de violence
 dans les critiques même justes, mettre en garde contre *
-la chaleur des propositions utopiques, montrer l'infinie Ÿ
+la chaleur des propositions utopiques, montrer l'infinie
 complexité de la question et demander par là même des ‘
 circonstances atténuantes. Bref ils veulent eux aussi |
-réformer cette école, mais avéc prudence et en connaissance de cause. Tous s'accordent sur un point : néces- 4
+réformer cette école, mais avéc prudence et en connaissance de cause. Tous s'accordent sur un point : néces-
 sité de modifier l'organisation de l'école allemande, ses “
 programmes et son esprit. à
-Il va de soi que les routes aboutissant à ce point x
+Il va de soi que les routes aboutissant à ce point
 viennent des directions les plus opposées. C'est pour des ‘4
 raisons philosophiques que tel écrivain fut amené à se à
 convaincre de cette nécessité. Tel autre pour des rai- |
 sons pédagogiques ou sociales; tel autre par amour de À à
-larmée ou des arts. Souvent même le seul souvenir V7
+larmée ou des arts. Souvent même le seul souvenir
 d'années d'enfance pénibles suffit à expliquer la hame
-inspiratrice d'un pamphlet ou d'un roman. 4
+inspiratrice d'un pamphlet ou d'un roman.
 Il va de soi aussi que dans la plupart des cas les cri- |
 tiques adressées à l'école s'accompagnent de proposi- hi.
 
@@ -231,7 +231,7 @@ Souvent elle est entièrement libre. Le travail essentiel
 midi reste sans valeur et sans résultats, il était en tout
 "à cas, surtout pour de jeunes élèves, beaucoup moins
 _  antinaturel que cette file bien trop longue des heures de
-14 Ja matinée; qui se termine souvent par des maux de
+Ja matinée; qui se termine souvent par des maux de
 
 tête, des maux de cœur et autres symptômes analogues. » (1)
 
@@ -255,7 +255,7 @@ de son travail? » Et comment apporter du sérieux à un
 ouvrage qu'il faut quitter à peine commencé? « Tout
 travail véritable éveille de l'intérêt, ne lâche plus son |
 homme, l'enchaîne. N'est-ce pas enseigner à la jeunesse
-l'amour du superficiel, et le dégoût du travail, que de 4
+l'amour du superficiel, et le dégoût du travail, que de
 l'empêcher par la diversité et l'abondance des travaux »
 
 À ce travail de la classe s'ajoute celui de la maison. à
@@ -309,23 +309,23 @@ ou non, qui s'appelle une zensur.
 
 Sans doute il ne faudrait pas attribuer au vocable
 allemand la valeur du français censure. Toujours est-il ]
-que tout professeur doit étre un « censeur ». La plume F
+que tout professeur doit étre un « censeur ». La plume
 rouge à la main ou la parole prête à s'échapper de ses in
 lèvres, toute la journée ïü juge ses élèves, ou les jauge
-si l'on veut. Bienheureux lorsqu'un directeur méticuleux ë
+si l'on veut. Bienheureux lorsqu'un directeur méticuleux
 ou borné ne lui réclame pas encore plus de zensuren
 qu'il n'en voudrait donner. Dans une comédie intitulée :
 Flachsmann, comme éducateur, Otio Ernst a pu pré-
 senter un directeur qui exigeait que toute réponse d'un
 élève fût l'obiet d'une zensur dans un cahier spécial,
-même lorsque celui-ci avait répondu que quatre et trois L
-font sept. Quoi qu'il en soit « perdant toute la journée, É
+même lorsque celui-ci avait répondu que quatre et trois
+font sept. Quoi qu'il en soit « perdant toute la journée,
 toute l'année, toute la durée des étudeslles élèves vivent
 sous le régime de la zensur, qu'elle soit exercée par des
 paroles, où par l'encre rouge ». (2) Finie dès le début
 dès lors, toute velléité de négliger telle partie des études
 
-(2) L. Gurlitt : Der Deutsche und seine Schule. Page 191.
+(2) L. Gurlitt : Der Deutsche und seine Schule. Page
 
 au profit d'une autre plus conforme au goût de chacun.
 Inutile toute tentative d'entreprendre des travaux qui ne
@@ -368,8 +368,8 @@ toute concurrence. Ii n'y a rien de plus simple, de plus
 commode et de plus stupide. On compte les fautes et :
 lon peut ainsi apprécier la capacité intellectuelle d'un
 élève à une décimale près s'il le faut. » (1) Ou bien
-encore : « La manière dont on emploie les Extemporalien ou autres exercices écrits analogues comme 4
-mesure presque absolue du développement des élèves, k
+encore : « La manière dont on emploie les Extemporalien ou autres exercices écrits analogues comme
+mesure presque absolue du développement des élèves,
 dont on voit dans l'absence aussi complète que possible de fautes le mérite et l'idéal, la manière aussi
 dont on transforme l'exécution de ces travaux en
 heures d'agitation, de souci et d'angoisse, et néglige
@@ -384,7 +384,7 @@ l'établissement après l'avoir passé, et il sert ainsi de
 premier certificat d'études secondaires. Mais on le
 
 © recherche surtout pour sa valeur pratique et sociale. Ne
-4 servir qu'un an est utile et de bon ton. Aussi les can- 3
+4 servir qu'un an est utile et de bon ton. Aussi les can-
 .  didats sont nombreux et ils encombrent parfois les
 écoles secondaires, où ne les appelaient ni leurs aptitudes, ni leurs goûts, ni leurs besoins : « Le désir
 d'obtenir ce droit pousse des milliers de jeunes gens
@@ -404,8 +404,8 @@ n'est point toujours pratiqué de façon satisfaisante.
 + I n'est pas important de s'arrêter aux reproches de
 partialité adressés en mainte occasion. Ils sont plus
 fréquents que justifiés. Ils dérivent plus de la nature
-des individus que de la nature des choses. ï
-D'autres reproches sont plus graves. Ils ont trait sur- 6
+des individus que de la nature des choses.
+D'autres reproches sont plus graves. Ils ont trait sur-
 \ tout à la masse de connaissances et de travail qu'on
 exige. Les jeunes gens de dix-neuf ans en moyenne qui
 subissent l'examen doivent faire montre de connaissances énormes dans toutes les branches du savoir
@@ -434,12 +434,12 @@ raison d'être. Au lieu de cultiver de jeunes personnalités ;
 l'école forme des diplômés.
 . Les effets de ce régime peuvent-ils être très heureux ?
 Il est bien à craindre que ce parchemin conquis avec
-tant de mal, ces connaissances longuement entassées d
+tant de mal, ces connaissances longuement entassées
 ne donnent quelque illusion à ces jeunes gens. Le type
 du Primaner (élève de la plus haute classe) que l'on se
 plaît à esquisser, ne manque pas de comique à cet
 
-(1) L. Gurlitt : Der Deutsche und seine Schule. Page 118.
+(1) L. Gurlitt : Der Deutsche und seine Schule. Page
 
 | égard. Profondément pénétré de la valeur des études,
 A der l'étendue de ses connaissances, de la sagesse qu'il
@@ -452,7 +452,7 @@ A y regarder de plus près le spectacle est peut-être :
 plus triste encore que comique. Quelques élèves doivent
 : à leurrobusteconstitution mentale ou à l'infinie souplesse
 de la nature jeune d'échapper à l'écrasement irrémé-
-. diable sous le travail qui leur est imposé. Ils fléchissent É
+. diable sous le travail qui leur est imposé. Ils fléchissent
 Fe puis réagissent. Mais les autres? On les a pour ainsi
 dire contraints à des efforts disproportionnés à leurs
 ! forces. Ils arrivent épuisés au bout de leurs classes.
@@ -498,7 +498,7 @@ Au point de vue professionnel, la tâche à accomplir,
 les méthodes et les procédés dont on doit faire usage,
 ont été fixés avec soin. Pour s'assurer que les prescriptions sont suivies les contrôles ont été multipliés et
 
-(1) L. Gurlitt : Der Deutsche und seine Schule. Page 239.
+(1) L. Gurlitt : Der Deutsche und seine Schule. Page
 
 : (2) Bien que devant revenir sur la question des professeurs, il
 nous semble plus utile de grouper ici toutes les plaintes relatives
@@ -531,7 +531,7 @@ moins que certain, au dire des intéressés eux-mêmes.
 circulaires de façon à étouffer toute initiative, à détruire
 (à) Seyfert : Schulpraxis. Page 12 et dans d'innombrables articles
 j de journaux ou revues.
-(2) L. Gurlitt : Der Deutsche und seine Schule, Page 145.
+(2) L. Gurlitt : Der Deutsche und seine Schule, Page
 
 toute personnalité chez le maître... Il semble que l'idéal
 de nos autorités scolaires soit celui de ce ministre fran-
@@ -560,7 +560,7 @@ exemple, les établissements secondaires soumis aux
 autorités provinciales sont devenus si nombreux et si
 importants, qu'on a jugé nécessaire de créer toujours
 
-(2) Cité par M. Pellisson. Revue Pédagogique, 15 août 1906. Page 141.
+(2) Cité par M. Pellisson. Revue Pédagogique, 15 août 1906. Page
 
 ‘de nouveaux inspecteurs à côté des anciens, et tandis
 _ que dans les décades précédentes un seul homme de
@@ -630,13 +630,13 @@ dont ils disposent ? Pas toujours, a-t-on répondu. Il se
 3 peut que dans certains cas l'intelligence unie à la bonté
 sache la manier avec douceur. Mais combien les choses
 diffèrent d'une école à l'autre! Combien sont parfois
-ridicules et stériles les prescriptions que la sévérité des k
+ridicules et stériles les prescriptions que la sévérité des
 _ maîtres a pour but de faire exécuter. Dans la comédie
  Flachsmann comme éducateur, nous voyons un directeur
 faire afficher un règlement intérieur de trente-deux arti_ cles et décider par exemple que les casquettes, toutes
 du même modèle, devront être suspendues toutes à la
 même hauteur, chacune à son clou. Charge comique
-. assurément. Mais le vrai n'est-il pas parfois plus vraisemblable que la fiction? En tout cas, il paraît que dans 4
+. assurément. Mais le vrai n'est-il pas parfois plus vraisemblable que la fiction? En tout cas, il paraît que dans
 _ l'ensemble l'ordre, la régularité, et l'uniformité repré-
 ÿ sentent l'idéal pour certains directeurs et professeurs.
 Les mouvements des élèves doivent être bien réglés et
@@ -684,8 +684,8 @@ tion allèmande de la discipline. Elle tient au caractère
 _ sion, à son ardeur à accomplir le devoir, à son besoin ,
 : d'ordre, à son rigorisme protestant. Puis le succès
 _ ayant couronné les efforts de la discipline unie à la
-… force cette tendance s'est encore accentuée. Il est vrai- x
-_ semblable enfin que l'admiration pour l'armée et le é
+… force cette tendance s'est encore accentuée. Il est vrai-
+_ semblable enfin que l'admiration pour l'armée et le
 _ culte de Bismarck ont contribué à rendre si dure la
 vie à l'école. :
 _ On peut invoquer aussi des raisons politiques. Il ne
@@ -701,7 +701,7 @@ dans la vie publique, dans les affaires politiques,
 _ sociales ou religieuses. De même à l'école nous avons
 : conservé des formes de défense et de commandement
 qui révoltent ces jeunes gens qui ont déjà cessé d'être
-. des enfants. Je crois qu'à cet égard aussi les Anglais et k
+. des enfants. Je crois qu'à cet égard aussi les Anglais et
 _ les Américains nous sont supérieurs. Sans doute nous
 nes en train de jeter bas de vieilles coutumes et
 
@@ -728,7 +728,7 @@ d'exiger, au nom de cet impératif catégorique, l'obéissance absolue chez les 
 ceux qui s'exagèrent l'influence de la raison sur la,
 volonté. Chez l'enfant surtout ce sont deux facultés
 distinctes. Pour développer et régler sa volonté les
-meilleurs discours ne valent pas des exercices constants j
+meilleurs discours ne valent pas des exercices constants
 et des exemples sains. (2) On l'a méconnu, et « c'est
 ainsi que la contrainte et la privation de liberté vont
 
@@ -742,7 +742,7 @@ et suivantes.
 Aer croissant et pèsent comme un lourd cauchemar sur toute
 5 notre éducation, L'État a peur de chasser l'Église de
 Fe son dernier fief, l'école primaire, pour ne pas se
-_ b@uiller avec de puissants partis. Aussi l'Allemagne 3
+_ b@uiller avec de puissants partis. Aussi l'Allemagne
 s . perd du terrain à l'Est et au Sud-Ouest au profit des
 _ sympathies pour la Pologne et la France. L'État est si
 ” aveugle qu'à la même heure il travaille pour et contre
@@ -763,7 +763,7 @@ _ Ja nécessité et la valeur de l'école et des maitres, on les
 & _ souffre plus qu'on ne les aime. « Maïtres et écoles sont
 wi - aux yeux d'une grande partie de notre peuple un mal La
 EL inévitable. Et la plus grande part des efforts qu'ils ré-
-Ne _& W. Rein : Xirche, Slaat und Sthule. Page 929.
+Ne _& W. Rein : Xirche, Slaat und Sthule. Page
 
 clament ou des notions qu'ils inculquent, les familles |
 aussi bien que les élèves envisagent tout cela comme un
@@ -841,7 +841,7 @@ plutôt que des personnalités, des matériaux à mani-
 
 _ faire sentir sa supériorité, la distance est courte. Et
 
-18 (2) L. Gurlitt : Der Deutsche und seine Schule. Page 76.
+18 (2) L. Gurlitt : Der Deutsche und seine Schule. Page
 
 c'est alors à l'égard des élèves une morgue insolente, |
 une raillerie froide, à moins que ce ne soit une humeur
@@ -861,10 +861,10 @@ idées. Ils dissèquent les fausses croyances des temps
 passés et continuent à partager les erreurs de leurs
 contemporains. Ils détaillent la décadence des anciennes
 corporations et ils croient encore à la supériorité de leur
-3 propre caste. Leur esprit n'est libre qu'en deçà de cer- l
+3 propre caste. Leur esprit n'est libre qu'en deçà de cer-
 Aussi en arrivent-ils à se laisser imposer des tâches
 presque indignes d'eux. Trop préoccupés des intérêts et
-des jouissances communes ils s'inclinent devant les ù
+des jouissances communes ils s'inclinent devant les
 À ordres et les désirs des supérieurs quana ils ne les provoquent pas. Leur supériorité arrogante de tout à
 l'heure fait place à la plus respectueuse soumission. à
 « Triste, triste de songer combien le professeur allemand a été sur tous les domaines intellectuellement mis à
@@ -921,17 +921,17 @@ peut coûter sa réputation à un bon élève. Il lui arrive
 d'être traité en minus habens pour avoir écrit faciebatur
 au lieu de fiebat. (3) Un directeur résumait naïvement
 cette tendance en disant à ses élèves de première :
-« Avant l'âge de cinquante ans vous ne pouvez pas j
+« Avant l'âge de cinquante ans vous ne pouvez pas
 avoir de pensées personnelles, mais seulement repenser
 les idées des autres. Voilà où doivent tendre vos plus
-vifs efforts. » Il oubliait, cet excellent homme, que le E
+vifs efforts. » Il oubliait, cet excellent homme, que le
 
-(2) L. Gurlitt : Der Deutsche und seine Schule. Page 193.
+(2) L. Gurlitt : Der Deutsche und seine Schule. Page
 
-(3) Autrefois Cétait encore pis. L'historien Curtius disait un ÿ
+(3) Autrefois Cétait encore pis. L'historien Curtius disait un
 jour : « Dans ma jeunesse nous étions punis pour une faute de à
 genre en latin comme pour un inceste. » Heine cite deux élèves de
-cinquième qui fuyaient un de leurs camarades parce qu'il ignorait î
+cinquième qui fuyaient un de leurs camarades parce qu'il ignorait
 le génitif de mensa. fl ;
 
 grand poète allemand Schiller était mort à quarante-six
@@ -956,7 +956,7 @@ heures par semaine. L'année passée il était chargé
 ns” 4 d'enseigner l'allemand en 5°, 4° et 3°. La 5° comptait
 2 pendant le premier semestre 48 élèves et 49 pendant le
 V 6 second; la 4° 52 et la 3° 43. En 3° il eut pendant une
-43 année à corriger : 10 X 43 — 430 rédactions; en 4
+43 année à corriger : 10 X 43 — 430 rédactions; en
 _ 948 dictées et 52 X 10 — 520 devoirs (moins 5 absents);
 __ en 5° 25 dictées et 7 rédactions soit 1.164 dictées et
 Ke 389 devoirs. Au total il dut venir à bout de 2.112 dictées
@@ -964,7 +964,7 @@ EE et 1.352 devoirs, soit 3.464 copies. Pour chacune des à
 x : (1) Par exemple : religion, allemand, latin; ou bien grec, alleLa. mand, histoire; ou bien religion, français, anglais; ou bien géoTE métrie, géologie, etc.
 
 | der Professor ist die deutsche Nationalkrankheit
-trente-deux semaines de véritable travail cela donnait Ë
+trente-deux semaines de véritable travail cela donnait
 une moyenne de 42 devoirs et 66 dictées. » (@) Et si
 malgré ce labeur, certains professeurs, assez nombreux
 d'ailleurs, entreprennent des travaux scientifiques, quel
@@ -1045,16 +1045,16 @@ Du point de vue professionnel cette spécialisation
 excessive devient funeste. C'est elle qui porte nombre
 de professeurs à attacher une telle importance aux .
 détails, aux incorrections. Elle les prive aussi de con- A
-naissances plus générales, qui par instant, tout au x
+naissances plus générales, qui par instant, tout au
 moins, ieur permettraient de coordonner les études, de
 supprimer ces sortes de cloisons étanches qui séparent ;
 la littérature de l'histoire, celle-ci de la géographie, et
 ainsi à l'infini. Les élèves saisiraient peut-être les rapports qui existent entre les diverses parties du savoir, à
 et si dans une vision rapide ils en avaient Conscience,
-aussitôt ils verraient remuer et vivre cet immense corps É
+aussitôt ils verraient remuer et vivre cet immense corps
 qu'ils disséquaient péniblement. « Maïs nos contemporains subissent le sort de la femme de Lot; ils regardent
 en arrière et sont changés en statues de sel. C'est-à-dire à
-qu'ils étudient leur spécialité et deviennent des réper- ÿ
+qu'ils étudient leur spécialité et deviennent des réper-
 toires ambulants. Ils peuvent instruire peut-être mais
 non pas vivifier. » (3)
 
@@ -1139,11 +1139,11 @@ fortifier la volonté, d'inculquer des principes que d'ou-
 …  seigner que de former les caractères. De là cette
 impression qui se grave dans la conscience des enfants
 « que l'école et la vie dans ses manifestations les plus
-L (2) W. Münch : Æltern, Lehrer und Schulen. Page 47.
-ter (@ F. Holländer : Der Weg des Thomas Truck. I. 31.
+L (2) W. Münch : Æltern, Lehrer und Schulen. Page
+ter (@ F. Holländer : Der Weg des Thomas Truck.
 
 naturelles sont deux mondes différents ». (1) De là cette
-aflirmation : « Éducation et enseignement sont deux i:
+aflirmation : « Éducation et enseignement sont deux
 choses distinctes; le peuple allemand est déjà beaucoup
 trop instruit, il veut être éduqué. » (2) :
 
@@ -1183,7 +1183,7 @@ ne l'École réale supérieure (Oberrealschule) ou simplement ;
 ee supérieures, qui n'enseigne ni le grec ni le latin. Mais
 EE de beaucoup le gymnase est la plus ancienne forme
 ea d'établissement. Les autres sont apparues tard, après
-- de longues luttes. C'est depuis 1900 seulement qu'on é
+- de longues luttes. C'est depuis 1900 seulement qu'on
 Né leur a reconnu ofliciellement'des droits à donner une
 .__ culture générale et que leurs élèves ont été admis à
 CS suivre les cours de certaines facultés dans les Univer_  sités. Le gymnase est l'école allemande par excelF lence.
@@ -1203,12 +1203,12 @@ de son enseignement pour la nation. Remarquons d'ailleurs que nombre de ces crit
 par ce fait que les autres écoles, tout en s'organisant
 malgré et contre le gymnase prenaient à leur insu
 modèle sur lui. Qu'elles le veuillent ou non, elles ne
-peuvent nier un air de ressemblance avec le vieux gym- ë
+peuvent nier un air de ressemblance avec le vieux gym-
 nase leur ancêtre. Dans des corps nouveaux revit souvent l'esprit antique.
 Lorsqu'on parle de programmes le premier reproche
 qu'on leur adresse est d'être trop chargés. Non sans
 raison. Les Allemands n'y ont point manqué. De plus
-en plus on veut que les élèves aient des notions, fussentelles sommaires, de toutes les connaissances humaines. ë
+en plus on veut que les élèves aient des notions, fussentelles sommaires, de toutes les connaissances humaines.
 Or celles-ci s'accroissent avec chaque jour. Les programmes suivent ce mouvement et bientôt une nouvelle
 matière s'ajoute aux précédentes, tandis que celles-ci
 ne manquent pas de croître de leur côté.
@@ -1261,15 +1261,15 @@ resse. « La suralimentation produit le dégoût. Nos
 
 _… élèves sont bourrés intellectuellement, ils ne peuvent
 
-- digérer la masse absorbée. Nous leur donnons beaucoup trop de résultats acquis, trop peu de temps pour f
+- digérer la masse absorbée. Nous leur donnons beaucoup trop de résultats acquis, trop peu de temps pour
 
 … les réflexions et les recherches personnelles. Il vaudrait
 
 ; mieux leur raconter moins de choses, mais en échange
 les rendre plus curieux et plus désireux de savoir. » (3)
 
-(2) Schultze : Deutsche Ersiehung. Pages 302 et 335.
-s (3) L. Gurlitt : Der Deutsche und séin Vaterland. Page 105.
+(2) Schultze : Deutsche Ersiehung. Pages 302 et
+s (3) L. Gurlitt : Der Deutsche und séin Vaterland. Page
 
 : C'était également l'avis d'un grand médecin, von
 Esmarch, qui disait déjà le 20 novembre 1885 : « Peu
@@ -1332,7 +1332,7 @@ les auteurs romains, surtout chez Cicéron et son bavar_  dage plutôt superfici
 
 matérialisme obtus des Romains embourbés dans toutes
 les jouissances et tous les vices ». (1) De là la prépondérance de l'esprit sur le corps, de l'abstraït sur le concret, de la forme sur la matière, en un mot de l'idéal !
-sur la réalité. ñ
+sur la réalité.
 Dans la pratique ce principe conduit à ne développer
 qu'un des côtés de la nature humaine, celui qu'on pourrait appeler le côté intellectuel. C'est toujours à lintelligence, à l'imagination que l'on parle. On s'efforce |
 aussi peut-être d'éveiller quelques* sentiments. Mais le
@@ -1349,7 +1349,7 @@ seul ne suflit pas. Car : « le savoir en soi a un effet à
 peu près nul sur la formation du caractère, et à peu :
 près insignifiant sur l'activité qu'on déploiera dans la |
 Au fond cet enseignement a été inventé par les professeurs pour former de futurs professeurs. Jamais ilne
-(1) L. Gurlitt : Der Deutsche und seine Schule. Page 69.
+(1) L. Gurlitt : Der Deutsche und seine Schule. Page
 
 produira des hommes semblables à ceux qui seraient
 sortis de la province pédagogique conçue par Goethe,
@@ -1366,7 +1366,7 @@ Le répugnait à son cerveau et l'opprimait. La contrainte
 . spirituelle, grâce à laquelle il l'y faisait entrer, pesait
 - lentement, d'une façon insensible d'abord, mais avec le
 4 temps toujours plus sensible, sur tout son être. » (2)
-1 Et cela d'autant plus qu'il faut souvent entendre cette
+Et cela d'autant plus qu'il faut souvent entendre cette
 culture de l'intellect dans un sens bien étroit. Dans les
 à _ belles œuvres des littératures antiques ou modernes,
 ce n'est pas sur la beauté qu'insistent certains profes_  seurs. Ce n'est même pas sur leur contenu intellectuel
@@ -1416,7 +1416,7 @@ LS eût ajouté la poésie moderne comme susceptible de
 davantage dans l'analyse. Les protestations qui s'élèvent
 * aujourd'hui de toutes parts, contiennent beaucoup d'exa-
 
-__ gération et réclament souvent des choses dangereuses k
+__ gération et réclament souvent des choses dangereuses
 Er ou impossibles, mais au fond le sentiment est com-
 À _ préhensible et justifié : on interprète, commente, analyse
 as beaucoup trop pour que le plaisir de goûter les chefs_ d'œuvre pût encore exister. » (1) Ou plus brièvement : À
@@ -1444,7 +1444,7 @@ de notre soi-disant culture moderne, que ce fait qu'on
 nous jette à la tête des millions de connaissances hété-
 roclites — en paroles. Le mot semble être la fin de tout,
 les choses elles-mêmes nous restent étrangères. On
-dirait que le mot a tué les choses. » (1) è
+dirait que le mot a tué les choses. » (1)
 Enfin — critique grave entre toutes — cet enseignement
 est anti-allemand. Sans parler « du lamentable allemand
 que les élèves apprennent dans les exercices de traduction », (2) tout cet idéalisme classique ne convient pas
@@ -1461,9 +1461,9 @@ de l'idéalisme antique, se soient bornés à en cataloguer
 les détails philologiques, ou bien le poussant vers le
 rêve et la métaphysique, sans deviner la beauté pleine
 de force et de vie des grandes œuvres antiques, aient
-réussi à le faire contribuer au développement d'un ro- È
+réussi à le faire contribuer au développement d'un ro-
 mantisme maladif. Peu importe. Ce fut pour l'Alle-
-; (:) L. Gurlitt : Der Deutsche-und seine Schule. Page 120. G
+; (:) L. Gurlitt : Der Deutsche-und seine Schule. Page
 
 ee magne une erreur funeste, « Pendant des siècles notre
 RER enseignement secondaire a été anti-allemand. Nos an-
@@ -1473,7 +1473,7 @@ fer. Alors s'introduisit un élément étranger qui fit se
 _  ratatiner nos solides gars en savants de cabinet, en
 _ rêveurs sans contact avec la vie. » (1) Il est grand -
 t ® témps aujourd'hui de revenir de cette erreur et de
-; remplacer l'école anti-allemande et romantique par i
+; remplacer l'école anti-allemande et romantique par
 une école qui soit faite pour la vie et vraiment alle_. mande. |
 ; la méthode
 Dans la majorité des pays il serait difficile sinon
@@ -1539,7 +1539,7 @@ d'accumuler est considérable. Sur toute la terre les
 élèves allemands sont à la fin de leurs études les plus
 _ instruits. Aussi est-ce sa méthode qui longtemps valut
 _ à l'école allemande les plus vifs éloges.
-à _ Mais toute médaille ayant son revers, de graves « Na Se 65 Professor. — 4.
+à _ Mais toute médaille ayant son revers, de graves « Na Se 65 Professor.
 
 réserves ont été exprimées, ayant trait tant à l'emploi
 qu'à la valeur éducative de cette méthode.
@@ -1573,7 +1573,7 @@ lorsqu'un mariage est conclu? » et exigeait comme ré-
 ponse : « le fondement ». Et n'allez pas dire quele maniement peut être enseigné et appris. Sans doute les
 maitres pourront profiter des règles établies et de l'ex »
 périence des autres. Ils pourront même acquérir une
-certaine virtuosité. N'empêche.que le don de trouver la s
+certaine virtuosité. N'empêche.que le don de trouver la
 
 question qui convient à tel élève, où qui, au moment
 _ ® voulu, fera jaillir la lumière aux yeux de tous est chose
@@ -1590,7 +1590,7 @@ al avec raison qu'on peut regretter « que tous les sujets
 soient enserrés dans la même trame et jetés sur une
 ._ = sorte de lit de Procuste ». (1)
 D'ailleurs on se rend compte de cet inconvénient en
-: examinant les réponses faites par les élèves, ce qui 6
+: examinant les réponses faites par les élèves, ce qui
 _ . conduit à une remarque curieuse. Le premier mouve-
 Œ ment des élèves est de répondre par oui, non, ou par un
 £ seul mot. Vraiment c'est peu. Tous les maîtres s'eflor- :
@@ -1617,7 +1617,7 @@ langage et de constater que la fin dernière de tout l'enseignement serait d'app
 
 Considérée en elle-même, cette méthode peut sembler.
 
-Elle l'est d'abord par le souci de trop bien faire. Elle F
+Elle l'est d'abord par le souci de trop bien faire. Elle
 veut tout expliquer et ne négliger rien. Mais le chemin
 à parcourir est long et le temps limité. De là la dure
 nécessité de marcher vite, très vite. Il n'est point possible de s'arrêter à un endroit important. Tous les spec-
@@ -1638,7 +1638,7 @@ lieu d'en poser. Et les réponses sont souvent une simple transposition verbale 
 bien que pour cet objet ce ne soit pas le meilleur, maïs ce n'est
 pas un progrès en connaissances... Ce sont des exercices pour
 apprendre à parler correctement, et par accident seulement des
-leçons d'observation. » — Winch. Notes on German Schools. Pages 39
+leçons d'observation. » — Winch. Notes on German Schools. Pages
 
 | tacles de la route défilent avec la même rapidité. Et les
 * élèves n'ont plus cette sensation de jouissance calme
@@ -1649,7 +1649,7 @@ d'une autre du pourquoi et du comment. On est bien
 loin de l'idéal du calme épique, et de la jouissance que
 __ procure un certain laisser-aller familial et on se consume
 dans le souci de faire s'écouler sans accroc le travail
-Dangereuse elle l'est aussi par cette sorte de dissec- È
+Dangereuse elle l'est aussi par cette sorte de dissec-
 tion qu'on fait subir aux élèves. Afin d'obtenir de meilleurs résultats on a pour ainsi dire pratiqué sur eux la
 _ division du travail. On sépare leurs diverses facultés et
 on s'adresse à chacune d'elles successivement. On les
@@ -1701,18 +1701,18 @@ Le qu'ils ne l'ont acquis. Trop rarement ils ont été aban-
 mais leur sens critique a été négligé sinon même
 _ étouffé par ces exercices si prudemment calculés. En un
 * mot cette méthode est impuissante à développer en
-eux une force pourtant primordiale et essentielle : la 5
+eux une force pourtant primordiale et essentielle : la
 Aussi n'est-il point surprenant que des craintes sé-
 __ rieuses aient été exprimées au sujet des conséquences |
 : de cette méthode d'instruction.
-“ On a contesté d'abord — et constaté non sans effroi 76A
+“ On a contesté d'abord — et constaté non sans effroi
 _ — que les résultats obtenus soient aussi durables qu'on
 -  lespérait. L'inspecieur Kerchensteiner de Münich a +
 trouvé à la suite d'une enquête que, deux ou trois ans a
 après la sortie de l'école primaire, le savoir des enfants |
 < () Conférez encore une observation du même professeur anglais. :
-| Ik rapporte en même temps les paroles d'instituteurs allemands t
-qui signalent les rapports existants entre cette méthode et le s
+| Ik rapporte en même temps les paroles d'instituteurs allemands
+qui signalent les rapports existants entre cette méthode et le
 caractère national allemand. « Il n'est point exagéré de dire que
 _ lenseignement dans les écoles allemandes est entièrement oral...
 _ Et lorsque j'indiquais la grande valeur du travail fait par les
@@ -1721,11 +1721,11 @@ ma répondu : « Oui, vos enfants anglais peuvent le fajre; ils peu_ « vent tra
 | « ont besoin d'être guidés et aidés ; si nous les laissions seuls, ils
 . …  « feraient des non-sens. La différence est dans le caractère natio- ;
 . « mal; ce n'est pas simplement une différence dans les méthodes -
-« Scolaires »… Il n'y a point de doute que nos élèves anglais, dans J
-. le primaire ou le secondaire, ont beaucoup plus d'indépendance 4
+« Scolaires »… Il n'y a point de doute que nos élèves anglais, dans
+. le primaire ou le secondaire, ont beaucoup plus d'indépendance
 intellectuelle et peuvent travailler sans les queâtions et les secours
 . perpétuels du maitre: »— Winch. Pages 42-43. Justes remarques \
-. = qui doivent inciter à la prudence lorsqu'on emprunte à un pays f
+. = qui doivent inciter à la prudence lorsqu'on emprunte à un pays
 d étranger cerlains principes ou procédés pédagogiques. À supposer ,
 x . qu'ils fussent bons pour de jeunes Allemands, il ne s'en stit pas
 ; nécessairement qu'ils le soient aussi pour de jeunes Français ou }
@@ -1764,9 +1764,9 @@ l'école et sont bien loin de mettre en douté la justesse
 et la valeur de ce qu'ils ont appris. L'école les a dis- ;
 pensés de pensée personnelle. Elle leur a planté dans
 
-(1) Cité par Gurlitt. Page 117.
+(1) Cité par Gurlitt. Page
 
-des Grossbetriebs. Page 11.
+des Grossbetriebs. Page
 
 _ la tête des règles et des indications, qu'ils conservent
 toute leur vie avec une constance rigide. Et toutes ces
@@ -1795,7 +1795,7 @@ _ réussitpas à développer l'activité personnelle, il s'en suit
 Par le fait même qu'elle est impuissante à développer
 les individualités. Son but est de donner à tous les élèves
 À Q) IL. Muthesius : Die Bedingungen und die Anlage des modernen
-Landhauses. Cité par Gurlitt. Page m5.
+Landhauses. Cité par Gurlitt. Page
 
 les mêmes connaissances par les mêmes procédés. Pour
 y parvenir on a imaginé en quelque sorte un type sché-
@@ -1827,7 +1827,7 @@ débattue longuement à propos de la philosophie de Nietzsche. Il
 est vraisemblable que ces écrivains subissent plus ou moins lin-
 
 : fluence de Nietzsche et qu'ils ont pris conscience de ce défaut de
-Vécole allemande après avoir iu ses œuvres. Il est vraisemblable ÿ
+Vécole allemande après avoir iu ses œuvres. Il est vraisemblable
 aussi que l'intransigeance de Nietzsche, proclamant les droits
 
 ÿ absolus de l'individu, a été provoquée en partie par cette supré-
@@ -1841,14 +1841,14 @@ troublant, peut être considéré comme une funeste fatalité. » (2) |
 dû devenir : une manière d'usine fabriquant en. masse
 ; des objets identiques, « des esprits et des caractères
 * dressés uniformément ». (3) Et ce résultat doit satis- \
-_ faire peut-être le désir secret des gouvernants alle- Ù
+_ faire peut-être le désir secret des gouvernants alle-
 mands, mais il est tait pour inquiéter les esprits clairs |
 . et clairvoyants. Car ces hommes ainsi dressés fourni- :
 … ront Sans doute ponctuellement, avec une obéissance aa
 passive et une soumission de tous les instants, le tra- |
 vail exigé d'eux, mais ils auront toutes les peines à faire
 _ preuve d'initiative personnelle. Leur travail sera minu-
- tieux et consciencieux ; rarement ils auront la hardiesse 1
+ tieux et consciencieux ; rarement ils auront la hardiesse
 de s'élever au-dessus des détails. Ils seront intègres et
 logiques peut-être dans leur idée du droit et du devoir
 _ mais durs et sans générosité. Ils seront surtout d'excel_ lents subordonnés. « Le résultat final est que notre
@@ -1919,7 +1919,7 @@ la Bible et des choses religieuses, mais les autres enseignements — en particu
 doivent concourir à l'affermissement du sentiment religieux. « Il faut qu'à côté du récit des.événements euxmêmes, léclaircissement des circonstances intimes
 occupe une place plus large que dans les classes précé-
 dentes, où elles étaient restées naturellement au dernier .
-plan. L'essentiel est de développer par là lintelligence 3
+plan. L'essentiel est de développer par là lintelligence
 des rapports pragmatiques que les événements ont
 entre eux, la conviction que l'Histoire est régie par une °
 puissance suprême, ainsi que la faculté de comprendre
@@ -1928,11 +1928,11 @@ La seconde mission de l'école est de cultiver le sentiment patriotique. Les pro
 
 mêmes. On adresse aux élèves des avertissements
 (1) Dans la pratique l'organisation de l'enseignement et du contrôle religieux ne va pas sans difficultés, surtout en raison de l'intransigeance des orthodoxes protestants ou catholiques. Il arrive
-en effet que dans certaines localités protestants ou catholiques L
+en effet que dans certaines localités protestants ou catholiques
 soient en nombre égal ou forment une minorité considérable. Or
 les orthodoxes réclament une école confessionnelle, ne relevant
 que d'une religion, où tous les élèves et tous Les professeurs appartiendraient à la même religion, au lieu de l'école simultanée, où les
-f deux religions étaient parallèlement représentées. Un projet de ï
+f deux religions étaient parallèlement représentées. Un projet de
 loi fut déposé à ce sujet devant le Landtag prussien et souleva les
 polémiques les plus passionnées. Il fut adopté. En Bavière les |
 : intransigeants ont déjà obtenu satisfaction dans la pratique, ;
@@ -1944,21 +1944,21 @@ ASE Set des autres enseignements, littérature, histoire “
 | ment patriotique, marque le lien étroit qui rattache cet
 enseignement à celui de l'histoire. Par la représentation |
 vivante des légendes héroïques, il prépare à lhistoire :
-nationale au même degré qu'il féconde et anime celle-ci æ
+nationale au même degré qu'il féconde et anime celle-ci
 & par l'introduction à la connaissance des principaux |
 __  chefs-d'œuvre de notre littérature. » (2) « L'enseigne- AE
-ment de la gymnastique a pour but de procurer les 4
-aptitudes qui ont de la valeur pour la vie et particuliè- 1
-. rement pour le service dans l'armée nationale, et d'autre L
+ment de la gymnastique a pour but de procurer les
+aptitudes qui ont de la valeur pour la vie et particuliè-
+. rement pour le service dans l'armée nationale, et d'autre
 … part de développer la conscience de travailler avec des
 compagnons de son âge en vue d'un noble but. » (3) , à
 à Enfin l'école doit mettre au cœur des élèves l'amour y
-de l'Empire, de l'empereur, de la famille impériale, et 3
+de l'Empire, de l'empereur, de la famille impériale, et
 dans chaque État, du souverain particulier et de la |
-maison régnante. Elle doit leur montrer comment avec s
+maison régnante. Elle doit leur montrer comment avec
 l'aide de Dieu tout-puissant ils ont vaillamment travaillé À
 © àla grandeur de la patrie et au bien de leurs sujets. |
-_ Elle doit leur expliquer en quoi la forme monarchique L.
+_ Elle doit leur expliquer en quoi la forme monarchique
 l'emporte sur toute autre forme de gouvernement et, |
 . sans leur cacher les difficultés sociales de l'ère actuelle,
 les mettre vivement en garde contre les théories malsaines. « L'enseignement relatif à des questions écono- LR
@@ -1981,7 +1981,7 @@ et patriotique de la jeunesse par l'instruction et l''éduca=
 tion, ainsi que de donner à celle-ci les connaissances et
 aptitudes générales nécessaires dans la vie civile. » (2)
 
-Ou bien encore : « C'est un commandement du devoir x
+Ou bien encore : « C'est un commandement du devoir
 moral et national que de pousser aussi loin que possible
 
 la préparation de la jeunesse aux tâches queluiimposent
@@ -1996,7 +1996,7 @@ qu'apporte l'école à l'accomplissement de son « devoir
 
 Et cela suffit sans doute aussi à expliquer le mécon-
 
-(2) Paragraphe premier du projet de loi pour l'instruction primaire en Prusse. Stôtzner. Page 9.
+(2) Paragraphe premier du projet de loi pour l'instruction primaire en Prusse. Stôtzner. Page
 
 (3) Oblert. Cité par Da Costa : L'enseignement secondaire en
 Allemagne. Revue Bleue, 1903, premier semestre. Cette étude nous
@@ -2015,15 +2015,15 @@ mais, depuis que l'on écrit l'histoire des peuples, on ne
 +. parla d'un pays qui ait retenti de la sorte du fracas des à"
 L fêtes, dit M. Harden. (1) Mais personne n'a lieu de s'en ;
 ‘plaindre aussi amèrement que nous, les éducateurs de
-| la jeunesse, qui sommes impuissants à faire œuvre ÿ
+| la jeunesse, qui sommes impuissants à faire œuvre
 valable et sérieuse au milieu de ce bruit de fête foraine.
 Que peuvent être ces hommes grandis dans une atmosphère carnavalesque ! Si encore on était vraiment en
 humeur de fête, et d'une joie débordante ! Mais tout
 est une vaine apparence, un éclat trompeur : nous mimons seulement la joie de vivre. » (2) di
-Ces tendances, comme il fallait s'y attendre, font en j
-. plus d'un point dévier le cours des études. Au point de s
+Ces tendances, comme il fallait s'y attendre, font en
+. plus d'un point dévier le cours des études. Au point de
 | vue de l'art par exemple, non seulement elles n'aident
-pas à cultiver le goût des élèves, mais au contraire N
+pas à cultiver le goût des élèves, mais au contraire
 risquent de le corrompre. Car « on laisse pénétrer dans Fi
 l'école de misérables choses pour peu qu'elles aïent une
 signification patriotique ou traduisent le loyalisme sous
@@ -2057,7 +2057,7 @@ mentalité (Gesinnung) et non des concepts et du
 | savoir ». (x) Et surtout cet honneur va:t-il sans dommage
 pour l'enseignement même de l'histoire ? Pour exécuter A
 la tâche que vous lui assignez elle devra surtout racon- |
-ter et faire admirer. Elle prendra de plus en plus un k
+ter et faire admirer. Elle prendra de plus en plus un
 ‘ caractère épique. Et c'est sans doute pourquoi vous lui |
 adjoignez comme auxiliaire la littérature. Mais c'est
 maintenir l'enseignement de l'histoire à un niveau infé- ?
@@ -2066,33 +2066,33 @@ susceptibles de former l'intelligence. Vous l'empêchez, }l
 d'accomplir son œuvre la plus utile, qui est de dévelop-
 
 per le sens critique, si rare chez les élèves et chez les ]
-. hommes. Ou si vous préférez, vous détournez lhistoire L
+. hommes. Ou si vous préférez, vous détournez lhistoire
 « de son véritable but qui est simplement d'habituer les
 à esprits à considérer les choses du point de vue historique. \
 } Faussant certains enseignements ces tendances faus_ sent encore la mentalité des élèves. Car un enseignement tendancieux est par nécessité incomplet. Il ne pré- Ni
 sentera des choses que l'aspect favorable à sa thèse. De pe :
-_ la médaille il ne montrera que l'avers. Il est certain par 1Ee 0
-k exemple que les peuples germaniques ont connu des 4
+_ la médaille il ne montrera que l'avers. Il est certain par
+k exemple que les peuples germaniques ont connu des
 heures peu glorieuses, et que leurs souverains ont |
 commis des actes non exemplaires. Or évidemment ces ;
 .… détails seront omis ou tout au plus eflleurés. Les élèves
 auront donc acquis des notions inexactes. ; Fra
 . Et justement il se trouve qu'en matière politique on ;
-‘ insiste particulièrement sur les devoirs de loyale fidélité K
+‘ insiste particulièrement sur les devoirs de loyale fidélité
 : ‘des Allemands envers leurs souverains, mais que l'on ue À
-_ néglige d'entretenir les élèves de leurs droits. Le mot de 4
+_ néglige d'entretenir les élèves de leurs droits. Le mot de
 liberté sonne toujours mal en Allemagne. On évite de re
-n l'employer à l'école. « Jamais nos enfants n'entendent ù
+n l'employer à l'école. « Jamais nos enfants n'entendent
 Ve . parler à l'école des libertés du citoyen. On estime qu'il à
 f 1 est bien plus sage de les dresser dès l'enfance à la sou
 Le: _plesse et à la docilité silencieuse. IL me souvient avoir .
-et _ lu que l'autorité scolaire fit supprimer dans un livre de 4
+et _ lu que l'autorité scolaire fit supprimer dans un livre de
 _ lectures le paragraphe de la Constitution prussienne où Fe
-il est dit que chaque citoyen a le droit de manifester 4
+il est dit que chaque citoyen a le droit de manifester
 ok ses opinions par des paroles et par des écrits. » (x) ;
-_ Est-il bien d'enseigner le loyalisme par une déloyauté ? 3
+_ Est-il bien d'enseigner le loyalisme par une déloyauté ?
 D'autre part toute tendance est hostile par définition jh
-S _ à la tendance contraire. La force ascensionnelle du er 1
+S _ à la tendance contraire. La force ascensionnelle du er
 ONCE) L. Gurlitt : Der Deutsche und seine Schule, Page 130. À
 
 ballon s'oppose à l'attraction terrestre. Le bon haiït le
@@ -2110,7 +2110,7 @@ littéralement un empoisonnement des jeunes âmes; car
 tout parti pris est un poison, puisqu'il tue la faculté
 d'être vrai et consciencieux, et crée une mentalité d'esclave ou — si l'on veut de valet. » (2)
 Conférez ce que dit un homme de théâtre allemand, sous le
-pseudonyme de W. Ulrich, de la classe intellectuelle allemande, L
+pseudonyme de W. Ulrich, de la classe intellectuelle allemande,
 c'est-à-dire de celle qui a surtout passé par les écoles : « La classe
 des intellectuels ou soi-disant tels, faisant partie de notre presse,
 se montre franchement hostile à tout ce qui est français. Je ne
@@ -2126,7 +2126,7 @@ Tout lui devient matière à enseignement. Or le cerveau des Allemands dont je p
 périphrases, est heurté, choqué, froissé de la clarté, de la rapidité
 intellectuelle des Français ; de là naissance d'une'jalousie haineuse
 et féroce envers tout ce qui est beau et grand chez vous. » — Le
-V (2) P. de Lagarde : Deutsche Schriften. Page 179.
+V (2) P. de Lagarde : Deutsche Schriften. Page
 
 Il en va de même pour la religion. Naturellement les
 professeurs chargés de cet enseignement — et il faut se
@@ -2167,11 +2167,11 @@ foi, pourrez-vous empêcher que ce stagiaire ne prêche
 pousse ». (1) Quant aux élèves, si vous leur imposez
 l'étude de la religion comme celle du latin ou de la
 géométrie, ne vous étonnez pas S'ils l'envisagent de la
-même manière, c'est-à-dire &« comme une matière sur F
+même manière, c'est-à-dire &« comme une matière sur
 laquelle on sera interrogé à l'examen », (2) aussi fastidieuse que les autres. Ne soyez pas surpris s'ils l'étudient de même manière en retenant la lettre de la Bible
 | mais sans en comprendre l'esprit et si plus tard ils n'y
 voient que des histoires mensongères analogues à
-celles que leurs professeurs leur racontèrent sur d'au- ÿ
+celles que leurs professeurs leur racontèrent sur d'au-
 tres points. Est-ce là le but que vous poursuiviez ? Ne
 sentez-vous pas que leur religion sera superficielle,
 toute dans les gestes et que votre enseignement de la
@@ -2183,44 +2183,44 @@ pour une grande part du moins, de l'état des esprits
 dans l'Allemagne actuelle. C'est lui qui explique le
 besoin d'ordre, de discipline et de servilité qu'on
 remarque souvent, et « ce ramollissement progressif de
-(1) L. Gurlitt : Der Deutsche und seine Schule. Page 73.
-(2) W. Rein : Xirche, Staat und Schule, page 28. Il ajoute ce détail 4
+(1) L. Gurlitt : Der Deutsche und seine Schule. Page
+(2) W. Rein : Xirche, Staat und Schule, page 28. Il ajoute ce détail
 piquant : « Les parents qui veulent échapper à la tyrannie de la
-droite et de la gauche, mais qui sont obligés par l'Etat de faire 7
+droite et de la gauche, mais qui sont obligés par l'Etat de faire
 donner à leurs enfants un enseignement religieux, en sont réduits
 à leur faire suivre les cours de la religion juive. » ;
 
 1 a colonne vertébrale passé à l'état endémique depuis
-_ une vingtaine d'années » (1) dont on a parlé. C'est ini 4
+_ une vingtaine d'années » (1) dont on a parlé. C'est ini
 qui explique encore l'attitude antipathique de nombreux Re
 _ Allemands. Exagérément fiers de leur pays, de leur Éd
 re race et d'eux-mêmes, confiants dans une justice imma- P es
 _nente ‘et brutale, dans leur Dieu et leurs canons, ils | a 4"
 sont remplis d'orgueil et d'arrogance envers les autres
-_ peuples et les autres croyances. 4 i
+_ peuples et les autres croyances.
 En même temps cela explique le découragement, le Ex
-_ pessimisme dont se plaignait il n'y a pas longtemps 4
+_ pessimisme dont se plaignait il n'y a pas longtemps
 . l'empereur Guillaume II. (2) Car ce triple culte de la ; FE
 _ patrie, de l'empereur et de Dieu qu'on impose aux s'MT :
 . . élèves pèse sur eux comme un cauchemar dont ils souf- che se
-_ frent et s'efforcent de se débarrasser très vite, lorsqu'ils Le 3
+_ frent et s'efforcent de se débarrasser très vite, lorsqu'ils Le
 ont percé à jour sa vanité. Et cela se produit dès qu'ils À
 prennent contact avec la vie réelle. Il leur suffit de com- is
 parer les éloges enthousiastes et livresques de l'école F :
 _ avec les difficultés présentes, l'idéal philosophique et ve
-… (2) La contradiction apparente entre ces deux états d'esprit peut 0
+… (2) La contradiction apparente entre ces deux états d'esprit peut
 # ‘être levée. D'abord ces deux états ne se montrent pas en général Ti
-| dans les mêmes classes sociales ni dans les mêmes individus. Et 35
+| dans les mêmes classes sociales ni dans les mêmes individus. Et
 _ il n'est même pas impossible qu'ils se rencontrent dans un même 1 Ke
-+ individu. Car on peut souvent distinguer entre le cerveau etle ñ
++ individu. Car on peut souvent distinguer entre le cerveau etle
 . cœur, et remarquer que certaines idées ont pénétré dans le cer- se.
-veau mais ne sont pas encore passées dans le sang. En temps nor- 7
-_ mal elles peuvent diriger notre action. Mais viennent des circon- 5
+veau mais ne sont pas encore passées dans le sang. En temps nor-
+_ mal elles peuvent diriger notre action. Mais viennent des circon-
 + . stances graves, les sentiments, les impressions d'enfance, les tradi- %
 tions reprennent le dessus. Un exemple peut être fourni par la . Fe
- social-démocratie allemande. L'internationalisme n'est encore L
+ social-démocratie allemande. L'internationalisme n'est encore
 _ pour elle qu'un concept. Elle est nationale sinon nationaliste de TE
-+ A A De même l'ardeur avec laquelle les socialistes suivent leurs + #3 ».… chefs, ne diffère pas en nature de celle qui pousse les autres Alle- L
++ A A De même l'ardeur avec laquelle les socialistes suivent leurs + #3 ».… chefs, ne diffère pas en nature de celle qui pousse les autres Alle-
 Ÿ nands à obéir à leur empereur. Ce n'est pas sans quelque raison |
 —… que maître Hervé a pu parler du kaiser Bebel au récent congrès j H » international de Stuttgart. C'est dans le même sens que certains 2 A a PU
 ._ Allemands peuvent être souples et arrogants, ardents et abattus, < ve
@@ -2252,7 +2252,7 @@ des conceptions athéistes ». (2) « La contrainte morale
 exercée par l'État et l'école est en réalité cause du
 succès et de l'influence de la social-démocratie. » (3)
 
-(3) L. Gurlitt : Der Deutsche und seine Schule. Page 133.
+(3) L. Gurlitt : Der Deutsche und seine Schule. Page
 
 Il ne rentre pas dans le cadre de cet exposé de dis_ cuter les critiques faites à l'école allemande. Cela fut
 fait en surabondance là-bas, où pas une de ces critiques
@@ -2262,8 +2262,8 @@ sujets gardé un silence soumis se sont permis de donner
 leur opinion sur les questions scolaires. Constatons que
 _ souvent les critiques ont été faites avec exagération et
 injustice, et que plus d'un raté a rendu l'école responsable de ses échecs alors qu'il n'en devait accuser que
-son ambition et sa faiblesse intellectuelle ou morale. ÿ
-4 Il nous semble plus important d'essayer de démêler
+son ambition et sa faiblesse intellectuelle ou morale.
+Il nous semble plus important d'essayer de démêler
 quelle est au fond la portée de ces critiques et quel
 peut être leur effet.
 Elles se ramènent à une série d'oppositions, toutes
@@ -2318,14 +2318,14 @@ _ tions puisque sa vie politique, économique et sociale a nr
 _ été ‘entièrement changée. Les changements ont abouti à tE.
 … de grands succès matériels. Mais changements et succès "e
 
-ont causé bien des malaises. Il a fallu songer à l'avenir. | 4
+ont causé bien des malaises. Il a fallu songer à l'avenir.
 De grandes différences d'opinions se sont manifestées. +
 : Les uns ont prôné la recherche toujours plus exclusive sl
-_ des avantages matériels, alors que les autres célébraient Û È
+_ des avantages matériels, alors que les autres célébraient
 un retour à l'idéalisme. Les uns ont vu le salut dans ne
 
 le maintien des anciennes formes de l'autorité ou dans à
-une organisation sociale toujours plus régulière et plus É
+une organisation sociale toujours plus régulière et plus
 
 rigide, alors que d'autres voulaient plus de liberté et .
 _ opposaient l'individu à la société. Vieilles querelles sans '
@@ -2333,17 +2333,17 @@ _ opposaient l'individu à la société. Vieilles querelles sans '
 doute mais plus actuelles et plus âpres que jamais. à
 _.  S'ilen est ainsi on peut penser que l'école allemande re.
 . né sera pas aisément modifiée. Assurément des essais *
-_ furent tentés. & Partout on relève dans l'école des Î
+_ furent tentés. & Partout on relève dans l'école des
 … efforts pour alléger dans la mesure du possible le far- di
-deau de l'école, diminuer le nombre des heures, allon- f
-| _ger lés récréations, faciliter les examens, réduire le k
+deau de l'école, diminuer le nombre des heures, allon-
+| _ger lés récréations, faciliter les examens, réduire le
 travail de la maison... Partout on prescrit aux maîtres |
-de considérer les aptitudes spéciales et différentes des 4
-_ élèves, et souvent ces prescriptions sont suivies avec | L
-joie et amour. » (1) Les derniers programmes prussiens ù
+de considérer les aptitudes spéciales et différentes des
+_ élèves, et souvent ces prescriptions sont suivies avec
+joie et amour. » (1) Les derniers programmes prussiens
 
 de 1900 s'efforcent de mettre l'école mieux en harmonie
-avec l'évolution contemporaine. ÿ
+avec l'évolution contemporaine.
 
 Mais il ne faudrait pas s'illusionner sur l'étendue de
 ces réformes. Si l'on a pu faire circuler un peu plus
@@ -2373,7 +2373,7 @@ faible partie, ne peut-il réjouir ceux qui ont foi dans le
 triomphe de la véritable éducation ?
 
 ie A. — Ouvrages généraux et documents ,
-=. F: PAULSEN. — Geschichté" des gelehrten Unterrichts. Leip- Ê
+=. F: PAULSEN. — Geschichté" des gelehrten Unterrichts. Leip-
 
 -_ Berlin. Asher. (6 volumes in-8° formant un total de plus |
 
@@ -2409,10 +2409,10 @@ whatman ainsi distribués :
 premier exemplaire de souche, exernplaire du gérant;
 deuxième exemplaire de souche, exemplaire de Vadministrateur ;
 troisième exemplaire de souche, exemplaire de l'imprimeur ;
-neuf exemplaires d'abonnement, numérotés de 1 à 9
-4 Tous nos exemplaires sur whatman sont numérotés
+neuf exemplaires d'abonnement, numérotés de 1 à
+Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur ; nos
-tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque in- k
+tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque in-
 stant souscrits; nous ne vendons point d'exemplaires
 sur whatman en dehors de l'abonnement: l'abonnement
 sur whatman à cette neuvième série est de cent francs
@@ -2428,9 +2428,9 @@ a rondissement. On recevra en spécimens six cahiers
 5 ing uième, de la sixième ou de la septième série. % EU)
 VE Pour savoir ce qui a paru dans les cinq premières Nes
 | séries des cahiers, 1900-1904, envoyer un mdndat de RUE
-al francs à M. André Bourgeois, méme adresse; on 2 Ÿ
-| recevra en retour le catalogue analytique sommaire, 4e
-1900 -1904, de nos cinq premières séries, premier cahier C3 fs r x
+al francs à M. André Bourgeois, méme adresse; on
+| recevra en retour le catalogue analytique sommaire,
+1900 -1904, de nos cinq premières séries, premier cahier C3 fs
 {della sixième série, un très fort cahier de XI1H408
 pas | Li dette in-18 grand jésus, marqué cinq francs. est RE
 * Pour s'abonner à la neuvième série des cahiers, qui GPA in À
@@ -2439,8 +2439,8 @@ RES eois, même adresse, le prix de l'abonnement; on
 . à leur date, les cahiers à paraître degcette neuvième A Où
 
 ni | rez-de-chaussée, Paris, cinquième arrondissement. TR
-à s Nos Cahiers sont édités par des' souscriptions men 4
-2 Ms . suelles régulières et par des souscriptions extraordi- ne.
+à s Nos Cahiers sont édités par des' souscriptions men
+Ms . suelles régulières et par des souscriptions extraordi- ne.
 __  naires; la souscription ne confère aucune autorité sur” "54
 1% _ la rédaction ni sur l'administration ; ces fonctions “
 ‘he _ . Nos Cahiers paraissent par séries; une série parait Me “
@@ -2448,12 +2448,12 @@ JL _ dans le temps d'une année scolaire, d'une année
 ‘in k* ouvrière, d'octobre-novembre à juin-juillet; l'abonne- se FE
 te. _ ment se prend pour une série. DURÉE
 Le k On peut souscrire cet abonnement à tout moment de Ne
-h? … l'année, mais l'abonnement ainsi souscrit est, de droit, és ‘à ï
+h? … l'année, mais l'abonnement ainsi souscrit est, de droit, és ‘à
 ji valable pour la série en cours. où ne.
 nr Prix de l'abonnement, pour chaque série annuelle nt).
 … pendant le cours de cette série : A
 (8 1 202 LE DANONE ( Autres pays de l'Union postale uni- we:
-é Me . Abonnement sur whatman... cent franos pour tous pays" 0
+é Me . Abonnement sur whatman... cent franos pour tous pays"
 è | Les exemplaires sur whatman, tirage non réimposé, | À
 SAND sont numérotés à la presse et imprimés au nom du
 CET souscripteur ; le tirage à part sur whatman a commencé
@@ -2464,14 +2464,14 @@ DU tout temps et reçoivent un numéro d'ordre déterminé
 _ dans l'ordre de l'arrivée, les numéros les plus basvenant
 Ut naturellement aux premières inscriptions; c'est cecnmæ ne
 _ méro d'inscription qui devient automatiquement le
-A numéro du tirage réservé à chacun des souscripteurs: *E
+A numéro du tirage réservé à chacun des souscripteurs:
 _ l'édition sur whatman est strictement limitée au
 
 _ Pour tout changement d'adresse envoyer soixante
-centimes, six limbres de dix centimes. g
+centimes, six limbres de dix centimes.
 { Nous engageons nos abonnés de certains pays à nous ; :
 demander un abonnement recommandé ; tous les cahiers €
-de l'abonnement recommandé sont empaquetés à part et f
+de l'abonnement recommandé sont empaquetés à part et
 
 _ ‘recommandés à la poste ; la recommandation postale, fe
 comportant une transmission de signature, garantit le ;
@@ -2480,12 +2480,12 @@ destinataire contre certains abus; pour cette recom- *
 _ mandation, pour lous pays, en sus, cinq francs. | %
 
 ; Automatiquement et Sans augmentation de prix les AE
-_ exemplaires sur whatman sont tous recommandés et d
+_ exemplaires sur whatman sont tous recommandés et
 _ envoyés aux souscripteurs dans des enveloppes-sacs. à
-_ L'abonnement ordinaire cesse de fonctionner pour 4
-à _ chaque série au plus tard le 31 décembre qui suit 4
+_ L'abonnement ordinaire cesse de fonctionner pour
+à _ chaque série au plus tard le 31 décembre qui suit
 _ l'achèvement de cette série; ainsi jusqu'au 31 décembre >
-1907 on pouvait encore avoir pour vingt francs les seize Û
+1907 on pouvait encore avoir pour vingt francs les seize
 - cahiers de la huitième série complète. [E
 ; A partir du premier janvier qui suit l'achèvement |
 _ d'une série, le prix de cette série est porté au moins £

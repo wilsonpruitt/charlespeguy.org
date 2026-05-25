@@ -268,20 +268,20 @@ le moi plus fort et plus plein, plus continu
 que tous les éléments qui le composent.
 Tout lui est objet, à prendre, à manger, }
 à garder ou à briser : c'est l'idée d'un $
-enfant qui joue avec la vie universelle, 4
+enfant qui joue avec la vie universelle,
 ne doutant jamais de soi, et par là don- (
-nant crédit à toutes choses ; car les choses L
+nant crédit à toutes choses ; car les choses
 ne sont rien que par rapport à l'usage
 qu'il en fait. Magnifique simplicité, toute # +00
-contraire à celle de l'artiste! Comme il ÿ
+contraire à celle de l'artiste! Comme il
 pense, il se décide; il prend parti, comme à
 il prend contact : jamais il ne s'oublie. |
 chêne corse, qui peut croire toute la terre \:
-faite uniquement pour ses racines, et le ë
+faite uniquement pour ses racines, et le
 ciel uniquement pour lui dispenser le ‘4
 soleil et la pluie. Jamais homme ne fut Ni
-si peu de l'Occident. Il n'était pas vulné- 1
-rable à la tête ou au cœur, ni même au 4
+si peu de l'Occident. Il n'était pas vulné-
+rable à la tête ou au cœur, ni même au
 
 talon, comme tous ceux que le rêve a
 | trempés, dès la naissance, dans la vague
@@ -599,7 +599,7 @@ nombres de son arithmétique. y
 Il dit lui-même que son nom signifie :
 le lion du désert. D'où tire-t-il ce sens-là ?
 Mais comme le nom lui va! le désert
-étant de Carthage et le lion de Rome, H
+étant de Carthage et le lion de Rome,
 
 aime le désert; il en est profondément |
 touché. Et la vie est sa proie : tout lui
@@ -938,7 +938,7 @@ pas. Tandis que Jeanne d'Arc porte tout
 l'idéal de la nation, au point de créer la
 nation même, c'est la nation qui donne
 son idéal à Napoléon, et qui l'en charge.
-Il en devrait être accablé, et re l'est pas. l
+Il en devrait être accablé, et re l'est pas.
 Il n'abdique pas son génie propre. Napoléon est une force sublime, mais sans
 amour. L'idéal de la France est infintment plus fort que lui, et tout de même
 sublime. Il n'est qu'un homme, après

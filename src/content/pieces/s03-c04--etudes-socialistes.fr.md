@@ -10,7 +10,7 @@ ocrSource: "fr.wikisource.org — Études socialistes (Cahiers de la Quinzaine, 
 ---
 Jean Jaurès, préface de Charles Péguy
 
-*Cahiers de la Quinzaine*, Série III, cahier 4
+*Cahiers de la Quinzaine*, Série III, cahier
 1901.
 
 journalÉtudes socialistesJean Jaurès, préface de Charles PéguyCahiers de la Quinzaine1901ParisC*Cahiers de la Quinzaine*, Série III, cahier 4Charles Peguy - Cahiers de la Quinzaine 3e serie vol 1-4 - Jaurès -1901.djvuCharles Peguy - Cahiers de la Quinzaine 3e serie vol 1-4 - Jaurès -1901.djvu/227Gt.-272
@@ -441,7 +441,7 @@ faisait partie de ce comité central, avait gardé
 dans la défaite toute sa lucidité, son large sens
 de la vie, de ses complications et de ses
 évolutions. Il résistait aux projets enfantins, calmait les effervescences.
-Mais un jour vint où il dut rompre. Et le 15
+Mais un jour vint où il dut rompre. Et le
 septembre 1850 il se retira du comité central de
 Londres. Il tint à justifier cette scission par une
 déclaration écrite, insérée au procès-verbal du
@@ -3575,7 +3575,7 @@ C’est si bien un démembrement et une restriction
 du droit de propriété que les rédacteurs du code
 civil ont craint que la servitude parût créer, d’un
 immeuble à un autre, une sorte de dépendance
-analogue à l’ancienne vassalité. Et l’article 638
+analogue à l’ancienne vassalité. Et l’article
 
 « La servitude n’établit aucune prééminence d’un
 héritage sur un autre. »
@@ -3782,7 +3782,7 @@ recettes des départements et des communes dépassent
 400 millions. Ainsi le chiffre total de l’impôt
 s’élève à plus de 4 milliards par année. Or,
 d’après les statistiques les plus sérieuses, le
-capital de la France s’élève à 200 ou 220
+capital de la France s’élève à 200 ou
 milliards ; et le revenu total annuel de la France,
 revenus des capitaux, revenus du travail, s’élève
 
@@ -5874,7 +5874,7 @@ dans les donations et successions : les rentes
 françaises et autres valeurs du trésor français
 figurent dans les donations pour 41 millions ; les
 rentes et effets publics des gouvernements
-étrangers figurent dans les donations pour 11
+étrangers figurent dans les donations pour
 millions ; les valeurs des sociétés françaises y
 sont pour 24 millions ; les valeurs étrangères pour 2 millions 400.000 francs.
 Dans les successions, les rentes françaises et
@@ -5978,7 +5978,7 @@ industrielles et commerciales, plus de la moitié
 est en obligations. En 1899, la taxe de quatre
 pour cent a porté sur tout le revenu des valeurs
 mobilières — la rente d’État exceptée. Le revenu
-taxé des actions des sociétés était de 727
+taxé des actions des sociétés était de
 millions. Le revenu taxé des obligations et
 emprunts était de 877 millions. Ainsi, la part du
 capital tout à fait passif, de celui qui ne porte
@@ -6238,4 +6238,4 @@ sorte de communisme oligarchique, et
 interdisez-vous au prolétariat d’intervenir pour
 le convertir en un communisme démocratique
 
-↑ Je me sers, pour la traduction du *Manifeste communiste*, de l'excellente traduction nouvelle due vient d'en faire Charles Andler à la Société nouvelle de librairie et d'édition, 17 rue Cujas. — Prix : 0 franc 50.
+↑ Je me sers, pour la traduction du *Manifeste communiste*, de l'excellente traduction nouvelle due vient d'en faire Charles Andler à la Société nouvelle de librairie et d'édition, 17 rue Cujas. — Prix : 0 franc

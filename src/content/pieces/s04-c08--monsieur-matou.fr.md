@@ -12,7 +12,7 @@ paraissant vingt fois par an
 
 ‘ dans le comm TR
 
-4 He De avec les bons souhaits des cahiers LT
+He De avec les bons souhaits des cahiers LT
 D REPRe SE, pour cette nouvelle année de travail ;
 
 }ÉEPNER Pour nos petits +.
@@ -310,7 +310,7 @@ manière de cierge, faire le bossu avec son dos,
 flairer le peloton de laine grise avec son petit nez
 couleur d'anémone, et rabattre vers les touffes de
 ses favoris la pointe de ses oreilles.
-24 1
+24
 
 La table à ouvrage qui est une personne d'expé-
 rience — elle a tant déménagé ! — voit bien qu'il
@@ -436,7 +436,7 @@ se tendent comme s'ils voulaient devenir des pantalons à l'anglaise ; le panach
 
 d'une façon préméditée, mais surprenante, ses
 fourrures café au lait ; ses yeux fixes ont des lueurs
-de lampes Édison. L
+de lampes Édison.
 
 Cuip, cuip, cuip. — Le jeune moineau est déjà
 bien loin, lui et sa chanson légère, qu'il a sans doute
@@ -579,7 +579,7 @@ aux lois éternelles de l'harmonie.
 Son esprit est obscur et plein de détestables erreurs.
 Voyez comme il méprise les Arts. Croyez qu'il ne
 méprise pas moins les sciences en général et la linguistique en particulier. Maiïntes fois j'ai dû subir |
-le contact de sa robe de poils, le frottement de ses f
+le contact de sa robe de poils, le frottement de ses
 semelles arrondies et griffues et les attouchements |
 de son nez pâle. Vainement je lui ai fait observer
 
@@ -868,7 +868,7 @@ jamais que le petit côté des choses, en sorte que vos
 discours n'évoquent d'ordinaire que des images
 
 - minuscules, insignifiantes et ratatinées. Or çà,
-écoutez-moi, vous tous. On était alors à la campagne : la maison était grande et entourée d'un ÿ
+écoutez-moi, vous tous. On était alors à la campagne : la maison était grande et entourée d'un
 grand jardin. Parmi les êtres du logis, — tous gens
 respectueux de l'ordre public, pratiquant la plupart des vertus privées et gouvernés par des habitudes anciennes, — il y avait monsieur Fox et monsieur Mouton. Monsieur Fox aboyait beaucoup, ce
 qui fait que je n'ai jamais eu pour lui une affection
@@ -954,7 +954,7 @@ souffrait monsieur Mouton sur sa robe de soie puce,
 pendant qu'elle relisait pour la vingtième fois le JuifErrant ou le Lys dans la Vallée. Aïnsi donc monsieur Mouton ne manquaitpointdelettres, ce quivous
 explique bien pourquoi il répondait soit mia, soit
 mia, mia, d'une petite voix éteinte, à ceux qui lui
-posaient des questions. ï
+posaient des questions.
 — C'est par de telles histoires, chante la lampe
 familiale, qu'on reproduit à ma clarté, dans les
 | chambres bien closes, les travaux et les artifices
@@ -1937,7 +1937,7 @@ vous reconnaître la volonté d'être aimable et la
 faculté de nous comprendre.
 
 C'est pourquoi, docile aux mêmes sentiments qui
-induisirent autrefois la jeune fille d'outre-mer à e
+induisirent autrefois la jeune fille d'outre-mer à
 vous commander vos cartes de visite, je me suis
 avisé de vous écrire cette lettre, non pour vous entretenir de propos frivoles, mais pour vous parler
 de ce petit livre où il est question de vous-même et

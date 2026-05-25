@@ -139,8 +139,6 @@ Mais qui sachant l'aimer n'en ont pas su mourir;
 
 Bien plus, la vie facile continue par routine à poser la valeur de la vie difficile & pour les uns comme pour les autres « mœurs faciles » signifie mœurs méprisables : si bien que les êtres aptes à la vie facile, étant élevés à n'admirer que la vie difficile, s'y laissent aller & qu'ainsi sont gâchées au travail d'admirables puissances de vie souple & légère... Et la vie facile, non seulement ne peut s'admirer ni s'honorer, mais elle peut à peine se nommer : ce qu'ils appellent la vie c'est, sans qu'ils aient besoin de le dire, la vie violente, ce qu'ils appellent l'amour c'est l'amour convulsé, ce qu'ils appellent la joie c'est la joie de pâmoison; & ce que, par contraire, ils appellent le calme, ce n'est pas la facilité d'être, c'est la privation d'être, ce n'est pas la vie chaude de ceux qui ayant les choses les savourent sans crispation, c'est la vie grelottante de ceux qui ne les ayant pas se résignent à ne pas les avoir, ce n'est pas l'épanouissement de ceux qui s'élèvent de l'étreinte à la félicité, c'est la misère de ceux qui « regardent livides passer le tourbillon du délire dionysien »... L'esthétique, la morale, la langue de la facilité sont à faire. (17)
 
-1908
-
 (16) D'où, en Occident, la place unique d'un Lamartine.
 
 (17) Il convient de ne point laisser d'équivoque sur ce qu'on appelle ici « facilité ». Il ne s'agit point de « lâcheté » ou « incapacité de fermeté ». Il s'agit du moment où un être parvenu au contraire, & par un long effort, à une fermeté grande & durable — s'offre le luxe de détendre cet effort devenu inutile & savoir doué sa fermeté, de ce sourire suprême dont Minucuis voulait que Carmosine réjouît sa propre perfection.

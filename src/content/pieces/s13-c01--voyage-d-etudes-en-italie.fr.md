@@ -38,16 +38,16 @@ d'une fraîcheur ravissante, solitaire sans rien de sombre;
 bleu, perché sur la branche d'un platane : « l'oiseau bleu 1e Le
 de la jeunesse » m'a expliqué M. Gleyre. Il aime à cacher POSE
 une idée poétique dans sa peinture, et de tous les sentiments :
-nobles ou tendres qu'il sait exprimer avec tant de charme, Dee ï
-il y en a un qu'il s'est plu à varier de mille manières, c'est 6
-le doux regret des belles années. Le premier tableau s'en va 1
+nobles ou tendres qu'il sait exprimer avec tant de charme, Dee
+il y en a un qu'il s'est plu à varier de mille manières, c'est
+le doux regret des belles années. Le premier tableau s'en va
 en Amérique, quel dommage! L'autre a été acheté par À
 Goupil; nous en aurons au moins la photographie. 4 {
-M. Gleyre doit venir demain me donner une consultation 4 4
-pour « ma fille ». Je voudrais qu'il vienne, et pourtant je 1
+M. Gleyre doit venir demain me donner une consultation
+pour « ma fille ». Je voudrais qu'il vienne, et pourtant je
 ne l'attends qu'en tremblant. La malade conserve encore sue
 des traces de son 1orticolis et j'ai affaire à un terrible ‘1e
-médecin. S'il allait lui couper bras ou jambes, s'il allait lui x x
+médecin. S'il allait lui couper bras ou jambes, s'il allait lui
 couper la tête! J'en frémis. — Je compte passer l'hiver pro- MURS
 chain en Italie; si mon tableau n'est pas prêt, eh bien, l'expo- #è * %
 sition de 1869 devra se résigner à s'en passer. M. Gleyre QE A
@@ -66,8 +66,8 @@ vraiment plus ce que je fais. A
 Paris, même date. + DR
 Cher père, ne
 Le jour est si gris et si triste que mes idées se mettent à An
-l'unisson, et mon tableau ne me semble pas un chef-d'œuvre. k
-M. Perrin doit venir le voir, je tremble d'avance. Ce qu'il M
+l'unisson, et mon tableau ne me semble pas un chef-d'œuvre.
+M. Perrin doit venir le voir, je tremble d'avance. Ce qu'il
 m'a dit n'est pas fait pour m'encourager : il croit que mon * dre
 talent sera comme une porte entrebaillée qui peu à peu se LA
 
@@ -81,8 +81,8 @@ BA moins dignes d'être méditées. J'aurais bien des choses à lui
 _ répondre, mais mon âge ne me permet pas de discuter avec
 ie lui. — Son système est un singulier mélange d'idées philoso4 …._.  phiques et religiéuses, qu'il pousse en peinture jusqu'au
 _ . rébus allégorique, jointes à une sorte de réalisme excessif.
-44 Il n'admet pas, par exemple, que je prenne deux modèles
-te pie, que Je p
+Il n'admet pas, par exemple, que je prenne deux modèles
+te pie, que Je
 LAS) pour mon Hamadryade ; il faut en choisir un et le copier
 ! avec une exactitude rigoureuse, qualités et défauts. Courbet
 d: n'aurait pas parlé autrement. — J'ai doucement objecté qu'une
@@ -98,7 +98,7 @@ Le: 5 () I avait raison.
 Rens Observe avec amour et, dans ton humble sphère,
 EUR Creuse droit ton sillon et tâche à le parfaire.
 A Du fumier surgira le lis pur et l'enfant.
-L Mit Ne t'abandonne pas au rêve inconsistant : j
+L Mit Ne t'abandonne pas au rêve inconsistant
 " ai) L'art ressemble au Géant, puissant fils de la Terre ;
 HU 7 S'il cesse de puiser dans le sein de sa mère
 | Une force nouvelle, il succombe à l'instant.
@@ -107,7 +107,7 @@ HU 7 S'il cesse de puiser dans le sein de sa mère
 1 79 RAT Nourris-toi de science et de réalité.
 pe Te L'art grec transfigura les laideurs du vieux monde :
 | FAN Pégase sort du sang de la Gorgone immonde,
-LE ur De l'horrible peut naître une pure beauté, F
+LE ur De l'horrible peut naître une pure beauté,
 
 que la liberté et la puissance d'imaginer restent les 10 FA na
 beaux privilèges de l'artiste. — Comme Orsel, M. Perrin fait « + A
@@ -125,19 +125,19 @@ aussi très singulières. Il m'est impossible de deviner
 : d'avance son opinion. Quel dommage qu'un homme de LAN
 _ tant de goût et de si bon conseil prenne si peu d'intérêt CALE fie
 ce que je fais. Il m'avait promis de venir et n'est pas Venu.
-Maintenant il est en Suisse. LE W:
+Maintenant il est en Suisse. LE
 J'espère pouvoir partir pour l'Italie aussitôt après le “fa
 | retour de maman. Û 14 “tn
 Félix Milliet à son fils ET .
 Je regrette pour toi, mon cher ami, que Gleyre soit parti Ex 'h
-sans voir ton tableau, mais surtout qu'il ne prenne pas plus. Ta 4
-d'intérêt à un élève qui lui est resté fidèle (1) et qui, je 1
-l'espère, lui fera honneur un jour. 45 Fa ù
+sans voir ton tableau, mais surtout qu'il ne prenne pas plus. Ta
+d'intérêt à un élève qui lui est resté fidèle (1) et qui, je
+l'espère, lui fera honneur un jour. 45 Fa
 Je ne partage pas, tu le penses bien, l'opinion mal son
-nante de M. Perrin à ton égard, et ce que tu me dis de ses ru 4
-net théories m'étonne au dernier point. Je vois avec plaisir #02 1
+nante de M. Perrin à ton égard, et ce que tu me dis de ses ru
+net théories m'étonne au dernier point. Je vois avec plaisir #02
 que tu n'es pas tenté de mordre à son système réaliste, a Ne
-A Quant à Orsel, si, à la volonté qui a fait sa force, il edf; je x
+A Quant à Orsel, si, à la volonté qui a fait sa force, il edf; je
 ps joint ce je ne sais quoi qu'on appelle sentiment mL
 ; tique, ou mieux inspiration, il eût été un plus grandi) Ka
 < peintre. Le travail, le raisonnement, l'analyse sont des cuis 4 Fi
@@ -156,7 +156,7 @@ Er marquer à son coin ses œuvres, moins par le faire que par
 > ma sœur et moi. Dans les extraits que j'en donne ici,
 __ on execusera l'orgueil maternel, — même exagéré, il :
 4 conserve toujours quelque chose de touchant, — la
-“ vanité ingénue d'une fillette de 13 ou 14 ans et le ton k
+“ vanité ingénue d'une fillette de 13 ou 14 ans et le ton
 Le … doctoral du jeune professeur. Cette assurance est de
 - leur âge. Il ne faut pas reprocher trop sévèrement aux
 _ artistes la confiance qu'ils ont en eux-mêmes, c'est un
@@ -171,9 +171,9 @@ D Je suis allée dans ton atelier arroser tes petits
 — elle peut attendre ton retour en toute sécurité, tu la
 ‘là rerras avec grand plaisir.
 vvrs :: Paul à sa mère
-de wi Ce que tu me dis de mon Hamadryade m'a fait plaisir, f
+de wi Ce que tu me dis de mon Hamadryade m'a fait plaisir,
 æ dique je sache très bien que tu en parles ainsi pour me
-44 1
+44
 
 quelque chose; tant de gens em ont de mauvaises |.
 Jaurais voniw montrer que le: num peut être chaste, &
@@ -210,7 +210,7 @@ dl adolescents sont exquis de délitatesse; mais les diffé-
 ; sont les fleurs et les fruits nécessaires de son génie. De
 là une sorte d'allégresse dans la fécondité qui nous
 charme. Luini n'est jamais violent, ni fougueux, ni
-w sublime, ni même voluptueux; il est calme et doux; il i
+w sublime, ni même voluptueux; il est calme et doux; il
 | est tendre, mais sans aucune langueur, sans aucune
 Le fièvre; il n'est pas suave, — je voudrais réserver ce
 - mot pour caractériser les peintures de Corrège. Son
@@ -224,27 +224,27 @@ D académiques. L'exécution de ses peintures est aussi
 + toute spontanée, simple et franche, bien éloignée de la
 
 profondeur subtile et des raffinements compliqués de
-Combien j'aurais été heureux de vivre auprès de pareils S
+Combien j'aurais été heureux de vivre auprès de pareils
 maîtres, de me laisser diriger par eux! je les aurais aïdés th
-dans leurs travaux avec la plus entière humilité, avec la 3
-plus complète abnégation, parce que je devine, à travers 2
+dans leurs travaux avec la plus entière humilité, avec la
+plus complète abnégation, parce que je devine, à travers
 leurs peintures, de belles âmes loyales. |
 J'ai fait un croquis d'après un charmant tableau de Luini, |
 assez peu connu, représentant l'Ivresse de Noé. C'est admirable de clarté, de simplicité et de naturel.
 Au monastère de Saint-Maurice Majeur, Luini a peint |
 une série de grandes fresques, avec de nombreuses figures
 de saintes, dont le style rappelle celui des della Robbia. :
-Même lorsqu'il est négligé, son dessin conserve toujours la 9
+Même lorsqu'il est négligé, son dessin conserve toujours la
 saveur des choses vues; il a quelque chose de joyeux et de :
 jeune, une liberté, une facilité, une souplesse d'exécution à
-qu'on peut résumer d'un mot, la vie. È
+qu'on peut résumer d'un mot, la vie.
 A mon sens, ces qualités placent les fresques de Luini! |
-au-dessus des froides ordonnances, des savantes combinaisons de lignes, selon lesquelles Fra Bartolommeo a j
+au-dessus des froides ordonnances, des savantes combinaisons de lignes, selon lesquelles Fra Bartolommeo a
 trop souvent disposé des mannequins. Luini s'inspire
 directement de la nature; il ignore ces pratiques conven- à
 tionnelles, ces artifices par lesquels certains artistes |
 essaient de suppléer aux défaillances de leur imagination. |
-Le procédé rapide de la fresque (la nécessité de F
+Le procédé rapide de la fresque (la nécessité de
 peindre un morceau sur l'enduit pendant qu'il est frais
 et l'impossibilité des retouches) oblige à une grande
 simplification, De là une largeur du faire qui réagit sur :
@@ -257,7 +257,7 @@ mais celle d'une œuvre de grand style. ;
 ‘# ‘L'exposition de tableaux modernes est pitoyable. Le
 “+ public tombe en extase devant cette peinture commerciale,
 _ faite pour plaire à des sauvages ou à des épiciers enrichis.
-4 Dans les comptes rendus des journaux, pas une critique,
+Dans les comptes rendus des journaux, pas une critique,
 . pas une réserve, pas un conseil. Il faut croire que cet art3 là répond à l'idéal du pays. Cependant la race milanaise
 Dr semble pleine d'intelligence, de finesse et de distinction.
 .: Les femmes ont de beaux traits, de grands yeux noirs
@@ -299,25 +299,25 @@ est un langage qui manque parfois de précision. Un apôtre, =
 / par exemple, — le second à la droite du spectateur, — À |
 semble plutôt troublé qu'indigné; son regard oblique, dont À
 la direction est contraire au mouvement de la tête, suggère
-l'idée de l'hypocrisie, et plus d'un spectateur a pris ce per- b
+l'idée de l'hypocrisie, et plus d'un spectateur a pris ce per-
 sonnage pour Judas. Cependant le véritable traître tient .
 une bourse, prix de sa trahison. Tu le vois, cet attribut “4
 n'était pas inutile, malgré ce qu'il a de conventionnel et F+
 d'un peu naïf. Judas est un criminel endurci, son visage %
-n'exprime aucun remords, ses traits ne sont d'ailleurs ni 6
-plus accentués, ni plus tourmentés que ceux des autres 4 e
-apôtres, qui presque tous ont les grands nez aquilins 4
+n'exprime aucun remords, ses traits ne sont d'ailleurs ni
+plus accentués, ni plus tourmentés que ceux des autres
+apôtres, qui presque tous ont les grands nez aquilins
 d'une des races de la nation juive. ; 1}
 Léonard de Vinci, voulant donner à chacune des têtes un LS
 caractère très individuel, a dessiné dans ce but de nom- NP
 
 breuses études qui sont admirables. Quant à la tête idéale
-du Christ, il faut en voir le merveilleux crayon. C'est, je u f:
+du Christ, il faut en voir le merveilleux crayon. C'est, je
 crois, la plus belle tête de Christ qui soit au monde, c'est. … |
 du moins la plus émouvante, la plus profondément pathé- nn
 tique. Une majesté simple, une douceur divine, une ineffable t'a
-résignation se lisent sur ce noble visage douloureux. 1s
-Jamais Rembrandt lui-même n'a créé une image plus sincè- L 5
+résignation se lisent sur ce noble visage douloureux.
+Jamais Rembrandt lui-même n'a créé une image plus sincè-
 rement émue, et ce chef-d'œuvre est la meilleure réponse à ; ;
 ceux qui ne veulent voir en Léonard qu'un artiste d'une. … A)
 A côté de ces qualités supérieures du sentiment et de...
@@ -370,28 +370,28 @@ ils sont en contradiction avec ce que tout le monde
 Les fresques ont beaucoup pâli. Les draperies avaient
 peut-être autrefois des couleurs plus vives; le temps et …
 la poussière leur ont donné des tons fins et délicats qui =
-rappellent le plein air. Dans la nature les ombres ï
+rappellent le plein air. Dans la nature les ombres
 reflétées par le ciel sont grises; dans les tableaux à $
 l'huile, elles ont souvent jauni ou noirci. A l'époque
-romantique, on admirait beaucoup ces tons de vieïlles 5
+romantique, on admirait beaucoup ces tons de vieïlles
 pipes culottées ; l'idéal était alors de faire « chaud de
 ton et vigoureux de forme », et la mode était de peindre
-à la sauce brune. Aujourd'hui le goût a changé; à 3
-q limitation des fresques, et aussi grâce à mon maître et g
+à la sauce brune. Aujourd'hui le goût a changé; à
+q limitation des fresques, et aussi grâce à mon maître et
 ami Puvis de Chavannes, on cherche les tons mats et :
 clairs. Maïs comme tout progrès dégénère en formules,
 je crains que bientôt on en vienne à peindre à la sauce
-Lundi dernier je suis allé à Saronno par une pluie ê
+Lundi dernier je suis allé à Saronno par une pluie
 battante. Le pays est bien cultivé, mais peu pittoresque ; :
-c'est un vaste jardin potager, planté régulièrement de F
+c'est un vaste jardin potager, planté régulièrement de
 müriers où grimpent des vignes. On comprend que ces.
 grasses et riches contrées aient attiré tant de fois les ;
 A l'époque de la Renaissance, les moindres bourgades Fbâtissaient à l'envi de jolies églises, pas religieuses du tout, :
 ni grandioses, ni sévères, mais d'un style charmant et ;
-délicat, librement inspiré de l'antique. L'église de Saronno 4
-est attribuée à Bramante, et elle est digne d'un tel maître. Les 1 4
+délicat, librement inspiré de l'antique. L'église de Saronno
+est attribuée à Bramante, et elle est digne d'un tel maître. Les
 peintures qui la décorent sont un véritable trésor. En face À
-(1) Je ne pouvais pas prévoir la peinture irisée aujourd'hui à la | 1
+(1) Je ne pouvais pas prévoir la peinture irisée aujourd'hui à la
 
 de ces délicieuses fresques, peintes par Luini dans sa verte
 vieillesse, j'ai cessé de mettre des réserves à mon admiration.
@@ -448,9 +448,9 @@ sans compter ses petits portraits. Elle en a fait de très
 | ressemblants, mais je crois que M. Perrin trouvera son
 coup de crayon trop hardi. La philosophie l'a beaucoup
 occupée ces jours-ci et je pense qu'elle va l'en parler. C'est ;
-un drôle de mélange : elle passe de la corde à la philosophie, de là au dessin ou à la balançoire, je ne dirai pas è
+un drôle de mélange : elle passe de la corde à la philosophie, de là au dessin ou à la balançoire, je ne dirai pas
 avec la même ardeur, mais avec le même calme et, au fond,
-le même plaisir. Elle est encore trop jeune pour faire un î
+le même plaisir. Elle est encore trop jeune pour faire un
 voyage d'études en Italie. Il vaut mieux attendre un an ou
 deux pour que cela lui soit plus profitable. à
 ‘ Louise M. à son frère j ;
@@ -466,7 +466,7 @@ par-dessus le marché et mettant toute Ja religion dans les
 pratiques, ne faisant rien, et par conséquent s'ennuyant.
 — Marie, 14 ans et demi, figure agréable, douce, bonne, |
 mais hélas! dévote aussi. — Quant à la troisième, tu la ‘
-connais : grande fille, pas belle du tout, mais pourtant pas ï
+connais : grande fille, pas belle du tout, mais pourtant pas
 mettant fort longtemps avant de comprendre les choses, :
 souvent dans les nuages, aspirant à la philosophie, aux
 
@@ -481,7 +481,7 @@ His onze ans, joli visage, beaux yeux sans expression. —
 Marguerite, petite figure fine, trouvant toujours une
 (M réponse drôle à faire; ses bons mots font la joie de la
 Y' Colonie, chacun les répète. — Enfin, deux petites poupées,
-4 Du côté des garçons : Jules, poseur et blagueur, fort mathé-
+Du côté des garçons : Jules, poseur et blagueur, fort mathé-
 f matieien. — Paulo, petit espiègle malin et futé. — Alfred,
 k. bon garcon, pas bête. — Pierre Nus, moyens médiocres,
 y ayant le jugement assez juste, travailleur et bon garçon.
@@ -610,7 +610,7 @@ les grands philosophes ont essayé d'y donner réponse, mais
 facile que de te « coller ». Tu dis par exemple : Tout ce
 qu'il y a de vrai, de beau et de bien dans l'Univers émane
 de Dieu. — Mais le reste, ce Vrai qui n'est pourtant ni beau
-ni bien, de qui émane-t-il? — Tu aflirmes qu'après la mort, Ç
+ni bien, de qui émane-t-il? — Tu aflirmes qu'après la mort,
 les âmes retournent vers Dieu et s'absorbent en lui.— Mais
 puisqu'il n'y a pas d'âmes parfaites, leurs imperfections :
 vont se trouver en Dieu. Et son unité, qu'en fais-tu?
@@ -641,10 +641,10 @@ qui les nient y croient si bien au fond, que tu les verras
 
 4 | s'indigner contre une mauvaise aclion, admirer le
 410 dévouement, le sacrifice, et réfuter par là leurs propres
-43 Louise M. à son frère
+Louise M. à son frère
 “5 . Ton enthousiasme pour Luini est contagieux; nous |,
 nr nous promettons, maman et moi, d'aller l'étudier au
-24 Louvre. Je te dirai que ma Loge de Raphaël est enfin
+Louvre. Je te dirai que ma Loge de Raphaël est enfin
 _ terminée et je lai portée aujourd'hui aux petites H. Ca
 te été des admirations et des éloges à n'en plus finir. Je
 _ avais montrée avant au père Jodot (ex-professeur à
@@ -669,7 +669,7 @@ cheveux, un jupon blanc attaché sur mes épaules était
 Hit. J'avais un gros livre dans les mains et je faisais des
 discours en grec : je récitais des déclinaisons et quelques
 … vers de l'Amour piqué par une abeille, je ne sais que cela.
-1 Mes disciples se lamentaient et déploraient de me voir
+Mes disciples se lamentaient et déploraient de me voir
 … condamné si injustement. Ils me proposaient de me faire
 … … (1) C'est ainsi qu'un conseil, juste dans certains cas, devient une
 
@@ -681,7 +681,7 @@ présenta de l'eau et du persil dans un bol. Nous nous
 sommes bien amusées. Seulement c'était tellement risible
 que cela a abrégé mes beaux discours philosophiques.
 
-Louise à son frère k
+Louise à son frère
 
 Les sujets que tu m'as donnés sont trop difficiles. Je ne
 puis me représenter ces figures allégoriques.
@@ -690,7 +690,7 @@ Il faut que tu sois un peu sorcier pour avoir deviné que
 maman m'avait lu quelques passages philosophiques de .
 George Sand dans la Revue des Deux Mondes; c'était très
 vrai; cependant je ne crois pas que cela m'ait influencée. Ce
-qui te fait dire que je suis un peu panthéiste, c'est parce s
+qui te fait dire que je suis un peu panthéiste, c'est parce
 que je dis : Notre âme est une parcelle de son être. Je n'en
 suis pas sûre, ce n'est qu'une supposition, attendu que
 
@@ -711,10 +711,10 @@ intéressées, et nous disons toujours avec Louise : nous
 mot de la métaphysique, Personne n'en sait rien.
 
 11080 Giotto. La chapelle de l''Arena. Allégories. —
-‘hs Un professeur trop savant. ï
+‘hs Un professeur trop savant.
 qe Si je tai donné l'envie de connaître Luini, combien je
 n… désire plus encore que nous revenions ensemble étudier
-_ ici Giotto. C'est un génie d'une bien autre portée, comme L
+_ ici Giotto. C'est un génie d'une bien autre portée, comme
 “| élévation morale et comme profondeur d'expression. Peut-
 —…. étre est-il plus difficile à comprendre sans étude préalable,
 “Ai parce qu'il est plus loin de nous. Il a des faiblesses et des
@@ -748,7 +748,7 @@ de rire au lieu de pleurer. Sontils laids! Sont-ils laids! »
 
 Pourtant, à la réflexion, leur sottise n'est peut-être pas
 inexcusable, Le dessin des primitifs n'est pas toujours
-correct, les têtes n'ont pas une beauté régulière, avec leurs 4
+correct, les têtes n'ont pas une beauté régulière, avec leurs
 yeux trop rapprochés et leur bouche trop éloignée du nez.
 Dans l'expression des sentiments que l'âme de Giotto
 éprouvait avec tant de force, sa main a pu le trahir parfois.
@@ -769,7 +769,7 @@ grande cour du Louvre. L'opération ne serait pas facile,
 mais je ne la crois pas impossible. Et dire qu'il ne se
 trouvera pas un amateur intelligent pour m'envoyer ;
 
-‘ À Monsieur le Directeur des Beaux-Arts j
+‘ À Monsieur le Directeur des Beaux-Arts
 Monsieur le Directeur,
 
 Permettez-moi de vous faire part d'une nouvelle qui vous
@@ -802,7 +802,7 @@ _ … l'église; on parle de cent mille francs offerts. Rien n'est
 Ë … encore conclu. Ce serait une chose unique et grandiose que
 _ de prendre cette église dans votre main, pour en doter le
 fe - Louvre et la France!
-11 Pardonnez, je vous prie, à mon jeune enthousiasme une
+Pardonnez, je vous prie, à mon jeune enthousiasme une
 ë idée peut-être irréalisable, mais qui mérite pourtant de ne
 —_ pas être rejetée sans examen.
 
@@ -811,14 +811,14 @@ Le Vrai qu'on dit si beau, parfois me semble laid
 ; Et sale, je voudrais, d'un bon coup de balai,
 Purifier ton temple, à chaste Poésie.
 
-L'ornière où je croupis, je ne l'ai pas choisie, 4
+L'ornière où je croupis, je ne l'ai pas choisie,
 Et, de la boue immonde étant mal satisfait, À pr
 Je rêve de beauté, d'amour sans jalousie,
 De travail attrayant et de bonheur parfait.
-Muse, ma barque vogue aux flots d'azur du songe, 4
+Muse, ma barque vogue aux flots d'azur du songe,
 Vois le saphir liquide où ma rame se plonge, {
 Là-bas l'ile enchantée aux merveilleux trésors;
-Les harpes de la brise ont de divins accords, Ê
+Les harpes de la brise ont de divins accords,
 C'est comme un chant d'hymen qu'au loin l'écho prolonge...
 Je t'aime, viens! Merci! Dans mes bras ton beau corps!
 
@@ -883,7 +883,7 @@ Louvre. Si c'était un canon, on trouverait toujours de
 
 Louise à son frère |
 
-Tu nous fais bien envie avec tes descriptions des Ù
+Tu nous fais bien envie avec tes descriptions des
 fresques de Giotto, il me semble les voir, ce doït être bien
 
 Ton enthousiasme n'est pas partagé par Fernand. Il
@@ -923,12 +923,12 @@ l'avouer, certaines idées abstraites ne sont pas exprimées
 fournir des motifs intéressants. Pour exprimer sa pensée,
 -  Vartiste dispose de tout un alphabet spécial : formes tra-
 … pues ou élégantes, attitudes, gestes, physionomies, costumes,
-Mit tout cela présente les caractères les plus variés. Or, chaque 1
+Mit tout cela présente les caractères les plus variés. Or, chaque
 : ligne, chaque couleur, chaque proportion peut servir à une
 | expression symbolique; chaque individu peut être élevé au
 —_ rang de figure typique, par celui qui sait en dégager les
 :328 traits essentiels et généraux.
-28 Prudentia, la Sagesse ou le Bon Sens, est une honnête
+Prudentia, la Sagesse ou le Bon Sens, est une honnête
 | marchande assise à son comptoir; elle ne s'agite pas, elle
 se regarde dans un miroir, symbole de la méditation réflé-
 4 chie, ou simplement de la conscience. L'image reflétée par
@@ -1031,7 +1031,7 @@ fe .… Tu n'es pas avantageusement remplacé par M. Carré.
 ' lui ai montré mes livres, je lui ai expliqué la méthode de
 A (1) Je wavais pas encore vu les admirables fresques qu'il a
 
-Jacquet, mais il n'y a rien compris, il n'écoutait pas. 1
+Jacquet, mais il n'y a rien compris, il n'écoutait pas.
 m'a interrogée sur mon cahier de César; je n'ai pas mal
 répondu, mais sur ses questions d'analyse, je n'ai pas été “
 brillante. Ce n'est pas étonnant, il me parle de la syntaxe .
@@ -1053,7 +1053,7 @@ sort par l'autre; mais il n'y a pas moyen de prendre des
 notes, il ne s'arrête pas un instant, c'est un vrai moulin à
 paroles. A la fin de la lecon, on est tout abasourdie.
 Louise M. à son frère :
-M. Carré n'a plus mal aux dents, mais il a un rhumatisme dans l'œil, et sa femme a reçu un tuyau de poële dans s
+M. Carré n'a plus mal aux dents, mais il a un rhumatisme dans l'œil, et sa femme a reçu un tuyau de poële dans
 la joue; ces gens-là ont toujours quelque chose. Pour le
 grec (le Dialogue des Morts) il me l'avait expliqué, se ser-
 < vant de grands mots que lui comprend, mais moi pas toujours; me demandant pardon pour les expressions peu
@@ -1084,7 +1084,7 @@ que je connaissais seulement de réputation. Les saints,
 vêtus pour la plupart de la longue tunique blanche, avec
 deux bandes de pourpre verticales, sont drapés de façons
 
-très variées, dans le manteau blanc et carré des Grecs (qui ï.
+très variées, dans le manteau blanc et carré des Grecs (qui
 ne ressemble en rien à une toge). Tristes et fous, ils vous
 regardent de leurs grands yeux enfiévrés. C'est superbe de E19a
 
@@ -1137,7 +1137,7 @@ deux organes jumeaux fonctionnent d'accord ; mais le
 strabisme n'existe pas seulement pour les yeux, il y a
 des gens qui louchent du cerveau, qui voient de travers
 et qui raisonnent faux, et qui ne s'en doutent pas, et
-qui en sont bien aises. N'ont-ils pas la foi? Ils suivent ù
+qui en sont bien aises. N'ont-ils pas la foi? Ils suivent
 : avec assurance la tradition de ceux qui ont louché avant
 Ÿ Remarque-le bien, la grosse erreur de perspective que je
 te signale n'est pas chose accidentelle; pendant des siècles
@@ -1151,7 +1151,7 @@ peintres et sculpteurs ont répété la même bévue, énorme,
 ". Que Cimabue n'ait pas su se dégager!des errements byzanfe tins, cela est excusable, mais ce quim'étonne, ce qui m'attriste,
 …_ c'est de retrouver ce défaut choquant au quatorzième siècle,
 de chez mon cher maître et ami, chez le grand Giotto lui-même.
-4 Comment ce libre esprit, si ouvert, si positif, si éloigné de
+Comment ce libre esprit, si ouvert, si positif, si éloigné de
 +4 . toute superstition traditionnelle, comment ce hardi novateur
 L qui a créé l'art moderne en brisant tant de vieilles formules,
 : g-t-il pu respecter celle-là ?
@@ -1203,7 +1203,7 @@ N inventer encore pour leurs colonnes des chapiteaux
 délicatement et ingénieusement ornés, mais qui dédou-
 
 { blent et superposent sans raison ces chapiteaux, comme
-dans la vision d'un homme ivre. 3
+dans la vision d'un homme ivre.
 
 Partout l'étude vivifiante des choses réelles a fait
 place à des règles écrites, à des traditions fausses, religieusement consacrées, immuables et mortes.
@@ -1226,8 +1226,6 @@ peut-être avec regrets sur le grand mystère de cette vie
 qu'ils n'ont pas comprise et qu'ils n'ont pas su transmettre. Ils ont négligé la réalité pour le rêve, qui console mal. Seule, devant les murailles d'or des palais
 célestes, la Panagia leur apparaît dans sa raideur
 imposante d'idole : elle siège sur un trône d'or constellé
-
-| 49
 
 de pierreries, impératrice souveraine d'un monde fantastique, le monde des extases et des hypostases.
 
@@ -1273,7 +1271,7 @@ _ laiteux blancs d'opale, de ces verts tendres ou austères, :
 # _ de ces pourpres, couleur de vieux vin, qui brillent discrèteNe ‘à ment, semblables à des fleurs rares, dans l'éclat amorti y
 088 des vieux ors, de tout cela se dégage une impression
 grave, austère, pénétrante, qui vous enivre comme un
-18 Oublie donc les incorrections du dessin, ne vois plus que
+Oublie donc les incorrections du dessin, ne vois plus que
 ce _ la couleur, et l'art byzantin t'apparaîtra comme le rêve
 _ grandiose d'un poète d'Orient, comme la vision troublante
 FE _ d'une imagination pieuse qui s'abîme et se noie dans la.
@@ -1396,7 +1394,7 @@ Sacrements. Par une bizarre coïncidence, après en avoir
 (1) L'artiste leur a prêté ses propres sentiments, afin de les
 
 fait quelques dessins, je relisais un soir le beau poème de {
-Schiller, la Cloche, et les vers du poète me semblaient ñ
+Schiller, la Cloche, et les vers du poète me semblaient
 être une description exacte des bas-reliefs d'Andrea Pisano. :
 Dans ces deux chefs-d'œuvre, le thème est en effet le” »
 même; c'est qu'il est de tous les temps : les cloches du
@@ -1410,16 +1408,16 @@ ne s'est réveillé ».
 
 Voici le Baptème : un jeune père tient son enfant sur les
 
-fonts baptismaux, tandis qu'un moine au visage énergique M
+fonts baptismaux, tandis qu'un moine au visage énergique
 
-el grave verse l'eau sainte. Plus loin, un homme d'âge ÿ
+el grave verse l'eau sainte. Plus loin, un homme d'âge
 mûr donne l'onction du Saint Chrème; il se tient debout, ; |
 pensif, en face de l'enfant et semble prévoir l'avenir : .
 « Les heures joyeuses ou sombres de ta destinée sont |
 encore cachées dans les voiles du temps, mais l'amour de |
 ta mère veille avec de tendres soins sur ton matin doré. » AC)
 Et la mère écoute naïvement les mystérieuses paroles, ;
-vaguement émue, devinant avec son cœur ce que son f
+vaguement émue, devinant avec son cœur ce que son
 ignorance ne comprend qu'à demi. L'enfant est sérieux »|
 déjà, comme s'il avait conscieñce que cette main, posée
 
@@ -1427,7 +1425,7 @@ déjà, comme s'il avait conscieñce que cette main, posée
 
 Je ne connais guère qu'une œuvre moderne qui
 puisse rivaliser avec celle-là pour la simplicité solennelle et le sentiment profond des mystères de la vie,
-c'est la Greffe de François Millet. L'acte si ordinaire du paysan a fait songer l'artiste philosophe. î
+c'est la Greffe de François Millet. L'acte si ordinaire du paysan a fait songer l'artiste philosophe.
 L'aigre sauvageon poussera et deviendra un grand |
 arbre, et il portera de doux fruits... et, à cette pensée,
 la mère reste songeuse, avec son enfant dans ses
@@ -1609,7 +1607,7 @@ semble pourtant exagérée). — N'essayons pas de refaire
 ce qu'ils ont fait, nous n'y parviendrions pas.
 # Paul M. à sa sœur Louise
 4 3 « . Donatello est un des maîtres à la fois les plus célèbres
-. et les plus discutés. Les uns l'admirent à cause de son réa1 63
+. et les plus discutés. Les uns l'admirent à cause de son réa1
 
 lisme, les autres malgré son réalisme. La Renaissance a été
 un retour à l'étude directe de la nature et à la science des
@@ -1636,7 +1634,7 @@ la photographie et qui ressemble un peu à Fernand. Il est
 debout, tête nue et si fièrement campé sur les deux jambes
 qu'en le voyant je me rappelais les beaux vers de Tyrtée
 décrivant un hoplite grec : « Tenons-nous fermes et
-d'aplomb, les pieds écartés, bien plantés en terre. Que les j
+d'aplomb, les pieds écartés, bien plantés en terre. Que les
 dents mordent la lèvre, que les flancs du large bouclier
 protègent en bas les jambes, en haut la poitrine et les
 épaules. » Une sorte de chlamyde est nouée négligemment
@@ -1689,7 +1687,7 @@ _ je songe alors aux gestes contenus, sobres et comme
 inconscients, qu'Andrea Pisano a trouvés dans l'obser-
 
 vation sincère de la vie et dans le sentiment profond <
-de son cœur. J
+de son cœur.
 Paul à sa sœur Louise
 
 .… Ce que j'étudie de préférence dans l'art ancien, c'est ce ;
@@ -1706,7 +1704,7 @@ cette boîte osseuse qui fut l'enveloppe d'un cerveau bien
 
 Je n'oublierai jamais l'impression profonde que j'ai
 ressentie lorsque j'entrai pour la première fois dans un |
-sanctuaire vénérable, la chapelle des Brancacci, à e
+sanctuaire vénérable, la chapelle des Brancacci, à
 l'église del Carmine. Elle est pauvre et mal éclairée
 cette petite chapelle, et pourtant, quand l'œil s'est
 habitué à la demi-obscurité de ces murs noircis par la -
@@ -1722,7 +1720,7 @@ Masaccio le premier a donné l'exemple d'un accord
 puissance de vision intérieure qui donne la vie à une
 scène légendaire. Le peintre en va fixer une image
 durable par une sorte de création.
-Ils le savaient bien ces grands maîtres de la Renaissance qui tous, à commencer par Michel-Ange, sont 1
+Ils le savaient bien ces grands maîtres de la Renaissance qui tous, à commencer par Michel-Ange, sont
 venus en pèlerinage dans l'humble chapelle, et qui y
 sont restés de longues heures, dans une contemplation
 respectueuse. Ils écoutaient et méditaient ce que disent
@@ -1746,7 +1744,7 @@ se beauté ne compte pas. La noblesse de la forme humaine
 … Pour Masaccio le dessin n'est pas seulement un contour,
 f é (1) Les admirations exclusives sont permises, utiles même, chez
 de un jeune artiste; elles seraient un défaut chez un historien de
-4 Part. J'ai appris depuis lors qu'il y a plusieurs manières de bien
+Part. J'ai appris depuis lors qu'il y a plusieurs manières de bien
 # peindre, comme il y a plusieurs sortes de beauté,
 
 mais l'entente sculpturale des formes. Il distribue les ombres
@@ -1764,7 +1762,7 @@ tout entier le dur chemin de la vie.
 
 Paul M. à sa mère |
 
-Masaccio travaillait aux fresques del Carmine, quand L
+Masaccio travaillait aux fresques del Carmine, quand
 Filippo Lippi, jeune moine qui venait de prononcer ses
 vœux, lui demanda des leçons de peinture. Ce novice était
 un franc luron qui ne tarda pas à s'échapper du couvent.
@@ -1906,7 +1904,7 @@ dessiné, parfait, très ressemblant! Il en est sûr. » — Ses
 compositions ? Ce qui l'a le plus intéressé, c'est sa Vénus
 animant la statue. Il est resté au moins un quart d'heure à
 la considérer : « Charmant, ravissant ! » Quelques objections cependant que Louise te dira.
-Pour moi je te donne mon impression; je te l'avoue, L
+Pour moi je te donne mon impression; je te l'avoue,
 j'en suis un peu éblouie, grisée, mais je le dis à toi seul
 el ne l'ai point laissé voir.
 Parlons de toi maintenant. M. Perrin te félicite de ;
@@ -1918,19 +1916,19 @@ pas de camarades ! On reconnaît de suite leur influence. »
 toi-même, car c'est bien plus grave; on met un ami à la
 porte, mais quand la contradiction est en soi-même,
 comment faire ! Il n'y a qu'un moyen, ce me semble, £
-mettre un des deux soi à la porte. 4
+mettre un des deux soi à la porte.
 attiré son courroux par une réponse maladroite. Il disait |
 à Louise : « Ne regardez pas les coloristes ! » — Et Louise
 de répondre qu'elle ne les aimait pas du tout. — Là-dessus, |
-j'ai la bêtise de dire : « Elle les aime si peu qu'elle ne voit d
+j'ai la bêtise de dire : « Elle les aime si peu qu'elle ne voit
 même pas les beautés de leurs œuvres. » — Les petits À
 yeux gris de M. Perrin s'allument et lancent des éclairs, |
-ses lèvres disparaissent : « Madame, il n'y a rien à voir dans É
+ses lèvres disparaissent : « Madame, il n'y a rien à voir dans
 les coloristes, rien à y chercher, ce n'est qu'une |
-enveloppe! » Je me le suis tenu pour dit. 4
+enveloppe! » Je me le suis tenu pour dit.
 - Louise M. à son frère .
 M. Perrin est venu chez nous, c'est bien beau de sa part. |
-11 a d'abord regardé mon Hercule et Antée et m'a montré avec 1
+11 a d'abord regardé mon Hercule et Antée et m'a montré avec
 
 le compas des fautes d'aplomb. Mes fleurs d'après nature
 lui ont béaucoup plu, il a dit que c'était fait simplement,
@@ -2028,14 +2026,14 @@ le fils rebelle contre la colère de son père.
 
 Je ne sais pas s'il est très sage de proposer à l'admiration de la jeunesse des actes semblables, qui révèlent
 un état maladif et contagieux. Mais d'autre part les
-doctrines de saint François étaient une religion vrai- M
+doctrines de saint François étaient une religion vrai-
 ment nouvelle, religion sans haïne, toute de tolérance « et de bonté. Assurément son amour pour la nature
-contribua à donner aux arts une direction très heureuse. È
+contribua à donner aux arts une direction très heureuse.
 Il étendait sa sympathie à tous les êtres, aux animaux,
-aux plantes, au Soleil, à la Terre notre mère. On se « . mit à contempler avec émotion ces merveilles, dédai- 1
-gnées depuis de longs siècles et mal remplacées par j
+aux plantes, au Soleil, à la Terre notre mère. On se « . mit à contempler avec émotion ces merveilles, dédai-
+gnées depuis de longs siècles et mal remplacées par
 des symboles abstraits. Les yeux allaient enfin s'ouvrir « %
-sur le monde réel. ÿ
+sur le monde réel.
 
 J'oublie donc volontiers les hallucinations et les « extases du malade déséquilibré, et je lui sais un gré « | ASSISE ET ROME
 infini de sa tendresse pour tout ce qui respire, de cette
@@ -2094,11 +2092,11 @@ la main à quelques fidèles qui montent vers lui. A droite, la
 milice sacrée se porte à la défense de la citadelle attaquée
 par un terrible ennemi, l'Amour, grand garçon nu, ailé, |
 aux yeux couverts d'un épais bandeau, au front couronné |
-de roses, et dont les jambes se terminent en griffes d'oiseau k
+de roses, et dont les jambes se terminent en griffes d'oiseau
 de proie. Un moine également ailé le frappe des lanières de
 son fouet. À ses pieds, tombée à la renverse, s'étale l'Impureté, monstre aux jambes velues et à là tête de porc. Au « fond, dans l'ombre, la Mort apparaît, horrible, brandissant
 sa faux contre un satyre qui personnifie les désirs sensuels. "
-Tout cela ne te semble-t-il pas trop ingénieux, terri- j
+Tout cela ne te semble-t-il pas trop ingénieux, terri-
 blement compliqué, obseur, subtil ? La modération et la
 gravité des gestes conservent, il est vrai, quelque chose
 d'imposant, mais la science du dessin est encore en enfance,
@@ -2107,12 +2105,12 @@ quelques années, marquent un grand progrès dans le talent « de Giotto. :
 Hier au soir j'ai vu arriver dans mon auberge un petit
 abbé français joli, joli comme une fille, tout jeune, au |
 visage poupin, blanc et rose. Il s'est fait servir un fin }
-entremets sucrés, desserts variés, le tout arrosé de vieux « Chianti et d'Orvieto premier choix. À peine arrivé, il avait M
+entremets sucrés, desserts variés, le tout arrosé de vieux « Chianti et d'Orvieto premier choix. À peine arrivé, il avait
 endossé une chaude douillette et chaussé des pantoufles de
 velours; alors, le dos au feu, béatement renversé dans un « grand fauteuil, il se mit à déguster en connaisseur un verre
 de chartreuse, couleur de topaze, et me dit en prenant un « air de componction : « Oui, je viens en pèlerinage faire ma
 visite à saint François. » Il était devenu très causant,
-80 1
+80
 
 Parti d'Assise à 4 heures du matin, j'espérais arriver à
 Rome avant la nuit; j'aurais loué une chambre le jour
@@ -2155,8 +2153,8 @@ Ce matin j'irai faire visite à Raphaël. Les fresques de lan
 
 , Farnésine ne sont visibles que le 1° et le 15 de chaque mois,
 
-4 Madame Milliet à son fils
-Paris, ce 15 novembre 68.
+Madame Milliet à son fils
+Paris, ce 15 novembre
 
 Je suis bien aise que tu aies trouvé des jeunes gens de
 connaissance, je ne crains pas autant que M. Perrin que tu
@@ -2272,7 +2270,7 @@ x toute la sainte crasse ; il y a de quoi faire prendre en grippe
 \ la Ville Eternelle. Heureusement Raphaël et Michel-Ange
 
 « - sont jà, qui font tout oublier.
-6 Tu sais si je suis modéré, si je suis disposé à respecter
+Tu sais si je suis modéré, si je suis disposé à respecter
 $ toutes les opinions et toutes les croyances sincères; j'ai
 même une sorte de sympathie pour le mysticisme, quand
 
@@ -2372,19 +2370,19 @@ Paul M. à son père
 
 .… Raphaël a confié à son élève Jean d'Udine, l'exécution |
 des stucs et des charmantes arabesques qui décorent les |
-pilastres des Loges. Si l'on avait besoin de démontrer à 1
+pilastres des Loges. Si l'on avait besoin de démontrer à
 quel point les mœurs étaient relächées à cette époque, il '
 suflirait de présenter quelques-unes des compositions “
-licencieuses qui ont trouvé place dans la demeure de Léon X.
+licencieuses qui ont trouvé place dans la demeure de Léon
 
 Ces images risquées n'étaient pas pour choquer des prélats , ;
 
-- que n'effarouchaient guère les réalités les plus scandaleuses. k
+- que n'effarouchaient guère les réalités les plus scandaleuses.
 Ici, plus encore peut-être qu'au palais Farnèse, La Bruyère ;
 
 aurait pu s'indigner de voir « les saletés des dieux peintes ;
 
-pour les Pères de l'Église ». Ê
+pour les Pères de l'Église ».
 
 - Paul M. à sa mère
 
@@ -2443,20 +2441,20 @@ Louise a déjà si peu de temps pour faire des études sérieuses. Ses vacances 
 petits dessins pour cadeaux, c'est déplorable! Pour un
 peintre, les questions de goût sont choses importantes. |
 Dans ce Paris si raffiné, si maniéré, si loin de la nature, il À
-est rare de trouver un sentiment vrai, un geste simple et 1
+est rare de trouver un sentiment vrai, un geste simple et
 spontané. C'est pourtant de cela que vit la peinture.
-Pour résister à l'influence de ce milieu factice, évite, par 4
+Pour résister à l'influence de ce milieu factice, évite, par
 hygiène, de faire copier à Louise les dessins à la mode : point À
 de Bertall, point de Gustave Doré, point non plus de vos à
 petites gravures allemandes. Même dans les meilleures, le
 dessin est dur, lourd et sec. Les sujets gracieux y sont exploi-
-à tés systématiquement, trop de petites fleurs, petits oiseaux, E
-.  naïfs qu'ils n'en ont l'air, trop de banalités d'une poésie senti- l
-mentale, mesquine et bourgeoise. Point de Gavarni, point É
+à tés systématiquement, trop de petites fleurs, petits oiseaux,
+.  naïfs qu'ils n'en ont l'air, trop de banalités d'une poésie senti-
+mentale, mesquine et bourgeoise. Point de Gavarni, point
 (1) La mosaique de Sainte-Pudentienne a subi quelques restaurations au huitième puis au seizième siècle, mais la composi- #
 tion, qui date probablement du quatrième siècle, a été respectée. |
 Une faible reproduction en chromo-lithographie se trouve dans ;
-Labarte, Histoire des Arts industriels, tome II, planche 53.
+Labarte, Histoire des Arts industriels, tome II, planche
 
 de Tôpfer ! — Les grands maîtres n'avaient pas la notion du
 ridicule. Aujourd'hui nous en avons peur, et cela nous
@@ -2599,8 +2597,8 @@ les louanges que j'ai reçues m'ont peu touchée, car je
 savais bien au fond que mes idées n'étaient pas bien magnifiques, ni mon style bien correct, seulement il a quelque
 chose de drôle qui plaît, mais ce n'est qu'un vernis. |
 
-Tu trouves plus utile de commencer par apprendre ce que J
-tout le monde sait, arithmétique, grammaire, etc. Certai- 4
+Tu trouves plus utile de commencer par apprendre ce que
+tout le monde sait, arithmétique, grammaire, etc. Certai-
 nement c'est utile; mais c'est cela qui vous blase, et vous
 dégoüte, et vous assomme ! Tandis que, si l'on a un peu de
 philosophie, on apprend à supporter les choses désa- |
@@ -2612,7 +2610,7 @@ perdre en vaines futilités. Pour rendre un jour à Dieu notre
 et courageux exercice.
 
 Tu me dis qu'il y a une foule de livres intéressants que
-je ne comprendrais pas. Cela me déplaît, parce que cela 1
+je ne comprendrais pas. Cela me déplaît, parce que cela
 prouve que je suis encore trop cruche et trop bouchée. $
 Il faut que je tâche de m'élever l'esprit et de comprendre.
 
@@ -2621,12 +2619,12 @@ mes compositions dessinées de maintenant avec celles
 d'autrefois, il y a une grande différence. Plus tard, je trou- |
 verai celles que je fais maintenant détestables.
 
-Nous avons été voir jouer Phèdre et les Plaideurs pour ù
+Nous avons été voir jouer Phèdre et les Plaideurs pour
 l'anniversaire de Racine. J'ai été bien contente de ma |
 soirée. Mademoiselle Agar a joué admirablement le rôle de
 Phèdre. Les costumes étaient très beaux. Notre Fernand est
 bien peu classique; il a trouvé la tragédie assommante et |
-préfère ces méchantes petites pièces, comme La Cagnotte 4
+préfère ces méchantes petites pièces, comme La Cagnotte
 
 ou la Famille Benoiton. Il n'a pas éprouvé la moindre
 pitié, la moindre émotion au beau récit de Théramène, qui
@@ -2634,7 +2632,7 @@ raconte la mort d'Hippolyte.
 
 Madame Milliet à son fils
 
-.… Il se passe à Paris un scandale qui te fera bondir : j
+.… Il se passe à Paris un scandale qui te fera bondir
 Figure-toi que l'on prête les tableaux du Louvre! — aux
 amis du Gouvernement, bien entendu. — Voici comment
 cela s'est découvert : Le feu a pris chez M. Troplong,
@@ -2674,30 +2672,30 @@ que l'étude de Michel-Ange soit aussi dangereuse qu'il le
 dit. N'avons-nous pas sous les yeux les œuvres ridiculement prétentieuses de ses imitateurs ? Il y a autre chose à
 étudier chez Michel-Ange que des attitudes contournées et
 des muscles formidables ; nul parmi les modernes, pas même
-Raphaël, n'a eu au même degré le sentiment de la beauté du 1
+Raphaël, n'a eu au même degré le sentiment de la beauté du
 corps humain. Cette machine merveilleuse, il en connaît
 tous les ressorts; mais il n'a pas seulement la science de
 lanatomie, il y joint un vif sentiment d'admiration pour
 la force et la souplesse, ce qu'on pourrait appeler la poésie
 de l'anatomie. Puis ces figures si nobles et si fières respirent une tristesse douloureuse qui n'est aucunement de ia
-pose. Cette amère douleur, Michel-Ange l'éprouvait sineèrement, cette noble fierté, c'était le fond même de son âme, et 1
+pose. Cette amère douleur, Michel-Ange l'éprouvait sineèrement, cette noble fierté, c'était le fond même de son âme, et
 s'il exprimait sans effort des choses grandes et fortes, c'est
 parce qu'il ne lui eût pas été possible de penser autrement. :
 Paul M. à son père
 Dans ce premier séjour, beaucoup trop bref, j'aurai bien
 mal vu Rome, et bien peu dessiné. J'avais gardé Michel- [
 Ange pour la fin, et j'ai bien fait. Si j'avais commencé par |
-lui, je n'aurais pas quitté la Chapelle Sixtine. . L
+lui, je n'aurais pas quitté la Chapelle Sixtine.
 .…. J'ai vu trop de belles choses, j'en suis tout troublé. |
 L'imagination est comme une source, elle a besoin äe calme \
 pour déposer et devenir pure. ;
 J'ai mille beaux projets, il vaudrait mieux une seule idée, à
-fixe, immuable, nettement gravée dans la cervelle ; l'exécu- l
+fixe, immuable, nettement gravée dans la cervelle ; l'exécu-
 tion ne serait qu'un jeu. Mais rien de plus délicat, de plus À
-fragile que ces idées changeantes; un souflle, un mot, même ÿ
-bienveillant, suflit pour les modifier, et parfois pour les 4
+fragile que ces idées changeantes; un souflle, un mot, même
+bienveillant, suflit pour les modifier, et parfois pour les
 faire évanouir. Qu''y faire? Peut-être les maîtres eux-mêmes À
-ont-ils un peu tâtonné. S L
+ont-ils un peu tâtonné.
 
 Orvieto. — Signorelli. — Sienne. — Le Sodoma.
 — Fresques de Monte-Oliveto. — Parme. — Corrège.
@@ -2709,7 +2707,7 @@ faire un long détour et la diligence est traînée par des bœufs.
 … le prix du voyage avec deux vetturini qui faisaient semblant
 …— d'être en concurrence. Je me suis enfin arrangé avec l'un
 … d'eux, et c'est l'autre qui m'a conduit, c'étaient le père et le
-. fils. Commedianti! L
+. fils. Commedianti!
 Me voilà en route au milieu de montagnes désertes, par
 … un froid de Sibérie, dans un petit cabriolet découvert. La
 … Tramontane qui soufllait ne le cède en rien à la bise de
@@ -2746,14 +2744,14 @@ Tout autour de la chapelle, règne un soubassement très ;
 richement décoré de rinceaux fantastiques à fond d'or,
 semés de petits tableaux, où les figures sont peintes en
 grisaille sur un fond couleur d'ardoise. Les sujets ne sont « pas tirés de l'Écriture Sainte, mais de poèmes païens, de
-l''Iliade, de l'Enéide, des Métamorphoses d'Ovide, de la L
+l''Iliade, de l'Enéide, des Métamorphoses d'Ovide, de la
 Pharsale, quelques-uns aussi de la Divine Comédie. Par- à
-tout des hommes nus, des mouvements violents, des rapts, 1
-des meurtres, un dessin brutal, mais plein de vie et de M
+tout des hommes nus, des mouvements violents, des rapts,
+des meurtres, un dessin brutal, mais plein de vie et de
 
-Michel-Ange admirait ces peintures et il s'en est même 4
-inspiré, très librement d'ailleurs, pour certaines figures de 1
-la Chapelle Sixtine, et en y mettant la marque de son M
+Michel-Ange admirait ces peintures et il s'en est même
+inspiré, très librement d'ailleurs, pour certaines figures de
+la Chapelle Sixtine, et en y mettant la marque de son
 
 : Parmi les grandes fresques d'Orvieto, l'une des plus
 belles nous montre la Prédication de l'Antéchrist.
@@ -2767,7 +2765,7 @@ VAntéchrist se fait adorer comme un dieu.
 étoiles d'or, l'archange Michel ardent au combat, accourt
 à tire d'aile. Il triomphe de l'Esprit du Mal qui tombe à la
 renverse, la tête en avant, enveloppé d'un tourbillon de
-| draperies. l
+| draperies.
 Sur la terre aussi règne la violence. Une grêle de feu
 mêlée de sang jette l''épouvante dans une cohorte de gens
 armés dont les chevaux se cabrent. Déjà le sol est jonché
@@ -2800,19 +2798,19 @@ spectateurs impassibles, son propre portrait et celui de
 
 L'Antéchrist est le signe avant-coureur de mille prodiges |
 et de mille maux : « Alors, toutes choses accomplies, le
-monde finira, Amen. » 3
+monde finira, Amen. »
 
 La Fin du Monde est venue; la terre tremble, tout s'écroule.
-Hommes et femmes essaient de fuir et poussent de grands 1
+Hommes et femmes essaient de fuir et poussent de grands
 cris, foule éperdue qui se précipite en désordre, écrasant |
 sans pitié ceux qui sont tombés à terre. Les figures
 penchées en avant semblent sortir du cadre, tant les |
-raccourcis sont rendus avec une étonnante hardiesse. 4
+raccourcis sont rendus avec une étonnante hardiesse.
 
 À droite, voici la Résurrection : }
 
-Dans un ciel tout criblé de gros clous d'or qui figurent J
-les étoiles, deux anges sont debout, les ailes largement 4
+Dans un ciel tout criblé de gros clous d'or qui figurent
+les étoiles, deux anges sont debout, les ailes largement
 éployées. Ce sont de robustes jeunes hommes nus, à la .
 chevelure flottante. Les joues gonflées, ils soufilent à pleins :
 poumons dans de longs tubes de cuivre et font éclater un
@@ -2877,29 +2875,29 @@ cracher à la face de Dieu un dernier blasphème. Il emporte
 sur son dos une femme nue, frissonnante, échevelée, livide Fr.
 
 Plus bas grouille une cohue hurlante, enchevêtrement
-hideux de tortionnaires et de suppliciés. Toutefois le. j
+hideux de tortionnaires et de suppliciés. Toutefois le.
 désordre de cette mêlée n'est qu'apparent. Un art profond et ;
 caché a présidé à sa composition : Au premier plan, les ;
 pécheurs déjà frappés sont abattus et gisants à terre, dans
 des raccourcis d'une hardiesse extrême, d'autres prosternés
 à genoux, et chaque maudit forme avec son bourreau un à
-groupe distinct, digne d'un grand sculpteur. Une femme 4
-nue a été projetée à plat ventre sur le sol; ses jambes se 4
+groupe distinct, digne d'un grand sculpteur. Une femme
+nue a été projetée à plat ventre sur le sol; ses jambes se
 redressent crispées, et une souffrance indicible déforme “
 son visage convulsé; c'est qu'un démon la frappe à grands
-coups de talon, repoussant du pied cette tête qu'il écrase, p
-tandis qu'il tire violemment sur le nœud qui serre la gorge. b
+coups de talon, repoussant du pied cette tête qu'il écrase,
+tandis qu'il tire violemment sur le nœud qui serre la gorge.
 Les bourreaux torturent leurs victimes avec une rage
 furieuse. L'un d'eux tord le cou d'un damné pour lui briser
 les vertèbres et pour arracher la tête du tronc.
 
 Ces êtres terribles, aux cheveux hérissés, aux épais .
-sourcils en broussailles, ont des corps velus, et leur peau 4
+sourcils en broussailles, ont des corps velus, et leur peau
 a pris les tons verdâtres ou bleuissants des charognes; ils
 grincent des dents, mordant à pleines gueules, enfonçant . « * leurs griffes dans les chairs saignantes, déchirant, étranglant, écartelant avec une joie féroce. Plusieurs emportent,
 la tête en bas, leurs victimes pantelantes dont les pieds ;
 s'agitent désespérément au-dessus de leurs têtes; et plus
-loin, semblables à une volée d'oiseaux de proie, de sinistres j
+loin, semblables à une volée d'oiseaux de proie, de sinistres
 démons, s'abattant sur les cadavres, font palpiter dans les
 airs leurs sombres ailes de chauves-souris. à
 
@@ -2971,7 +2969,7 @@ la pâleur subite de son visage d'où le sang se retire, ces
 
 ” yeux qui se ferment languissamment, les genoux quiflé-
 chissent, tous les symptômes de la syncope sont rendus
-avec une vérité pour ainsi dire médicale et pourtant pleine d
+avec une vérité pour ainsi dire médicale et pourtant pleine
 
 Paul M. à sa mère
 
@@ -2979,14 +2977,14 @@ Je vous écris au retour d'une excursion qui m'a vivement
 intéressé. Je suis allé jusqu'au cloître de Monte-Oliveto pour
 voir des fresques de Signorelli et du Sodoma. Cette longue À
 série de peintures raconte toute la vie de saint Benoît et son
-entrevue avec Totila. Reîtres et lansquenets, vêtus de costumes collants, sont crâänement plantés, la lance au poing. F
-Les scènes qui se déroulent à différents plans, dans de beaux 4
-paysages profonds, sont là gravées dans ma mémoire, mais j
+entrevue avec Totila. Reîtres et lansquenets, vêtus de costumes collants, sont crâänement plantés, la lance au poing.
+Les scènes qui se déroulent à différents plans, dans de beaux
+paysages profonds, sont là gravées dans ma mémoire, mais
 
 Je me souviens pourtant d'un jeune homme que le Sodoma ;
 a figuré à genoux devant un grand moine, c'est une sorte ;
-d'Enfant prodigue dont le repentir est exprimé avec un É
-sentiment infiniment tendre et profond... 4
+d'Enfant prodigue dont le repentir est exprimé avec un
+sentiment infiniment tendre et profond...
 
 Il faut se borner, je vous dirai seulement quelques mots ;
 
@@ -3046,12 +3044,12 @@ analyser les formes. Chez Corrège, la lumière est étudiée
 pour elle-même, avec amour, avec enthousiasme, elle
 devient le but suprême de la peinture. C'est elle qui donne |
 la vie aux êtres et aux choses, elle éclaire, elle réchauffe,
-elle enveloppe tout d'une atmosphère de grâce et de volup- Ÿ
+elle enveloppe tout d'une atmosphère de grâce et de volup-
 
-A l'église Saint-Jean, j'ai beaucoup admiré la coupole 4
+A l'église Saint-Jean, j'ai beaucoup admiré la coupole
 décorée de figures hardiment lancées en plein ciel et
 savamment plafonnantes. Au centre, le Christ, vêtu d'une À
-simple draperie d'un rose doré, s'élève dans une gloire j
+simple draperie d'un rose doré, s'élève dans une gloire
 resplendissante, c'est un éblouissement. Les apôtres sont à
 assis sur des nuages et la science des raccourcis est déjà |
 complète dans ces figures. Le mérite était grand, vingt ans À
@@ -3061,15 +3059,15 @@ On peut critiquer le système décoratif des plafonds
 plafonnants, mais l'idée une fois admise, Corrège a eu
 
 . raison d'en poursuivre la réalisation logiquement
-jusqu'au bout. Ici d'ailleurs la clarté reste encore J
+jusqu'au bout. Ici d'ailleurs la clarté reste encore
 
 parfaite. Plus tard, Corrège et ses imitateurs abuseront
 de la science. Dans la cathédrale de Parme, l'Assomption de la Vierge est déjà un entassement confus de
-figures qui s'envolent. Les raccourcis sont violents, les Û
+figures qui s'envolent. Les raccourcis sont violents, les
 genoux semblent toucher les mentons; on ne distingue
 guère que les pieds et les jambes des beaux adolescents
-aus qui emportent la Vierge dans un tourbillon triom- 1
-phal. Cela forme un fouillis tellement inextricable qu'on k
+aus qui emportent la Vierge dans un tourbillon triom-
+phal. Cela forme un fouillis tellement inextricable qu'on
 la comparé irrévérencieusement à un plat de gre
 
 J'ai fait de grands efforts pour comprendre cette
@@ -3109,14 +3107,14 @@ celui des deux qui a le mieux compris. Souvent les défauts
 sont réels, et il n'est pas inutile de les reconnaître, mais il
 faut surtout savoir les oublier. Admirer les qualités supé-
 rieures, s'incliner avec respect devant le génie, c'est une
-grande joie. Rien en ce monde n'est parfait, les maîtres euxmêmes sont des hommes. Plaignons ceux qui ne s'aper- f
+grande joie. Rien en ce monde n'est parfait, les maîtres euxmêmes sont des hommes. Plaignons ceux qui ne s'aper-
 çoivent pas que les grands hommes sont grands.
 
 1869-1870
 
 1869-1870
 
-Ischl, le 14 août 60.
+Ischl, le 14 août
 .… Parle-moi d'abord de Rome, de Rome où je m'indigne
 de n'être pas encore allé. — Je me suis un peu consolé en
 me plongeant dans les inscriptions romaines d'Orelli. Il y
@@ -3221,7 +3219,7 @@ désastreux pour l'originalité ; mais je le goûte si rarement
 et j'y trouve tant de charmes que je n'ai jamais su résister. |
 D'ailleurs il me reste dans la mémoire une image que je ]
 puis consulter ensuite pour faire la part de l'éloge et du
-blâme, mais il m'est impossible d'admirer et de juger à la 3
+blâme, mais il m'est impossible d'admirer et de juger à la
 
 .… Tu me parles de Rome, mais de la Rome antique, de |
 sa force, de ses conquêtes, de sa civilisation si peu difré-
@@ -3229,7 +3227,7 @@ rente de la nôtre; mais dans la Rome des Papes il ne reste .
 
 S rien de cela. J'ai été véritablement attristé, et, sans les
 chefs-d'œuvre qui font oublier tout le reste, on se dégoüte- |
-rait vite de cette sale ville et de son sale peuple. Je ne 3
+rait vite de cette sale ville et de son sale peuple. Je ne
 
 À suis pas encore arrivé à comprendre la beauté des tas
 
@@ -3248,9 +3246,9 @@ ou des protections tout est permis. ]
 
 à Les fresques de Michel-Ange sont noircies par la fumée
 des cierges. On appuie chaque semaine des échelles sur les :
-plus belles figures du Jugement dernier, et des manœuvres É
+plus belles figures du Jugement dernier, et des manœuvres
 sont dessus qui cognent sans respect. Je l'ai vu, et cela |
-me faisait un mal physique; mon cœur se serrait. Dans E
+me faisait un mal physique; mon cœur se serrait. Dans
 ces moments-là, moi inoffensif, j'aurais voulu cravacher '
 ces brutes, ou plutôt ceux qui les commandent. C'est qu'il
 s'agissait de choses importantes! Il fallait bien changer
@@ -3258,7 +3256,7 @@ les tentures d'un autel qu'on a eu l'heureuse idée de plaquer
 
 (1) Cf. G. Bizet. Lettres de Rome. |
 
-(2) N'est-ce pas exagéré? me demande J. Nicole. — Je réponds : l
+(2) N'est-ce pas exagéré? me demande J. Nicole. — Je réponds
 
 sur le groupe central du Jugement dernier. Et cette céré-
 monie se renouvelle à chaque fête! Que deviendrait la
@@ -3309,9 +3307,9 @@ dais à quelque conseil du même genre. Ce fut bien pis!
 — « Vos parents ont-ils de la fortune? continua
 M. Perrin. — Monsieur, répondis-je très troublé, mes ;
 parents me permettent de continuer mes études aussi
-longtemps qu'il le faudra. — Vous êtes dans une voie 4
+longtemps qu'il le faudra. — Vous êtes dans une voie
 déplorable. Si vous étiez un simple amateur, cela aurait
-moins d'importance. et encore? Non, je vous dirais la 4
+moins d'importance. et encore? Non, je vous dirais la
 même chose. Il fallait, dans tout votre voyage, faire
 seulement deux ou trois dessins. Chaque croquis läché
 est un pas en arrière. Je ne vois là que des à peu près,
@@ -3325,9 +3323,9 @@ Après quoi, il s'est radouci. Pendant plus de deux
 
 0 heures, il m'a témoigné beaucoup d'intérêt, me disant que
 je lui avais donné des espérances, qu'il ne fallait pas
-chercher des qualités inconciliables, que je me laissais i
+chercher des qualités inconciliables, que je me laissais
 influencer, qu'il fallait faire un grand effort de volonté,
-renoncer à mon tableau commencé, m'enfermer seul, 4
+renoncer à mon tableau commencé, m'enfermer seul,
 pendant une année, pour copier les dessins de Flaxman, \
 en me corrigeant avec des calques.
 
@@ -3335,9 +3333,9 @@ Ces reproches et ces conseils perdaient un peu de leur
 poids par leur exagération même. Mais ce qui me fit
 une impression bien plus forte, ce fut de voir quelques
 dessins d'Orsel. — M. Perrin me les expliqua avec un
-enthousiasme communicatif, de vrais chefs-d'œuvre ! 14
-dans une manière froide et abstraite, mais d'une précision, 1
-d'une science, d'une probité, d'une volonté admirables! J
+enthousiasme communicatif, de vrais chefs-d'œuvre !
+dans une manière froide et abstraite, mais d'une précision,
+d'une science, d'une probité, d'une volonté admirables!
 
 ) Ces émotions m'avaient remué profondément. Je sortis
 en remerciant bien sincèrement M. Perrin, calme en
@@ -3367,7 +3365,7 @@ m'ont guère d'importance, ont pourtant contribué à me
 Et toi, cher ami, viendras-tu à Paris pour un hiver seulement! Je souhaite que le paquet de programmes que je
 t'envoie soit un hamecon capable de te prendre et de te
 
-Pétersbourg, le 13 janvier 90.
+Pétersbourg, le 13 janvier
 
 Les Russes, qui sont de trois cents ans en retard sur
 nous, ont imaginé, pour qu'on s'en aperçoive moins, de
@@ -3401,20 +3399,20 @@ Après Sophocle vient Euripide pour Hippolyte. Quelle
 chute! Quelle différence, je ne dis pas avec Sophocle, mais |
 avec Racine. Les trois quarts de la pièce ne sont pas d'un
 poète, mais d'un faiseur. Des réflexions philosophiques, de
-vraies dissertations aux endroits les plus pathétiques. On 1
-dirait du Voltaire, traduit mille ans d'avance. Les chœurs F
+vraies dissertations aux endroits les plus pathétiques. On
+dirait du Voltaire, traduit mille ans d'avance. Les chœurs
 ne sont qu'un remplissage harmonieux. A cette harmonie
 près, c'est la musique d'entr'acte de la Comédie-Française ;
 aucun rapport avec les épisodes. De temps en temps quel- |
 ques vers admirables viennent vous rappeler que c'est |
 pourtant à Athènes qu'Euripide écrivait. J'espère pour lui
-et pour moi qu'Hippolyte est sa plus mauvaise pièce. û
+et pour moi qu'Hippolyte est sa plus mauvaise pièce.
 * Dans ta prochaine lettre je te prie de me copier la tra- -
 duction latine des vers 490 à 492. Tu as l'édition Didot,
 moi je n'ai que le texte grec. (1)
 
 (x) Mon ami lisant une édition dont le texte était altéré, avait (
-su, au moyen de corrections ingénieuses et savantes, rétablir la F
+su, au moyen de corrections ingénieuses et savantes, rétablir la
 
 { Pardonne-moi, cher ami, de te faire la victime de mes .,
 | études. Je n'ai que toi. Quand je serai à Paris, tu en verras
@@ -3461,7 +3459,7 @@ les Grecs, la fatalité de la passion en atténuait l'horreur. —
 La pompe monotone de l'alexandrin et le manque de vraie
 simplicité me semblent balancer largement les arguties
 
-4 2
+4
 philosophiques d'Euripide, Comment peux-tu supporter la
 tendre Aricie et « ses innocents appâts »? et: « si je la haïssais, je ne la fuirais pas »,et : « vous voyez devant vous un
 prince déplorable ». Ce sont des personnages de l'Astrée
@@ -3476,26 +3474,26 @@ Il est loin du jeune ascète mystique, si vivant, si original,
 si plein de charme qu'a peint Euripide, et que j'aime
 tant.
 
-Pour moi qui cherche dans les poètes des sujets de î
+Pour moi qui cherche dans les poètes des sujets de
 tableaux, j'en ai rarement trouvé d'aussi nombreux et ;
 d'aussi beaux que dans l'Hippolyte. C'est une de mes pièces
 de prédilection. Assurément ce ‘n'est pas d'un art aussi
 grand ni aussi pur que celui de Sophocle, mais quelle mise
 en scène admirable! Dès le début, ces jeunes gens qui |
 reviennent de la chasse; Hippolyte passant dédaigneuse- |
-ment devant la statue de Vénus pour aller offrir à Diane L
+ment devant la statue de Vénus pour aller offrir à Diane
 une couronne. — Que de fois, quand je me promenais seul
-dans la forêt en écoutant le bruit des feuilles, ai-je songé d
+dans la forêt en écoutant le bruit des feuilles, ai-je songé
 à ces mystiques entretiens de Diane. — Encore un tableau
 que je tàcherai de faire : Hippolyte écoutant la voix de à
 Diane invisible pour lui. |
 
-En arrivant à Varsovie, j'ai vu bien des choses dignes 4
-d'attention. Comment ne pas s'intéresser à cette population j
+En arrivant à Varsovie, j'ai vu bien des choses dignes
+d'attention. Comment ne pas s'intéresser à cette population
 si sympathique, pour ne pas dire plus; et puis quel contraste
 pittoresque, inconnu dans nos pays d'égalité, n'offrent pas
-ces deux peuples, les Chrétiens et les Juifs, vivant dans les F
-mêmes rues, mais aussi séparés de condition et de figure ñ
+ces deux peuples, les Chrétiens et les Juifs, vivant dans les
+mêmes rues, mais aussi séparés de condition et de figure
 que les blancs et les nègres en Amérique.
 
 (1) Cette lettre, commencée en janvier, ne fut terminée que le
@@ -3529,7 +3527,7 @@ Paul, l'étudiant insoucieux qui, en 1869, s'occupait
 uniquement de littérature et d'art, était loin de prévoir
 les événements tragiques auxquels il allait bientôt se ,
 
-une famille de républicains fouriéristes ..... I
+une famille de républicains fouriéristes .....
 Premier tableau : une Hamadryade. — Orsel et
 Milan et à Saronno. — Lettres de deux jeunes
 Giotto. La chapelle de l''Arena. Allégories. — Un .

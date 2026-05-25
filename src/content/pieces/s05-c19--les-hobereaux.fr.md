@@ -8,8 +8,8 @@ isAvertissement: false
 wordCount: 16466
 ---
 Quand la ville, à Noël, agenouillée autour
-4 Des églises carrant debout leur haute tour,
-4 Attend qu'au ciel feutré de brumes minuit sonne,
+Des églises carrant debout leur haute tour,
+Attend qu'au ciel feutré de brumes minuit sonne,
 . Quand la neige en essaim de mouches tourbillonne
 . Aux vitres rousses des lanternes, c'est vers toi,
 . Mère, que s'en revient mon cœur, et vers la foi » De mon enfance, et vers les prières anciennes |
@@ -20,7 +20,7 @@ Dans mon âme, des cierges brillent, un à un, \
 . Les crédules minuits et mon extase, toute.
 … Mère, j'entends ta voix qui chante, et ce m'est doux, |
 i Blotti contre ta jupe, et sage, les genoux
-14 4
+14
 
 ÿ Engourdis, d'écouter ce murmure d'eau fraîche.
 Je voudrais t'embrasser, mais n'ose pas, la crèche
@@ -28,7 +28,7 @@ Est là, tout près, qui me fascine avec ses ors,
 Ses bergers et le bœuf et l'âne, et je m'endors,
 Et me raidis, et rouvre à moitié les paupières.
 | Je vois, parmi des pleurs de sommeil, les lumières
-| S'allonger démesurément et cribler l'air j
+| S'allonger démesurément et cribler l'air
 De flèches qui bientôt deviennent un lac clair
 | Où mes cils éblouis se baignent... Puis les portes
 | S'ouvrent dans un grand cri de l'orgue, et tu m'emportes :
@@ -44,10 +44,10 @@ Après l'autre rejoindre, au bord du ciel, la lune.
 - O ces rêves dans mes cigarettes, souvent!
 . Images, au plafond, de peupliers, de vignes
 ; Et de prés par Avril inondés, jusqu'aux lignes
-1 Des coteaux, où toujours un vieux moulin à vent, :
+Des coteaux, où toujours un vieux moulin à vent, :
 . Sans bras, le toit penché sur l'horizon, écoute
 Si l'âne du meunier encor monte la route.
-Province, en cette froide nuit, dont le rayon é
+Province, en cette froide nuit, dont le rayon
 De l'aube éveillera demain le paysage, |
 … Si simple qu'on l'évoque en trois traits de crayon,
 . Et souriant de tendresse comme un visage.
@@ -71,7 +71,7 @@ G Derrière les rideaux d'une croisée, on voit
 …_ Sur leur chaise. O récréations monacales!
 
 Ainsi vous souriiez, en nos après-midis,
-4 Lorsque j'avais douze ans, ma cousine, et vous seize, !
+Lorsque j'avais douze ans, ma cousine, et vous seize, !
 pr Et que, la joue en feu, plein d'étrange malaise, :
 Je respirais vos doigts entre les miens tiédis..
 ÿ Province, vieilles mains qui mouchiez les chandelles,
@@ -84,40 +84,40 @@ Et les vitres tremblaient de tout leur corps de verre,
 | Au vacarme roulant des coches vers Paris.
 Maintenant, poussière tombée et vie éteinte.
 Morte l'auberge où les postillons haut bottés, |
-Prêts à partir, jouaient un coup de vin aux dés, h
+Prêts à partir, jouaient un coup de vin aux dés,
 Plus de valets aux abreuvoirs, de seau qui tinte. |
 ‘ Fini le drame des grand routes, épuisé
 Le merveilleux trésor de belle imagerie,
 Et la Province aux vitres pleure, endolorie… |
-Puissent ces vers aller jusqu'à son cœur brisé. l
+Puissent ces vers aller jusqu'à son cœur brisé.
 
 L'Autre avait des cheveux d'or farouche, un brasier, En (A
-Du bien, éparse au vent, la flamme d'une torche! 12
-Et des bras souples et cruels, comme un rosier 214
-Qui, par amour d'un chêne, et l'enlace et l'écorche, è 4
+Du bien, éparse au vent, la flamme d'une torche!
+Et des bras souples et cruels, comme un rosier
+Qui, par amour d'un chêne, et l'enlace et l'écorche,
 4 lui suce le sang, pour en fleurir. Ses yeux "2e
 aient changeants, selon le ciel : quelquefois bleus TN
 mme, au soleil, la mer, lorsqu'on nage sous l'onde 5140
 que les fonds ont des lueurs d'écaille blonde. DE
-b dans ces yeux, d'eau pure alors, que n'ai-je pas, 7
+b dans ces yeux, d'eau pure alors, que n'ai-je pas,
 squ'à douter si leur traîtrise était un songe, “sé
 
-_ Entrevu d'innocence enfantine, là-bas, NOUS 71 j
-1 Dans cette profondeur marine où l'âme plonge! Re
-10 Mais non. L'orage couve, accroupi sur les flots, Hi:
+_ Entrevu d'innocence enfantine, là-bas, NOUS
+Dans cette profondeur marine où l'âme plonge! Re
+Mais non. L'orage couve, accroupi sur les flots, Hi:
 __ Et se gonfle, chargé du poids mort de l'automne, LA
 ENS Et, noir de pluie et bleu d'éclairs, éclate et tonne,
-1 Comme une gorge mûre où roulent des sanglots. A
+Comme une gorge mûre où roulent des sanglots. A
 #3 . Et sous le bloc en feu du ciel qui la surplombe, +
 fe A l'ombre des volcans de nuages, la mer $
-L: Immensément striée et livide se plombe.. 1
+L: Immensément striée et livide se plombe..
 ‘à Yeux de l'Autre, souffrance, azur, tantôt, si clair,
 nn Douce lumière entre ses cils baignant sa joue, ,
-nu: Puis tempête, remous d'eau lépreuse et de boue! j
+nu: Puis tempête, remous d'eau lépreuse et de boue!
 
-_ Mes dix-huit ans, ah! folle année! amour tremblant, : 1 400
-_ Avril dans le verger trempé de pluie et blanc T5
-. De cette neige des pommiers, amour timide 154
+_ Mes dix-huit ans, ah! folle année! amour tremblant,
+_ Avril dans le verger trempé de pluie et blanc
+. De cette neige des pommiers, amour timide
 _ Comme la brume du matin dans l'herbe humide, ke:
 Luzerne grise, d'eau poudrée, où le chasseur $ :
 _ Creuse en passant des sentiers verts ! Et sa douceur ne
@@ -131,7 +131,7 @@ Respirer cette grasse fleur, un sein de femme !
 Et si vierge et si jeune est la chair, si profond
 Le choc de volupté soudaine qui la broie,
 Qu'avec elle et pareil à la cire qui fond,
-Le cœur mollit et coule et grésille de joie! G
+Le cœur mollit et coule et grésille de joie!
 O ce parfum des corps mêlés, dense et vermeil, |
 Cette odeur de moissons mûres et de soleil! |
 Et la bouche, qui toute et fervente se donne \
@@ -143,8 +143,8 @@ Qui maintenant est tien, 6 douleur tôt venue ! |
 
 : Pourtant quelle câlinerie à nos réveils, ;
 … Une lenteur de plante à vivre, et combien vagues
-« Nos corps dans ces lagunes des demi-sommeils, Ù
-Et si légers, comme les barques sur les vagues. É
+« Nos corps dans ces lagunes des demi-sommeils,
+Et si légers, comme les barques sur les vagues.
 | Son âme était la grive folle qui, le soir,
 . Ayant pillé dans les vignes du raisin noir,
 
@@ -155,9 +155,9 @@ Et si légers, comme les barques sur les vagues. É
 -Ivre morte. O les doux matins gorgés d'amour,
 
 Et seul bon souvenir peut-être, quand, sa tête
-Roulant comme une épave en mer à l'abandon, Ë
+Roulant comme une épave en mer à l'abandon,
 Ses bras fauchés semblaient des lis sous la tempête. ;
-O fatigue, opium plus sûr que le pardon ! L
+O fatigue, opium plus sûr que le pardon !
 Elle était comme enfant et blessée, étant lasse
 Et si faible, et disait des je t'aime à voix basse. |
 Elle était cette enfant sans amie et si sage
@@ -172,14 +172,14 @@ A piquer vite son chapeau devant la glace...
 _ La maison pleure dans sa gouttière, ' à
 _ Dans l'âtre brüle un feu de charbon, TM
 Ë Le thé, par le bec de la théière, Me
-3 Fume et sent bon, .
+Fume et sent bon, .
 _ Et je rêve d'amours anciennes, de.
 3 _ Le cigare aux lèvres. le temps fuit. ni
 _ Soudain, aux fentes des persiennes, por.
 _ Un bec de gaz au bout de la rue à
 _ File un chant aigu, flûté, plaintif... jIER
 ps È Dans le silence de l'heure indue De
-Je tremble comme un enfant craintif. 4
+Je tremble comme un enfant craintif.
 
 12: AIS Quelqu'un est là, derrière la porte. |
 Ne lentends-je pas gratter le bois?
@@ -188,11 +188,11 @@ nu 7 La maîtresse chérie autrefois.
 A Quelle soif donc survit à sa bouche NON
 Ÿ Fil ui Que chaque jour j'oublie un peu plus?
 it | Quel désir d'amour, autre et farouche, 458 ra
-15 Peut tourmenter un corps qui n'est plus? Su ENS
+Peut tourmenter un corps qui n'est plus? Su ENS
 Le 4 je Va-t-en, retourne au pays des âmes, : PAU ts
 
-a chambre de malade est comme un temple où règne E
-me compassion qui chuchote tout bas. i
+a chambre de malade est comme un temple où règne
+me compassion qui chuchote tout bas.
 it l'air appesanti d'odeurs fades s'imprègne, BUS
 t les bruits de la rue on ne les entend pas. |
 hors le grand soleil, ici le crépuscule, #
@@ -203,14 +203,14 @@ qu attend donc le lit en son calme profond ? à
 ‘54 Ainsi que l'imploraient fixement tes yeux pa à TRE
 Fa Fi Dans un fauteuil on est moins mourante peut tai \
 NÉE Et tu voulus broder de tes doigts amaigriss Ti
-210 Mais l'aiguille a tremblé sur la fleur dessinée
+Mais l'aiguille a tremblé sur la fleur dessinée
 20088 Pourquoi vouloir aussi tromper la destinée? # AR |
 RE fi bi Endormons-nous tous deux dans l'oubli de demain
 
 Pose ta chère tête sur ma poitrine où Fe
-Mon cœur s'entend qui bat la berloque, le fou ! 4
+Mon cœur s'entend qui bat la berloque, le fou !
 Ne rêve pas trop haut, si tu t'endors, de l'Autre. ‘4
-Pense en fermant les yeux à ce présent bien nôtre. 14
+Pense en fermant les yeux à ce présent bien nôtre.
 Pense que c'est beaucoup d'avoir toujours là, près, Ye
 ne main pour ton front qui soit un baume frais. 35408
 
@@ -253,7 +253,7 @@ A rabattre et jeter morfondu sur l'asphalte
 De ces trottoirs luisants d'averses. Cœurs aigris
 De rancune couvée en silence, de honte
 Bientôt près d'éclater en querelle, et qui monte ;
-Lente et rouge comme le soleil au ciel gris. j
+Lente et rouge comme le soleil au ciel gris.
 Mais vite disparus dans la cité qui fume, ;
 Dans le vacarme aigu des marchands, le halo
 Des lumières, le son, comme du fond de l'eau, ?
@@ -273,7 +273,7 @@ Et telle, après le bain, se hérissait à l'air,
 
 La veille encor, la pulpe rose de ta chair,
 
-Telle, nue et mouillée, étirant sur la mer s
+Telle, nue et mouillée, étirant sur la mer
 
 Ses bras pales, frissonnait l'aube au vent amer...
 
@@ -284,22 +284,22 @@ Tirant à hue, à dia, de cahot en cahot,
 Tantôt dressant son coffre et ses rosses en haut ;
 
 D'un mamelon, tantôt dans un repli cachée, )
-Ici presque tombant à droite et là penchée ; É
+Ici presque tombant à droite et là penchée
 A gauche, titubant et criant de l'essieu \
-Sous le bagage de douleur d'un tel adieu, É
+Sous le bagage de douleur d'un tel adieu,
 Je l'ai vue au lointain s'enfuir diminuée À
 Et plonger dans l'azur béant d'une nuée… À
-C'est alors, seulement, que j'ai compris, trop tard, l
+C'est alors, seulement, que j'ai compris, trop tard,
 Ma faute, et que ce drame brusque du départ,
 Le sursaut du réveil, le lever dans la chambre
 Encor sombre et cette aube froide de novembre, À
 Ces flambeaux, ces bruits sourds de portes et de pas, #
-Notre raideur muette à ce dernier repas, 4
-Ces visages de plomb aperçus dans la glace, 4
+Notre raideur muette à ce dernier repas,
+Ces visages de plomb aperçus dans la glace,
 Et ce dernier baiser des lèvres, braise et glace,
 Crispation de l'âme affolée, en l'instant
 De crève-cœur suprême où la voiture attend,
-Tous ces tableaux enfin d'une crise cruelle ë
+Tous ces tableaux enfin d'une crise cruelle
 Étaient chose vécue, atrocement réelle !
 J'aurais voulu crier : « Ne t'en va pas, j'ai tort,
 Je aime! Vois mes pleurs, vois mes bras que je tords,
@@ -309,32 +309,32 @@ Et que des vieux griefs rien ne reste entre nous,
 Que du silence avec mon front sur tes genoux!
 
 | Reviens dans ma maison dont ta robe de femme |
-Et tes yeux qui rêvaient aux vitres étaient l'âme ! É
+Et tes yeux qui rêvaient aux vitres étaient l'âme !
 Rentre par le jardin d'automne, viens t'asseoir 2%
 Dans la lueur des grands feux clairs, chère frileuse ! À
-Reprends place au rouet, viens filer, ma fileuse, 4
+Reprends place au rouet, viens filer, ma fileuse,
 
-: Le doux lin de l'amour indulgent et, ce soir, ÿ 4
-Dans la chambre où la lune aux persiennes regarde, 4
+: Le doux lin de l'amour indulgent et, ce soir,
+Dans la chambre où la lune aux persiennes regarde,
 
-Où le lit moite encor de nos caresses garde 4
+Où le lit moite encor de nos caresses garde
 
 | :Ta longue empreinte souple au creux de ses draps blancs, £
-Quand nous serons debout, face à face, tremblants . É
+Quand nous serons debout, face à face, tremblants
 D'angoisse, alors je prendrai dans mes mains ta tête #
 Douloureuse, et quelle heure et quelle nuit de fête ! » :
 
-| Mais loin derrière la forêt, vers lorient, 1
-D'un rouge vif de joue enfantine et riant È
+| Mais loin derrière la forêt, vers lorient,
+D'un rouge vif de joue enfantine et riant
 Comme un œil jeune où perle une larme limpide À
 Quand sous l'aiguillon du gel le sang court rapide, à
-Loin derrière les vallonnements sablonneux 1
+Loin derrière les vallonnements sablonneux
 
-Des dunes, là-bas, où le soleil cotonneux, 1
-Dans le fouillis des pins dressant leurs hampes fines, 3
+Des dunes, là-bas, où le soleil cotonneux,
+Dans le fouillis des pins dressant leurs hampes fines,
 
-4 Loin, si loin, par delà l'écho même du bois, ;
-Avec son vieux cocher excitant de la voix 3
+Loin, si loin, par delà l'écho même du bois, ;
+Avec son vieux cocher excitant de la voix
 
 Sa paire de chevaux efllanqués dont les côtes é ;
 
@@ -348,20 +348,20 @@ s Où, pâle et le mouchoir aux lèvres, tu pleurais, Re.
 % Et maintenant encor, quand s'annonce l'hiver, |
 __ Quand crépite la pluie en bulles sur la mer, À
 
-Mon âme dans le vent qui souflle est aux écoutes. : 4
+Mon âme dans le vent qui souflle est aux écoutes.
 
-“HÉRUE à madame Simone Le Bargy : 10
+“HÉRUE à madame Simone Le Bargy
 
 _ C'était je ne sais quel matin, frais et nacré { sh
-Comme le poisson vif aux gluantes écailles 730
+Comme le poisson vif aux gluantes écailles
 
 _ Dans le filet tiré dont s'égouttent les mailles, +44
 À Un matin de santé, jeune, oublieux, sacré, ME
 _ De ceux où l'on s'en va sur ses jambes, à l'aise, ÿ ; ‘4
 ._ Heureux d'être robuste et que le ciel soit clair! CR
-_  J'errais sur les récifs que découvre la mer, 2e
+_  J'errais sur les récifs que découvre la mer,
 . Et qu'à son tour, à nu, l'aurore épouse et baise, FE
-- Les varechs pustuleux craquaient, les crabes verts 318
+- Les varechs pustuleux craquaient, les crabes verts
 _ Grattant la vase se terraient à mon approche, PL:
 Ou, plus souvent, surpris dans l'amour, de travers non.
 _ S'esquivaient, emportant dans des fentes de roches À £ sh
@@ -403,7 +403,7 @@ Et ce soleil grêlant sur la mer, la grotte
 
 Le Et l'eau froide où ma main trempe est aussi v raie Rd
 ESS Qu'il est vrai le rocher que mon ongle raie, CEE
-160 Dont les échos sourds, quand le vent du large entre, 14
+Dont les échos sourds, quand le vent du large entre,
 730 ù Roulent en coups de tonnerre au fond de l'antre, PURE
 à & Comme le ciel à perte de vue est clair!
 ‘tr Beauté, flammes de joie en mon œil indigne,
@@ -412,30 +412,30 @@ F 4 De son flanc blessé son sang coule. Elle a dû
 ‘8 Aborder, pour y mourir, ce coin perdu. ‘4
 ; “l Elle dormait, à l'aube, sur la mer lisse...
 
-457 Comme une méduse, à fleur d'eau, vers l'azur
-20 Émergeait son ventre lumineux et pur. È
+Comme une méduse, à fleur d'eau, vers l'azur
+Émergeait son ventre lumineux et pur.
 nes. Quelque steamer, peut-être, d'un coup d'hélice… %
 
-3 38
+3
 _ Ah! l'automne et ses fins de jour, au vieux village, :
 _ Et ses squelettes noirs, sur le ciel encor clair, pr
-_ D'arbres brûlés qui frissonnent au vent de mer, :11e
+_ D'arbres brûlés qui frissonnent au vent de mer,
 _ Et l'éboulement sourd des flots gris sur la plage. ‘1
 _ Voici le petit port et son âcre parfum A: #
-_ De saumure, et la barque fantôme qui rentre, 4
+_ De saumure, et la barque fantôme qui rentre,
 _ Lourde et massive, avec sa pêche dans son ventre, ‘ETS
-Et voici tous les feux des phares un à un. D.
+Et voici tous les feux des phares un à un.
 Et c'est l'heure où l'on frappe aux portes des auberges, 4°
-Où, strident, suraigu, vibre le cri d'adieu 1
-Des dernières hirondelles dans le soir bleu, 5e
-Tandis qu'un peu de jour persiste au front des vierges. 4
+Où, strident, suraigu, vibre le cri d'adieu
+Des dernières hirondelles dans le soir bleu,
+Tandis qu'un peu de jour persiste au front des vierges.
 
 Ensuite, c'est la nuit, les vieilles au fagot, |
-\ C'est la male aventure assise à la fontaine, 4
+\ C'est la male aventure assise à la fontaine,
 Le choc, au puits, d'un seau qu'on accroche à la chaine,
 C'est le pas, sur la route, au loin, d'un lourd sabot...
-Et parfois des sifflets, l'œil rouge d'un navire, È
-De longs appels, si déchirants qu'on en pâlit, L
+Et parfois des sifflets, l'œil rouge d'un navire,
+De longs appels, si déchirants qu'on en pâlit,
 
 Et que les femmes se blottissent dans leur lit
 Ou, pieds nus, font des vœux en brûlant de la cire.
@@ -491,17 +491,17 @@ A son poste, là-bas, exacte et quotidienne,
 
 Et patiente et résignée à son devoir,
 
-Allumant ses signaux fidèles dans le noir? è
-Est-ce regret de fuir songeant qu'un wagon ivre 1
+Allumant ses signaux fidèles dans le noir?
+Est-ce regret de fuir songeant qu'un wagon ivre
 
-Laisse derrière lui, peut-être, un site où vivre F
+Laisse derrière lui, peut-être, un site où vivre
 Serait un doux repos plein de roses, pour qui À
 
 S'en revient des cités de fumée et d'ennui ? À
 
-Ou bien, à ce tournant de route, qui s'enfonce ô
+Ou bien, à ce tournant de route, qui s'enfonce
 
-Vers le soleil broyé dans les griffes des ronces, L
+Vers le soleil broyé dans les griffes des ronces,
 
 As-tu vu disparaître, à cheval, au galop, $
 
@@ -537,7 +537,7 @@ Têtes qui vous penchez si lourdes sous les lampes, |
 Quelle poursuite a mis ces sueurs sur vos tempes ?
 Quel effort pour s'enfuir, en traînant, tout le long ;
 . D'un chemin interminable, des pieds de plomb?
-Sommeil! relâche du visage, flasques joues 4
+Sommeil! relâche du visage, flasques joues
 Où se détend, Ô masque, l'orgueil que tu joues, À
 Fronts ravagés, vieillis, tout à coup, de dix ans,
 Plis des bouches, las de plaisirs ou méprisants,
@@ -546,21 +546,21 @@ Compagnons ballottés dans vos manteaux, pressés
 D'arriver j'ignore où, venant d'où je ne sais, à
 Vous que transperce, à chaque sursaut des voitures,
 Cette vrille de quels remords et courbatures,
-Serait-ce de porter tant d'ombre de départs, 4
+Serait-ce de porter tant d'ombre de départs,
 D'attente, de destins errants, demain épars,
 Que le train, haletant d'inquiétude, beugle, À
 Et sent une âme éperonner sa course aveugle ?
 O froissements des nerfs à vif, lorsque le frein, |
-Dans des jets de vapeur, crisse contre la roue, 4
+Dans des jets de vapeur, crisse contre la roue,
 - Noms des gares criés d'une voix qui s'enroue, :
 . Dans le ruissellement, sur des tôles, d'un grain. Le
 
 Bruits retrouvés toujours pareils, et vous, de même, d |
 Images des modernes voyages qu'on aime, À
 Odeur de houille, odeur de poussière et de cuir, |
-Âcre parfum de notre rêve, à nous, de fuir, 4
-De nous évader loin d'où notre âme est liée, Û
-Recluse en quelque chambre et sur soi repliée! 4
+Âcre parfum de notre rêve, à nous, de fuir,
+De nous évader loin d'où notre âme est liée,
+Recluse en quelque chambre et sur soi repliée!
 Pour tout de bon, vraiment, un soir comme aujourd'hui,
 S'en aller, planter là son âme sédentaire, ;
 Avec son pauvre fond de phrases et d'ennui, |
@@ -574,7 +574,7 @@ F: Cette crise des fins de jour en la cité. Ne
 _ Que le long de ces perspectives où s'allume ‘ca
 _ Ce clair de lune qui grésille dans la brume, ‘219
 L Et mêmes tremblements dans mon cœur, mêmes chocs en
-_ Qu'au pavé fracassé des gares et des docks, :2 18
+_ Qu'au pavé fracassé des gares et des docks,
 % Et qu'aux vitres de ces faubourgs qu'alors encombre id
 _ La hâte des départs pressés par l'heure vers ‘ Te:
 _ Des halls bleus de clarté, des ciels de plaine ouverts, mnt:
@@ -583,7 +583,7 @@ _ Des halls bleus de clarté, des ciels de plaine ouverts, mnt:
 LEE O soirs, sourdes rumeurs des rêves en prison,
 Chant du gaz, grincement des plumes, et les portes
 NES Bien closes, et l'odeur des paperasses mortes, ‘#1
-D Quand c'est, là-bas, ce cri d'ivresse à l'horizon, 4
+D Quand c'est, là-bas, ce cri d'ivresse à l'horizon,
 PEER Les trains! Et sur les fils, comme le sang circule,
 
 4:04 Les migrations des courriers au crépuscule.
@@ -591,46 +591,45 @@ PEER Les trains! Et sur les fils, comme le sang circule,
 GATE Heureux soleil! au bout de l'avenue, encor / À
 NS Une fois, il s'éclipse en ce même décor
 
-1 D'attelages qui miroitent et d'arbres minces.
+D'attelages qui miroitent et d'arbres minces.
 
 # En un clin d'œil, il est par delà les provinces |
 - Et les mers occidentales. Et, dans les ports, Y
-4 Peut-être, illuminant la rade et le flot d'encre, 4
-À Au passage, des rouges feux de leurs sabords, . L
-k Des navires à sa poursuite ont levé l'ancre. È
+Peut-être, illuminant la rade et le flot d'encre,
+À Au passage, des rouges feux de leurs sabords,
+k Des navires à sa poursuite ont levé l'ancre.
 
 _ Le soir, de cinq à sept, dans les mille lueurs ACTE
 Des boulevards où l'air qu'on respire crépite, A
 
 | C'est, vers le ciel, une âme en fureur qui palpite 7 JireS
-| Et s'enflamme, chauffée à toutes les sueurs. 544
+| Et s'enflamme, chauffée à toutes les sueurs.
 C'est une patience à bout, comme un orage « tre
 Qui, couvé tout le jour, éclate! un cri de rage 1:53
 Etoufté, depuis l'aube, entre les murs, au fond 5 #
 Des cours, dans les bureaux où pèse le plafond “Lee
 
-Sur les têtes, et sous le toit vibrant de vitres 4
+Sur les têtes, et sous le toit vibrant de vitres
 7008 Des fabriques, parmi ce bruissement d'élytres : ;
 | Que font en s'allumant les lampes.
 ‘à O doux son ;
 
-| Le pain gagné, la rue, au loin, illuminée, 4
+| Le pain gagné, la rue, au loin, illuminée,
 j Après ces poêles, ces poussières, l'odeur rance ,
-Des machines glissant dans l'huile, la souffrance 4
-Du revers de la main essuyée, Ô l'instant 1
+Des machines glissant dans l'huile, la souffrance
+Du revers de la main essuyée, Ô l'instant
 Où l'on remet le pied sur l'asphalte, où l'on tend À
 A la pluie, au vent froid qui la cinglent, sa joue. +
-Joie, alors, de marcher à grands pas, dans la boue... { 4
-Et, coupant au plus court par quelque jardin noir, È
-Fourmillant de lumières derrière sa grille, Ÿ
+Joie, alors, de marcher à grands pas, dans la boue... {
+Et, coupant au plus court par quelque jardin noir,
+Fourmillant de lumières derrière sa grille,
 Qui donc n'a pas rêvé que c'est, là-bas, l'espoir, à
 Je ne sais quel, l'espoir innombrable qui brille ? &
-| 4
 
-_ Le jour baisse. La pluie, à la clarté des lampes, 1; 2e
+_ Le jour baisse. La pluie, à la clarté des lampes,
 _ Scintille en longues larmes vertes aux carreaux. ne:
 ° Songe aux milliers de fronts penchés dans les bureaux, Bu
-_ A toute l'encre de villes, le soir, aux crampes, : 5
+_ A toute l'encre de villes, le soir, aux crampes,
 _ Sur les plumes, de tant de mains. Songe, dis-toi ne
 _ Avec quelle frénésie âpre, quelle foi “+0
 Tenace, électrisant la nuit qui l'enveloppe, |
@@ -638,25 +637,25 @@ Elle s'exténue à vivre, la vieille Europe. ER
 C'est l'heure où les chiffres fourmillent, noirs, petits, +4
 Innombrables, crispés de hâte et d'appétits, dé:
 
-Où la foule, aux guichets, s'écrase, hagarde, ivre, L
+Où la foule, aux guichets, s'écrase, hagarde, ivre,
 A croire que c'est du bonheur qui s'y délivre, À
 Où, dans les parlements, l'air s'épaissit, les voix à
 Tonnent.. Et, dans ce feu des disputes nocturnes,
 
-Encore une nouvelle loi qui sort des urnes. 4
+Encore une nouvelle loi qui sort des urnes.
 Rêvons ainsi, tous deux, les yeux aux vitres. Vois, ]
 En bas, la rue. Ouvre ton cœur, pour qu'y pénètre À
-Ce cri sourd dont tremblent les murs et la fenêtre, È
-Et tout ce qu'un brouillard sali de gaz, l'hiver, 1
-Ce brouillard de capitale, contient d'amer. F
-En drap sombre, à grands pas, sous son noir parapluie, 4
+Ce cri sourd dont tremblent les murs et la fenêtre,
+Et tout ce qu'un brouillard sali de gaz, l'hiver,
+Ce brouillard de capitale, contient d'amer.
+En drap sombre, à grands pas, sous son noir parapluie,
 Vois s'agiter l'âme moderne qui s'ennuie. |
-Mais plains l'être, surtout, qui s'en va seul, perdu Ë
+Mais plains l'être, surtout, qui s'en va seul, perdu
 Dans la cohue, et triste et si las pourtant n'ose :
 Rentrer chez soi, n'étant de personne attendu,
 Sans amour, sans un sein où sa tête se pose...
 
-Bataille des journaux du soir! entends leurs cris 2
+Bataille des journaux du soir! entends leurs cris
 Qui se chamaillent aux quatre coins du ciel gris, |
 Et s'éraillent et se pourchassent, puis jacassent
 Encore, et fous, étranglés d'alcool, se cassent.
@@ -673,77 +672,77 @@ _ Qui planaït sur la ville ce jour d'avril, crève,
 … Où courent-ils, le long des trottoirs, au devant
 
 De quel bonheur, vers quelle éclaircie apparue, “4
-D'azur pâle, en la perspective de la rue ? ; F
-| Si c'était vrai, pourtant, qu'elle colporte, 1
+D'azur pâle, en la perspective de la rue ?
+| Si c'était vrai, pourtant, qu'elle colporte,
 Cette feuille d'un sou, l'espoir, de porte en porte.
 Si tous les yeux, ce soir, ceux-là rougis qu'éteint
-La fatigue, et ceux-là d'un feu sombre en un teint 4
+La fatigue, et ceux-là d'un feu sombre en un teint
 De fièvre, si, penchés sous les lampes pour lire, |
-Les yeux dans toutes les maisons allaient sourire... L
+Les yeux dans toutes les maisons allaient sourire...
 Entends-les, pêle-mêle, essoufilés, éperdus, |
 Ils se hâtent... Comme ils se savent attendus ! ;
 S'engouffrent par milliers dans les gares, reniflent, {
 Sous les halls clairs, dans le vacarme des départs, Es
 Une dernière fois, Cité, ton cœur épars. ;
 Puis, en route! Et les trains hors des barrières sifflent…
-D'autres restent, troupeau misérable et têtu, Ë
+D'autres restent, troupeau misérable et têtu,
 Qui rôde et grasseye encore quand tout s'est tu. À
 Ils connaissent, ceux-là, notre âme mécontente, +
 Nous harcèlent de leur voix fausse qui nous tente, ‘
-Guettant l'heure où, les nerfs surexcités et las, k
-On veut croire, malgré qu'ils nous mentent, hélas! 4
+Guettant l'heure où, les nerfs surexcités et las,
+On veut croire, malgré qu'ils nous mentent, hélas!
 Oh! que de fois, au coin d'un carrefour qui gronde, !
-Les démons, ils m'ont pris, bousculé dans leur ronde! l
+Les démons, ils m'ont pris, bousculé dans leur ronde!
 
 Dites, quels souvenirs de doux compagnonnage |
 Nos promenades par la ville, aux jours brülants,
-Silencieux tous deux, mais sans gêne, et tout blancs e
+Silencieux tous deux, mais sans gêne, et tout blancs
 De poussière, des pieds traînants au front en nage!
 Parlaient-ils à nos cœurs assez, les vieux quartiers! |
 Leurs fers forgés et leurs encadrements de portes,
 Leurs hôtels aujourd'hui bruyants de cent métiers, :
 Quelle France y respire encore, qu'on croit morte!
 Et cette rue, autour du cloître, quelle odeur
-De barricade y monte des pavés encore ! J
+De barricade y monte des pavés encore !
 Et quelle Liberté jeune, dans sa splendeur
 De vierge forte, y tint le drapeau tricolore !
 
-Ou bien, un grand besoin de calme nous portait 4
+Ou bien, un grand besoin de calme nous portait
 A rechercher ces salles claires de musée f |
 Où, doré, dans l'oblique jour d'une croisée,
-# Un torse de Vénus grecque nous enchantait ! 4
+# Un torse de Vénus grecque nous enchantait !
 
 Ou bien, le soir, à l'arrière d'un bateau-mouche, .
-| Nous regardions les quais, les berges défiler. 1
-Et, folles, dans le bleu des coteaux où se couche î
-Le soleil, nos âmes rêvaient de s'exiler… L.
-Paix du fleuve, lenteur des trains de bois, fumée ÿ
-D'usines dans les ciels sans souffle. n'est-ce pas 4
+| Nous regardions les quais, les berges défiler.
+Et, folles, dans le bleu des coteaux où se couche
+Le soleil, nos âmes rêvaient de s'exiler…
+Paix du fleuve, lenteur des trains de bois, fumée
+D'usines dans les ciels sans souffle. n'est-ce pas
 L'inquiétude encor vers le bonheur, là-bas, {
 Ces airs de danse et ces guinguettes allumées ? |
 Enfin, souvenez-vous, nous étions, ce jour, trois, $
-Elle avec nous, portant des fleurs... O son sourire, ñ
+Elle avec nous, portant des fleurs... O son sourire,
 Près du tombeau, passé la grille des octrois ! À
 Et nous, pâles, la tête nue et sans rien dire. À
 Le cher mort! je sais bien, son âme n'est pas là, À
-Son âme sur les bouches vole, et sa couronne Ÿ
+Son âme sur les bouches vole, et sa couronne
 Est ailleurs. Mais, des mains d'une enfant simple et bonne
 Ces roses de faubourg, il dut aimer cela. il
 
-_ Notre amitié, quand j'y pense, je nous revois, : 200
+_ Notre amitié, quand j'y pense, je nous revois,
 
 _ Le soir, tard, parmi vos livres, et votre voix LS
-_ Je l'entends qui s'efforce à rire, si peu gaie 74
-_ Qu'elle soit, d'elle-même, on dirait, fatiguée. 54
-_ Le thé fume, les bûches sifflent, je me plains 32
+_ Je l'entends qui s'efforce à rire, si peu gaie
+_ Qu'elle soit, d'elle-même, on dirait, fatiguée.
+_ Le thé fume, les bûches sifflent, je me plains
 A vous, et je remets entre vos mains viriles ten)
-Mon cœur et la souffrance des heures stériles, 478
+Mon cœur et la souffrance des heures stériles,
 Et je cache parfois mes yeux de larmes pleins. HITS
 
-À Les six étages dorment dans l'ombre. Personne 22
+À Les six étages dorment dans l'ombre. Personne
 Ne veille plus, que nous et, peut-être, ceux-là, Ù à
 Invisibles, dont le nom seul nous consola À
-Si souvent! Puis je pars et notre pas résonne. 1
+Si souvent! Puis je pars et notre pas résonne.
 . Mystère, craquements du si long corridor, :
 Rideaux de nuit qui s'écartent devant la lampe, A
 u Jusqu'au puits noir de l'escalier où, sur la rampe |
@@ -758,7 +757,7 @@ _ Vous quitté, je reviens à pas lents. C'est la nuit,
 …_ Sous le silence des étoiles tout étroite,
 _ Et pourtant, d'être vide, élargie et plus droite.
 Un peu fiévreux, j'embrouille en ma tête à demi
-À Livres, thé, fumerie et votre voix, ami. 3
+À Livres, thé, fumerie et votre voix, ami.
 Il a plu. Sur ma joue une feuille s'égoutte,
 _, Surprise de fraîcheur qui glisse comme un mol, |
 Un long baiser de bouche fondante en mon col,
@@ -767,11 +766,11 @@ Aux carrefours, des jupes rôdent. O douleur
 - De ces dandinements sous la lune! Et toi, dure
 Hécate, ton vieux maléfice encore dure!
 … Face blanche de rage! il te faut la pâleur
-4 89
+4
 
 Du vice et de la chair gâtée, et qui sourie ‘3
-Au passant, une peau maquillée et flétrie, k
-Des couteaux dans les encoignures, et le coup L
+Au passant, une peau maquillée et flétrie,
+Des couteaux dans les encoignures, et le coup
 Par derrière, et la fuite, ensuite, à pas de loup...
 Plus loin, d'autres ombres, du bout de longues hampes,
 Éteignent, le long des trottoirs, les derniers feux.
@@ -786,22 +785,22 @@ Une mollesse dont bientôt mon âme est pleine.
 Les arbres, les dieux noirs des fontaines, les pierres, |
 L'immense arche du ciel pâli sur mes paupières
 Pèsent. La ville, alors, tout contre elle me berce, |
-Comme une fille au cœur peu sûr, qu'on sait perverse, N 1
+Comme une fille au cœur peu sûr, qu'on sait perverse,
 Mais dont la lèvre est franche en folie et ne ment
 Qu'en paroles, et qu'on rêve bonne, en dormant...
 
 “4 à Jérôme et Jean Tharaud “te
 
 ; Au-dessus des toits, une lueur lactée
-4 Point et, dans la vasque en bronze réfractée, 1
-_ Glace d'azur les nympbhes, glisse un éclair k
+Point et, dans la vasque en bronze réfractée,
+_ Glace d'azur les nympbhes, glisse un éclair
 Le long d'un filet d'eau qui bruit. Rien dans l'air,
 . Les miasmes de la nuit dispersés, ne pèse.
 - La ville sur le sein de l'aube s'apaise, ee.
 Respire à peine et prend un front puéril.
-On dirait, bien qu'en été, qu'un brusque avril Î
+On dirait, bien qu'en été, qu'un brusque avril
 . Argente les quais où clapote le fleuve.
-Un dôme luit, fourbi de lumière neuve. 1
+Un dôme luit, fourbi de lumière neuve.
 Dans les squares c'est, comme aux champs, un réveil ;
 D'oiseaux, une attente, aux cimes, du soleil.
 
@@ -825,7 +824,7 @@ De boulanger fume pour le pain du jour.
 Rire % ne
 
 - Avec tes mains sans bagues, ton col fin qui penche, £
-Tes cheveux relevés qui découvrent ton front, 7
+Tes cheveux relevés qui découvrent ton front,
 
 __ Et ta joue enfantine au dessin ferme et rond. ok
 . Mais je tremble, vraiment je tremble que ma bouche, :
@@ -834,9 +833,9 @@ __ Et ta joue enfantine au dessin ferme et rond. ok
 Ne prenne un pli, ne dise un mot qui t'effarouche, |
 Marque au feu, triste écho des hontes d'autrefois. À
 
-_ Et plus encor j'ai peur de ces temps de silence 5
+_ Et plus encor j'ai peur de ces temps de silence
 
-. Où bourdonne à mes oreilles mon sang qui sourd, 3
+. Où bourdonne à mes oreilles mon sang qui sourd,
 Où la ville, au loin, gronde et pousse un ahan sourd, 3 » Où, toujours, comme un cœur affligé qui s'élance, #8
 
 À travers le brouillard et la houille du soir, à |
@@ -888,24 +887,24 @@ Ce qui tremble d'azur, d'odeurs, d'hymen secret
 . Da as un jardin d'avril scintillant de rosée, <
 _ Les pâmoisons des étamines, les douleurs à
 _ Des roses et La joie humide déposée Fr
-__ Par le baiser du clair de lune dans les fleurs... 4
+__ Par le baiser du clair de lune dans les fleurs...
 _ Pourtant, si tu n'étais qu'une illusion tendre, à
 . Le vain fantôme souriant d'un long espoir, ‘a
 -_ Si je t'avais rêvée à force de t'attendre, À
-_ A force de fixer ma lampe, seul, le soir. 3
-_ Si tu n'étais que moi dédoublé dans la glace, ! \ 7
+_ A force de fixer ma lampe, seul, le soir.
+_ Si tu n'étais que moi dédoublé dans la glace, ! \
 4 -Un moi meilleur étreignant l'autre face à face, la
 _ Si tu n'étais... si tu n'étais qu'un lieu commun Es
 De poète, une métaphore sans parfum. À
 
-4 740
+4
 
 + Pitié pour les pauvres désirs traînant la jambe
 - De rue en rue, en ce long soir de juin qui flambe,
 “ Pitié pour ces honteux, ces solitaires, pour
 …— Tous les rôdeurs qui vont frôlant, flairant l'amour.
 D) Des poussières flottent très bas, des vapeurs tremblent
-« _ En spirales, les murs, les lignes d'arbres semblent ñ
+« _ En spirales, les murs, les lignes d'arbres semblent
 …_ Bouger dans une brume rousse, dans le sang
 …_ Et les cris, dirait-on, d'un combat finissant...
 …_ Tristes frères! sans doute, en quelque chambre étroite,
@@ -913,7 +912,7 @@ D) Des poussières flottent très bas, des vapeurs tremblent
 … De fièvre. Ils étaient seuls. Mais non, en chaque coin, \
 —_ Retrouvaient d'anciennes douleurs et, dans la glace,
 Toute leur vie avec ses rides, face à face. :
-54 A tâtons, par l'escalier sombre, ils ont fui loin 6
+A tâtons, par l'escalier sombre, ils ont fui loin
 
 D''eux-mêmes. Dans la rue on marche, on a la foule, |
 Les lumières, les coups d'épaules où l'on roule
@@ -928,8 +927,8 @@ Tout de même, l'amour y passe, on le coudoie. |
 
 . Le fiacre roule. En quelle rue, on ne sait trop. Ft
 On sent battre en dedans, sous son crâne, le trot SR
-. Du cheval. On se penche endormi vers la glace : 140
-Des becs de gaz éteints, des arbres, une place, 17
+. Du cheval. On se penche endormi vers la glace
+Des becs de gaz éteints, des arbres, une place,
 Jusqu'à ce pont, en pleine lune, large et bleu. De
 
 . C'est là. Faut-il vraiment que l'âme s'exagère ‘4
@@ -938,13 +937,13 @@ Mais quel réveil, au coin du pont : un coup de feu Fr
 A retenti. L'écho dans mon cœur vibre encore. ‘4
 C'était une nuit froide et pure, de ces nuits 1.6
 
-Ointaines, où l'espace calme est si sonore 535
+Ointaines, où l'espace calme est si sonore
 
 Qu'on entend finement trembler les moindres bruits. : "#0
 
-3 107 464
+3
 
-Que pesait dans ce grand équilibre qui plane 1
+Que pesait dans ce grand équilibre qui plane
 
 | Le dernier soubresaut d'un homme? Ni son cri,
 
@@ -963,7 +962,7 @@ Toi, bannie, et rôdant au pied de la terrasse \
 
 De ces jardins où l'ordre règne et tant de grâce, À
 
-Pitié, tu n'avais pas de gîte en la cité. 1
+Pitié, tu n'avais pas de gîte en la cité.
 
 Le malheureux! je souffre son martyre : il erre |
 
@@ -999,7 +998,7 @@ Glissent entre les arbres noirs, le long des grilles.
 { Sur les gazons isole et protège leur songe.
 
 à Puis, tout se tait, les clartés meurent, eux oublient
-4 La ville et les soucis d'y vivre qui les lient.
+La ville et les soucis d'y vivre qui les lient.
 
 # Que savent-ils? Longtemps ils ont dans la tristesse,
 : Côte à côte, longtemps cheminé.. Quand était-ce?
@@ -1008,27 +1007,27 @@ De hautes maisons neuves, de vagues espaces, :
 Des masures, plus loin, en embuscade, basses. <
 . Là des réseaux de rails luisent. Combien de fils ;
 “ Emmêlent sur le ciel leurs lignes! Où vont-ils ?
-Où va le crépuscule sournois sur la route? É
+Où va le crépuscule sournois sur la route?
 4 omme un escarpe il rôde, puis s'arrête, écoute. À
 Rien sur la route. Au loin la ville éteint ses cris :
 Dans le brouillard où se dilue un dôme gris. à
 Le soir se penche au bord d'un crime... Oh! rentre vite ;
-De l'école. Si tu savais, pauvre petite! È
+De l'école. Si tu savais, pauvre petite!
 
 Un jour de bise au ciel hérissé de souffrance Fi
 Hargneuse et sèche, un jour grisâtre en apparence Al
-Quelconque, nous suivions cette route qui longe l
+Quelconque, nous suivions cette route qui longe
 Les espaces d'un champ de course au bord du boïs. À
-Comme ce jour, depuis, a fleuri, comme il plonge 4
+Comme ce jour, depuis, a fleuri, comme il plonge
 Ses racines avant dans mon cœur! Je revois l »!
-Ton fin visage rose de froid et ton air 1
-Fragile dans ce nu paysage d'hiver, 4
+Ton fin visage rose de froid et ton air
+Fragile dans ce nu paysage d'hiver,
 Entre les prés gercés et les grilles rouillées ti
-Des villas où craquaient ces branches dépouillées. 4
+Des villas où craquaient ces branches dépouillées.
 ; Notre tout jeune amour avait déjà des pleurs
-De tendresse, une ardeur de sang dolente et sourde, 1
+De tendresse, une ardeur de sang dolente et sourde,
 Un fond mystérieux de crainte, des pâleurs ;
-Subites, et sa joie excessive était lourde. | 4
+Subites, et sa joie excessive était lourde.
 
 Tu marchais à mon bras, réfugiée et lasse, , En
 _ Puis nous entrâmes dans un bouge nous asseoir. (4
@@ -1036,7 +1035,7 @@ _ Des hommes, dans un coin de la salle, à voix basse FL
 
 _ Discutaient. Comme ils t'ont regardée! Et le soir "5
 
-_ Tombaiïit. Le givre aigu griffait les vitres bleues, 4
+_ Tombaiïit. Le givre aigu griffait les vitres bleues,
 Et l'étau meurtrier du gel, à des a lieues RE
 
 _ A la ronde, serraïit, broyait les longs chemins. db:
@@ -1071,7 +1070,7 @@ _ Le cygne, bellement s'approcher, son cœur bat
 Pour lui seul, son cœur ne partage point sa joie.
 ; Le petit faune de faubourg, je le chéris,
 
-. Mais tout en lui, son bleu regard fixe, sa vraie j
+. Mais tout en lui, son bleu regard fixe, sa vraie
  Aisance dans la foule déjà, tout m'effraie,
 
 Et j'entends des clameurs si hautes dans ses cris.
@@ -1082,43 +1081,43 @@ Et j'entends des clameurs si hautes dans ses cris.
 Et c'est comme un autre printemps bien plus terrible.
 
 h La cour n'a pas changé depuis toi. La marmaille :
-4 Dans le ruisseau d'eau sale y joue et se chamaille.
+Dans le ruisseau d'eau sale y joue et se chamaille.
 É Des fûts vides, en tas, des charrettes à bras
-$ | L'encombrent, et les trains font la manœuvre au ras 25
+$ | L'encombrent, et les trains font la manœuvre au ras
 __ Des toits, et l'on entend, vers la gare prochaine,
 . Tourner un disque avec un tintement de chaïne.
 ._ Tu vins là, seul, après dix ans, seul, comme un mort
-1 Reviendrait, oublié de tous, et ton bagage,
+Reviendrait, oublié de tous, et ton bagage,
 L. Mince paquet qu'on jette, était lourd de remord
-4 Et de génie et de promesses d'être sage. 4
+Et de génie et de promesses d'être sage.
 
-O vagabond qu'on loge à la nuit, l'œil de l'hôte ï
+O vagabond qu'on loge à la nuit, l'œil de l'hôte
 
 Te suit! Quel criminel es-tu ? de quelle faute 4 ; |
 
-Encore rentres-tu si las, le jour fini? 1
+Encore rentres-tu si las, le jour fini?
 
 Ainsi ta vie : un numéro dans un garni. à
 Va, prends ta clé pendue au clou, prends ta chandelle, !
-Et monte. Ces souliers aux portes, eux aussi É
+Et monte. Ces souliers aux portes, eux aussi
 
-Se sont traînés par quelle route jusqu'ici ? £ N
-Pauvre mansarde, avec cette ville, autour d'elle, h
-Monstrueuse, effrénée, et ces soirs où tu grilles 4
+Se sont traînés par quelle route jusqu'ici ? £
+Pauvre mansarde, avec cette ville, autour d'elle,
+Monstrueuse, effrénée, et ces soirs où tu grilles
 Du désir d'aller vers le fou rire des filles!
 Et quels sanglots, alors, dans le silence, à fendre À
 L'âme, que le voisin écoute sans comprendre. |
 
 Passant du soir, viens avec moi, fendons le flot “4
 À Des voitures, suis-moi, prends garde à cette roue,
-__ Arrête, demeurons sur ce refuge, îlot ÿ
-5 Perdu dans le torrent de lumière et de boue.
+__ Arrête, demeurons sur ce refuge, îlot
+Perdu dans le torrent de lumière et de boue.
 Et maintenant, sois tout oreilles. Entends-tu ;
-Ces cris, ce tourbillon de désespoir qui rôde É
-- Autour de nous, partout où la mêlée est chaude, É
+Ces cris, ce tourbillon de désespoir qui rôde
+- Autour de nous, partout où la mêlée est chaude,
 Monte, couvre le ciel et, brusque, rabattu |
 Sur la rue, aux carreaux se cogne et flotte en châles #2
-_ De brouillard et de pluie aux devantures pâles.…. o
+_ De brouillard et de pluie aux devantures pâles.….
 à _ Quel besoin de souffrir encore pousse hors |
 … De leur repos et mêle à nos fièvres les morts? ré,
 
@@ -1129,7 +1128,7 @@ Quoi! dormir là, près d'elle, aux portes, jamais plus
 Ne franchir ses octrois encombrés, où les routes
 Viennent de loin avec amour se jeter toutes. !
 Ils rêvaient : quel grand feu de passion là-bas |
-Flambe? La foule noire des vivants circule, Û
+Flambe? La foule noire des vivants circule,
 La terre jusqu'à nous trépide sous leurs pas
 Multipliés… Vers les clameurs du crépuscule |
 Ils se sont évadés, peut-être. Que de fois, |
@@ -1139,56 +1138,56 @@ O disparue ! Et vous, cette ombre qui me touche |
 Comme une main l'épaule, et douce me conduit,
 O maître, n'est-ce pas votre âme dans la nuit ?
 
-1 C'est un soir, aux heures de fièvre, quand les rues
+C'est un soir, aux heures de fièvre, quand les rues
 
 } Sont des enfers de cris et d'épaules bourrues
 
-À Qui vous heurtent en courant vite, dieu sait où... j
+À Qui vous heurtent en courant vite, dieu sait où...
 à La ville, elle chavire en un tournoiement fou
 
-4 De lumière et de foule sombre qui s'écoule.
+De lumière et de foule sombre qui s'écoule.
 
 È Sur l'asphalte, la pluie est bleue, où meurt le jour, |
-…_ Et, par delà les brises du fleuve et la tour, x
-4 Au couchant, tant d'espoir dans les flammes s'écroule!
+…_ Et, par delà les brises du fleuve et la tour,
+Au couchant, tant d'espoir dans les flammes s'écroule!
 
-3 L'air ondule, comme en un songe d'alcool ;
+L'air ondule, comme en un songe d'alcool ;
 
-1 Je vois double. Des escaliers, au ras du sol,
+Je vois double. Des escaliers, au ras du sol,
 
 À M'éventent d'un vacarme sourd, d'odeurs de gares.
 
 No Les carrefours, j'y plonge et nage, en la bagarre
 
-4 125
+4
 
-Des fiacres. Les trottoirs, j'y rêve, en les halos sgh 4
-Des boutiques, les yeux éblouis et mi-clos. 1
-Un omnibus ébranle un pont. Le reflet rouge 4
+Des fiacres. Les trottoirs, j'y rêve, en les halos sgh
+Des boutiques, les yeux éblouis et mi-clos.
+Un omnibus ébranle un pont. Le reflet rouge
 D'un bec de gaz dans l'eau grise s'allonge et bouge. ; :
-Et voici, j'ignore comment... oui, c'est bien toi, 1.
+Et voici, j'ignore comment... oui, c'est bien toi,
 Qui passes en traînant ta jambe près de moi. À
 C'est bien toi, faune las, parmi les maigres arbres $
 De Ia cité, toi qui, naguères, sur les marbres |
 Des cafés accoudant ta divine langueur, À
 Écoutais, sage et fol, chanter, pleurer ton cœur! |
-Que veux-tu? dans le ciel nocturne, vois, ta gloire 1
+Que veux-tu? dans le ciel nocturne, vois, ta gloire
 Se lève ! Que veux-tu ? souffrir encore et boire ;
-Encore dans ta ville? et le séjour des bons 1
-Fait-il donc regretter la rue aux vagabonds ? 1
-Mais tu fuis.. dans le vent flotte ton foulard rouge. 1
+Encore dans ta ville? et le séjour des bons
+Fait-il donc regretter la rue aux vagabonds ?
+Mais tu fuis.. dans le vent flotte ton foulard rouge.
 Plus rien, que ce reflet dans l'eau grise qui bouge...
 
 D Chaque jour, 0e OUTRE
 
 se à madame Simone Le Bargy ñ F'ial
 C ADres-midi. ent eMPeNSEENPE ne
-Ù à Jérôme et Jean Tharaud 4
+Ù à Jérôme et Jean Tharaud
 
-4 Nous avons donné le bon à tirer après corrections BU
+Nous avons donné le bon à tirer après corrections BU
 pour deux mille exemplaires de ce dix-septième cahier 1200
 le mardi 7 juin 1904. LHETAN
-1 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués DA
+Ce cahier a été composé et tiré au tarif des ouvriers syndiqués DA
 
 l 1 Fin d'imprimer deux mille exemplaires de ce
 ns  dix-septième cahier le jeudi 9 juin 1904
@@ -1227,7 +1226,7 @@ J poste ; la recommandation postale, comportant une
 
 157,
 
-4 L'abonnement ordinaire cesse de fonctionner pour
+L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit
 j l'achèvement de cette série; ainsi du premier juillet au
 31 décembre 1903 on pouvait avoir pour vingt francs

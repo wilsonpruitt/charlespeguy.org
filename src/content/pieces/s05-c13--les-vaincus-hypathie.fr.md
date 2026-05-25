@@ -47,7 +47,7 @@ le monde sans Dieu :
 
 en lui offrant des présents. Quand nous demandons à
 
-1 Dieu de faire pour nous plus que nous ne méritons,
+Dieu de faire pour nous plus que nous ne méritons,
 
 nous lui demandons de nous accorder une faveur pour
 laquelle nous lui offrons de douces paroles de louange,
@@ -242,10 +242,10 @@ surmonter la peur de la mort?
 Réponse. — 1° En essayant de nous plier aux lois dela
 nature, qui ne veulent pas se plier à nous.
 
-2 En cultivant en nous le même esprit qui fut aussi
+En cultivant en nous le même esprit qui fut aussi
 celui des plus braves et des plus nobles de notre race.
 
-3 En nous rappelant que nous sommes ici pour
+En nous rappelant que nous sommes ici pour
 apprendre à vivre et non pour apprendre à mourir.
 
 42. Demande. — Quelle est la conception philosophique de la mort?
@@ -265,12 +265,12 @@ pas, car tant que nous sommes la mort n'est pas, et quand la mort
 
 “ est, nous ne sommes plus. » — Epicure, Diog. Laert., X, 27. — « Les
 nobles esprits sont affranchis des superstitions qui sont le cauchemar
-des faibles. » — Lecky, History of European morals, volume I, page 213.
+des faibles. » — Lecky, History of European morals, volume I, page
 — Perdre ce qui ne peut plus nous manquer n'est pas un mal.
 
 D. le monde sans Diea "0 NN
 (a 14. Demande. — Est-il mal de pleurer les morts?
-4 Réponse. — C'est naturel; car tandis que nous |
+Réponse. — C'est naturel; car tandis que nous |
 M VA devons faire face à notre destinée comme des hommes,
 nu nous devons aussi sentir comme des hommes.
 Re 45. Demande. — Comment pouvons-nous triompher
@@ -279,7 +279,7 @@ AL. cause, dans laquelle nous puissions nous survivre longAR temps après que no
 | à 16. Demande. — Quels ont été les plus grands bienfi ‘ii faiteurs de l'homme ?
 |:10 Réponse. — Ceux qui ont soulagé son esprit d'une
 %f frayeur et qui l'ont aidé à faire un pas en avant dans
-443 1
+443
 
 4. Demande. — Que signifie le mot : Immortalité ?
 
@@ -313,7 +313,7 @@ if son auteur — Dieu.
 | 6. Demande. — Tous les hommes ont-ils une âme ?
 Réponse. — On le croit ainsi.
 7. Demande. — Les animaux ont-ils aussi une âme?
-Réponse. — Peu de personnes le croient. 1
+Réponse. — Peu de personnes le croient.
 8. Demande. —- Le corps peut-il vivre sans l'âme ?
 9. Demande. — Et l'âme, peut-elle vivre sans le
 } Réponse. — On croit qu'elle le peut.
@@ -332,7 +332,7 @@ x Réponse. — Nous ne le pouvons pas.
 
 14. Demande. — Que s'ensuit-il ?
 
-Réponse. — Que l'âme et le corps sont, autant que É
+Réponse. — Que l'âme et le corps sont, autant que
 nous avons le droit de parler ou de penser, inséparables
 et que si l'un est immortel, l'autre doit l'être aussi.
 
@@ -348,7 +348,7 @@ Réponse. — L'âme, à la mort, quitte le corps et va
 dans un autre monde pour y vivre éternellement.
 
 17. Demande. — Comment nomme-t-on aussi l'autre
-monde ? f
+monde ?
 
 Réponse. — Le ciel, le Paradis, les Iles des Bienheureux et ainsi de suite,
 
@@ -445,7 +445,7 @@ fausses, et alors c'est la majorité qui est dupée.
 sir Thomas Brown et sir Matthieu Hale partageaient la croyance
 populaire dans l'existence des sorcières.
 
-1 le monde sans Dieu . ï
+1 le monde sans Dieu
 31. Demande. — Quel est l'argument qui vient
 
 | Réponse. — L'argument moral, qui est le plus fort.
@@ -467,7 +467,7 @@ le monde dans un temps à venir.
 
 34. Demande. — Quelle est la conception que nous
 
-‘ devons nous faire d'une vie à venir? j
+‘ devons nous faire d'une vie à venir?
 
 Réponse. — Que tout ce que nous pensons, disons et
 
@@ -488,7 +488,6 @@ ses facultés et de ses forces, de ses pensées, de ses actions
 et de ses affections. Celles-ci, pas plus que les molé-
 
 \ cules qui composent son corps, ne périssent à sa mort,
-| 126
 
 mais elles s'incorporent à de nouvelles formes de la
 vie, et ainsi de suite toujours. (1)
@@ -516,7 +515,7 @@ Réponse. — De rechercher ce qui élargit et élève la
 Réponse. — Les vertus; et celles qui diminuent et
 | dégradent la vie, les vices.
 ‘1 4. Demande. — De quels autres noms les nommet-on ?
-1 Réponse. — Le bien et le mal; ce qui est moral et
+Réponse. — Le bien et le mal; ce qui est moral et
 s immoral; ce qui est bon et ce qui est mauvais.
 .
 6 5. Demande. — Comment apprenons-nous ce qui est
@@ -565,11 +564,11 @@ mode d'action constaté par l'observation.
 I le monde sans Dieu
 4 12. Demande. — Qu'est-ce que la Nature?
 
-( Réponse. — La somme de toutes les forces qui entreme tiennent le mouvement du monde. 5
+( Réponse. — La somme de toutes les forces qui entreme tiennent le mouvement du monde.
 
 À 43. Demande. — Pourquoi l'autorité de la Nature estl elle la plus haute de toutes ?
 
-1 Réponse. — Parce que c'est le premier et le plus
+Réponse. — Parce que c'est le premier et le plus
 1 ancien auteur de l'homme et son plus vieux maître.
 
 J 14. Demande. — Pourquoi faut-il obéir à la Nature?
@@ -591,9 +590,9 @@ la chacun comporte. À
 1 19. Demande. — Quels autres moyens la Nature
 Fa emploie-t-elle pour imposer l'obéissance?
 
-4 Réponse. — Elle a logé en nous un représentant de
+Réponse. — Elle a logé en nous un représentant de
 
-son autorité que nous pouvons appeler la « conscience ». ÿ
+son autorité que nous pouvons appeler la « conscience ».
 
 20. Demande. — Veuillez l'analyser et la définir.
 
@@ -624,7 +623,7 @@ lutte pour la suprématie entre le Passé et l'Avenir. L'homme est le
 champ clos de cette lutte. Le professeur Clifford définit ainsi la
 conscience : « Les instincts accumulés de la race coulant à flots dans
 chacun de nous, et débordant comme si l'océan était versé dans
-une tasse » — page 134.
+une tasse » — page
 
 le monde sans Dieu
 dements sont impératifs, (1) mais tout ceci est de la
@@ -706,7 +705,7 @@ meilleure que le savoir, cependant il est impossible d'agir sans
 |. 1 le monde sans Dieu (Nota
 ‘4 33. Demande. — Que fera encore le savoir ?
 
-4 Réponse. — Il emploiera les forces immenses qui
+Réponse. — Il emploiera les forces immenses qui
 
 14 croupissent actuellement dans l'ignorance; il remplacera
 A # i k le préjugé par la sympathie, l'oppression et la rapacité
@@ -717,7 +716,7 @@ A # i k le préjugé par la sympathie, l'oppression et la rapacité
 
 ‘at vrai Christ de l'humanité ? $
 
-1 Réponse. — La Vérité! qui est le plus parfait savoir
+Réponse. — La Vérité! qui est le plus parfait savoir
 
 À que nous puissions posséder ; et la confiance qu'on peut
 11 compter sur ce savoir pour atteindre les fins les plus
@@ -734,4 +733,4 @@ x Réponse. — De chercher la sagesse suprême par
 
 ui (1) Giordano Bruno et de Tocqueville.
 
-He dal on ' mit é
+He dal on ' mit

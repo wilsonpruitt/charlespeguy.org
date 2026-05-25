@@ -16,24 +16,24 @@ et, comme on dit, sous les auspices du Groupe d'étu- Ÿ È à
 Tu connais, pour en avoir fait partie, le Groupe des
 Étudiants Collectivistes de Paris. Je ne t'en ferai pas
 l'histoire, parce que je ne la sais pas, parce que tu la a:
-sais mieux que moi, parce que deux jeunes citoyens, 4
+sais mieux que moi, parce que deux jeunes citoyens,
 qui la savent, l'écriront quelque jour, parmi l'histoire Ni:
 du mouvement socialiste en France depuis la Commune. : à
 Jadis adhérent au Parti ouvrier français, le Groupe des uf
-Étudiants Collectivistes prit naguère une part tout à À h,
+Étudiants Collectivistes prit naguère une part tout à À
 fait importante, sinon prépondérante, à la défense du
 quartier contre les bandes antisémitiques. Cette attitude républicaine et révolutionnaire ne pouvait plaire sl
 au Conseil national du Parti ouvrier français. Le Groupe Vas.
-des étudiants tomba en disgrâce. Il resta insoumis. Ses + 24
+des étudiants tomba en disgrâce. Il resta insoumis. Ses +
 délégués au Congrès de Montluçon furent particulière-
 ment maltraités. Il résolut dès lors de recouvrer sa t ‘al
 liberté. En vain les guesdistes essayèrent-ils de le garder 4 à
 aggloméré. Après des débats un peu troubles une majo- a
-rité consciente finit par voter l'affranchissement. Bientôt n
+rité consciente finit par voter l'affranchissement. Bientôt
 le Groupe des Étudiants Collectivistes adhéra, comme
 il convenait, à la Fédération des Socialistes Révolution- à
 naires, de la Confédération des Socialistes Indépendants. A PAT.
-Le camarade Sarraute le représentait au Congrès. A2
+Le camarade Sarraute le représentait au Congrès.
 
 Le Groupe donna bientôt la mesure de son efficacité.
 On peut dire en effet que Le Mouvement Socialiste, fondé
@@ -80,13 +80,13 @@ vageries du nationalisme, le prolétariat socialiste apparaît,
 à l'heure actuelle, comme le seul espoir de la démocratie et
 l'unique sauvegarde des idées de progrès et de liberté.
 
-Mais là ne se borne pas l'action du socialisme : théo- ÿ
+Mais là ne se borne pas l'action du socialisme : théo-
 riquement, il substitue aux vieilles méthodes de raisonne-
 ment les méthodes réalistes de la science moderne. C'est )
 l'observation des phénomènes sociaux, c'est la logique
 même de l'histoire qui nous ont conduits aux conclusions
 communistes : la socialisation des moyens de production et
-d'échange réalisée par l'action internationale des travail- é
+d'échange réalisée par l'action internationale des travail-
 leurs et l'organisation du prolétariat en parti économique
 et politique de classe.
 
@@ -97,7 +97,7 @@ vouements les plus purs, et ceux d'entre vous qu'un pessimisme superficiel aurai
 que la vie vaut tout de même la peine d'être vécue.
 
 Le Groupe des Étudiants Collectivistes de Paris fétait
-l'année dernière son sixième anniversaire. Depuis sa fon- Ç
+l'année dernière son sixième anniversaire. Depuis sa fon-
 dation, il a pris l'initiative de toutes les manifestations qui
 ont groupé les étudiants socialistes de l'Université de Paris,
 et il est sans contredit, à l'heure actuelle, le foyer le plus
@@ -131,7 +131,7 @@ Pontoise, près le square Monge
 N. B, — Chaque Causerie est suivie d'une discussion générale sur
 la question traitée par le Conférencier.
 professeur au Collège des Malthus et dans Marx
-membre du Groupe ; L
+membre du Groupe
 G. SOREL Les nouvelles conceptions sociaprofesseur à l'École de listes.
 LOUIS DE BROUCKÈRE La foule au point de vue socialiste
 professeur à l'Université (essai d'une pédagogie socialiste)
@@ -151,7 +151,7 @@ membre du Groupe
 
 agrégé de philosophie
 PHILIPPE LANDRIEU Les projets de législation contre
-licencié ès sciences les grands magasins F0
+licencié ès sciences les grands magasins
 membre du Groupe
 ANATOLE DE MONZIE La nouvelle loi sur les syndicats
 membre du Groupe ouvriers
@@ -167,14 +167,14 @@ Syndicat des Chemins de fer
 k MARTINET L'organisation corporative des
 secrétaire du Syndicat des employés
 MARCEL MAUSS Les trade-unions anglaises
-agrégé de philosophie, 1
+agrégé de philosophie,
 membre du Groupe
 VEDITZ Les trade-unions américaines
 membre du Groupe
 EDGARD MILHAUD L'organisation syndicale en Alle- .
 agrégé de philosophie magne
 membre du Groupe
-LOUIS RÉVELIN L'unité socialiste en France j
+LOUIS RÉVELIN L'unité socialiste en France
 LOUIS DUBREUILH L'unité socialiste et les grandes
 à la Petite République
 ALBERT RICHARD Organisation politique et organidu Parti ouvrier socialiste sation syndicale
@@ -243,9 +243,9 @@ l'issue de la conférence, un punch sera offert au citoyen Confé- À
 rencier, avec le concours du citoyen Député, du citoyen Délégué, du
 citoyen membre du Comité général, du citoyen Conseiller municipal, du citoyen Conseiller général, du citoyen Conseiller d'arron-
 dissement, du citoyen Candidat, du citoyen Futur candidat, du ?
-citoyen Directeur, du citoyen Rédacteur en chef, du citoyen Ré- L
+citoyen Directeur, du citoyen Rédacteur en chef, du citoyen Ré-
 dacteur, du citoyen Secrétaire, du citoyen Trésorier et de plusieurs
-Simples citoyens. Un grand nombre de citoyens Militants y prendront la parole. Ÿ
+Simples citoyens. Un grand nombre de citoyens Militants y prendront la parole.
 
 On trouve à l'avance des cartes réservées à l'Hôtel des Sociétés
 savantes, à la Société nouvelle de librairie et d'édition, 17, rue
@@ -301,7 +301,7 @@ hommes! (Applaudissements) » Elle n'est possible que par la propriété commune
 qui est le signe de la réconciliation. Pour moi, il ne me
 déplaît pas que, dans son mouvement, dans son développement, le parti socialiste et le prolétariat organisé
 coupent, rencontrent toutes les grandes causes. Je veux,
-nous voulons que le parti socialiste soit le lieu géomé- f
+nous voulons que le parti socialiste soit le lieu géomé-
 trique de toutes les grandes choses, de toutes les
 grandes idées, et par là nous ne désertons pas le combat pour la révolution sociale, nous nous armons au
 contraire de force, de dignité, de fierté pour hâter cette
@@ -408,7 +408,7 @@ ainsi que le groupe des, distribua un programme. Je lai
 l'ai mis. Je crois que je l'ai rendu à qui me l'avait prêté.
 Il convient d'ailleurs que ce document figure parmi les
 documents et les renseignements que je réunirai sans
-doute sur le Parti Ouvrier Français, car le Groupe d
+doute sur le Parti Ouvrier Français, car le Groupe
 n'est qu'une parcelle du Parti Ouvrier détachée au quartier latin du cinquième arrondissement,
 - Ayant aussi fidèlement imité les noms, actes et paroles de l'ancien groupe, le nouveau groupe ne pouvait
 manquer d'imiter les conférences à l'Hôtel des Sociétés
@@ -446,7 +446,7 @@ de librairie et d'édition. Un passant rapide et non
 averti pouvait n'en pas voir et n'en pas faire la difé-
 rence. Le Groupe des redouta sans doute, cette fois
 encore, la confusion, car je lis dans l'Aurore du jeudi
-mars, au Bulletin social, cet avertissement : l
+mars, au Bulletin social, cet avertissement
 Le groupe des étudiants collectivistes de Paris nous in-
 forme que la conférence de vendredi soir, à l'hôtel des
 Sociétés savantes, n'est point organisée par lui.
@@ -455,7 +455,7 @@ Elle l'est, en effet, par le groupe des étudiants collecti-
 Je résolus de t'envoyer une image fidèle de la confé-
 rence elle-même. Je ne pouvais y assister, car la situa- à
 tion géographique de ma maison et les interdictions
-médicales sont conjurées pour m'empêcher d'assister, 14
+médicales sont conjurées pour m'empêcher d'assister,
 de longtemps, à des conférences qui commencent à huit
 heures et demie du soir au 28 de la rue Serpente ou, ce
 qui je pense revient au même, au 8 de la rue Danton.
@@ -472,7 +472,7 @@ suspicion — me répondirent qu'ils seraient heureux de
 collaborer ainsi à envoyer de nos nouvelles.
 Tu trouveras dans le prochain cahier, exactement,
 purement, sincèrement, le texte établi par les citoyens
-sténographes aux doigts diligents. Je te prie de n'oublier j
+sténographes aux doigts diligents. Je te prie de n'oublier
 pas que la plupart des discours livrés par la sténographie à la mémoire des hommes sont avant l'impression revus, relus, amendés, corrigés, au moins éche- #4
 nillés par les orateurs. Il n'en est pas de même ici, et
 tu dois en tenir compte à l'avantage des intéressés. Je
@@ -506,7 +506,7 @@ avons, nous, à présenter une image de tout cela.
 
 Si tu étais à Paris, tu serais allé à la grande fête organisée pour le vendredi 13 avril, avant-veille de Pâques,
 par la Petite République.
-Dès le numéro daté du samedi 7, le journal avait annoncé cette fête. Les lundi 9, mardi 10, mercredi 11,
+Dès le numéro daté du samedi 7, le journal avait annoncé cette fête. Les lundi 9, mardi 10, mercredi
 jeudi 12, vendredi 13, une grande annonce occupait tout
 le nord-est, presque jusqu'au milieu en hauteur, de la
 L'annonce du jeudi 12 portait en outre l'avis suivant:
@@ -515,7 +515,7 @@ aujourd'hui ou demain, de 6 heures 1/2 du soir à 8 heures, à
 LA PETITE RÉPUBLIQUE, leurs cartes de commissaires
 pour la soirée de vendredi, à la Porte-Saint-Martin
 Dutheil, E. Givort, Gourdeau, L. Jousseaume, Lecoint,
-Edgard Longuet, Jean Longuet, Massieu, Mauclair, L.
+Edgard Longuet, Jean Longuet, Massieu, Mauclair,
 L'annonce habituelle était à peu près disposée ainsi:
 Représentation du vendredi 13 avril 1900
 Poèmes de Victor Hugo
@@ -557,7 +557,7 @@ des citoyens, au milieu toutes les gradations indispensables. Disposition non pa
 distribution automatique selon les gradations des prix
 des places. Contribution précieuse à la théorie ou,
 comme on dit, à la conception matérialiste, en attendant la théorie mathématique, de l'histoire des repré-
-. Au moment où le public, avant toutes les représenta21 x
+. Au moment où le public, avant toutes les représenta21
 
 tions, commence à s'impatienter, au moment où les spectateurs des galeries sublimes scandent rigoureusement
 de la voix et des pieds, quelquefois dela canne, sur l'air
@@ -591,9 +591,9 @@ toire nous interdit malheureusement de ne pas prendre
 Tous les bourgeois à la lanterne!
 Tous les bourgeois on les pendra!
 Le rideau levé Anatole France lut une allocution que
-je relis dans la Petite République du dimanche 15, inti- ÿ
+je relis dans la Petite République du dimanche 15, inti-
 l'Unité de l'Art
-et présentée ainsi : É
+et présentée ainsi
 Voici le texte de l'allocution prononcée par Anatole France à la
 représentation du Théâtre-Civique, qui a eu lieu hier soir à la Porte- -
 Si je prends la parole, c'est pour la donner à Jaurès.
@@ -651,7 +651,7 @@ même œuvre magnifique; ils concourent à nous rendre
 agréable et chère l'habitation humaine, à communiquér
 
 Ils sont semblables l'un à l'autre par la fonction. Ils
-sont collaborateurs. L'œuvre de l'orfèvre, du potier de h
+sont collaborateurs. L'œuvre de l'orfèvre, du potier de
 terre, de l'émailleur, du fondeur d'étain, de l'ébéniste
 et du jardinier appartiennent aux beaux-arts aussi bien
 que l'œuvre du peintre, du sculpteur, de l'architecte, à
@@ -707,7 +707,7 @@ les sentiments du citoyen Liebknecht, mais qu'ils ne les
 connaissaient que par des communications indirectes,
 alors que Liebknecht avait donné une réponse expresse
 aux questions posées par la Petite République.
-Le Socialiste ainsi daté : Dimanche 20-27 Août 1899, ; è
+Le Socialiste ainsi daté : Dimanche 20-27 Août 1899,
 publiant le compte rendu officiel du dix-septième Con- EUX
 grès national du Parti ouvrier français, tenu à Épernay
 les 13, 14, 15 et 16 août, publiait en effet cette réponse
@@ -759,25 +759,25 @@ simplement impossible. Et le malheureux socialiste qui par
 hasard entre dans un tel gouvernement, s'il ne veut pas
 x trahir sa classe, est condamné à l'impuissance. La bourgeoisie anglaise a compris cela depuis un siècle, et c'est
 
-une pratique systématique de tous ses gouvernements V5 1
+une pratique systématique de tous ses gouvernements
 que le membre le plus radical de l'opposition, qui est te Re
-assez naïf pour se prêter à ce jeu, est pris dans le gou- \4 84
+assez naïf pour se prêter à ce jeu, est pris dans le gou- \4
 vernement. Il sert comme couverture et désarme ses amis, a
 qui ne peuvent pas tirer sur lui; comme, dans une ba- LOS
-taille, on ne peut pas tirer sur les otages mis en avant par >: 2
+taille, on ne peut pas tirer sur les otages mis en avant par >:
 Voilà ma réponse à la question relative à l'entrée d'un
 socialiste dans un gouvernement bourgeois. - AVE
 Je passe maintenant à l'autre question, à celle de l'unité. 1274
-La réponse m'est dictée par les principes et par les intérêts nus A ÿ
+La réponse m'est dictée par les principes et par les intérêts nus A
 du parti. . IRÈNE
 Je suis pour l'unité du parti, unité nationale et unité in- RQ
 ternationale. Mais ce doit être l'unité du socialisme et des
 socialistes. L'unité avec des adversaires, avec des hommes
 qui ont des buts et des intérêts différents et opposés, ce ?
-n'est pas une unité socialiste. Il faut nous unir à tout prix, 07 14
+n'est pas une unité socialiste. Il faut nous unir à tout prix,
 au prix de tous les sacrifices. Mais, afin que nous puissions ah ss
 nous unir et nous organiser, il faut nous débarrasser de À pee,
-tous les éléments étrangers ou hostiles. Que penserait-on : 0 1
+tous les éléments étrangers ou hostiles. Que penserait-on
 d'un général qui, dans un pays ennemi, remplirait les à fe"
 rangs de son armée de soldats pris au pays ennemi? Ne ‘78
 serait-ce pas le comble de la folie? Prendre dans notre
@@ -794,7 +794,7 @@ sont impossibles qui pourraient mettre fin à l'exploitation Re Ne
 Nous ne pouvons pas transiger, nous ne pouvons pas én
 conclure un pacte avec ce système; il faut rompre, et certes pu
 ce n'est pas la classe dominante et exploitante qui lui don- / FRONE
-nera le coup de grâce. C'est pourquoi l'Internationale a } 42
+nera le coup de grâce. C'est pourquoi l'Internationale a }
 
 prêché au prolétariat que l'émancipation des travailleurs ne
 peut être que l'œuvre des travailleurs eux-mêmes.
@@ -835,7 +835,7 @@ lutte de classe d'une manière également juste.
 (1) Au cinquième cahier, page 9, reproduisant les questions mêmes
 adressées par la Petite République aux militants socialistes intérna-
 
-Il y avait un temps où l'on croyait — et bien des socia- D,
+Il y avait un temps où l'on croyait — et bien des socia-
 listes le croient encore — que la révolution sociale résulterait d'une lutte désespérée du prolétariat, misérable et ne
 profitant d'aucune manière des biens que met à notre dis- RU
 position la civilisation moderne. On admettait que ce
@@ -845,7 +845,7 @@ se présentait aux esprits comme une guerre menée ‘à
 contre la société par un adversaire qui se trouve hors ‘4
 de cette société — par un ennemi dont la tâche unique ‘PRE
 est de détruire tout ce qui existe, ne laissant rien derrière - Fe
-lui. En partant de cette conception étroite de la lutte des F8
+lui. En partant de cette conception étroite de la lutte des
 classes, il était facile de prouver que l'intervention des
 socialistes dans des luttes livrées entre des fractions bour- ‘4
 geoises ne peut se concilier avec le principe de la lutte des Je
@@ -856,7 +856,7 @@ liberté pour elle-même, ni de se révolter contre une infamie
 commise. Les socialistes par conséquent ne peuvent se ®) Fe
 commettre avec aucune de ces parties. nn:
 Avec cette conception de la lutte des classes, on est
-nécessairement amené à donner la même réponse négative à : 188
+nécessairement amené à donner la même réponse négative à
 votre seconde question portant sur la participation au ht
 pouvoir dans la société actuelle. En effet, il n'y a pas
 d'action commune possible entre les socialistes, qui
@@ -864,13 +864,13 @@ cherchent à détruire l'ordre existant, et les représentants
 de la bourgeoisie, qui ne songent qu'à conserver ce que les
 tionaux, nous avons écrit son nom :, Schiflonski. Nous prions nos *°4
 lecteurs de vouloir bien faire la rectification. Nous faisons tout ce en.
-que nous pouvons pour éviter de semblables erreurs. Nous savons « 4
+que nous pouvons pour éviter de semblables erreurs. Nous savons «
 que ces cahiers n'auraient aucun intérêt véritable s'ils n'étaient pas r?.
 avant tout des cahiers de documents et de renseignements exacts. En
 particulier la consultation internationale a été relue sur épreuves
-par celui de nos camarades qui, ayant fait récemment un long tour t
+par celui de nos camarades qui, ayant fait récemment un long tour
 d'Europe, a le mieux connu les militants internationaux. Mais il est Mu.
-difficile d'atteindre à l'entière exactitude. Et il est plus difficile 2:
+difficile d'atteindre à l'entière exactitude. Et il est plus difficile
 d'éviter les fautes en copiant un journal à rectifier qu'en écrivant soi- Ur,
 même.
 me semble que l'évolution sociale, comme celle de la
@@ -908,25 +908,25 @@ concessions aux classes travailleuses. Mais pour y arriver
 il est nécessaire de cesser de considérer toutes les classes
 
 bourgeoises comme formant un bloc réactionnaire. Il est
-nécessaire de classer les groupes selon leur caractère plus k
+nécessaire de classer les groupes selon leur caractère plus
 ou moins réactionnaire, selon leur disposition plus ou
 moins grande à faire des concessions.
 Il est évident par conséquent que les socialistes ne ‘
 peuvent regarder avec indifférence la lutte des fractions
 bourgeoises entre elles. Ils doivent se mêler à la lutte pour
 aider à écraser celles qui leur sont plus hostiles.
-Cette intervention ne doit pas se borner aux cas où il f.
-s'agit de la question ouvrière proprement dite ou de ce que k
+Cette intervention ne doit pas se borner aux cas où il
+s'agit de la question ouvrière proprement dite ou de ce que
 l'on appelle la question sociale, ces questions n'étant pas
-indépendantes de tous les autres phénomènes de la vie j
+indépendantes de tous les autres phénomènes de la vie
 sociale. Chaque changement de l'atmosphère politique et
 morale dans laquelle vit la société a une répercussion inévi- Fr.
 table sur le sort de la lutte des classes et sur les intérêts
 immédiats de la classe ouvrière. Aïnsi la conquête des
 nouveaux droits politiques, la défense de la justice sociale
 recherche libre sur les ténèbres de l'ignorance, du principe
-de la fraternité internationale sur le chauvinisme et l'antagonisme des nations, de la tolérance vraie sur le fanatisme f
-clérical — tout cela crée une atmosphère plus favorable à n!
+de la fraternité internationale sur le chauvinisme et l'antagonisme des nations, de la tolérance vraie sur le fanatisme
+clérical — tout cela crée une atmosphère plus favorable à
 la lutte des classes en lui préparant un heureux succès, He
 tandis que l'arbitraire de la classe dominante, le délire Aa
 bestial des chauvinistes et le fanatisme médiéval des curés
@@ -999,7 +999,7 @@ l'étranger (en Suisse), où il adhéra tout de suite à la fraction démo-
 crate-socialiste (marxiste) du parti socialiste russe.
 
 Avant d'être élu membre de la rédaction du Rabotcheïe Délo, a ns
-publié, entre autres, des brochures de propagande socialiste pour j
+publié, entre autres, des brochures de propagande socialiste pour
 les ouvriers russes.
 
 Les réponses déjà publiées ont fait ressortir, au sujet de
@@ -1010,7 +1010,7 @@ observé les événements de près, je réussirai peut-être
 éviter des redites.
 
 L'affaire Dreyfus n'est pas la première crise que la Répu-
-blique ait eu à traverser. C'en est, après le boulangisme, k
+blique ait eu à traverser. C'en est, après le boulangisme,
 après le Panama, la troisième. Cela fait trois crises en dix
 
 Karl Marx a appelé la France la terre classique des luttes
@@ -1152,10 +1152,10 @@ D'une façon générale, ceux des socialistes qui croient
 une réalisation pacifique et pour ainsi dire subreptice du
 socialisme peuvent seuls admettre la prise de possession (8
 partielle du pouvoir gouvernemental quelle que soit la si- à
-tuation politique. Je n'en suis pas. Je pense, au contraire, g
+tuation politique. Je n'en suis pas. Je pense, au contraire,
 que l'enseignement le plus clair de l'histoire est la résistance aveugle et même féroce des classes dominantes
-l'avènement d'un ordre social qui détruirait leurs privi- = 10
-lèges. Les classes régnantes n'abdiquent jamais volontaire- k
+l'avènement d'un ordre social qui détruirait leurs privi- =
+lèges. Les classes régnantes n'abdiquent jamais volontaire-
 ment. Les transformations sociales ne se sont jamais failes
 à l'amiable. La révolution a été toujours le point final et de
 inévitable de l'évolution.
@@ -1163,7 +1163,7 @@ Si une révolution ou plutôt une série de révolutions était Fè
 nécessaire pour faire triompher l'ordre bourgeois sur le a
 régime féodal, on peut d'autant moins concevoir l'avènement
 pacifique de l'ordre socialiste. Tandis que, en effet, le
-régime bourgeois et le régime féodal ne se différencient, 18
+régime bourgeois et le régime féodal ne se différencient,
 dans le domaine économique, que par la forme de l'exploi- ?
 tation et de la propriété individuelle des moyens de pro- 5"
 duction, l'ordre socialiste supprime toute exploitation et
@@ -1174,7 +1174,7 @@ simplement disparaître en régime socialiste, la socialisation
 des moyens de production ayant supprimé sa raison d'être
 économique. Le seigneur féodal pouvait se soumettre, le }:
 capitaliste ne pourra que se démettre.
-Une autre conséquence de ce qui précède est que l'on ne k
+Une autre conséquence de ce qui précède est que l'on ne
 saurait assimiler les fonctions ministérielles aux autres a
 fonctions exécutives et, à plus forte raison, aux fonctions
 législatives. Ce qui en fait la différence, ce n'est pas, à mon
@@ -1251,7 +1251,7 @@ ne doit pas chercher à se le faire payer par des portefeuilles ministériels. M
 plus avoir l'air de fuir les responsabilités au moment
 périlleux, sous peine d'encourir des reproches mérités et de
 voir son prestige diminuer. Et d'ailleurs, la participation
-des mandataires du parti socialiste au pouvoir ne constitue- ÿ
+des mandataires du parti socialiste au pouvoir ne constitue-
 t-elle pas la meilleure garantie d'une défense démocratique
 
 Les socialistes de tous les pays n'hésitent pas à marcher

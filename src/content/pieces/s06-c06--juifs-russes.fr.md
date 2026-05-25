@@ -7,7 +7,7 @@ author: georges-delahache
 isAvertissement: false
 wordCount: 5313
 ---
-14 ARTICLE 73. — Les inspecteurs indigènes ne donnant pas {
+ARTICLE 73. — Les inspecteurs indigènes ne donnant pas {
 satisfaction seront réintégrés dans les cadres auxquels ils
 appartenaient précédemment, dans les conditions prévues
 à l'article 37 du présent arrêté.
@@ -27,7 +27,7 @@ et dans lesquels est appliqué soit le programme des écoles
 régionales d'apprentissage industriel et agricole, soit le
 programme de l'une ou de l'autre section de ces écoles;
 
-3 Les écoles normales (ou les cours normaux) à raison
+Les écoles normales (ou les cours normaux) à raison
 de une par association et par circonscription scolaire;
 
 4° Les écoles de filles dirigées par des institutrices européennes.
@@ -42,8 +42,6 @@ dans l'intérêt de l'hygiène et de la moralité. Le choix du
 local devra être approuvé par le chef de la province.
 
 Elles sont placées sous l'inspection des autorités scolaires et administratives.
-
-| 149
 
 jo ARTICLE 78. — Les établissements d'enseignement privé
 JE ou les sections d'écoles privées ne remplissant pas ces con-
@@ -73,7 +71,7 @@ de Secrétaire Général,
 (Journal Officiel de Madagascar et dépendances,
 
 Notre catalogue analytique sommaire... . . . .. IE
-des indigènes à Madagascar . . . . .. I
+des indigènes à Madagascar . . . . ..
 Une lettre de M. Étienne, vice-président de la
 Chambre des députés, à propos de l'amendement Leygues; les noviciats destinés à recruter
 des instituteurs congréganistes pour les colonies et pour l'étranger; un passage de cette
@@ -118,7 +116,7 @@ qui en résultaient; une arme admirable de
 prosélytisme donnée à la mission catholique;
 système en vigueur, traditionnel, dans toutes
 nos colonies; le général Gallieni, vers le milieu
-de 1903, prend l'initiative de demander au F
+de 1903, prend l'initiative de demander au
 ministre des colonies la dénonciation des
 
 E\ contrats passés avec Les Frères de la Doctrine
@@ -149,7 +147,7 @@ du général Gallieni; inauguration de l'école
 secrétaire du gouvernement, M. Lepreux, parlant des rapports de la France et de l'Angleterre,
 s'exprime ainsi, au nom du général Gallieni ;
 question de méthode;
-IV. — Une originale tentative. — 8 juin. . . . 27
+IV. — Une originale tentative. — 8 juin. . .
 
 Le contrat passé avec les Frères de la Doctrine
 
@@ -253,7 +251,7 @@ dans une école primaire ; à moins d'avoir obtenu, du chef de sa province et du
 post-scolaire ; préparer le brevet d'instituteur
 dans une école normale; se former au ministère ecclésiastique, soit dans un séminaire, soit
 dans un collège d'évangélistes ; entrer dans un
-établissement d'apprentissage industriel et agri- i
+établissement d'apprentissage industriel et agri-
 cole; hors ces trois cas, nombre très restreint
 procurer ; motifs très divers; un louable; ne
 point peupler l'île de déclassés ; préoccupation
@@ -299,7 +297,7 @@ nombre très minime; un projet de la mission
 es lettres de l'Université de Paris; un établissement pour une élite peu nombreuse; méthodes
 toutes différentes de celles qui sont employées
 par les jésuites dans leur collège Saint-Michel
-d'Amparibé, à Tananarive; projet ancien; fondation interdite ; collège Saint-Michel une autre è
+d'Amparibé, à Tananarive; projet ancien; fondation interdite ; collège Saint-Michel une autre
 destination; une petite brochure de M. André
 Chazel; insuflisance d'une classe; nécessité
 d'une petite école spéciale ; un passage de cette
@@ -351,7 +349,7 @@ texte; en intentions; en réalité un régime
 { d'arbitraire inouï; intentions de l'administration; ce que l'on pouvait faire; on pouvait
 ae procéder par des mesures générales ; exemples;
 
-de cela, gouvernement et privilège; autre e
+de cela, gouvernement et privilège; autre
 remarque; aussi et d'abord pour les écoles primaires officielles ; sur toutes absolument; quelle
 autorité discernera; M. le chef du service de
 l'enseignement; équité personnelle; mais il est
@@ -368,7 +366,7 @@ le prix; marchandages; responsabilités, supé-
 rieures ; querelles de clans et de castes; vénalité;
 
 la France ;
-Dans l'arrêté scolaire du 25 janvier, article 56;
+Dans l'arrêté scolaire du 25 janvier, article
 le texte; immédiatement est refusée à tout
 blanc, füt-il muni de tous les brevets possibles,
 l'autorisation de tenir une école primaire; toutes
@@ -406,11 +404,11 @@ de cette autorisation, encouragement, contrat,
 
 ne table; droit absola et imprescriptible; principes;
 
-préoccupations tout à fait empiriques; article 44
+préoccupations tout à fait empiriques; article
 
 | de l'arrêté; texte; je ne veux pas en avoir pour
 
-6 À moi; donc je défends aux autres d'en avoir;
+À moi; donc je défends aux autres d'en avoir;
 
 commandement; manque; pour une simple
 
@@ -465,7 +463,7 @@ comme pour Paris ; elle existait de temps immé-
 morial pour les habitants de l'Imérina ; afflux
 incessant des Hovas à Tananarive ;
 
-XII. — Pour la langue malgache. — 24 juillet . . 96
+XII. — Pour la langue malgache. — 24 juillet .
 
 Justement pour que les idées essentielles à
 notre peuple pénètrent peu à peu les indigènes,
@@ -486,7 +484,7 @@ verbale; paroles d'un Anglais à des chefs indi-
 | s'appliquent fort bien à Madagascar; culture
 | pénétrante et non civilisation de placage; un
 | mot de Michel Bréal ;
-XIV. — Fagots et Fagots. — 31 juillet. . . . ro2
+XIV. — Fagots et Fagots. — 31 juillet. . .
 L'arrêté du 25 janvier 1904; article 3; obligation; texte; ce que c'est qu'un « € faritany »; .
 
 ) obligation parcellaire; les diplômes; la « cote
@@ -499,7 +497,7 @@ nous nous représentons en France; une autre
 qui n'en serait que la caricature; un prétexte
 avancé par les ennemis de la culture;
 
-XV. — Pour les écoles laïques. — 5 août. . . . 107
+XV. — Pour les écoles laïques. — 5 août. . .
 Un malentendu qui serait infiniment désagréable ; nul bluff; non pas détruire ce qui est,
 mais construire quelque chose de positif et de
 bon; ni tracasseries ni vexations; droits des
@@ -541,7 +539,7 @@ revendiquer pour les noirs la direction exclusive
 de leur Église; « les Églises noires aux noirs! »;
 un noir d'Amérique, Turner;un noir d'Afrique,
 
-_ enseignement à Madagascar l
+_ enseignement à Madagascar
 Dwane ; du Cap au Zambèze; infiltrations partout; une tournure sociale ; orgueil ethnique;
 dissidences ecclésiastiques ; un moyen de cristallisation ; un danger politique; journaux anglais ; « l'Afrique aux Africains »; la race anglosaxonne et la race hollandaise réconciliées ;
 indigènes intelligents hostiles à cet antagonisme; legrand journal indigène l'Imvo ;Jabavu;
@@ -562,7 +560,7 @@ observations qu'il faut relire en entier sur le
 caractère des Malgaches et la pédagogie qui
 leur convient ; sur ce que l'auteur et ses commettants se proposaient de faire ;
 
-Ill. — Arrété organisant le service de l'enseignement des indigènes à Madagascar . . . . . . . 133
+Ill. — Arrété organisant le service de l'enseignement des indigènes à Madagascar . . . . . .
 Arrêté du 25 janvier 1904, texte complet, emprunté au Journal Officiel de Madagascar et
 rales ; de l'enseignement officiel ; des établissements d'enseignement ofliciel; de la neutralité
 religieuse ; des écoles formant le degré supé-

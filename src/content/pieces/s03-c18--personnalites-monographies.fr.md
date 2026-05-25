@@ -105,7 +105,7 @@ leur guise.
 Ne leur semble-t-il pas, comme à moi, que l'heure des.
 discussions acrimonieuses est passée? N'est-ce pas, au
 contraire, le moment de faire litière — quitte à reprendre
-ses positions plus tard — des colères et des rancunes ? 414
+ses positions plus tard — des colères et des rancunes ?
 
 La République tirée du danger que le nationalisme lui
 fait courir, il sera temps, si l'on en éprouve le besoin, de
@@ -230,7 +230,7 @@ j'avais rêvé de faire une tribune idéale de liberté, d'humanité, de vérit�
 Si je n'ai pas rompu avec mes affections les plus chères,
 on ne peut pas le lui reprocher,
 
-J'ai eu beau expliquer à maintes reprises que les articles È
+J'ai eu beau expliquer à maintes reprises que les articles
 publiés dans l'Aurore n'engageaient que leurs signataires
 on a persisté à nous solidariser tous.
 s Combien de fois ai-je dû essayer de raccommoder les
@@ -248,7 +248,7 @@ tout un parti ?
 
 Car Urbain Gobhier, si chatouïlleux en ce qui le concerne
 et si rebelle à tous les conseils, dès qu'il a été piqué dans
-son amour-propre par une personnalité quelconque, en ï
+son amour-propre par une personnalité quelconque, en
 demande raison à l'univers entier. Heureusement pour moi
 
 que ses adversaires n'usent pas de représailles. J'en aurais
@@ -491,7 +491,7 @@ de l'Homme et du Citoyen; nous reproduisons ci-après
 ce manifeste; nos abonnés verront lequel vaut le mieux,
 quand on veut faire dire quelque chose, de le demander
 à quelqu'un, à un grand écrivain, — ou de le faire
-élaborer par un comité composé des gens les plus émi- j
+élaborer par un comité composé des gens les plus émi-
 
 Lorsque, au mois de juin 1898, peu de temps après la nomination de la Chambre dont les pouvoirs vont prochainement expirer, la Ligue pour la Défense des
 Droits de l'Homme et du Citoyen s'est fondée, bien peu
@@ -803,7 +803,7 @@ sélection confessionnelle qu'il a aflirmés dans son programme électoral.
 Le professeur d'économie politique nous dira--il sur
 quelles bases statistiques et scientifiques il compte établir
 d'une part la liste des Juifs occupant des situations publiques, d'autre part l'état des francs-maçons détenant une
-part de la puissance de l'État ? j
+part de la puissance de l'État ?
 
 Pour les Juifs établirez-vous vos calculs sur les origines
 historiques, et n'introduirez-vous que le grief de race,
@@ -930,7 +930,7 @@ d'idées, et je vous adresse aujourd'hui un exemplaire-
 
 Veuillez agréer, monsieur, mes salutations distinguées.
 
-[ici la signature] L
+[ici la signature]
 
 Il est particulièrement grave qu'un professeur à la
 
@@ -952,7 +952,7 @@ d'éclairer dans le témoignage que je veux contribuer
 
 Fradet, cet ancien élève à l'école normale d'instituteurs d'Auxerre, qui fut illégalement et injustement
 frappé par M. Leygues, et que l'on a trop oublié, nous
-écrit de l'Yonne, où il exerce provisoirement un métier È
+écrit de l'Yonne, où il exerce provisoirement un métier
 honnéte, un métier de droit commun :
 Vous avez demandé dans vos cahiers des documents intéressants sur la période électorale. Bien entendu, ce qu'il vous
 fallait, ce n'étaient pas des affiches ordinaires. Je crois que
@@ -963,7 +963,7 @@ _ L'autre est dirigé après la défaite des nationalistes contre
 leur chef et candidat Fillot. Comme toutes les bêtises, c'est
 en vogue. C'est par 10.000 que s'est vendue la lettre de faire
 part, au bénéfice de la propagande... socialiste. XE
-Nous ne pouvons reproduire l'image nationaliste, Û
+Nous ne pouvons reproduire l'image nationaliste,
 | grossièrement enluminée ; à droite et à gauche deux
 pots de vin qui éclaboussent ; au milieu en haut une
 gesticule, envoie le boniment à de grotesques électeurs
@@ -1001,13 +1001,13 @@ initiale. J'ai gardé un respect pour ces emblèmes. Ils
 ne sont pas seulement les emblèmes d'un culte. Ils
 appartiennent à notre humanité.]
 
-Vous êtes prié d'assister à la déroute complète et au q
+Vous êtes prié d'assister à la déroute complète et au
 service funèbre qui sera fait par Monsieur l'abbé OLLIVIER, ainsi qu'à l'enterrement définitif de la candida-
 
 FEUE DÉFUNIE d morte de l'abject et vil mensonge de ses amis, coifiée À
-d'un énorme bonnet de coton et ensevelie dans une è
+d'un énorme bonnet de coton et ensevelie dans une
 large veste électorale, ouatée, doublée et fourrée, en !
-son domicile à Sens, au siège du COMITÉ NATIONALISTE Î
+son domicile à Sens, au siège du COMITÉ NATIONALISTE
 
 face le Musée aux corbeaux, à l'âge des illusions envolées.
 
@@ -1029,7 +1029,7 @@ la foire, ses frères en Jésus-Christ;
 Des Dames quêteuses ses sœurs en la Vierge Marie, mère
 de sept enfants;
 
-frère de lait; Ê
+frère de lait;
 
 Père-aux-Hure-Por, dit BeAu-paRD, Dix-MirLe-CIGARES,
 écrabouilleurs cylindriques, GuiLLON-CHAMPAGNE, de Pont,
@@ -1051,8 +1051,8 @@ abénnés ; ils nous sont envoyés d'un département que
 nous connaissons un peu, du département où Hervé $
 était professeur, du département où il fait de la propa- À
 gande. La plupart de nos abonnés ont suivi passionnément, sur les documents et sur les renseignements que
-nous avons publiés dans le quinzième cahier de la ï
-deuxième série et dans les premiers cahiers de la j
+nous avons publiés dans le quinzième cahier de la
+deuxième série et dans les premiers cahiers de la
 troisième, l'enseignement, la propagande, l'action de
 Hervé. Ilest passionnant aussi de savoir comme la propagande électorale s'exerce dans le même département, $
 dans la même population, auprès des mêmes hommes.
@@ -1061,8 +1061,8 @@ En outre le département de l'Yonne a, pour la valeur
 du renseignement, l'avantage d'être à peu près un
 département moyen du centre.] à
 
-Dans le même courrier Fradet nous envoyait cette h
-chanson, vendue aussi par les socialistes au bénéfice de i
+Dans le même courrier Fradet nous envoyait cette
+chanson, vendue aussi par les socialistes au bénéfice de
 leur propagande : à
 
 Nous avons un chic candidat, à
@@ -1076,7 +1076,7 @@ Mais comme député
 C'est un vrai curé,
 On lui taillera une veste. /bis) $
 
-Paraît qu'il parle épatamment, L
+Paraît qu'il parle épatamment,
 I1 sait bien faire l'article.
 Lorsqu'on entend son boniment
 C'est parole d'Évangile.
@@ -1088,7 +1088,7 @@ Qui fait carnaval,
 Un fameux nationaliste ! /bis}
 
 Y' en a qui vont voter pour lui,
-4 Ce sont des imbéciles.
+Ce sont des imbéciles.
 On sait bien d'avance qu'il est cuit
 Et qu' c'est peine inutile,
 Mais monsieur Cornet
@@ -1102,7 +1102,7 @@ Ont fait beaucoup de galette
 Y faut pas croire qu'les électeurs
 S'laisseront conduire à la baguette,
 Faudra qu'ces belles sœurs
-1 Pour ne plus faire la retape
+Pour ne plus faire la retape
 On va les marier
 Avec les curés,
 Pour faire l'armée du Pape. /bis/
@@ -1116,23 +1116,23 @@ Va vendre tes maillots,
 T'aurais gagné de rester tranquille
 Et les électeurs
 Te disent tous en chœur,
-T'arriveras pas, n'te fais pas de bile. /bis) s
+T'arriveras pas, n'te fais pas de bile. /bis)
 
-Lucien Cornet, c'est celui-là, l
+Lucien Cornet, c'est celui-là,
 Qui aura not' confiance.
 Dimanche prochain, c'est ce jour-là
 Qu'on don'ra la préférence
-A notre député F
+A notre député
 Qu'il faut conserver, y
 Pour notre République,
 Et Fillot le candidat,
-5 Pour lui c'est basta
+Pour lui c'est basta
 Il fait partie de la clique. /bis]
 
 Électeurs, c'est dimanche prochain, à
 Qu'il faut donner tous vos suffrages,
 Et surtout pas de ballottage,
-Soit « Lucien Cornet », ; L
+Soit « Lucien Cornet »,
 Faut qu'Fillot reste à sa mercerie, !
 C'est pourquoi Hurpeau
 Et tous les corbeaux, À
@@ -1210,7 +1210,7 @@ de nos faussaires nationaux ?
 Et tu t'en prends à Vliegen, dont toute la faute se borne
 _ à citer une phrase de Jaurès sans y joindre l'article entier?
 Jusques à quand, terrible censeur, passeras-tu ton temps à
-/ requérir à tour de bras? Tu ferais pourtant de bonne ï
+/ requérir à tour de bras? Tu ferais pourtant de bonne
 besogne, si tu laissais à ces bons singes le soin de se chercher les poux. !
 Je tassure, Péguy, tu m'inquiètes. Tu te demandes ce que
 nous serons dans quinze ou seize ans d'ici ? Il est fort probable que nous serons socialistes. Mais toi, Péguy, où
@@ -1218,7 +1218,7 @@ seras-tu ? Tu seras comme aujourd'hui, Péguyste. C'est très
 : dangereux, méfie-toi. L''orgueil est péché capital, et poussée "
 à un certain point, l'hypertrophie du moi relève de la
 Toi aussi, tu deviendras inutile, qui aurais pu être si bon.
-Ton bien cordial, é
+Ton bien cordial,
 J'ajoute, ce qui n'est passuperflu, que je ne me désabonne
 pas : si je dois figurer au pilori des Cahiers, ce ne sera pas
 en cette qualité. On se désabonne d'une revue sans intérêt,
@@ -1237,7 +1237,7 @@ politiciennes. Un parti sans limites précises ni barrières
 solides, ne peut qu'être envahi par des éléments confus, et
 corrompu dans toutes ses tendances. Nous n'en voulons
 pour preuve que l'attitude de certains députés socialistes
-à la Chambre. è
+à la Chambre.
 Nous nous trouvons, au Parlement, en présence de deux
 groupes : si l'un, le « Groupe socialiste révolutionnaire »,
 1 maintient intacte son unité et efficace son activité, l'autre,
@@ -1253,7 +1253,7 @@ par ses votes, la nécessité de maintenir intact notre idéal.
 Nous avons applaudi récemment la ténacité avec laquelle
 Sembat a lutté contre l'emprunt de Chine, flétri les assas-
 
-| sinats des expéditions coloniales et dénoncé l'ignominie de la « campagne » de Turquie. s
+| sinats des expéditions coloniales et dénoncé l'ignominie de la « campagne » de Turquie.
 Ceux-là, du moins, ont sauvé l'honneur. Quelques-uns des
 autres se sont joints à eux avéc plus ou moins de fidélité.
 Le reste a paisiblement évolué sous la poussée ministérialiste. Il à franchi le fossé qui, jusque-là, le séparait du reste
@@ -1322,7 +1322,7 @@ gouvernement, deux jours après, ne pouvait s'alarmer
 beaucoup d'interpellations et questions à lui faites par un
 
 De l'interpellation de M. Georges Berry sur le conflit anglotransvaalien, nous ne dirions rien — le nationalisme anglophobe n'ayant rien de commun avec la solidarité internationale des socialistes pour tous les opprimés — si précisément
-un député du « groupe parlementaire socialiste », le citoyen È
+un député du « groupe parlementaire socialiste », le citoyen
 Clovis Hugues, n'était venu à la tribune apporter les sentiments de ses collègues socialistes. Singulière intervention!
 Ne plus pouvoir embrasser ses enfants sans penser aux
 petits Boers orphelins, est évidemment d'un cœur bien
@@ -1395,7 +1395,7 @@ Deux faits aggravent encore la scission de Roubaix. Ce
 sont d'abord les termes mêmes du manifeste qui attaquent
 violemment les camarades d'hier de Carrette. C'est ensuite
 l'article triomphal que Jaurès, qui jusqu'ici laissait ces
-besognes à d'autres, a consacré à cet événement, doulou- È
+besognes à d'autres, a consacré à cet événement, doulou-
 reux pourtant pour le socialisme. Longtemps encore sans
 . doute nous verrons s'affirmer cette haine implacable contre
 des socialistes. Mais du moins le prolétariat conscient à
@@ -1514,7 +1514,7 @@ pas, il y a quatre ans, assez d'anathèmes pour ce dernier,
 le « salue, non comme un concurrent, mais comme un
 camarade de lutte ». Ce n'est même pas du programme de
 Tours qu'ils s'occupent ; c'est des « intérêts si légitimes du
-petit commerce » ; c'est du triomphe « des droits de la Raïson ». Sur leurs professions de foi, comme le disait derniè- Ï
+petit commerce » ; c'est du triomphe « des droits de la Raïson ». Sur leurs professions de foi, comme le disait derniè-
 rement Parvus, la Déclaration des Droits de l'Homme à
 remplacé le Manifeste Communiste.
 Et il ne s'agit pas d'un cas isolé. Lisez les comptes rendus
@@ -1657,12 +1657,12 @@ m''accordera la joie de relire cette phrase
 toute obscurité dissipée,
 on pourra recoudre
 et fondre $ ai
-: les morceaux £ F
+: les morceaux £
 du socialisme
 en une véritable
 Il y avait à Orléans un poète lauréat à qui nous devons ces vers:
 Je voudrais forger des idées
-Dans le fer, le marbre ou l'airain. ù
+Dans le fer, le marbre ou l'airain.
 Comme on voit tout de suite que ce sacré Morizet est un ouvrier
 manuel, familier avec les métaphores venues des arts et métiers.
 Comme il a raison de mépriser Landry et Salomé.
@@ -1696,7 +1696,7 @@ tant — qui sera définitif au second tour — que notre ami
 et collaborateur de Pressensé a remporté à Lyon, après
 une campagne admirable de netteté et d'énergie, en est
 encore une éloquente preuve.
-Quant aux socialistes ministérialistes, j'exprimais dernièrement ici (r) le vœu qu'ils obtinssent des sièges nom- î
+Quant aux socialistes ministérialistes, j'exprimais dernièrement ici (r) le vœu qu'ils obtinssent des sièges nom-
 . breux. Eux non plus n'auront pas diminué le nombre de
 leurs élus. Mais comme par un arrêt de justice immanente,
 (1) Le Mouvement Socialiste, 12 avril 1902.
@@ -1746,7 +1746,7 @@ pas souvent.
 J'ai reçu le 31 mai la lettre suivante, même en-tête que
 la première
 à joindre au dossier du Mouvement socialiste
-| {Lettre de l'inculpé Morizset) i
+| {Lettre de l'inculpé Morizset)
 Ledit inculpé prie l'Incorruptible de joindre cette reetification à sa précédente lettre lorsquil dressera son acte.
 d'accusation. I1 le prie en même temps de croire que, le
 jour où partira la charrette, le seul souci qu'il emportera,
@@ -1789,7 +1789,7 @@ politique; nous y donner tout bêtement une image
 fidèle, une exacte narration du mouvement socialiste
 international; sur tout il devait s'y mettre tout entier,
 comme je me suis mis tout entier aux cahiers. Il ne
-faut qu'un métier par homme. i
+faut qu'un métier par homme.
 
 AVERTISSEMENT. — Pour avoir une vue d'ensemble des
 mouvements populaires et de la grève dite générale qui -
@@ -1820,7 +1820,7 @@ la vitrine du magasin de cigares dont l'éclairage flam- $
 boie tout à côté des Mille Colonnes. Un passant me
 
 — Ils ont démoli la vitrine à coups de revolver pour
-& forcer le patron à fermer boutique. n
+& forcer le patron à fermer boutique.
 
 Je vais constater les dégâts : la vitrine est trouée de
 cinq trous; les glaces des Mille Colonnes ont également
@@ -1883,7 +1883,7 @@ dû constater le lendemain que les gendarmes flamands.
 Le soir, je ne sortis pas, loin de me douter qu'il y
 aurait des bagarres aux environs de la Maison du
 
-4 Peuple. Le lendemain, un père me dit
+Peuple. Le lendemain, un père me dit
 — Mon ils était de garde, hier soir; il a couché en
 joue les gens entassés dans la Maison du Peuple. Il
 + aurait tiré si l'on avait commandé le feu.
@@ -1968,7 +1968,7 @@ Redescendant en ville, je croise lesgendarmes, géants
 massifs, qui s'en reviennent vers la Maïson du Peuple.
 Aucune lueur d'intelligence sur ces machines à cogner. à
 Un bon bourgeois m'a dit le lendemain :
-— Hier soir, j'étais de garde près de la Maison du ï
+— Hier soir, j'étais de garde près de la Maison du
 Peuple. Cn nous a mis dans une petite école. Là on
 amenait les blessés. J'ai vu deux hommes qui avaient
 reçu des balles dans le dos, un vieillard à demi tué d'un
@@ -2004,7 +2004,7 @@ veuf ayant descendance légitime, et payer à l'État au moins
 les habitations ou bâtiments occupés, à moins qu'on en soit
 exempté à raison de sa profession.
 
-2 Etre âgé de vingt-cinq ans accomplis et être propriétaire
+Etre âgé de vingt-cinq ans accomplis et être propriétaire
 Soit d'immeubles d'une valeur d'au moins 2.000 franes, à établir sur la base du revenu cadastral ou d'un revenu
 cadastral en rapport avec cette valeur;
 
@@ -2035,7 +2035,7 @@ exercé une profession privée qui impliquent la présomption que le titulaire p
 loi détermine ces fonctions, positions et professions, ainsi
 que, le cas échéant, le temps pendant lequel elles auront
 dû être occupées ou exercées.
-Nul ne peut cumuler plus de trois votes. f
+Nul ne peut cumuler plus de trois votes.
 On a parlé d'agents provocateurs. Il est manifeste # d*
 que la police n'a point paru soucieuse d'arrêter ceux
 qui, le 10 avril, cassaient les vitrines à coups de revolver. D'autre part, le dimanche 13, vers 11 heures $
@@ -2075,7 +2075,7 @@ les pluraux des électeurs qui payent moins de cinq
 \ francs, mais qui sont bors catholiques. Sans ces fraudes
 FE électorales, M. Béthune (1) ne serait pas député
 Mardi 15.— Je retrouve dans mes notes certains
-chiffres que M. Vandervelde cite parfois dans les u
+chiffres que M. Vandervelde cite parfois dans les
 Il y aurait en Belgique 930.000 électeurs simples et
 
 473.487 électeurs pluraux disposant de 1.300.000 suf-
@@ -2087,7 +2087,7 @@ M. le baron Béthune, échevin d'Alost, avait falsifié les listes électorales.
 A la Hulpe (Brabant) et à Haut-Fay, 100 ouvriers À
 Du mercredi 16 au vendredi 18. — Avant-hier, hier à
 et aujourd'hui, on a gardé autour des Chambres, durant les séances, une longue et large zone dite zone à
-neutre (une invention de M. De Mot), au grand dam des h,
+neutre (une invention de M. De Mot), au grand dam des
 négociants et boutiquiers qui trafiquent dans ce désert.
 La frontière idéale de la zone neutre coupe la rue de
 Namur un peu au-dessus de la maison où je loge,
@@ -2103,11 +2103,11 @@ SA M. Max Hallet, avocat, conseiller communal, homme ea
 qui ont refusé de marcher. (1) Refus épistolaire, litté- à
 __ raire, retentissant. M. Max Hallet, bel homme et de Na
 : bonne mine, porte un beau frac dans les réunions mon-
-| daïnes, un veston chiffonné à la Maison du Peuple. Ÿ
+| daïnes, un veston chiffonné à la Maison du Peuple.
 D''aucuns lui reprochent ces changements d'uniforme.
 ù — Mais puisqu'il aime à changer de vêtements, me
 | disait une dame, pourquoi refuser de s'habiller en ni
-garde civique? Ça ne lui aurait pas coûté beaucoup, F
+garde civique? Ça ne lui aurait pas coûté beaucoup,
 __ puisqu'il a l'habitude, et ça aurait augmenté le nombre a
 : des bons gardes civiques. Il n'y a jamais trop de bons
 ee (1) Les deux autres furent M. Deswarte, avocat, et M. Spaak,
@@ -2142,7 +2142,7 @@ instamment Salomé de nous préparer non pas seulement une seconde contribution,
 un cahier d'ensemble de la Belgique. Le discours in (2 TU
 extenso d'Anseele et les documents et renseignements
 que nous avons déjà de la récente grève générale et
-de nouveaux documents et renseignements que nous Ê
+de nouveaux documents et renseignements que nous
 aurions des récentes élections entreraient dans ce "
 cahier. J'avoue que le courrier parfaitement sobre que
 lon a lu plus haut ne me satisfait pas; il me donne ”
@@ -2153,4 +2153,4 @@ qui ne savent rien. Il faut commencer ainsi : En Bel-
 
 , gique ily a un roi; une chambre des représentants qui
 se compose de représentants; une armée qui se compose
-de soldats; et ainsi de suite. S
+de soldats; et ainsi de suite.

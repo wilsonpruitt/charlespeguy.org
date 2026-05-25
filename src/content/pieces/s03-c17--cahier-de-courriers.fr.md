@@ -26,7 +26,7 @@ cahier de la deuxième série, un franc
 Nous reviendrons sur ce dossier.
 Lionel Landry. — Courrier de Chine, quatorzième
 cahier de la deuxième série, un franc
-Compte rendu sténographique non officiel de la ver- ê
+Compte rendu sténographique non officiel de la ver-
 sion française du cinquième congrès socialiste international tenu à Paris du 23 au 27 septembre 1900,
 seizième cahier dela deuxième série, un très fort cahier
 de 216 pages trois francs cinquante
@@ -36,7 +36,7 @@ Tolstoi, — Une lettre inédite, adressée à Romain un franc
 
 Impressions sur la vie japonaise
 
-4 Je t'envoie l'article sur le Japon. Je l''intitule Impressions sur la vie japonaise. J'entends dire par là que
+Je t'envoie l'article sur le Japon. Je l''intitule Impressions sur la vie japonaise. J'entends dire par là que
 certaines remarques sont des impressions personnelles
 plutôt que des vérités objectivement certaines. C'est un
 point de vue sur le Japon : beaucoup de ceux qui connaissent le Japon le voient ainsi; mais nON pas tous; —
@@ -75,7 +75,7 @@ truqué, faux, menteur, — corrompu pour eux ou par
 apprend assez de japonais pour pouvoir voyager sans
 guide dans l'intérieur du pays; on descend partout
 dans les auberges indigènes; on vit exactement la vie
-quotidienne de tous les Japonais. é
+quotidienne de tous les Japonais.
 
 Le premier caractère de la vie japonaise, celui qui
 étonne le plus, c'est son extrême simplicité. Simplicité
@@ -189,12 +189,12 @@ coûteux, qu'ils peuvent y placer d'intéressants objets
 d'art. L'absence de luxe et de faux-luxe rend seule
 possible l'introduction de l'art véritable dans l'habitation.
 
-3 Quand on a apprécié le charme de la maison japonaise, on trouve insupportables de laideur, de lourdeur,
+Quand on a apprécié le charme de la maison japonaise, on trouve insupportables de laideur, de lourdeur,
 de prétentieuse méchanceté, nos chambres européennes,
 avec leurs murs aux papiers peints atroces, leurs tapis
 inutiles, leurs meubles surchargés de laids ornements.
 Dans de tels intérieurs, les fleurs mêmes semblent vulgaires, accumulées en bouquets d'une odieuse symétrie.
-Mais surtout l'usage qu'on fait des vrais et des faux ê
+Mais surtout l'usage qu'on fait des vrais et des faux
 objets d'art est attristant. Dans les maisons des riches,
 un entassement stupide d'œuvres d'art, appréciées
 d'autant plus qu'elles coûtent plus cher, sert à exprimer
@@ -502,7 +502,7 @@ artistes de la plus importante école classique, l'École
 de Kano, sont empruntés à la nature : ce sont des
 paysages, d'exquis paysages de lune, de mélancoliques
 paysages de neige; des fleurs, des chrysanthèmes, des
-cerisiers tout roses, des herbes; des animaux, des Ï
+cerisiers tout roses, des herbes; des animaux, des
 tigres, des singes, des cerfs, des chats, de merveilleux
 oiseaux surtout, des insectes.
 
@@ -714,7 +714,7 @@ Le rêve de William Morris laisse en lui un sentiment
 de courage. De même l'impression que j'ai gardée de
 mon séjour aux îles d'Utopie situées de l'autre côté de
 la terre, rend très optimiste ma vision de l'avenir de
-notre Europe : le souvenir du Japon précise mon espérance socialiste. i
+notre Europe : le souvenir du Japon précise mon espérance socialiste.
 
 Nous vivons au sein d'une immense injustice. La
 plupart des hommes peinent du matin au soir, sans
@@ -1109,8 +1109,8 @@ Nous eùmes donc notre cellule spéciale, ce qui con- stituait un immense avanta
 
 Les malheureux n'ont pas toujours la place de se
 
-coucher en long pour la nuit, et plusieurs sont forcés g
-de dormir accroupis sur le plancher rempli de cra- t
+coucher en long pour la nuit, et plusieurs sont forcés
+de dormir accroupis sur le plancher rempli de cra-
 chats et de saletés. L'air ne se renouvelle pas assez,
 car les fenêtres sont garnies de boîtes en métal qui
 empêchent l'air et la lumière de pénétrer suflisamment.
@@ -1324,7 +1324,7 @@ chez le juge. Pour la première fois, il nous fit asseoir
 et m'offrit même une cigarette, ce que je considérai
 comme un signe favorable. Il nous annonça qu'un télégramme de Varsovie ordonnait notre élargissement.
 Toutefois, ajoutait-il, il y avait des formalités à remplir, et nous ne repartirions que le soir; mais en attendant nous étions libres de circuler dans la ville. Le
-scribe qui parlait allemand, le même qui me traitait s
+scribe qui parlait allemand, le même qui me traitait
 gaillardement de menteur, ajouta cette phrase sentencieuse : « Chez nous la justice est lente, maïs elle est
 “ sûre. » La première partie de ce dogme juridique est
 incontestable; je reste sceptique quant à la seconde.
@@ -1425,7 +1425,7 @@ comme ailleurs, beaucoup de conscrits présents n'étaient
 la visite médicale ou de jouir de dispenses. Les délégués communaux se présentèrent à la commission de
 recrutement, mais pour lire une protestation et se retirer. Le secrétaire de la commission se joignit à eux. Il
 fallut appeler par télégraphe un remplaçant. Cet
-exemple a été du reste suivi dans un certain nombre d
+exemple a été du reste suivi dans un certain nombre
 de communes.
 Le lendemain avait lieu le recrutement pour la ville
 de Tammerfors: 327 conscrits, dont 25 seulement
@@ -1481,7 +1481,7 @@ main, et, dans son ardeur à sabrer, atteint à la tête
 ù l'adjoint au maître de police, un capitaine russe du
 nom de Maximoff. Ce fut le seul incident grave de la
 matinée. La blessure du policier était du reste légère
-une heure après je le voyais circuler, la tête enve- j
+une heure après je le voyais circuler, la tête enve-
 Ioppée d'un bandage, et continuer son service.
 
 La revision terminée, la foule se dispersa. Mais entre
@@ -1557,7 +1557,7 @@ les en chasser. De loin, je les vois parlementer, les
 cosaques gesticulent. Le détachement qui marchait en
 fourrageurs approche de l'église. Un autre s'est porté
 vers les esealiers du Sénat, qui sont noirs de monde.
-Les sifllets redoublent sur les marches de l'église. Sur E
+Les sifllets redoublent sur les marches de l'église. Sur
 un des coins de la place, le public augmente. Mais son
 attitude est toute pacifique.
 
@@ -1644,7 +1644,7 @@ leurs évanoui. Au grand galop, un détachement d'une
 quinzaine de cosaques chargea les manifestants jusque
 dans les rues voisines, les perdit de vue; pour ne pas à
 revenir bredouille, le lieutenant qui commandait fit À
-charger dans une rue assez éloignée, où il n'y avait j;
+charger dans une rue assez éloignée, où il n'y avait
 presque personne : une femme qui essayait de se
 mettre en sûreté fut renversée deux fois de suite par nue COURRIER DE FINLANDE ‘
 deux cosaques galopant sur le trottoir. — Tel fut l'incident, sans contredit, le plus grave de la journée.
@@ -1692,8 +1692,8 @@ d'envoyer une pétition à l'empereur, pour se plaindre
 gouverneur, qui n'avait pas même observé les prescriptions édictées par le Code pénal en matière de
 répression des manifestations par la force armée.
 Tels sont les faits. Mais telle n'est pas la manière
-dont on les a présentés en Europe. Le gouverneur géné- Ê
-ral a fondé à Helsingfors, aux frais du budget finlan- l
+dont on les a présentés en Europe. Le gouverneur géné-
+ral a fondé à Helsingfors, aux frais du budget finlan-
 
 dais, un journal russe, la Gazette de Finlande, rédigé
 en partie par des officiers sous ses ordres. L'agence
@@ -1744,7 +1744,7 @@ fêtes de Pâques, les a récompensés : Kaïgorodoff a reçu
 une tabatière ornée de diamants (6.000 francs), Carl- stedt a été nommé colonel, et Kaïtokangas a reçu une
 bague ornée d'un diamant (800 francs).
 
-5 Nous avons publié, huitième cahier de la troisième
+Nous avons publié, huitième cahier de la troisième
 BerNarD Lazare. — L'Oppression des Juifs dans
 l'Europe orientale. — Les Juifs en Roumanie
 Notre collaborateur nous préparait

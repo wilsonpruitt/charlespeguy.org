@@ -9,7 +9,7 @@ wordCount: 13436
 ---
 Le compte rendu sténographique qui a reproduit les
 quelques paroles que j'ai prononcées à la RRQ Û E\
-du citoyen Paul Lafargue me fait dire beaucoup d'in- ï.
+du citoyen Paul Lafargue me fait dire beaucoup d'in-
 cohérences. Cela ne m'étonne pas : Il y avait tant de . :
 bruit et d'interruptions que les omissions des sténo- ns
 graphes étaient inévitables. Je ne m'en plains pas, ul
@@ -23,11 +23,11 @@ ar Ps qui ont pris la défense d'une certaine
 de servir la cause d'un déshérité. Fr) crue et désie
 serait tout à fait absurde d'attribuer en bloc à la
 rgeoisie française, — pins routinière et plus égoïste E à -
-+-{speut e, Comme classe eles bo PE D
++-{speut e, Comme classe eles bo PE
 peübles — des traits de . urgeoisies des autres
 qu'à ses transfages, re qui n'appartiennent ni : JÉ
 
-cahier du 20 mai r
+cahier du 20 mai
 Rien de bien intéressant à te conter. Navrement des
 élections municipales, de Paris, qui n'ont pas été une
 surprise pour moi, mais la réalisation des craintes que
@@ -50,7 +50,7 @@ assez forts pour marcher seuls, qu'ils s'empresseraient
 de lâcher les radicaux dès qu'il y aurait une force s0D cialiste suffisante. Ce n'a été qu'un cri dans les milieux en
 l À intelligents et libéraux de Brest: Quel maladroit! quel
 L”" gaffeur! ça ne se dit pas! — Et le bon Probae, es
-nous avons été à peu près seuls à le défendre. d
+nous avons été à peu près seuls à le défendre.
 Eu Pendant ces mêmes élections, le député radical de ‘
 ee: ÿ Brest — qui en réunion m'a fait Pefee d'un pe “
 F. Isnard, a trouvé le moyen de se faire déshonorer
@@ -59,12 +59,12 @@ ment accusé d'avoir demandé le concours des roy:
 
 pour une sorte de pacte de Bordeaux ; et il nee) ke
 qu'un démenti tellement ambigu LES PE !
-Dernière nouvelle : je compte donner prochainement, 14
+Dernière nouvelle : je compte donner prochainement,
 comme ton ‘ami Hubert Plantagenet, une conférence [1
-publique et populaire sur l'alcoolisme, plus particuliè- ï
+publique et populaire sur l'alcoolisme, plus particuliè-
 rement : l'Alcoolisme et l'auvrier. — À ce propos, menu
-aucun congrès anti-alcoolique, et c'est dommage. » Ce : ; î
-défaut est voulu : le sixième congrès international anti- : Ë
+aucun congrès anti-alcoolique, et c'est dommage. » Ce :
+défaut est voulu : le sixième congrès international anti-
 alcoolique — Bruxelles, 1897 — a décidé que le septième
 aurait lieu — à Paris — en 1899, selon la règle de pério- à Et
 dicité suivie jusque-là, et non, comme quelques-uns le fa
@@ -77,7 +77,7 @@ ordre de jour; on y voit anhoncés des rapports de
 M. H. Bérenger, publiciste, de M. Max Leclerc, publi- : 4 Es
 ciste, de me Avr, proviseur, etc. Ilest à présumer qu'il à Re
 lycées The qe nds Professeurs des grands se
-. : aris, qui dédaignaient nos essais de congrès, 4
+. : aris, qui dédaignaient nos essais de congrès,
  mémes qui s'abstenaient des listes dreyfusistes, et
 qui, sauf quelques exceptions, s'abctt Ra
 ee des Universités populaires ; :
@@ -97,9 +97,9 @@ LAS Baudouin, je crains que tes cahiers continués dans es N°
 a] conditions ne répondent pas aux promesses. Hoi De
 à Le Progrès du Loiret (1) a été battu à plate couture
 Le Progrès du Loiret — je l'annonce aux quelques lecieurs à
-dinés et attardés qui n'en auraient pas eu connaissance par la. : k
+dinés et attardés qui n'en auraient pas eu connaissance par la.
 renommée universelle — est un journal assez récemment institué
-seule fin de faire à Orléans et aux environs ce que nousnomimons D, Ê
+seule fin de faire à Orléans et aux environs ce que nousnomimons
 la défense de la République. J'ajoute — à l'usage de ces quelques D à
 lecteurs ignorants — qu'Orléans est plus que jamais la villeprovi.
 “0 ciale moyenne ordinaire : les éléments proprement résctousares, A
@@ -113,10 +113,10 @@ tèles démagogiques et toutes les inquiétudes patronales : depuis is.
 Poe coeur PUS comme is dient copamatipe it
 DA ARS “ice des affamés que Le nr te
 D} bons de pain. Je Lt de résonne mie
-à Contre l'envahissemen e d'animer les bons éléments: 2
+à Contre l'envahissemen e d'animer les bons éléments:
 
 dans les élections municipales et je crains que ce ne soit
-pour lui le coup de la mort. J'en serais tout à fait désolé. i
+pour lui le coup de la mort. J'en serais tout à fait désolé.
 Enfin tout n'est peut-être pas perdu.
 Nous avons eu hier une conférence de Briat sur les )
 bourses du travail. Il y avait environ soixante ouvriers
@@ -129,7 +129,7 @@ gate la région lui tirent dans le dos. Je ls dans le Socialiste du 8 avril a
 été surpris de ratltude du Pro one orléanais n'ont guère
 rades grévistes de Montargis. Certes iret à l'égard des cama-
 “pour rédacjeur.en chef un sof-disent sai Per nOAdIcal à me
-indépendant, qui se faufile dans les socialiste on ne peut plus F2
+indépendant, qui se faufile dans les socialiste on ne peut plus
 même y fire prévaloir ses idées, Mais le dit journals prod Se
 profession de socialisme qu'en peti le dit journaliste ne fait guére N'a)
 fidentielles comme celles qu'il jen comité, ou dans deslettres con SE ce
@@ -138,10 +138,10 @@ Al est du côté des patrons réactonmahre qe rense des travailleurs, 1: FAIR
 que la Compagnie de Saint-Gobain. Cola ne ionnaires tels à de"
 au plus s'il connaît et eaux véritables socialistes : en qd ai n°
 et pratique le socialisme Ju : C'est tout M NE
-mor g fe, dois encore, ajouter que c'est an Jane Le œ
+mor g fe, dois encore, ajouter que c'est an Jane Le
 . D ent D ue Hé par les défénsens ve 27e le docteur
 .| mier a odérés conservateurs clérieur doux PR" de vagues répn- De
-à avaient poissé pag és, trabissant leurs ctionnaires. Dès le pre4 Ylonnaires. masséez appoint formidable à collègues républicains, é
+à avaient poissé pag és, trabissant leurs ctionnaires. Dès le pre4 Ylonnaires. masséez appoint formidable à collègues républicains,
 ‘. heureusement. Au'second tour les pi quatre mille voix réac.
 
 avons à faire
@@ -174,8 +174,8 @@ pécheurs bourgeois, par la nature et l'homme aussi ennuyeusement
 des yeux. Pour ces fantaisies conventionnelles bourgeoises les
 À Orléanais contemporains ont naguère délaissé les vieux horizons
 larges et la plane beauté dela Loire ancienne. Or les ouvriers Care » sont encore plus accommodés aux bourgeoiseries d'Olivet que Pa
-AT. bourgeois de classe, pour ainsi dire. Aucun militant ne me dément! k
-l'immense majorité des ouvriers orléanais, n0!
+AT. bourgeois de classe, pour ainsi dire. Aucun militant ne me dément!
+l'immense majorité des ouvriers orléanais,
 me. moins bourgeois que les bourgeois, le ner cons pour aller
 ne 1it, pensent à préparer leurs lignes et ‘enr Mara a Révolution
 ins pêcher à Olivet, et ne pensent nullement à préparer à bout à fait
@@ -185,23 +185,23 @@ h organisé par le Groupe des Li!
 avons nommés, dansant Se De nous avons relaté à la page
 pr huitième. Le citoyen Camarade ne nous est pas des plus
 ï ï Monchercamarade nous est particulière- ".
-i la rectification comme l
+i la rectification comme
 dieux. Nous les prions de considérer
 S'ils nous poursuivaient devant les tribunaux bourgeois pour nous
 ai ême, il nous serait facile, pour assurer
-forcer à insérer leur prose même, 1 : s
+forcer à insérer leur prose même,
 la défense de ces cahiers, de développer les moyens suivants: te if
 Y'on ne peut en bonne justice bourgeoise assimiler le fait d'avoi
 injustement oublié ou omis quelqu'un dans une longue énumération au fait d'avoir injustement mis en cause quelqu'un dans quelque ,
 énumération; — et que d'ailleurs les citoyens Poursuivants ont com- “a
-mis l'inconvenance d'introduire dans la réponse qu'ils nous ont j
+mis l'inconvenance d'introduire dans la réponse qu'ils nous ont
 communiquée des allégations concernant le citoyen Tiers. Nous pré-
 senterions la bonne foi de ces cahiers, qui serait manifeste. Nous :
 résumerions le premier moyen en cette formule saisissante : Un
 oubli involontaire ou même une omission volontairement injuste
 - ° n'est pas égale à une introduction frauduleuse. Nous n'aurions pas
 même à résumer le second moyen, car les droits du Tiers citoyen
-sont unanimement sauvegardés. Enfin nous ferions au besoin valoir k
+sont unanimement sauvegardés. Enfin nous ferions au besoin valoir
 ce moyen troisièmé: que la réponse des citoyens poursuivants, composée en sir, qui est le caractère intéressé, dépasserait de beaucoup
 le sextuple de la longueur de l'article incriminé, — Note de la Ré-
 Mon cher Péguy, j'ai lu avec beaucoup de plaisir la
@@ -216,7 +216,7 @@ ete e au septième cahier que par exception
 k ru : vacances de Pâques, du lundi 16 au samedi
 inclus, il y aurait aussi administrati
 Or le samedi saint étai tration le samedi.
-Saint était le samedi 14.
+Saint était le samedi
 de Pâques de ceux qui en avaient b 4. Les vacances 1{
 lundi 9 au samedi 21, C'est ce de AR allaient du
 n'est pas ce que tu as dit. Mon camar. A dire. Ce : !
@@ -246,7 +246,7 @@ d à sonner, préviens-nous, et nous verrons Ce que nous a
 ‘ D Mon cher Péguy, ne penses-tu pas que les à se
 unicipales, surtout les élections parisiennes, SOR® PRE
 me UE de matière à ton histoire projetée
-n'est pas une raison pour que tuajournes les docum ps É Î
+n'est pas une raison pour que tuajournes les docum ps
 les renseignements et les commentaires que tu nous d0Ï8
 sur ces élections jusqu'aux temps improbables où tu
 aborderas cette histoire. Quand nous parleras-tu des
@@ -256,10 +256,10 @@ Barthélémy. J'ai peur que le gouverneur de Bayonne et
 le gouverneur de Castelréactionnaire, que nous nommons & !
 actuellement des sous-préfets, ne répondent peu hono- è î !
 rablement aux envoyés du roy, quand les émissaires
-débarqueront du train proclamant : Tuez-moi ces héré- 4e
+débarqueront du train proclamant : Tuez-moi ces héré-
 tiques. Ils sont tous payés pour livrer la France aux
 nations de la terre. — Si le gouverneur militaire et le
-gouverneur civil donnent leur assentiment aux proclamations des envoyés, que nous restera-t-il à tenter? Toi ; 4 d
+gouverneur civil donnent leur assentiment aux proclamations des envoyés, que nous restera-t-il à tenter? Toi
 qui es bien avec le Comité général, veux-tu lui demander là-dessus des instructions formelles.
 Mon cher Péguy nous nous sommes iñaginé pendant
 l'affairé Dreyfus qu'il i ‘
@@ -269,12 +269,12 @@ Pas Dien sûr que nous n'ayons
 tort. Mais il me semble à Re YOnS pas eu *
 de changé. L'éminent pe “veau qu'il y a quelque chose ms.
 frère du banquier I am-Isaac, beau- à
-saac-Jac i qui + x
+saac-Jac i qui +
 intelligemment l'histoire de ne . a enseigne si
-à la Faculté des Lettres de ca °ogie préhistorique n
+à la Faculté des Lettres de ca °ogie préhistorique
 Ferred, qui m'avai ” nversité de Clermont. .
 'ecommencé avant-hier à med pe que peu, a En
-onner la main, Son cousin <: l
+onner la main, Son cousin <:
 
 l'émine
 nt docteur Cohen-Léyy, professeur de lhistoi
@@ -327,27 +327,27 @@ teront leurs armes respectives. we les meilleures
 Ë à prix d'or, et par des amis Comm
 
 une capitulation honorable. Nous taillerons . - tal
-dans mes murs au dommage de mes tuiles e : S
+dans mes murs au dommage de mes tuiles
 percerons des meurtrières au dommage des 1e sie
 Nous ferons des épaulements derrière mes vieux abri-
 cotiers. Nous creuserons des tranchées-abris dans mes ;
 artichauts. Puis nous guetterons l'ennemi. Et si l'ennemi
-antisémitique tarde à nous attaquer, nous gagnerons du i
+antisémitique tarde à nous attaquer, nous gagnerons du
 pain, nous enrichirons le service commun de nos subsis-
-tances par le bienheureux travail de la terre. Cela chan- FA k
+tances par le bienheureux travail de la terre. Cela chan- FA
 gera quelque peu mes hôtes. Etsi l'ennemi antisémitique b Ft
-nous attaque, nous ferons la défense, ainsi qu'elle est i
-prescrite ou recommandée au service en campagne, ÿ
+nous attaque, nous ferons la défense, ainsi qu'elle est
+prescrite ou recommandée au service en campagne,
 aussi longtemps que nous pourrons tenir. Et comme il
 plait à Zeus hospitalier, je défendrai mes hôtes juifs
 jusqu'à la mort, in
-Nous lisons utilement au décret du 28 mai 1895, portant règlement sur le service des armées en campagne (1), J
-huitième édition annotée et mise à jour : j
+Nous lisons utilement au décret du 28 mai 1895, portant règlement sur le service des armées en campagne (1),
+huitième édition annotée et mise à jour
 à Titre quatorse : du combat. — Chapitre premier s Consi- Fe À b>.
 is générales. — Article 128 : Le combat peut être  £° RS AN be
 ensif ou défensif, mais il a toujours pour but de briser F 2e Ce.
 par la force la volonté de l'ennemi et de lui imposer la no
-Seule l'offensive permet d'obtenir des is dé ï re “JR è
+Seule l'offensive permet d'obtenir des is dé ï re “JR
 défensive passive est vouée à : écisifs. La Pr
 à rejeter absolument, à une défaite certaine ; elle est SN Re »
 Tout combat est précédé
@@ -379,7 +379,7 @@ les pratiques cérémonieuses conseillées par la théorie ;
 l'émulation, nous saurons opportunément nous rappeler
 ñ viction qu'elle
 troupe engagée doit aller au feu avec la con
-D-- 4 Nous nous conformerons à ces indications plus brèves: j
+D-- 4 Nous nous conformerons à ces indications plus brèves:
 +4 ; laquelle on veut attendre l'adver-
 À La ligne de défense sur laqu
 saire peut être renforcée par des travaux de campagne;
@@ -397,16 +397,16 @@ Nous briserons ainsi par la force la volonté antisémi- A
 tique. Mais des'imaginer que je vais recommencer comme
 il y a deux ans, que je vais aller parles voies publiques
 donner quelques coups de canne assez inoffensifs et
-recevoir les coups d'innombrables massues, que je vais É 4:
+recevoir les coups d'innombrables massues, que je vais
 
-risquer mes reins, mes épaules et ma tête à l'écrasement : Î
+risquer mes reins, mes épaules et ma tête à l'écrasement
 mat des cannes plombées, que je vais en un mot m'ex- Au
 poser au dommage capital pour sauver les binocles
 accrochés à la devanture de M. Lévy-Keiser ou les
 chaussures étalées aux devantures de MM. Kahn, Lincoln et compagnie, ou pour garantir le coffre-fort de
 M. Arthur Mayer, non, mon ami, non, il faut renoncer
 à cette imagination. Les juifs sont des hommes comme
-me Ils sont des citoyens français comme nous. Nous 0 W
+me Ils sont des citoyens français comme nous. Nous
 
 sT0ns, jusqu'à ce que mort s'ensuive, les garder contre
 injustice personnelle. Nous devons les garder aussi LUE -
@@ -414,10 +414,10 @@ contre l'injustice réelle d ue ee,
 biens d elle dans la limite restreinte où les
 de ce monde, possédés individuellement
 m : * + Au delà comencent les régions douteuses où nul ère d :
-ne doit s'aventnrer, Tous é père de famille Ÿ
-duction et d'éch ‘7e es grands moyens de pro- D
+ne doit s'aventnrer, Tous é père de famille
+duction et d'éch ‘7e es grands moyens de pro-
 valent pas la peau du vie ndividuellement, ne
-ux chrétien que je suis. : Ê
+ux chrétien que je suis.
 n cher Péguy, on sentait depuis plus d'
 que ça recommençait, T un mois
 à * Tout y est : vous le savez mi
@@ -448,30 +448,30 @@ vous si un tel projet conviendrait à l'Union pour l'Action
 “ Montpellier, 32, boulevard du Jeu de Paume.
 
 Un professeur de l'enseignement secondaire, Pas ; !
-républicain, m'écrit de Paris : ÿ À É
+républicain, m'écrit de Paris : ÿ À
 Mon cher ami, je ne suis, vous le savez, ni socialiste
 ni non socialiste. Je crois qu'une seule idée suffit à gui-
-der les âmes honnêtes, —et il y en a peu, — c'est l'idée l
+der les âmes honnêtes, —et il y en a peu, — c'est l'idée
 de la Justice. Morale et politique, tout doit reposer sur
-cette notion. Ajoutez ce moyen : savoir, — autant qu'il j
-est possible à l'homme de savoir. La science me paraît i
+cette notion. Ajoutez ce moyen : savoir, — autant qu'il
+est possible à l'homme de savoir. La science me paraît
 donc la seconde et la dernière donnée d'un problème
-qui ne sera jamais résolu. i
+qui ne sera jamais résolu.
 Votre langage me semble un peu obscur : j'ai peur que
 vous n'ayez trop confiance dans des formules et dans
 - des mots. Ce que je reproche au socialisme, c'est qu'il
 prétend devenir une religion. — Guesde, Lafargue et le
 père Vaillant me paraissent des pontifes, créateurs d'orthodoxie, J'ai assez des papes, toutes les doxies me sou-
 lèvent le cœur. Il n'y a pas de dogmes contre la conscience. Je ne veux croire, que ce que je crois. is, hu
-Il me semble que ces gens-là sont profondément im- ñ "PE  J
+Il me semble que ces gens-là sont profondément im- ñ "PE
 prégnés de ce jésuitisme contre lequel, non seulement œ dé N re
 tout mon cœur, mais toute ma chair se hérisse. — Du Ea. * ?
 discours de Lafargue suinte la frayeur d'être remplacé Be es
 par les intellectuels dans les brancards de la sedia ges- à ar
-tatoria de son beau-père. s
-rip ire dre pe archie, dans l'Idée sociaHablé et basses rer tant d'âpreté, nous paraît misé- É
+tatoria de son beau-père.
+rip ire dre pe archie, dans l'Idée sociaHablé et basses rer tant d'âpreté, nous paraît misé-
 maîtres et des de len peu nous tenons à être des
-sônt trop nue times comme Duclaux j
+sônt trop nue times comme Duclaux
 Pôur demander autre es culté il y a à connaître, À
 n'ont pas encore na e redire, à ceux qui -
 
@@ -490,7 +490,7 @@ plus ou moins jaloux les uns des autres et plus oumoins
 “. intrigants? mais intrigants égoïstes cherchant avant
 tout à faire leur beurre au nom et à l'abri du proléta- Li
 x PU riat? — Qu'on les dénonce alors à la vindicte publique
-Mais ilest aussi très possible de se tromper de bonne foi 1 k
+Mais ilest aussi très possible de se tromper de bonne foi
 Av BL surles moyens que les socialistes doivent. employer pour
 PAR | arriverà transformer la société actuelle le plus promptement
 ê 27 possible. Alors pourquoi tant de suspicions et de coups
@@ -510,7 +510,7 @@ i jstianisme, telque l'a conçu l'aristotre
 î pa me une marque d'infériorité,
 à ne aies infligée par un Dieu vengeur, plein de “ruse Hs:
 s. au pauvre bougre qui aima le premier et à tous ses descen: “
-on Et les socialistes révolutionnaires, qui veulent au plus vite = Ë
+on Et les socialistes révolutionnaires, qui veulent au plus vite =
 s'emparer des pouvoirs publics par la force, sont-ils moins Le.
 ” raisonnables que les socialistes temporisateurs qui révent ne
 de conversions générales et. qui attendent que le bourgeois ‘£a
@@ -520,13 +520,13 @@ d'être lé gouvernement le plus tôt possible, car seul il pourra, É. » il vo
 actuelle ne lui délivrera jamais : l'instruction. ; ; ‘#R
 } — Non pas l'instruction primaire qui consiste à ne rien
 sayoir et à faire des pédants, des chauvins, mais l'instruc- FR
-plus qu'aucun bourgeois ne rêve de donner à son fils — À k r
+plus qu'aucun bourgeois ne rêve de donner à son fils — À
 suppression des casernes, des geôles, des désirs de déses- k “UN,
 pérés par le pouvoir qu'aura chacun de tout posséder, — à
 Et les frontières s'évanouiront d'elles-mêmes, car les vagues pren
 neront, et il n'y aura plus que des hommes. — Est-ce une D CT
 honte que de n'être pas Français, ou Prussien, on Chinois ?
-non, mais den est une que do ne pas être homme. « 1
+non, mais den est une que do ne pas être homme. «
 at socialiste aurait-il moins le droit de forcer à la cul- ) ne
 ure intellectuelle, que tous les États SA Pt
 R è passés et présents, qui ‘4
@@ -572,19 +572,19 @@ De la révolution sociale sans ou malgré les autres.
 
 Un instituteur breton écrivait récemment au citoyen il
 Émile Boivin, secrétaire des Journaux pour tou :
-J'ai reçu tous vos envois etje voulais vous remercier par- ( L
-ticulièrement etremercier en particulier les personnes et les 1 i
+J'ai reçu tous vos envois etje voulais vous remercier par- (
+ticulièrement etremercier en particulier les personnes et les
 œuvres à qui je les dois. Mais j'ai pensé que toutes ces ŒUr
 vres étaient les enfants du parti socialiste, et que le parti
 socialiste tient moins aux remerciements des citoyens qu'à
 Quelle force ce serait pour le socialisme que d'avoir acquis :
-le dévouement plus ou moins éclairé de tous les membres j
+le dévouement plus ou moins éclairé de tous les membres
 du corps enseignant! — Il faut précipiter l'avènement du
 socialisme au pouvoir en le faisant connaître, comprendre ä
-et aimer. — La propagande suffira à cette tâche si elle est , É
+et aimer. — La propagande suffira à cette tâche si elle est
 faite par des hommes d'une vie irréprochable. Elle sera ‘4
 peut-être longue, car tous les esprits ne sont pas encore pré- Fi
-Fe à recevoir la semence d'une justice intégrale et d'une j
+Fe à recevoir la semence d'une justice intégrale et d'une
 ne universelle. Il faudra détruire les superstitions et :
 1e He “ je travail à nous maîtres d'école, et aux
 rs. eureusement, quantité de ceux qui ensei- à
@@ -592,7 +592,7 @@ pu même au nom de l'État républicain, sont encore im “
 us de préjugés superstitieux, rie É à
 la collectivité, s'effraient même one
 Ils sont tous plus à plai
-ont cherché ou rêvé une st , surtout ceux qui x
+ont cherché ou rêvé une st , surtout ceux qui
 et ingrate. Et c'est encore une rai qu'une mission ardue 4 Là
 contre le découragement et . raison pour les protéger
 tomber si on les abandonne dans Reea où ils peuvent NES is
@@ -604,7 +604,7 @@ et qui ne demandent pas mi es vacances de Pâques
 des Journaux pour to mieux que de collaborer à l'œuvr
 fluence sera limitée pis ue seront des auxiliaires dont Fe
 quelques PART : sa dévoués. — Jajouterai la liste .
-commune voisin, icipaux de ma comm: p
+commune voisin, icipaux de ma comm:
 e. Ce sont de braves culti une et d'une
 cultivateurs, qui aiment
 
@@ -627,30 +627,30 @@ quoique étant plus instruits: que n'importe lequel des der-
 niers élus ou réélus. L'un d'eux a été maire de la commune
 ta pendant deux ou trois périodes et a obtenu 150 voix sur
 si 4go votants et 1,200 inscrits. Constatez que les abstentions
-ne sont dues qu'à l'absence des électeurs merins, pour la c
+ne sont dues qu'à l'absence des électeurs merins, pour la
 Mon cher Péguy, tu as passé par lExposition, ou du ‘
 °h moins tu as des amis qui ont le temps d'y aller. Jetede
 mande un renseignement sans importance : Le panorama
 Marchand que nos amis recommandent si véhémente-
 ci À ment et si justement à l'indignation des bous citoyens
-à est-il bien le même que ce Panorama Beer 708 4
+à est-il bien le même que ce Panorama Beer
 x #4 Fe journaux recommandent si chaleureusement à l'admira-
 comme un insti-
 f. G) Nous n'entendons pas dense te à vingt-quatre ‘
 CN 7 tuteur moyen. Le eg dans le commerce de la Lbtak
 >. 0 ans, et j'ai été passer quai e circulaire ministérielle m'a rappelé
 ) 9 rieà Paris. Puis, en 188, un mmerce de la librairie a des grâces.
-tion et à la visitation des foules. Ou bien ÿ
+tion et à la visitation des foules. Ou bien
 a) un panoram ; rres colo- NE
-qu'il nous rappelle toutes les atrocités des gue ñ
+qu'il nous rappelle toutes les atrocités des gue
 niales, de nos guerres coloniales. Sur ce panorama, per , à
 à fois enguirlandé de têtes coupées, s'exerceraient les in- ;
 dignations socialistes et révolutionnaires de nos amis et Me
-de nos camarades les rédacteurs, en particulier d
+de nos camarades les rédacteurs, en particulier
 citoyen Gérault-Richard et de M. Urbain Gohier; (Es nl
 b) un panorama Marchand non seulement inoffensif,
 mais agréable, bon enfant, amusant et passionnant qui se
-ne nous rappellerait plus que les gloires victorieuses et 1. 4.
+ne nous rappellerait plus que les gloires victorieuses et
 les victoires glorieuses. Gloire et victoire! Victoire et Fe ‘à
 tion. Atlantique et Océan Indien. Je lis en effet dans D‘
 l'Aurore du dimañche 3 juin, au beau milieu de la pre- “
@@ -661,11 +661,11 @@ sante façon les épisodes de la mission Congo-Ni à Le ?
 se 4 l'arës, c'est par la merveilleuse reconstitution de De
 son féerique décor qu'elle triomphe. : N à
 annonce : que: à l'Exposition, cette
-Panorama dans lequel 1 ÿ i
+Panorama dans lequel
 nes de la vie africaine e peintre Castellani a reproduit des
-visiteurs désireux de ira toujours au Trocadéro scè- D
-rendre com de nombreux PE l
-te comment les officiers colo- Fe i
+visiteurs désireux de ira toujours au Trocadéro scè-
+rendre com de nombreux PE
+te comment les officiers colo- Fe
 
 nisent et civilisent. C'est Fu
 rendue avec une vie, un De scène de mœurs, une Jecon de ch,
@@ -675,7 +675,7 @@ Fes deuxième et dernier panorama Marchand, dif.
 ." ©à Premier, s'exercerait l'inventive écon
 nos camarades, 1 in Omie de » les administrateurs économes,
 É | S'il en est ainsi, Monsieur, si les deux panoramas
-hi Sont pas le même, c'est bien. Ÿ
+hi Sont pas le même, c'est bien.
 ne Sinon, je suis moins étonné que le nationëlisme et Je
 Militarisme nous mangent comme ils font.
 Le J'étais moins embarrassé pour le panorama de Madais gascar. Quand j ai lu dans la'Petite République daiée
@@ -704,9 +704,9 @@ Au moment où je t'envoie, je reçois l'Écho de se
 Semaine, revue qui nous est chère pour beaucoup
 raisons. C'est le numéro du © J - met
 trouver « quelques-uns des dioramas qui ie pee
-le panorama si intéressant qué M. Louis Ta : è
+le panorama si intéressant qué M. Louis Ta
 peint et qui trouve un si grand succès près des Meeues “
-de l'Exposition ». Cinq reproductions : batailles et 4 F
+de l'Exposition ». Cinq reproductions : batailles et
 morts; je ne sais quelle dangereuse poétisation d'une
 épouvantable campagne ; et une exécution des Sakalaves +1
 propos de Aurore, toi qui es à Paris, es-tu assuré LE !
@@ -717,7 +717,7 @@ tion littéraire ? Distingue-til bien de la vérité polémique, nt
 laquelle n'est pas de la vérité, la vérité historique, 4248
 laquelle est la vérité? N'estil pas conduit quelquefois
 par ses métaphores et par ses comparaisons. N'est-il pas
-séduit quelquefois par l'activité de la phrase. Ne con- L 2 2
+séduit quelquefois par l'activité de la phrase. Ne con-
 fond-il pas souvent les plans d'expression, qui ne sont
 pas moins importants en littérature que les plans de de
 conscience en psychologie? Quand il dit que M. Wal- ME:
@@ -728,7 +728,7 @@ Je : e par laquelle M. le général Mercier est le bour- à
 à . deck-Rousseau n'est Pas uniment, uniquement
 avocat du pape et l'avocat d'Eiffel. J'ai peur qu'il nv
 ait là quelque effet de litté , sut li.
-Han ‘8 de littérature. L'auteur serait-il dupe H » 6n vérité, de la fausse méthode qui consiste à 5 è
+Han ‘8 de littérature. L'auteur serait-il dupe H » 6n vérité, de la fausse méthode qui consiste à
 
 sa das VA plateau toutes les faiblesses an moins
 - d'un ministère, sans jamai “
@@ -760,8 +760,8 @@ ter plus tard à nos lecteurs les documents et les rensei- “1
 gnements que nous aurohs recueillis sur le Parti
 Ouvrier Français et sur son histoire contemporaine et l'E
 récente, il nous semble que nous pouvons donner dès à ]
-présent quelques documents qui forment un petit : Î
-Le Socialiste du 11 mars 1900 publiait cet article en : : È
+présent quelques documents qui forment un petit
+Le Socialiste du 11 mars 1900 publiait cet article en :
 pousse des universités populaires depui La
 à ñ : puis quelque huit
 ä ge à les arrondissements de Paris
@@ -774,14 +774,14 @@ thropiques, de récitations, de chants He scours philan- D À
 à une ou deux séances de science am neue. cos Vie spr , “à ?
 savants pour de vrai; puis arrivent les fenseures een
 listes plus ou moins jeunes, les ue farceurs, les mora- Ke
-les aspirants à la politique Atérateurs sans lecteurs, D:
+les aspirants à la politique Atérateurs sans lecteurs,
 aurès est d , : public.
 siasmé de ans l'enthousiasme; il est touj
 anti ce que font les philanthr jours enthou4 à à dans la Petite République, s opes. Il me prend
 as ans une conférence au Grou: pe ne nommer, parce it
 sur lé Socialisme et les = Ke étudiants collecti- \|
 ntellectuels, je m'étais
-Permis de ne pas prendr k
+Permis de ne pas prendr
 de la bourgeoisie libérale « On Cette dernière marotte
 y a des socialistes qui voient que t, écrit Jaurès, qu'il
 lique de la bourgeoisie et un encore un calcul machiavé.
@@ -794,7 +794,7 @@ Que voulez-vous, Jaurès, les marxistes ont le cerve
 Les œuvres des philan rpenlséque le voue:
 À œuvres des philanthropes ne leur disent rien de bon. Ils
 F SPAM LS ces messieurs aimeraient à voir les ouvriers se
-fi sser de l'étude du socialisme, qui est la véritable k
+fi sser de l'étude du socialisme, qui est la véritable
 Gi la seule préparation intellectuelle à la Révolution, pour
 s'occuper de questions scientifiques qu'ils n'ont ni le temps,
 à ni les moyens d'approfondir, pour s'avachir avec la littéra
@@ -817,21 +817,21 @@ privés « du bien de l'intelligence », selon le mot de Dent
 avaient pour Vaillant, Guesde et les militants MAarxs"
 L Un mme mener que le cation de Lanrgue ste
 elle était si éveillée que, pour ne pas les En re
-soutenait pas de leur autorité les idées qu'il él . ; É 13
+soutenait pas de leur autorité les idées qu'il él .
 contre eux. Ce socialiste, qui $€ plaignait amèremen les A à
 bêtises d'avant 1848, que les conférenciers débitaient sur no:
 Laämennais, la morale et autres sujets d'intérêt aussi palpi- LÉ
-tant et qui venait chercher nos publications socialistes ÿ i
+tant et qui venait chercher nos publications socialistes
 ‘ comme un contre-poison, n'a pas osé demander ni à Guesde, à
 ni à Vaillant, ni à moi, d'aller faire une conférence dans
 da son université populaire. Nous ferions déguerpir les phi- ASE
 Le socialisme, non émasculé par les intellectuels et les :° Fe
 intégralistes, est banni des universités populaires. in
 Que les bourgeois qui s'intéressent aux universités popu- de in
-laîres en aient conscience ou non, ce mouvement est un ii ni - (: i
+laîres en aient conscience ou non, ce mouvement est un ii ni - (:
 “l essai de captation intellectuelle de la classe ouvrière, et Le
 une tentative pour donner à l'idéologie bourgeoise une D 1}
-nouvelle prise sur le cerveau ouvrier. ES i
+nouvelle prise sur le cerveau ouvrier. ES
 L M. Anatole France est philosophiquement une des têtes :
 L 2 les plus émancipées de la bourgeoisie, et son esprit est gé-
 à Fees salue l'a prouvé sa noble et courageuse con-
@@ -839,7 +839,7 @@ L 2 les plus émancipées de la bourgeoisie, et son esprit est gé-
 a na des premier et deuxième arron- ni
 à nts, que reproduit la Petite Républi i no
 la vieille balançoire de la libre a, pee pren
-D « Si l'on réfléchit, dit-il, sur les misè : ; +4 F
+D « Si l'on réfléchit, dit-il, sur les misè : ; +4
 des cavernes jusqu'à Ru pe 4 VA
 blé la malheureuse humanité, on s, Ont acca- £ on
 jours la canse dans uné fauss n en trouve presque touLi € lausse interprétation dl ne
@@ -889,18 +889,18 @@ s'assurer les jeunes intellectuels
 de êcher la fondation des cités . Or
 ouvrières et d'autres ŒUVrEs #; radis, mais de bons re- Fa
 ils ne devaient pas Re
-cinq pour cent au leu de é
+cinq pour cent au leu de
 are du cinq pour cent aus sa = à
 présentent avec leur orviétan et: leur onguent chlorofor
 L'ouvrier mal nourri, que dix et onze heures d'atelier
-épuisent, ne peut avoir qu'une très petite somme Su i
-gie de reste pour organiser des syndicats, des coopérativ es à l
+épuisent, ne peut avoir qu'une très petite somme Su
+gie de reste pour organiser des syndicats, des coopérativ es à
 des groupes politiques et socialistes ; rien donc ne éerait La
 plus profitable à la classe capitaliste que d'entrainer les su
-militants des syndicats et des organisations socialistes à F4 i
+militants des syndicats et des organisations socialistes à
 absorber ce faible résidu d'énergie intellectuelle dans des aol
 études scientifiques, littéraires et autres.
-Il n'y a qu'une science que les travailleurs doivent acqué- + 1
+Il n'y a qu'une science que les travailleurs doivent acqué- +
 rir, même en se serrant le ventre, même en prenant sur
 leur sommeil, c'est le socialisme, la seule science dont l'application supprimera leurs misères et leurs souffrances et
 ouvrira les portes d'un monde où tous les êtres humains
@@ -912,7 +912,7 @@ M. H. Delorme signe, dans le
 une fielleuse chronique su 1 vspoRdant du 10 mars,
 que sur la Coopération des idées
 (D £a Coopération des idées, journal
-tion sociales, Palais du Pen de Thés Populaire d'éducation et d'aclaires, Bourses du Travel . tre Populaire, Universités Popu- J
+tion sociales, Palais du Pen de Thés Populaire d'éducation et d'aclaires, Bourses du Travel . tre Populaire, Universités Popu-
 Secours Mutuels, donnait pré Nr ns Syndicats, Sociét és de !
 méro 1 de sa cinquième année en jé d samedi 7 avril 1900 le nuVeau format. Elle Paraît
 cahier du ‘
@@ -952,17 +952,17 @@ six franes. Le Socialiste est dans sa seizième année. Forma
 très petit journal. Paraît le dimanche.
 tronquant des tex es. u ï etils
 faciles pour de telles consciences — de ses amis, € dé ss
-citera les noms des conférenciers juifs et REF ë
+citera les noms des conférenciers juifs et REF
 il oubliera les autres. Il dira que M. Sabatier, oye ; o pe
 Faculté de théologie protestante, que je n'ai je MA Le
 n'a jamais fait partie de la Coopération des Idées, en est'un pu
 des fondateurs. VE à
-Il écrira : « Un aven, surpris à son fondateur, nous laissait d
-entrevoir la cause efliciente de ce mouvement : « L'Affaire À Ÿ
-» Dreyfus a montré à beaucoup de personnes la nécessité À à » urgente d'entreprendre l'éducation populaire. » b ST È
-Cette phrase est bien de moi; mais j'ajoutais ceci que M. À 4:
+Il écrira : « Un aven, surpris à son fondateur, nous laissait
+entrevoir la cause efliciente de ce mouvement : « L'Affaire À
+» Dreyfus a montré à beaucoup de personnes la nécessité À à » urgente d'entreprendre l'éducation populaire. » b ST
+Cette phrase est bien de moi; mais j'ajoutais ceci que M. À
 Delorme omet de citer et qui complète le sens que j'enten- à
-dais donner : « C'est peut-être ce qui a facilité notre tâche, EF E
+dais donner : « C'est peut-être ce qui a facilité notre tâche, EF
 mais cela ne l'a pas créée, — et cela ne la limite point. » ner.
 C'est done que notre action est vraiment ce qu'elle dit et ne
 veut être, puisqu'on n'y peut contredire qu'en dénaturant
@@ -977,12 +977,12 @@ iè ; é pter l'éducation populaire :
 a lumière qu'elle fait, et Paction énergique qu'elle détermi ; “16
 pour la réalisation immédiate d'une société meill ee A, à:
 M. Paul Lafargue, qui nous : LEUEC, ANTE), Ÿ à
-a ; sera toujours très utile, écri x
+a ; sera toujours très utile, écri
 ceci contre les Universités P. i NE Dee
 mars: « Le socialisme re laires, dans Le Socialiste du > ax
 et les intégralistes, est bent D ia perds intellectuels « 11 dit'encore : « On n'a pas osé d niversités Populaires, » Fe
 à Vaillant, ni à moi, d'aller n cermander, ni à Guesde, ni
-ferions déguerpir les Ras ne conférence. Nous j
+ferions déguerpir les Ras ne conférence. Nous
 trompé. ropes. » M. Lafargue s'est
 Nous avons osé. Aussi
 lu $on ar ticle, je lui ai écrit pour
@@ -1038,8 +1038,8 @@ quille, un peu égoïste M ie de Paris. re
 induit à recueillir l'avis en la matière des docteurs du Li
 socialisme, autrement dit des chefs d'écoles socialistes. ä ga
 L'opinion de M. Jaurès nous était connue. Le leader des An
-socialistes indépendants, en plusieurs articles parus dans 1 Î
-la Petite République, s'est montré un partisan résolu du LE 15 î
+socialistes indépendants, en plusieurs articles parus dans
+la Petite République, s'est montré un partisan résolu du LE
 Les exploités s'aperçoivent de plus en plus, a-t-il sa
 écrit, que, s'il est nécessaire d'affirmer et de propager Ë te
 l'idéal souverain d'expropriation et de communisme, il
@@ -1047,15 +1047,15 @@ ne suffit pas de prononcer des formules générales pour . ie
 abolir la société capitaliste; il faut encore accroître si
 bien, dans cette société même, la force et l'action du
 prolétariat, que le pouvoir lui devienne enfin accessible.
-Il y a des distances sociales où les coups ne portent L!
+Il y a des distances sociales où les coups ne portent
 même pas; et quand l'abîme qui sépare la puissance
-capitaliste de la faiblesse ouvrière est presque démesuré, vs vaines menaces et les vaines prophéties lan- ù,
+capitaliste de la faiblesse ouvrière est presque démesuré, vs vaines menaces et les vaines prophéties lan-
 çées d'un bord à l'autre tombent dans le vide. “7
 y aura donc nécessairement une période d'organi- Le.
 sation économique et de croissance juridique du prolé-
 tariat qui précédera l'entière réalisation socialiste. Or Qt
 le syndicat ouvrier est li Le
-instrument décisif de progrès > ù
+instrument décisif de progrès >
 paratoire où il sembl Re its périnds pre
 entrions. nn: symptômes, que nous
 de Passant à l'étude des dispositions criti
@@ -1090,32 +1090,32 @@ A Karl Marx dans l'élaboration du programme Re
 le chef incontesté du « parti ouvrier français » pat
 Re ie; qui, fondé-par ui A £a rien ases
 T GAP” 00 Nous sommes allé lui demander son opinion. ne
-ie Guesde occupe, dans le fond de Montrouge, w
+ie Guesde occupe, dans le fond de Montrouge,
 M. Jules Gues AA te Er de uffre depuis
 modeste appartement au cinquième étage. Il ‘ pce
 deux mois d'une cruelle maladie Ep se AS Ut
 free Tes + elfe, ses disciples vont tenir an
-gnie au « maître », faire sa 10 À homme au1 dictée, prendre ses ordres pour l'action, Û
+gnie au « maître », faire sa 10 À homme au1 dictée, prendre ses ordres pour l'action,
 
 toritaire est chéri de son parti. Ce Los + HT ae
 discipliné, a d'ailleurs quelque chose de familial. Cor ie FEI A
 ment à ce qui existe dans certaines autres sectes socia s! À Ë A+
 on y vénère les hommes intelligents de la famille mr tt
-qu'on déteste ceux des écoles voisines. Les sentiments de 4.
-plus pure solidarité animent les affiliés les uns envers les 4 [ 3
+qu'on déteste ceux des écoles voisines. Les sentiments de
+plus pure solidarité animent les affiliés les uns envers les 4 [
 autres. C'est un parti politique doublé d'unefranc-maçonnerie
 et l'exemple n'est pas rare de militants qui, ennemis (1) nn
 d'une subvention légère fournie par teurs camarades, sont
 partis pour la conquête d'une ville, ont végété d'abord en
-vendant des journaux, puis ont prospéré et ont conquis à ‘# ë
+vendant des journaux, puis ont prospéré et ont conquis à ‘#
 la fois une situation politique et commerciale. Le maire & À
 d'une grande ville du Nord est un de ces exemples vivants. LE À
 Dès que nous eùmes exposé à M. Jules Guesde l'objet de - FE
 notre visite, il se souleva légèrement et d'une voix forte : $
-Je suis absolument de l'avis de la Fédération des ( 4
+Je suis absolument de l'avis de la Fédération des (
 bourses du travail, dit-il. Le projet Waldeck-Rousseau
 est une duperie pour la classe ouvrière. M. Waldeck- Me
-Roussean est dans son rôle de défenseur de la bour- L
+Roussean est dans son rôle de défenseur de la bour-
 geoisie, et je comprends cela. Mais je m'étonne qu'il y
 ai des socialistes pour l'approuver. En effet, ce projet, « ei est voté, ne peut que diviser la cla:se ouvrière, et “4
 Fe trouve la preuve dans l'exposé même des motifs.
@@ -1126,7 +1126,7 @@ abandonnerait la défense des intérêt erciaux, ER
 répond : tout syndicat qui aband 18 corporatifs et il
 rie andonne les intérêts géné- SE &ù
 me permets de coni spirituel typo,
-qui devait d effet qu'ils ont prêté : pro- j
+qui devait d effet qu'ils ont prêté : pro-
 pod Roi res Benjamin La mise celui !
 er. que le Benjamin ait semblé La
 fl raux de la corporati
@@ -1162,14 +1162,14 @@ Ah! oui, c'est un acheminement au syndicat
 toire, dites-vous. Elle est bien bonne! Le se î. ë nu,
 Li gatoire doit produire l'unité de la corp
 
-de vous démontrer que le projet Li Sentone à L M1
+de vous démontrer que le projet Li Sentone à
 amènera la division. Avec le syndicat obligatoire, l'ou- 4)
 vrier serait membre d'une corporation, ORNE 2 ot + j'
 citoyen d'une ville. La majorité déciderait et I individu x hi
 devrait s'incliner. Les conditions du travail délibérées Li
-par le syndicat seraient obligatoires pour vous Où ë k
+par le syndicat seraient obligatoires pour vous Où
 voyez-vous cela dans ledit projet? Il accorde, dit-on, le
-droit au syndicat de contracter au nom de ses mem- D
+droit au syndicat de contracter au nom de ses mem-
 bres. Mais il l'a toujours eu ce droit, quand le patron a LE À
 bien voulu. Ce sera dans l'avenir comme dans le passé, TA!
 puisque cette clause est soumise à l'agrément patronal. +41
@@ -1181,7 +1181,7 @@ mes en face de mots vides de sens.
 Le grand argument est que le syndicat peut intervenir
 en justice pour un de ses membres, quand l'exercite des
 droits reconnus par la loi sera méconnu; par exemple,
-quand un ouvrier aura été congédié parce qu'il est syn- ÿ: 00
+quand un ouvrier aura été congédié parce qu'il est syn-
 diqué ou quand les conditions du travail arrêtées entre PP pus?
 le syndicat et le patron auront été violées par ce der- ; he
 nier. La belle affaire! Jamais un Patron n'a renvoyé un L: 2% PS
@@ -1213,7 +1213,7 @@ alliés d'hier, soutiennent, Il ne peut admettre que des somt cialistes se rende
 un gouvernement bourgeois, ce ministre eût-il été des leurs.
 Fa tte . Il leur reproche de n'avoir pas eu l'énergie de rompre,
 à comme il l'a fait, avec M. Millerand : « Ils voient mainte-
-à nant, dit-il en parlant d'eux, où les conduit leur pusillani- Ê l
+à nant, dit-il en parlant d'eux, où les conduit leur pusillani-
 ze mité. Mais il est trop tard, ils sont pris dans l'engrenage,
 Ne a & et, après la loi sur le travail des enfants, les voilà con:
 traints à baptiser socialiste le projet de M. Waldeknn . Rousseau. » : :
@@ -1228,7 +1228,7 @@ ae iversités populaires nous étonnf
 ee. Ce mépris envers les univer Pp re
 
 tn peu. Nous en faisons la remarque. M ds
-nous répond d'un ton de souverain mépris : Ê
+nous répond d'un ton de souverain mépris
 
 — Les universités populaires, elles ont PERS Ro
 portance que l'œuvre des petits teigneux. C'est avec
@@ -1239,7 +1239,7 @@ des républicains. We
 
 M. Guesde nous arrête. ; En
 — Nous ne sommes pas, dit-il brusquement, des ré- KE
-publicains, nous sommes des socialistes! 1l
+publicains, nous sommes des socialistes!
 
 Et cette boutade met fin à notre entretien. — M. G. “
 La Petite République du vendredi 13 publiait sous ce
@@ -1247,7 +1247,7 @@ titre, Républicains, l'article suivant ; Le
 Le citoÿen Jules Guesde, interviewé par un rédacteur du
 Temps, s est expliqué sur la loi des syndicats, sur la parti- TS,
 cipation d'un socialiste au ministère Waldeck-Rousseau, et à +, DR À
-sur l'égarement de quelques-uns d'entre nous. Fe # P
+sur l'égarement de quelques-uns d'entre nous. Fe #
 Enfin, la bourgeoisie a toujours été maligne, Pas ,"é"olutionnaire.
 et diverse ; elle les a conquis, ils so alien, Sa tactique est savante “JR
 maintenant aux amusettes bo “2 perdus pour la cause. Ils vont Eee
@@ -1256,13 +1256,13 @@ populaires! et des professeurs d'universités
 Nous en faisons la rainone nn | Populaires nous étonne un peu.
 de souverain mépris : + %. Jules Guesde nous répond d'un ton
 tance que. l'œuvre Fe me ont autant d'impor- !
-reilles inventj Igneux. C'est av l
+reilles inventj Igneux. C'est av
 
 — Pourtant n'est-il é La
 ne faut-il pas fo: A d'instruire le peuple et
 ” : P rmer d'abord des es pra cons
 républicains... Pris émancipés, des
-"4 M. Guesde nous arrête, : ï
+"4 M. Guesde nous arrête,
 si : pas, dit-il brusquement, des républi
 ES cains, nous sommes des socialistes !
 É. Et cette boutade met fin à notre entretien.
@@ -1298,7 +1298,7 @@ propagandiste le plus actif lorsqu'il crée groupe, A À
 Instruire le peuple, c'est la tâche la plus urgente qui ris
 s'impose à qui veut l'émanciper. Henri TuroT LA
 La Petite République du samedi 14 publiait la rectification suivante : Fil
-Je reçois du citoyen Jules Guesde la lettre suivante que D ÿ
+Je reçois du citoyen Jules Guesde la lettre suivante que
 nous nous empressons de publier. cé
 peut être certain, d'ailleurs, que s'il avait donné à sa di
 réponse un plus grand développement, il aurait trouvé ici # fi
@@ -1309,12 +1309,12 @@ serions tout à fait enchantés de voir dissiper complètement
 la fâcheuse impression qu'a pu produire sur beaucoup de
 socialistes les paroles qui lui furent attribuées par le ei
 rédacteur du Temps.
-La lettre ci-jointe que j'ai adressée dès mercredi soir À s
+La lettre ci-jointe que j'ai adressée dès mercredi soir À
 au pe le Temps est une réponse suffisante à votre ï. JT y
 article de ce matin pour que je me borne à vous en e où
 demander l'insertion. a à"
 Salutations. Juzes Guespe ‘4 Ni
-dant, je ne nat ten nie foi de votre correspon- f:
+dant, je ne nat ten nie foi de votre correspon-
 taire les paroles éR ue cs bénéfice d'inven-
 notamment en ce du conter 1 Temps de ce soir, hL
 e les éléments de division LA !
@@ -1342,11 +1342,11 @@ de ses paroles.
 ï era que larectification insérée à la Petite Républig
 fil ne comporte pas ce
 
-T'ayant communiqué la conférence du citoyen Lafar- ù
+T'ayant communiqué la conférence du citoyen Lafar-
 gue, je suis heureux de pouvoir te communiquer la du
 conférence donnée par le citoyen Émile Vandervelde, sel
-député de Charleroi, professeur à l'Université Nouvelle Ed j
-de Bruxelles, sous la présidence du citoyen Albert Pou- 1 41
+député de Charleroi, professeur à l'Université Nouvelle Ed
+de Bruxelles, sous la présidence du citoyen Albert Pou-
 lain, député des Ardennes, le mardi 6 mars, à l'Hôtel FER €
 des Sociétés Savantes. En effet, s'il convient que le
 Mouvement te communique les conférences pour ainsi
@@ -1358,7 +1358,7 @@ Sténographiée par les frères Corcos, la conférence de
 
 Vandervelde appartenait au Groupe des Étudiants Col-
 
-lectivistes et le Groupe l'avait déjà donnée pour l'édi- us 7x b,
+lectivistes et le Groupe l'avait déjà donnée pour l'édi- us
 de à notre camarade Jacques, libraire éditeur, 97, bou- fe É< kr
 evard Arago, Paris. Celui-ci a bien voulu nous la
 A Aussitôt que ce cahier aura été imprimé, Ha. at

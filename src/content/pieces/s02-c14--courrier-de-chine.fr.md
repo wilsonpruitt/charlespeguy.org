@@ -63,8 +63,6 @@ ment de leurs idées (analogues aux nôtres ou diffé-
 rentes), l'intelligence des idées des autres. Et je n'ai
 pas été étonné de trouver ces derniers parmi ceux
 
-66
-
 qui ont le plus vu et le plus agi. En fait, il y avait
 distinction bien trancliée entre la masse et l'élite,
 hétérogénéité dans l'ensemble .
@@ -96,8 +94,6 @@ vie intellectuelle. Do même que chez nous, les plus
 intéressants et les mieux raisonnant sont ceux qui
 ont fait campagne.
 
-67
-
 Je ne parlerai pas de nos amis les Russes, qui
 inspirent ici un dégoût général par leur ivrognerie
 et leur brutalité. Ce sont les pillards les plus enragés
@@ -126,8 +122,6 @@ et parlant argot qui manquaient de couleur locale.
 Mais le fond reste. Je me souviens du capitaine S...,
 ancien élève de Polytechnique et de Fontainebleau,
 me montrant le maniement de son sabre à deux
-
-68
 
 mains, destiné à couper d'un grand coup de revers
 la tête de l'ennemi, et m' expliquant que le « chic »
@@ -161,8 +155,6 @@ situation actuelle est curieuse à connaître.
 
 Les missionnaires qui disent, font dire ou laissent
 
-69
-
 dire en France quïls sont à l'étranger de constants
 et actifs propagateurs de Tinfluence française, i^ré-
 tendent ici n'avoir aucun rapport avec les puis-
@@ -191,8 +183,6 @@ Chinois, portent la natte, le costume, parlent la
 langue, apprennent à leurs élèves un latin de cui-
 sine invraisemblable, mais point le français : donc
 leur but n'est pas de développer en Chine l'influence
-
-70
 
 Ce but, certains le proclament, disant quïls ont été
 parfois près d'y atteindre. C'est la conversion de la

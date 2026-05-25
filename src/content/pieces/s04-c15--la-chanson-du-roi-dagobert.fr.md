@@ -23,28 +23,27 @@ Laissez-la.
 De la toile.
 Elle court dans la maison.
 | Apportez-moi l'enfant.
-7 On apporte le petit David, qui a peur, se débat, et pleure.
-| 145
+On apporte le petit David, qui a peur, se débat, et pleure.
 
 Ne pleure pas : ce n'est pas ta faute. — Docteur,
 je vous le recommande. Vous veillerez sur lui. Je
 veux, vous entendez. — Mon petit garçon!
 | Regarde-moi... Tu t'es vengé. Je t'ai fait mourir.
 Pauvre martyr de nos ambitions et de nos haines,
-tu es venu ici souffrir et mourir. 4
+tu es venu ici souffrir et mourir.
 
-LES OFFICIERS, entre eux 1e
+LES OFFICIERS, entre eux
 Je t'ai fait souffrir dans tous les petits enfants de
 ce peuple, que j'ai persécuté. Je voulais l'empêcher.
 Je n'en ai pas eu la force. Pardon, innocentes
 victimes! Nous sommes tous victimes. Il fallait être
 plus grand que nous pour résister. Je n'étais pasun
-héros. Debora est revenue, et panse la blessure de Clifford. k
+héros. Debora est revenue, et panse la blessure de Clifford.
 Merci. Vous ne me haïssez donc plus ? Debora fait signe …
 farouchement que si. Ne haïssez plus. Ceux qui font
-le mal sont assez malheureux. * 1
+le mal sont assez malheureux.
 Que nous resterait-il, si nous n'avions plus la
-force de haïr nos oppresseurs ? 4
+force de haïr nos oppresseurs ?
 
 Imbécile ! — Vous avez frappé celui qui vous protégeait.
 Elle a bien fait. Le plus coupable de tous, est celui
@@ -56,32 +55,31 @@ Clifford lui donne une petite tape amicale sur la tête.
 q regarde autour d'elle, avec une expression de folie déses-
 | pérée, puis court vers la citerne, repoussant ceux qui sont
 + sur son passage.
-2 DEBORA, avec désespoir
+DEBORA, avec désespoir
 Je ne peux plus... je ne peux plus haïr!
 L Elle se jette dans la citerne.
 : « Criez et hurlez, vaisseaux de la mer! Elle sera
 % détruite, Tyr, reine des villes, dont les marchands
-| 147
 
 4 étaient des princes, dont les vendeurs étaient les
 maîtres éclatants de la terre! Criez et hurlez, …
 vaisseaux de la mer, car toute votre force sera
 GRAHAM arrive avec un groupe d'officiers, couverts de poussière
-et de sang. Il va droit à Clifford mort, se découvre, le regarde, k
-un instant très bref, se retourne vers les autres officiers, et 4
+et de sang. Il va droit à Clifford mort, se découvre, le regarde,
+un instant très bref, se retourne vers les autres officiers, et
 montre les prisonniers.
 Sur un rang. On aligne les prisonniers, — à l'exception du à
-président. — Graham les compte, en désigne un par cinq. — Aux 4
+président. — Graham les compte, en désigne un par cinq. — Aux
 
 UN DES PRISONNIERS DÉSIGNÉS, se jette äterre,etlabaiss
 Ma terre! on ne me séparera pas de toi! “4
 Arrêtez ces femmes, ces enfants. Tous sont complices. Brûlez les fermes. Cette canaille partira
 demain sous escorte pour la côte. Ce peuple veut
 être exterminé. I] le sera. À
-On emmène la foule des prisonniers. 17
+On emmène la foule des prisonniers.
 « Tout finira bien. » (1)
-Et celui-là, qui est-il ? 4
-1 0
+Et celui-là, qui est-il ?
+1
 
 Il refuse de se battre.
 GRAHAM, indiquant le groupe des condamnés
@@ -122,7 +120,7 @@ le mardi 10 mars 1903.
 
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-Les œuvres de Romain Rolland paraissent :520
+Les œuvres de Romain Rolland paraissent
 
 paraissant vingt fois par an
 J 8, rue de la Sorbonne, au rez-de-chaussée
@@ -173,12 +171,12 @@ axe et les deux bases. # 9 +
 Il fallait arrêter les airs nouveaux dérivés de l'air
 ancien, les airs seconds dérivés de l'air premier. En ce ‘+
 sens, il fallait écrire la musique de cette chanson. J'ai
-demandé à Romain Rolland de vouloir bien l'écrire. 1
+demandé à Romain Rolland de vouloir bien l'écrire.
 m'a fait l'amitié d'accepter. F ARTS
 
-da chanson du ro 4
+da chanson du ro
 
-He. qui ne savait pas lire, 0e
+He. qui ne savait pas lire,
 RAT à et qui première m'enseigna # MTS
 
 L 45 ; Le roi faisait des vers DURS
@@ -186,12 +184,12 @@ APTE Mais il les faisait de travers; nn
 TES Le grand saint Éloi æ :
 D SEE Faire des chansons ; a
 DRE: - — C'est vrai, lui dit le roi, : ."
-2 C'est toi qui les feras pour moi.
+C'est toi qui les feras pour moi.
 
 | | 2 2020
 
 Le bon roi Dagobert
-A mis sa culotte à l'envers: F
+A mis sa culotte à l'envers:
 Le grand saint Éloi
 Lui dit à mon roi,
 — C'est vrai, lui dit le roi,
@@ -201,33 +199,33 @@ Je vais la remettre à l'endroit.
 Comme il la remettait, Are
 G Le grand saint Éloi RU
 # - Lui dit à mon roi, Du:
-12 Vous avez la peau à ‘4
+Vous avez la peau à ‘4
 Plus noir' qu'un corbeau ; LATE
-— C'est vrai, lui dit le roi, 2
-7 La rein' l'a bien plus noir' que moi. D:
+— C'est vrai, lui dit le roi,
+La rein' l'a bien plus noir' que moi.
 Le bon roi Dagobert, se
 ; Ses bas étaient mangés des vers: NC
-4 Le grand saint Eloi ; trs
+Le grand saint Eloi ; trs
 Vo Lui dit ô mon roi, ST
 Vos deux bas cadets RS
 É Font voir vos mollets: “5
-FA — C'est vrai, lui dit le roi, 6h
-Les tiens sont bons, donne-les moi. 4
+FA — C'est vrai, lui dit le roi,
+Les tiens sont bons, donne-les moi.
 
-‘RTS Le bon roi Dagobert 10
+‘RTS Le bon roi Dagobert
 NE Le grand saint Eloi D -
 Re Lui dit mon roi, pe
-2 Est tout écourtée : 4
+Est tout écourtée
 TE — C'est vrai, lui dit le roi, Û pe
-nr. Fais-moi rallonger de deux doigts. \ e
+nr. Fais-moi rallonger de deux doigts. \
 
-nu Le bon roi Dagobert 20
+nu Le bon roi Dagobert
 % © Avait un beau justaucorps vert; INCARNE
-RS Le grand saint Eloi F4
+RS Le grand saint Eloi
 “on Lui dit à mon roi, is
-Ex, Votre habit paré #£ U
-be. Au coude est percé; 13
-1 — C'est vrai, lui dit le roi, { 2
+Ex, Votre habit paré #£
+be. Au coude est percé;
+1 — C'est vrai, lui dit le roi, {
 
 *40 Le tien est bon, prête-le moi. A à
 
@@ -257,10 +255,10 @@ Le Le grand saint Éloi
 Vous siérait bien mieux;
 À — C'est vrai, lui dit le roi,
 J'avais pris modèle sur toi.
-1 9
+1
 
 te Le bon roi Dagobert
-4 Voulait s'embarquer sur la mer;
+Voulait s'embarquer sur la mer;
 Le grand saint Eloi
 Lui dit à mon roi,
 4 — C'est vrai, lui dit le roi,
@@ -269,34 +267,34 @@ Lui dit à mon roi,
 la chanson du roi Dagobert
 #4 > Le bon roi Dagobert “PAS a
 are Chassait dans la plaine d'Anvers: Mer
-4 Le grand saint Éloi k ce
+Le grand saint Éloi k ce
 Ne Lui dit à mon roi, * ie |
-116 Est tout essoufflée ; Erin
+Est tout essoufflée ; Erin
 Fr — C'est vrai, lui dit le roi, Je
 Fr Un lapin courait après moi. TN
-ë Le roi faisait des vers "LEE F
+ë Le roi faisait des vers "LEE
 RS Mais il les faisait de travers: RSR
-40 Le grand saint Éloi RS
-4 Faire dés chansons! 20
+Le grand saint Éloi RS
+Faire dés chansons!
 ne — C'est vrai, lui dit le roi, LATNISS
-3 C'est toi qui les feras pour moi. ie LÉ
+C'est toi qui les feras pour moi. ie LÉ
 
 “à Le bon roi Dagobert
 e Allait à la chasse au pivert;
 ee Le grand saint Eloi sa
 “4 Lui dit Ô mon roi, ; <
-12 La chasse aux coucous -
+La chasse aux coucous -
 
 _54es Vaudrait mieux pour vous;
 11 — C'est vrai, lui dit le roi, |
-;. Je vais tirer, prends garde à toi. 53
-&: Le bon roi Dagobert 5
-« À Voulait conquérir l'univers ; ; k
+;. Je vais tirer, prends garde à toi.
+&: Le bon roi Dagobert
+« À Voulait conquérir l'univers ;
 D" Le grand saint Eloi
-Re Lui dit Ô mon roi, 2
+Re Lui dit Ô mon roi,
 È Donne du tintouin:
 ne” — C'est vrai, lui dit le roi,
-4 - Il vaut mieux demeurer chez moi. ÿ
+4 - Il vaut mieux demeurer chez moi.
 
 la chanson du roi Dagobert
 
@@ -321,10 +319,10 @@ Lui dit Ô mon roi, ;
 | Je m'en vais retourner chez moi.
 
 | Le bon roi Dagobert
-3 Mangeait en glouton du dessert;
+Mangeait en glouton du dessert;
 Le grand saint Éloi
 Lui dit Ô mon roi,
-1 Vous êtes gourmand,
+Vous êtes gourmand,
 Ne mangez pas tant:
 1 — C'est vrai, lui dit le roi,
 Je ne le suis pas tant que toi.
@@ -332,37 +330,37 @@ Je ne le suis pas tant que toi.
 x la chanson du roi Dagobert. “TON
 
 Le bon roi Dagobert
-Avait un vieux fauteuil de fer; È
+Avait un vieux fauteuil de fer;
 Le grand saint Éloi
 Lui dit à mon roi,
 Votre vieux fauteuil
 M'a donné dans l'œil;
 s — C'est vrai, lui dit le roi,
-Fais-le vite emporter chez toi. 4
+Fais-le vite emporter chez toi.
 
 Le bon roi Dagobert .
 Ayant bu, allait de travers;
-Le grand saint Éloi 11
+Le grand saint Éloi
 Lui dit Ô mon roi,
 . Va tout de côté; :
 — C'est vrai, lui dit le roi, 4 |
-Quand tes gris, marches-tu plus droit. î
+Quand tes gris, marches-tu plus droit.
 
 74000 Quand Dagobert mourut, #
-7 s Le diable aussitôt accourut; . 288
+7 s Le diable aussitôt accourut;
 + Le grand saint Éloi FES
 HAE Lui dit à mon roi, ‘
-\ Fe Faut vous confesser; 6
-04 — Hélas, dit le bon roi, ê
+\ Fe Faut vous confesser;
+04 — Hélas, dit le bon roi,
 # Ne pourrais-tu mourir pour moi.
-21 1
+21
 ES Le bon roi Dagobert Le
 ne Avait mis son bel habit vert:
 D: Le grand saint Eloi $
-Es Lui dit à mon roi, 5
+Es Lui dit à mon roi,
 # Semble un perroquet; "
 + — Nous semblons, dit le roi, ci
-Nr: Les perroquets du coin du quai. 2
+Nr: Les perroquets du coin du quai.
 
 À la chanson du roi Dagobert
 
@@ -383,7 +381,6 @@ Lui dit à mon roi,
 — Siégerons, dit le roi :
 Perchoir en cage au coin du quai.
 
-| 24
 Le bon roi Dagobert
 Le grand saint Éloi
 Lui dit Ô mon roi,
@@ -397,7 +394,7 @@ Nommé par les quarante voix.
 
 la chanson du roi Dagobert Fe
 
-Vêtit habit brodé de vert; é
+Vêtit habit brodé de vert;
 Le grand saint Éloi
 Lui dit ô mon roi,
 — C'est vrai, lui dit le roi,
@@ -410,7 +407,7 @@ Lui dit Ô mon roi, :
 - De sa candidature. |
 — Ils sont trop verts pour moi, |
 Ils sont trop verts, dit-il, et bons pour des goujats. (1).
-À (1) Fitil pas mieux que de se plaindre? È
+À (1) Fitil pas mieux que de se plaindre?
 
 F' Le bon roi Dagobert ‘
 4 ‘  Avait semé des blés d'hiver; à
@@ -433,11 +430,11 @@ E- Le grand saint Éloi
 
 + Lui dit ô mon roi,
 
-l Suprême bonté; è
+l Suprême bonté;
 
 à — Je sais, dit Dagobert,
 
-4 Main de velours et gant de fer.
+Main de velours et gant de fer.
 
 la chanson du roi Dagobert
 
@@ -468,7 +465,6 @@ N'est pas cher
 Pour mains en fer blanc:
 — J'aurai donc, dit le roi,
 Main de fer dessous gant de soie.
-| 32
 Le bon roi Dagobert
 Avait un bois de chène-vert;
 Le grand chauve Éloi
@@ -495,7 +491,7 @@ Lui dit Ô mon roi,
 C'est un général
 — C'est vrai, lui dit le roi,
 Nous le ferons nommer grand croix.
-34 4
+34
 
 Le vieux roi Dagobert
 Avait taillis de chêne-vert;
@@ -504,10 +500,10 @@ Avait taillis de chêne-vert;
 H Bois qu'avez planté
 ; — Serons, lui dit le roi,
 M Menuisés devant que nos bois.
-6 Le bon roi Dagobert
+Le bon roi Dagobert
 Adorait le soleil d'hiver;
 ) Le grand saint Éloi
-4 Lui dit à mon roi,
+Lui dit à mon roi,
 j Que le Créateur,
 Et tout rapporter
 ï Si Dieu l'eût voulu froid,
@@ -553,24 +549,24 @@ Ra Lui dit 6 mon roi, k - HN
 De : Le bon roi Dagobert * FAR
 er 8 Le grand saint Eloi mis ‘
 # #: Lui dit ô mon roi, 74 ss
-"jo est pas invitée; 5e
+"jo est pas invitée;
 Vin — C'est vrai, lui dit le roi, EE |
 4; 100 Ils nous ont robé nos grands bois. Ds
 
-1 Le bon roi Dagobert 7e
-# Demanda que c'est que liber ; 18
-me Le grand saint Éloi 126
+Le bon roi Dagobert
+# Demanda que c'est que liber
+me Le grand saint Éloi
 te Lui dit Ô mon roi, SA
 EE Voyez dans la tige : À
-‘RCD — Je sais, lui dit le roi, 437
-TE C'est où, dans un litige, 7
-4 Il ne faut pas mettre le doigt. RS
+‘RCD — Je sais, lui dit le roi,
+TE C'est où, dans un litige,
+Il ne faut pas mettre le doigt. RS
 No Le bon roi Dagobert TUE
 E Fit tailler tapis de drap vert; +
-| Le grand saint Éloi 270
+| Le grand saint Éloi
 ‘4 Lui dit à mon roi, #
 + C'est pour ambassade pu
-au — Sauras-tu, dit le roi, M
+au — Sauras-tu, dit le roi,
 ju Jouer au billard avec moi? à
 
 la chanson du roi Dagobert :
@@ -603,58 +599,58 @@ Feint par image;
 Barbe blanche et manteau de froid.
 
 L''apologue du pot de fer ; EE
-Le grand saint Éloi 4
+Le grand saint Éloi
 Lui dit Ô mon roi, se
 Serons-nous toujours He
-| .  Casseurs ou cassés ; 1
+| .  Casseurs ou cassés
 Sans aucun recours RS
-Voleurs ou volés ; sv 4
+Voleurs ou volés ; sv
 Sans aucun secours de
 Tueurs ou tués ; Lars
 N'estil pas un tiers ‘TE
-— Je ferai, dit le roi, L
+— Je ferai, dit le roi,
 L'apologue du pot de bois. À
 
-Le bon roi Dagobert 4
-| Émit emprunt, ne fut couvert; 4
-Le grand saint Éloi 4
-Lui dit Ô mon roi, : 3
+Le bon roi Dagobert
+| Émit emprunt, ne fut couvert;
+Le grand saint Éloi
+Lui dit Ô mon roi,
 Ë N'est pas argentée; ‘4
 — Je devais, dit le roi, à
 | Bâtir un monument bourgeois. ;
 
-548 Le bon roi Dagobert DUR: :
+Le bon roi Dagobert DUR: :
 
-6240 Ne mit jamais sur tapis vert: 12
+6240 Ne mit jamais sur tapis vert:
 ENT Le grand saint Eloi ne
-150 Lui dit ô mon roi, 4
-3 Ont dans leurs sabots 2
-PE: 5 Plus d'un héritage; 4
+Lui dit ô mon roi,
+Ont dans leurs sabots
+PE: 5 Plus d'un héritage;
 LEA — Ne mettons, dit le roi, ne
 Jamais que sur chevaux de bois. à
 ‘1e Le bon roi Dagobert Fi
 00e Voulait prêcher dans le désert a
 . #0 Le grand saint Eloi pue
 à Lui dit à mon roi, :
-Le Emprès Saint-Denis; 42
-14 C'est le plus grand désert |? 570
-4 Qu'ayons au royaume de France. à
+Le Emprès Saint-Denis;
+C'est le plus grand désert |?
+Qu'ayons au royaume de France. à
 
 | la chanson du roi Dagobert Bee
 Le bon roi Dagobert à
 Avait aux cahiers compte ouvert; ME
-Lui dit Ô mon roi, K
+Lui dit Ô mon roi,
 Ne confondons pas à
 L'avoir et le doit; Si,
 
-— L'avoir, c'est ce qui tombe, 4
-Et ce qui monte, c'est le doit. 4
-à L'enterrement de Canrobert : 4
+— L'avoir, c'est ce qui tombe,
+Et ce qui monte, c'est le doit.
+à L'enterrement de Canrobert
 Le grand saint Eloi -
 Lui dit Ô mon roi,
 Fut un général
-— Tout va bien, dit le roi, 4
-| C'est un maréchal qui signoit. 4
+— Tout va bien, dit le roi,
+| C'est un maréchal qui signoit.
 
 Dit le roi Dagobert :
 Ne faut manger son bled en vert;
@@ -675,7 +671,7 @@ Colbert ne tiendrait pas six mois.
 
 : la chanson du roi Dagobert
 
-Un surgeon de cognassier vert: 54
+Un surgeon de cognassier vert:
 Le grand saint Éloi de
 
 Lui dit 6 mon roi, TA
@@ -683,12 +679,12 @@ Je n'ai pas besoin fe.
 
 De cet arbre à coing, - à.
 J'ai moi-même en bosse ‘4
-Ouvragé ma crosse; 4
+Ouvragé ma crosse;
 
 — Crosse d'or, dit le roi: EEE
 
-Evêque d'or, crosse de bois. 74
-57 1
+Evêque d'or, crosse de bois.
+57
 
 Dit le roi Dagobert : #0
 RRE On ne me prend jamais sans vert; CAE
@@ -698,10 +694,10 @@ Le grand saint Eloi A
 
 Quand viendra le temps, À
 
-4 Qui vous y prendra; *
-— J'affirme, dit le roi, 34
+Qui vous y prendra; *
+— J'affirme, dit le roi,
 
-Qu'on ne me prend jamais sans bois. s
+Qu'on ne me prend jamais sans bois.
 
 k Dit le roi Dagobert :
 Qui sais-tu qui me prend sans vert?
@@ -724,15 +720,15 @@ J'aflirme, dit le roi,
 ls Que nul ne me tiendra sans bois.
 
 la chanson du roi Dagobert ER.
-Dit le roi Dagobert : è
-Tu sais qui me tiendra sans vert; Ë.
-Le grand saint Éloi L
+Dit le roi Dagobert
+Tu sais qui me tiendra sans vert;
+Le grand saint Éloi
 | Lui dit Ô mon roi, $
 A tout corps fatale, :
 Un jour vous prendra;
-Tous jours vous tiendra; Û
+Tous jours vous tiendra;
 Mort vous aura ; :
-Notre mort dotale 1e
+Notre mort dotale
 
 Cette mort frontale
 Cette mort dentale
@@ -746,33 +742,33 @@ Quand l'horizontale Re:
 Transcontinentale ne.
 é Cette mort brutale :
 “4 ; Adonc vous prendra ; ; 1°
-:& Vous prendra sans vert 254
+:& Vous prendra sans vert
 + Sans vert et sans bois; À
 £ — Nulle mort, dit le roi, ‘10
 “ . Ne nous vient que Dieu ne l'envoie. HE
 
-2 RUE Le bon roi Dagobert “LAN te
+RUE Le bon roi Dagobert “LAN te
 ES Aimait le bois sec en hiver; CUS
 D Le grand saint Eloi ‘ Eee
 ua Lui dit ô mon roi, 3: TR
 ME _— Rien ne vaut feu de bois, Re.
-“LES O mon beau feu de bois, 50
+“LES O mon beau feu de bois,
 (Te Feu plus cher que grégeois, TES
 “ASE Rien ne vaut feu de bois AC
-me. Pour chauffer mon vieux corps de roi. 1
+me. Pour chauffer mon vieux corps de roi.
 
 la chanson du roi Dagobert
 Le bon roi Dagobert ‘1
-Aimait le vin sec en hiver; 2
+Aimait le vin sec en hiver;
 Le grand saint Éloi : À
-Lui dit Ô mon roi, 12
+Lui dit Ô mon roi,
 é Bouteille ma mie Fr
 Est la joie ‘à
 Est la joie À
-| — Rien ne vaut le Blésois, 4
-Le petit vin de Blois, 4
-Rien ne vaut le Blésois 2
-LR Pour chauffer mon vieux cœur de roi. . 170
+| — Rien ne vaut le Blésois,
+Le petit vin de Blois,
+Rien ne vaut le Blésois
+LR Pour chauffer mon vieux cœur de roi.
 
 Le bon roi Dagobert
 Voulait aller courre le cerf;
@@ -787,42 +783,42 @@ De biche aux abois:;
 F2, 1 la chanson du roi Dagobert
 
 £E 4 De biche pàmée: de.
-Ve — Que veux-tu, dit le roi, 154
+Ve — Que veux-tu, dit le roi,
 re J'aime le son du cor le soir au fond des bois. _
 <) Tous les ans Dagobert Mie
 | Se payait un Mathieu Laensberg'; ne
 Le grand saint Eloi SNS
-| Disait toutes fois : 15
-9 Sont fort mal portés; SE 4
-- Que des colporteurs; 4
+| Disait toutes fois
+Sont fort mal portés; SE
+- Que des colporteurs;
 Xe Seront mal notés; #4
-4 — Cest vrai, disait le roi; 4
+4 — Cest vrai, disait le roi;
 De Mais le lisait en tapinois. mn
 
 _ Vit un ballon monter dans l'air; Se
 ne, Le grand saint Eloi DU.
-4 Lui dit d mon roi, be.
-‘je vis C'est quelque savant 1e
- Montrant l'affiche: ; | 300
+Lui dit d mon roi, be.
+‘je vis C'est quelque savant
+ Montrant l'affiche: ;
 Me Tous les jours Dagobert an
-HU Consultait son Mathieu Laensberg : TR 2
+HU Consultait son Mathieu Laensberg : TR
 DE | Le grand saint Eloi ST SEE
-é Lui dit cette fois: | 2
+é Lui dit cette fois:
 (#rr} Lisez nos savants mes
 Ne — Rien ne vaut, dit le roi, ‘1082
 
-la chanson du'roi Dagobert De 4
+la chanson du'roi Dagobert De
 
-Le bon roi Dagobert Ë
-Le grand saint Eloi 4
+Le bon roi Dagobert
+Le grand saint Eloi
 Lui dit Ô mon roi, :
-— Mieux aimais-je l'arroi k
+— Mieux aimais-je l'arroi
 De mon vieux carrosse de bois.
 Le bon roi Dagobert :
-Avait un pardessus d'hiver; L
-Le grand saint Eloi 1
+Avait un pardessus d'hiver;
+Le grand saint Eloi
 Lui dit Ô mon roi, à
-Ont des pardessus ; è
+Ont des pardessus
 — Quant les bourgeois sont rois,
 Tant vaut que les rois soient bourgeois. :
 
@@ -845,33 +841,33 @@ N'a pas vu toutes fois
 Ses amis parjurer leur foi.
 
 RLn _ la chanson du roi Dagobert
-2 Le bon roi Dagobert CCS
+Le bon roi Dagobert CCS
 Rotr Votait pour monsieur Paul Doumer:; se
-BE Le grand saint Eloi 4
+BE Le grand saint Eloi
 À Lui dit Ô mon roi, DEAR -
 : C'est un député De
 — C'est le grand vice-roi, PL.
 Soleil levant des Tonkinois. LES
 à J'ai connu beaucoup les Humbert; +
-4 Le grand saint Eloi f 4
+Le grand saint Eloi
 ce Füûtes-vous ministre Ne
 ÿ be, — Eh non, lui dit le roi, US.
 se Je parle de ceux qui sont rois. ‘5
 € g Umberto, re d'Italia : tu ne t'es donc jamais fait :
-" o refuser une pièce de quarante sous aux guichets de M
-M mes fermiers généraux. 1
+" o refuser une pièce de quarante sous aux guichets de
+M mes fermiers généraux.
 
 : 11 Le bon roi Dagobert OR
-SL Fut nommé préfet de Quimper; a 0
-AR le Le grand saint Eloi 4 4
+SL Fut nommé préfet de Quimper; a
+AR le Le grand saint Eloi
 AE Lui dit à mon roi, c +0
-& Ne sont pas lettrés; : 56
-‘55 cp — Vaillant soldat du roi 3
+& Ne sont pas lettrés;
+‘55 cp — Vaillant soldat du roi
 à + Ne doit signer que par sa croix. SES
 [ARE Le bon roi Dagobert +40
 RSA. Le grand saint Eloi RU
 LEAVE Lui dit à mon roi, ‘ + 14100
 . 161 — Je resterai donc roi; Ces RAS
-ci Le roi est mort : vive le roi! ta k
+ci Le roi est mort : vive le roi! ta
 
 .

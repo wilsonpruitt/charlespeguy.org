@@ -13,37 +13,37 @@ VIll-1. — petit index alphabétique de nos éditions
 antérieures et de nos sept premières séries (1900-1906),
 — table Sr très sommaire de notre septième
 VIlI-2. — RoMaAIN ROLLAND. — Vies des hommes
-illustres.— la vie de Michel-Ange.—Il.— l'abdication 3 » 4
+illustres.— la vie de Michel-Ange.—Il.— l'abdication 3 »
 l'histoire et à la sociologie danslestemps modernes 2 »
 r au parti intellectuel dans le monde moderne ... 2 »
-VIL-6. — Romain ROLLAND. — Jean-Christophe. — F
+VIL-6. — Romain ROLLAND. — Jean-Christophe.
 Shakespeare, — essai d'une interprétation en vers
 VIII-8. — JEAN Bonneror.— le livre des livres, —
-VIll-9. — Romain RoLLanD.— Jean-Christophe. — 4
-VIl-10. — Enmonp BERNUS. — Polonais et Prus- 4
-siens, — de la résistance du peuple polonais aux 4
+VIll-9. — Romain RoLLanD.— Jean-Christophe.
+VIl-10. — Enmonp BERNUS. — Polonais et Prus-
+siens, — de la résistance du peuple polonais aux
 exactions de la germanisation prussienne. —1...... 2 » }
-bas, — notre honneur.— CnarLes PÉGUY. — Cahiers 4
-Vill-12. — Enmonp BERNUS. — Polonais et Prus- i
+bas, — notre honneur.— CnarLes PÉGUY. — Cahiers
+Vill-12. — Enmonp BERNUS. — Polonais et Prus-
 siens, — de la résistance du peuple polonais aux &|
-_ exactions de la germanisation prussienne. — IL... 2 » 1
-Vll-14. — Enmonp BERNUS. — Polonais et Prus- i
+_ exactions de la germanisation prussienne. — IL... 2 »
+Vll-14. — Enmonp BERNUS. — Polonais et Prus-
 siens, — de la résistance du peuple polonais aux ;
 exactions de la germanisation prussienne. — I.... 2 » ITS
 Shakespeare, — essai d'une interprétation en vers
 LES A fe red des physiciens modernes, — avant- “
 Voir à l'intérieur en fin des autres cahiers les condi- $
 tions et le prix de l'abonnement. |
-Nous mettons le présent cahier dans le commerce; 5 j
+Nous mettons le présent cahier dans le commerce;
 onzième cahier de la onzième série; un cahier vert AE |
 de 72 pages; in-18 grand jésus; nous le vendons La
 
-+48 EC PETR odique paraissant tous les deux dimanches 4
++48 EC PETR odique paraissant tous les deux dimanches
 
 8 ue de la Sorbonne, au rez-de-chaussée
 
 s Une famille de républicains fouriéristes. — les
-3 Milliet. — Après tant d'heureuses rencontres, après les
+Milliet. — Après tant d'heureuses rencontres, après les
 se. cahiers de Vuillaume c'est une véritable bonne fortune :
 pour nos cahiers que de pouvoir commencer aujour-
 …_  d'huila publication de ces archives d'une famille répu_  blicaine. Quand M. Paul Milliet m'en apporta les
@@ -65,32 +65,32 @@ B . _ s'excuser par là, alléguer qu'il y avait, dans ces papiers,
 
 tiques, et naturellement des documents inédits.) Je lui 4 ie
 Je lui dis non vous comprenez. Ne vous excusez pas.
-Glorifiez-vous au contraire. Des lettres de Béranger, des 4
-lettres de Victor Hugo, il y en a plein la chambre. Nous É:
-en avons par dessus la tête. Il y en a plein les bibliothèques et c'est même de cela (et pour cela) que les. : 2
+Glorifiez-vous au contraire. Des lettres de Béranger, des
+lettres de Victor Hugo, il y en a plein la chambre. Nous
+en avons par dessus la tête. Il y en a plein les bibliothèques et c'est même de cela (et pour cela) que les.
 bibliothèques sont faites. C'est même de cela que les ;
-bibliothécaires aussi sont faits. Et nous autres aussi les É
+bibliothécaires aussi sont faits. Et nous autres aussi les
 amis des bibliothécaires. Nous en avons nous en avons $
-nous en avons. On nous en publie encore tous les jours. É
-ÿ Parce que, dans le besoin, nous en ferons. Que dis-je, e.
-nous en faisons, on en fait. Et la famille nous aidera à 24
+nous en avons. On nous en publie encore tous les jours.
+ÿ Parce que, dans le besoin, nous en ferons. Que dis-je,
+nous en faisons, on en fait. Et la famille nous aidera à
 en faire. Parce que ça fera toujours des droits d'auteur à
 Mais ce que nous voulons avoir, ce que nous ne pou- à
 vons pas faire, c'est précisément les lettres de gens qui :
-ne sont pas Victor Hugo. Quinet, Raspail, Blanqui, — 4
-Fourier, — c'est très bien. Mais ce que nous voulons 4
-savoir, c'est exactement, c'est précisément quelles 3
+ne sont pas Victor Hugo. Quinet, Raspail, Blanqui,
+Fourier, — c'est très bien. Mais ce que nous voulons
+savoir, c'est exactement, c'est précisément quelles
 troupes avaient derrière eux, quelles admirables $
 : troupes, ces penseurs et ces chefs républicains, ces "4
 grands fondateurs de la République. Due
 Voilà ce que nous voulons avoir, ce que nul ne peut a à
-faire, ce que nul ne peut controuver. +5 4
+faire, ce que nul ne peut controuver. +5
 c Sur les grands patrons, sur les chefs l'histoire nous 4 À
-renseignera toujours, tant bien que mal, plutôt mal que ee 4
+renseignera toujours, tant bien que mal, plutôt mal que ee
 bien, c'est son métier, et à défaut de l'histoire les histo- NN
-riens, et à défaut des historiens les professeurs (d'his- T4
+riens, et à défaut des historiens les professeurs (d'his-
 : toire). Ce que nous voulons savoir et ce que nous ne
-pouvons pas inventer, ce que nous voulons connaître, 4
+pouvons pas inventer, ce que nous voulons connaître,
 
 ; 1 ee que nous voulons apprendre, ce n'est point les pre- :
 Dre. miers rôles, les grands masques, le grand jeu, les |
@@ -100,9 +100,9 @@ De. que nous voulons savoir c'est ce qu'il y avait derrière,
 de France, enfin ce que nous voulons savoir c'est quel
 % était, en cet âge héroïque, le tissu même du peuple et à
 L. du parti républicain. Ce que nous voulons faire, c'est :
-F- bien de lhistologie ethnique. Ce que nous voulons Ë
+F- bien de lhistologie ethnique. Ce que nous voulons
 # savoir c'est de quel tissu était tissé, tissu ce peuple et :
-5 LS ce parti, comment vivait une famille républicaine ordi- ‘A
+LS ce parti, comment vivait une famille républicaine ordi- ‘A
 _ 5e naire, moyenne pour airsi dire, obscure, prise au
 #34 hasard, pour ainsi dire, prise dans le tissu ordinaire, |
 : 4 prise et taillée à plein drap, à même le drap, ce qu'on
@@ -123,37 +123,37 @@ _ peuple quand la bourgeoisie était grande, quand le
 _ peuple était grand, quand les républicains étaient
 héroïques et que la République avait les mains pures.
 
-Pour tout dire quand les républicains étaient républi- 4
-cains et que la république était la république. Ce 1
+Pour tout dire quand les républicains étaient républi-
+cains et que la république était la république. Ce
 que nous voulons voir et avoir ce n'est point une
-histoire endimanchée, c'est l'histoire de tous les jours 4
+histoire endimanchée, c'est l'histoire de tous les jours
 de la semaine, c'est un peuple dans la texture, dans la
 tissure, dans le tissu de sa quotidienne existence, dans ;
 l'acquêt, dans le gain, dans le labeur du pain de chaque ;
 . jour, panem quotidianum, c'est une race dans son réel, |
-dans son épanouissement profond. 4
+dans son épanouissement profond.
 Maintenant s'il y a des lettres de Victor Hugo et des vers $
-de Béranger, nous ne ferons pas exprès de les éliminer. k.
-D'abord Hugo et Béranger sortaient de ces gens-là. Mais 2
-avec ces familles-là il faut toujours se méfier des procès. è
+de Béranger, nous ne ferons pas exprès de les éliminer.
+D'abord Hugo et Béranger sortaient de ces gens-là. Mais
+avec ces familles-là il faut toujours se méfier des procès.
 Comment vivaient ces hommes qui furent nos ancêtres Be:
-et que nous reconnaissons pour nos maîtres. Quels ils 4
-étaient profondément, communément, dans le laborieux 4
-train de la vie ordinaire, dans le laborieux train de la . 4
-pensée ordinaire, dans l'admirable train du dévoue- 1
+et que nous reconnaissons pour nos maîtres. Quels ils
+étaient profondément, communément, dans le laborieux
+train de la vie ordinaire, dans le laborieux train de la
+pensée ordinaire, dans l'admirable train du dévoue-
 : ment de chaque jour. Ce que'c'était que le peuple du à
 ‘temps qu'il y avait un peuple. Ce que c'était que la
 bourgeoisie du temps qu'il y avait une bourgeoisie. Ce :
 que c'était qu'une race du temps qu'il y avait une race, .
 du temps qu'il y avait cette race, et qu'elle poussait. $ $
 Ce que c'était que la conscience et le cœur d'un peuple,
-d'une bourgeoisie et d'une race. Ce que c'était que la È
-République enfin du temps qu'il y avait une République : 3
+d'une bourgeoisie et d'une race. Ce que c'était que la
+République enfin du temps qu'il y avait une République
 voilà ce que nous voulons savoir; voilà très précisé ke:
-ment ce que M. Paul Milliet nous apporte. 4
+ment ce que M. Paul Milliet nous apporte.
 Comment travaillait ce peuple, qui aimait le travail, %
 universus universum, qui tout entier aimait le travail Ne
-tout entier, qui était laborieux et encore plus travailleur, 4
+tout entier, qui était laborieux et encore plus travailleur,
 é qui se délectait à travailler, qui travaillait tout entier
 
 re ensemble, bourgeoisie et peuple, dans la joie et dans
@@ -167,7 +167,7 @@ de sève et de santé et de joie, c'est ce que l'on trouvera
 ; On y verra ce que c'était qu'une culture, comment
 à c'était infiniment autre (infiniment plus précieux) qu'une
 “3 science, une archéologie, un enseignement, un rensei3 gnement, une érudition et naturellement un système.
-3 On y verra ce que c'était que la culture du temps que
+On y verra ce que c'était que la culture du temps que
 À les professeurs ne l'avaient point écrasée. On y verra ce
 É que c'était qu'un peuple du temps que le primaire ne
 54 l'avait point oblitéré.
@@ -176,13 +176,13 @@ L ; qu'il y avait une culture; comment c'est presque indéfi-
 : #2 nissable, tout un âge, tout un monde dont aujourd'hui
 ne nous n'avons plus l'idée. :
 7 ‘ex On y verra ce que c'était que la moelle même de
-b. notre race, ce que c'était que le tissu cellulaire et mé- 1
+b. notre race, ce que c'était que le tissu cellulaire et mé-
 £ dullaire. Ce qu'était une famille française. On y verra
 Ke des caractères. On y verra tout ce que nous ne voyons
 # plus, tout ce que nous ne voyons pas aujourd'hui. Com- À
 E- ment les enfants faisaient leurs études du temps qu'il y
 4 avait des études. |
-4 Enfin tout ce que nous ne voyons plus aujourd'hui.
+Enfin tout ce que nous ne voyons plus aujourd'hui.
 à 7 à On y verra dans le tissu même ce que c'était qu'une
 - cellule, une famille; non point une de ces familles qui
 si _ fondèrent des dynasties, les grandes dynasties républi-
@@ -191,20 +191,20 @@ si _ fondèrent des dynasties, les grandes dynasties républi-
 .
 Charles Pégay st" + des He
 dynasties de peuple républicaines. Les dynasties du CARS
-tissu commun de la République. ; Ë PE 2
-: Ces familles qui justement comptent pour nous parce à Ë
+tissu commun de la République. ; Ë PE
+: Ces familles qui justement comptent pour nous parce à
 qu'elles sont du tissu commun. À
-Un certain nombre, un petit nombre peut-être de ces È
+Un certain nombre, un petit nombre peut-être de ces
 familles, de ces communes dynasties, s'alliant généra- < ;
-lement entre elles, se tissant elles-mêmes entre elles 4 4
+lement entre elles, se tissant elles-mêmes entre elles
 comme des fils, par filiation, par alliance ont fait, ont “
 ne fourni toute l'histoire non pas seulement de la Répu- %
-blique, mais du peuple de la République. Ce sont ces : F4
-familles, presque toujours les mêmes familles, qui ont 4
+blique, mais du peuple de la République. Ce sont ces
+familles, presque toujours les mêmes familles, qui ont
 : tissé l'histoire de ce que les historiens nommeront le à
-k mouvement républicain et que nous nommerons résolu- 3
+k mouvement républicain et que nous nommerons résolu-
 ment, qu'il faut nommer la publication de la mystique .
-républicaine. L'affaire Dreyfus aura été le dernier sur- 1
+républicaine. L'affaire Dreyfus aura été le dernier sur-
 ‘ saut, le soubresaut suprême de cet héroïsme et de cette “4
 , mystique, sursaut héroïque entre tous, elle aura été la .
 dernière manifestation de cette race, le dernier effort, ]
@@ -212,16 +212,16 @@ d'héroïsme, la dernière manifestation, la dernière publi- FAT
 cation de ces familles. Be
 __,.Halévy croirait aisément, et je croirais bien volontiers Be
 avec lui qu'un petit nombre de familles fidèles, ayant Ue
-4 fondé là République, l'ont ainsi maintenue et sauvée, la ï 1
-maintiennent encore. La maintiennent-elles autant? A e 4
+4 fondé là République, l'ont ainsi maintenue et sauvée, la
+maintiennent encore. La maintiennent-elles autant? A
 travers tout un siècle et plus, en un certain sens, “4
-presque depuis la deuxième moitié du dix-huitième 1
+presque depuis la deuxième moitié du dix-huitième
 siècle. Je croirais bien volontiers avec lui qu'un petit à |
 nombre de fidélités familiales, dynastiques, héréditaires QE -
 ont maintenu, maintiennent la tradition, la mystique et +
-ce que Halévy nommeraïit très justement la conser 3
-vation républicaine. Mais où je ne croirais peut-être 4
-| pas avec lui, c'est que je crois que nous en sommes ‘e S
+ce que Halévy nommeraïit très justement la conser
+vation républicaine. Mais où je ne croirais peut-être
+| pas avec lui, c'est que je crois que nous en sommes ‘e
 
 littéralement les derniers représentants, et à moins
 ñÉ DE que nos enfants ne s'y mettent, presque les survivants, |
@@ -232,59 +232,59 @@ ke. pas encore si nos enfants renoueront le fil de la tra- -
 à . à nous par dessus la génération intermédiaire ils maïn- :
 4 tiendront, ils retrouveront le sens et l'instinct de la mys- <
 , tique républicaine. Ce que nous savons, ce que nous De
-E- voyons, Ce que nous connaissons de toute certitude, é
+E- voyons, Ce que nous connaissons de toute certitude,
 __ c'est que pour l'instant nous sommes l'arrière-garde. |
 É. z __ Pourquoi le nier. Toute la génération intermédiaire a ;
 perdu le sens républicain, le goût de la République, |
 l'instinct, plus sûr que toute connaissance, l'instinct de à
-À “ la mystique républicaine. Elle est devenue totalement x
+À “ la mystique républicaine. Elle est devenue totalement
 nn étrangère à cette mystique. La génération intermédiaire,
 …_ et ça fait vingt ans. |
 4 4 Vingt-cinq ans d'âge et au moins vingt ans de :
-53 Nous sommes l'arrière-garde; et non seulement une <
+Nous sommes l'arrière-garde; et non seulement une <
 4 -arrière-garde, mais une arrière-garde un peu isolée, à
 È É quelquefois presque abandonnée. Une troupe en l'air. À
-Re Nous sommes presque des spécimens. Nous allons être, ï
+Re Nous sommes presque des spécimens. Nous allons être,
 ee _ nous-mêmes nous allons être des archives, des archives à
-5 _ et des tables, des fossiles, des témoins, des survivants k
+5 _ et des tables, des fossiles, des témoins, des survivants
 -_ de ces âges historiques. Des tables que l'on consultera. :
-“34e Nous sommes extrêmement mal situés. Dans la chro- 4
-| nologie. Dans la succession des générations. Nous 4
+“34e Nous sommes extrêmement mal situés. Dans la chro-
+| nologie. Dans la succession des générations. Nous
 sommes une arrière-garde mal liée, non liée au gros de à
-D troupe, aux générations antiques. Nous sommes la ; g.
-Rire des générations qui ont la mystique républi- 3
+D troupe, aux générations antiques. Nous sommes la
+Rire des générations qui ont la mystique républi-
 
 caine. Et notre affaire Dreyfus aura été la dernière des
 opérations de la mystique républicaine. |
 Nous sommes les derniers. Presque les après-derniers.
 Aussitôt après nous commence un autre âge, un tout
 autre monde, le monde de ceux qui ne croient plus à
-rien, qui s'en font gloire et orgueil. E
+rien, qui s'en font gloire et orgueil.
 Aussitôt après nous commence le monde que nous ;
 avons nommé, que nous ne cesserons pas de nommer .
 le monde moderne. Le monde qui fait le malin. Le
 monde des intelligents, des avancés, de ceux qui À
-savent, de ceux à qui on n'en remontre pas, de ceux à 4
+savent, de ceux à qui on n'en remontre pas, de ceux à
 qui on n'en fait pas accroire. Le monde de ceux à qui on ;
-n'a plus rien à apprendre. Le monde de ceux qui font le 4
+n'a plus rien à apprendre. Le monde de ceux qui font le
 malin. Le monde de ceux qui ne sont pas des dupes, des ‘
 imbéciles. Comme nous. C'est-à-dire : le monde de ceux ‘
 qui ne croient à rien, pas même à l'athéisme, qui ne se à
 dévouent, qui ne se sacrifient à rien. Exactement : le $
-monde de ceux qui n'ont pas de mystique. Et qui s'en 4
-vantent. Qu'on ne s'y trompe pas, et que personne par î
+monde de ceux qui n'ont pas de mystique. Et qui s'en
+vantent. Qu'on ne s'y trompe pas, et que personne par
 conséquent ne se réjouisse, ni d'un côté ni de l'autre. *
 Le mouvement de dérépublicanisation de la France est à
 profondément le même mouvement que le mouvement :
 de sa déchristianisation. C'est ensemble un même, un LE
-seul mouvement profond de démystication. C'est du î
+seul mouvement profond de démystication. C'est du
 même mouvement profond, d'un seul mouvement, que
 plus à Dieu, qu'il ne veut plus mener la vie républi- %
 caine, et qu'il ne veut plus mener la vie chrétienne, 3%
 (qu'il en a assez), on pourrait presque dire qu'il ne veut #2
-plus croire aux idoles et qu'il ne veut plus croire au 4
-vrai Dieu. La même incrédulité, une seule incrédulité : 72
-atteint les idoles et Dieu, atteint ensemble les faux É
+plus croire aux idoles et qu'il ne veut plus croire au
+vrai Dieu. La même incrédulité, une seule incrédulité
+atteint les idoles et Dieu, atteint ensemble les faux
 
 | dieux et le vrai Dieu, les dieux antiques, le Dieu nou18 veau, les dieux anciens et le Dieu des chrétiens. Une
 À _ même stérilité dessèche la cité et la chrétienté. La cité
@@ -294,45 +294,45 @@ _ Que nul donc ne se réjouisse, voyant le malheur qui
 ñ arrive à l'ennemi, à l'adversaire, au voisin. Car le
 …. même malheur, la même stérilité lui arrive. Comme je |
 É l'ai mis tant de fois dans ces cahiers, du temps qu'on
-4 ne me lisait pas, le débat n'est pas proprement entre : d
+4 ne me lisait pas, le débat n'est pas proprement entre
 à la République et la Monarchie, entre la République et
 _ la Royauté, surtout si on les considère comme des
 1 _ formes politiques, comme deux formes politiques, il
 4 _ n'est point seulement, il n'est point exactement entre <
-- l'ancien régime et le nouveau régime français, le monde 3
+- l'ancien régime et le nouveau régime français, le monde
 k. moderne ne s'oppose pas seulement à l'ancien régime
 “à français, il s'oppose, il se contrarie à toutes les an-
-“  ciennes cultures ensemble, à tous les anciens régimes 3
+“  ciennes cultures ensemble, à tous les anciens régimes
 —_ ensemble, à toutes les anciennes cités ensemble, à
-4 _ tout ce qui est culture, à tout ce qui est cité. C'est en Ë
-…._ effet la première fois dans l'histoire du monde que tout ë
+4 _ tout ce qui est culture, à tout ce qui est cité. C'est en
+…._ effet la première fois dans l'histoire du monde que tout
 Ée un monde vit et prospère, paraît prospérer contre toute
 —_ Que l'on m'entende bien. Je ne dis pas que c'est pour #%
 É.. _ toujours. Cette race en a vu bien d'autres. Mais enfin ;
 Le: cest pour le temps présent. É +
 |__ Et nous y sommes.
-D; Nous avons même des raisons très profondes d'espérer J
+D; Nous avons même des raisons très profondes d'espérer
 …. que ce ne sera pas pour longtemps. à
 - Nous sommes extrêmement mal situés. Nous sommes
-… en effet historiquement situés à un point critique, à un 2
+… en effet historiquement situés à un point critique, à un
 
 ; point de discernement, à ce point de discrimination. à
 Nous sommes situés juste entre les générations qui ont à
-la mystique républicaine et celles qui ne l'ont pas, entre j
+la mystique républicaine et celles qui ne l'ont pas, entre
 celles qui l'ont encore et celles qui ne l'ont plus. Alors
 personne ne veut nous croire. Des deux côtés. Neutri, :
-ni les uns ni les autres des deux. Les vieux républi- 4
+ni les uns ni les autres des deux. Les vieux républi-
 cains ne veulent pas croire qu'il n'y a plus des jeunes $
-républicains. Les jeunes gens ne veulent pas croire qu'il É
+républicains. Les jeunes gens ne veulent pas croire qu'il
 y a eu des vieux républicains. %
-Nous sommes entre les deux. Nul ne veut donc nous 4
-croire. Ni les uns ni les autres. Pour tous les deux nous 4
+Nous sommes entre les deux. Nul ne veut donc nous
+croire. Ni les uns ni les autres. Pour tous les deux nous
 
 | avons tort. Quand nous disons aux vieux républicains :
-: Faites attention, après nous il n'y a personne, ils 4
-haussent les épaules. Ils croient qu'il y en aura tou- 4
+: Faites attention, après nous il n'y a personne, ils
+haussent les épaules. Ils croient qu'il y en aura tou-
 
-jours. Et quand nous disons aux jeunes gens : Faites É.
+jours. Et quand nous disons aux jeunes gens : Faites
 
 attention, ne parlez point si légèrement de la Répu- ‘4
 
@@ -340,10 +340,10 @@ blique, elle n'a pas toujours été un amas de politi- à
 
 : ciens, elle a derrière elle une mystique, elle a en elle =
 
-une mystique, elle a derrière elle tout un passé de 4
+une mystique, elle a derrière elle tout un passé de
 
-| : gloire, tout un passé d'honneur, et ce qui est peut-être à 4
-É plus important encore, plus près de l'essence, tout un é
+| : gloire, tout un passé d'honneur, et ce qui est peut-être à
+É plus important encore, plus près de l'essence, tout un
 Je passé de race, d'héroïsme, peut-être de sainteté, quand
 nous disons cela aux jeunes gens, ils nous méprisent |
 
@@ -355,7 +355,7 @@ Ils nous prendraient pour des maniaques. +4
 
 Les raisons les plus profondes, les indices les plus
 
-graves nous font croire au contraire, nous forcent à É.
+graves nous font croire au contraire, nous forcent à
 
 penser que la génération suivante, la génération qui +3
 
@@ -366,8 +366,8 @@ et qui bientôt sera la génération de nos enfants,va être
 enfin une génération mystique. Cette race a trop de
 
 ue à: sang dans les veines pour demeurer l'espace de plus à
-“ __ d'une génération dans les cendres et dans les moisissures 4
-es < de la critique. Elle est trop vivante pour ne pas se É
+“ __ d'une génération dans les cendres et dans les moisissures
+es < de la critique. Elle est trop vivante pour ne pas se
 réintégrer, au bout d'une génération, dans l'organique. <
 & # Tout fait croire que les deux mystiques vont refleurir Se.
 « à la fois, la républicaine et la chrétienne. Du même #
@@ -378,21 +378,21 @@ F comme ensemble elles s'oblitéraient. Mais enfin ce que - =
 À _ présent. Et dans l'espace d'une génération il peut se à
 & produire tout de même bien des événements. >
 norte IL peut arriver des malheurs. à
-Er te Telle est notre maigre situation. Nous sommes 4
-+ maigres. Nous sommes minces. Nous sommes une 5
-3 Sè lamelle. Nous sommes comme écrasés, comme aplatis à
+Er te Telle est notre maigre situation. Nous sommes
++ maigres. Nous sommes minces. Nous sommes une
+Sè lamelle. Nous sommes comme écrasés, comme aplatis à
 Fe _ entre toutes les générations antécédentes, d'une part, et ne
 L. d'autre part une couche déjà épaisse des générations sui- #
 be vantes. Telle est la raison principale de notre maigreur, À
 - de la petitesse de notre situation. Nous avons la tâche À
-_ _  ingrate, la maigre tâche, le petit office, le maigre devoir ë
-._  defaire communiquer, par nous, les uns avec les autres, É
+_ _  ingrate, la maigre tâche, le petit office, le maigre devoir
+._  defaire communiquer, par nous, les uns avec les autres,
 . _ d'assurer la communication entre les uns et les autres, $
 É d'avertir les uns sur les autres, de renseigner les uns +4
 É sur les autres. Nous serons donc généralement conspués È à
-nu de part et d'autre. C'est le sort commun de quiconque 5
+nu de part et d'autre. C'est le sort commun de quiconque
 “ essaie de dire un peu de vérité(s). :
-ER Nous sommes chargés, comme par hasard, de faire 4
+ER Nous sommes chargés, comme par hasard, de faire
 $ communiquer par nous entre eux des gens qui précisé- +
 ment ne veulent pas communiquer. Nous sommes %
 
@@ -400,7 +400,7 @@ chargés de renseigner des gens qui précisément ne *
 veulent pas être renseignés.
 Telle est notre ingrate situation.
 5 i Nous retournant donc vers les anciens, nous ne
-ce pouvons pourtant dire et faire, nous ne pouvons que Ë
+ce pouvons pourtant dire et faire, nous ne pouvons que
 74 répéter à ces républicains antécédents : Prenez garde.
 Vous ne soupçonnez pas, vous ne pouvez pas imaginer
 ; à quel point vous n'êtes pas suivis, à quel point nous
@@ -409,23 +409,23 @@ en dedans, se creuse par la base. Vous tenez la tête, |
 naturellement, vous tenez le faîte. Mais toute année qui
 vient, toute année qui passe vous pousse d'un cran,
 fait de votre faîte une pointe plus amincie, plus trem- .
-blante, plus seulette, plus creusée en dessous. Et déjà É:
+blante, plus seulette, plus creusée en dessous. Et déjà
 dix, quinze, bientôt vingt annuités, annualités de jeunes à
-gens vous manquent à la base. Le 3
-Vous tenez la pointe, vous tenez le faîte, vous tenez 4
-la tête, mais ce n'est qu'une position de temps, une Ê
+gens vous manquent à la base. Le
+Vous tenez la pointe, vous tenez le faîte, vous tenez
+la tête, mais ce n'est qu'une position de temps, une
 situation comme géographique, historique, temporelle, $
 temporaire, chronologique, chronographique.: Ce n'est à
-qu'une situation par le fait de la situation. Ce n'est pas, î
-ce n'est nullement une situation organique. La situation É
+qu'une situation par le fait de la situation. Ce n'est pas,
+ce n'est nullement une situation organique. La situation
 à la pointe, la situation de pointe du bourgeon qui :
 organiquement, végétalement mène l'arbre, tire tout $
-l'arbre à lui. Et par où il a passé tout l'arbre passera. É:
-Je suis épouvanté quand je vois, quand je constate 4
-simplement ce que nos anciens ne veulent pas voir, ce 4
-qui est l'évidence même, ce qu'il sufit de vouloir bien D.
-regarder : combien nos jeunes gens sont devenus 3
-15 4
+l'arbre à lui. Et par où il a passé tout l'arbre passera.
+Je suis épouvanté quand je vois, quand je constate
+simplement ce que nos anciens ne veulent pas voir, ce
+qui est l'évidence même, ce qu'il sufit de vouloir bien
+regarder : combien nos jeunes gens sont devenus
+15
 
 3 _ étrangers à tout ce qui fut la pensée même et la mys_ tique républicaine. Cela se voit surtout, et naturel3 lement, comme cela se voit toujours, à ce que des
 pensées qui étaient pour nous des pensées sont devenues
@@ -439,11 +439,11 @@ e soi, dont on vivait, qui étaient le type même de la vie, ;
 à qui par conséquent on ne pensait même pas, qui É *
 L étaient plus que légitimes, plus qu'indiscutées : irrai- | »  sonnées, sont devenues ce qu'il y a de pire au monde : $
 = des thèses, historiques, des hypothèses, je veux dire ce ;
-1 qu'il y a de moins solide, de plus inexistant. Des des- 5
+1 qu'il y a de moins solide, de plus inexistant. Des des-
 …_ sous de thèses. Quand un régime, d'organique est
 devenu logique, et de vivant historique, c'est un régime ‘
 3 qui est par terre.
-2 On prouve, on démontre aujourd'hui la République. j
+On prouve, on démontre aujourd'hui la République.
 - Quand elle était vivante on ne la prouvait pas.
 E On la vivait. Quand un régime se démontre, aisé- |
 Ë ment, commodément, victorieusement, c'est qu'il est e-
@@ -452,114 +452,114 @@ Be Aujourd'hui la République est une thèse, acceptée, :
 hr. par les jeunes gens. Acceptée, refusée; indifféremment;
 cela n'a pas d'importance; prouvée, réfutée. Ce qui ;
 3 importe, ce qui est grave, ce qui signifie, ce n'est pas
-—_ que ce soit appuyé ou soutenu, plus ou moins indiffé- S
+—_ que ce soit appuyé ou soutenu, plus ou moins indiffé-
 É: remment, c'est que ce soit une thèse.
 …. C'est-à-dire, précisément, qu'il faille l'appuyer ou la à
 
-Quand un régime est une thèse, parmi d'autres, 4
-(parmi tant d'autres), il est par terre. Un régime qui est 4
-debout, qui tient, qui est vivant, n'est pas une thèse. 4
+Quand un régime est une thèse, parmi d'autres,
+(parmi tant d'autres), il est par terre. Un régime qui est
+debout, qui tient, qui est vivant, n'est pas une thèse.
 — Qu'importe, nous disent les politiciens, profes- .
-: ? sionnels. Qu'est-ce que ça nous fait, répondent les E
+: ? sionnels. Qu'est-ce que ça nous fait, répondent les
 politiciens, qu'est-ce que ça peut nous faire. Nous avons “4
 à de très bons préfets. Alors qu'est-ce que ça peut nous |
-faire. Ça marche très bien. Nous ne sommes plus répu- 4
+faire. Ça marche très bien. Nous ne sommes plus répu-
 blicains, c'est vrai, mais nous savons gouverner. Nous À
-savons même mieux gouverner, beaucoup mieux que É
+savons même mieux gouverner, beaucoup mieux que
 quand nous étions républicains, disent-ils. Ou plutôt
-quand nous étions républicains nous ne savions pas du 4
+quand nous étions républicains nous ne savions pas du
 tout. Et à présent, ajoutent-ils modestement, à présent "4
 nous savons un peu. Nous avons désappris la Répu- fE
-: blique, mais nous avons appris de gouverner. Voyez 4
+: blique, mais nous avons appris de gouverner. Voyez
 ; les élections. Elles sont bonnes. Elles sont toujours
 bonnes. Elles seront meilleures. Elles seront d'autant
 . meilleures que c'est nous qui les faisons. Et que nous \
-commençons à savoir les faire. La droïte a perdu un k
-million de voix. Nous lui en eussions aussi bien fait 2
+commençons à savoir les faire. La droïte a perdu un
+million de voix. Nous lui en eussions aussi bien fait
 perdre cinquante millions et demi. Mais nous sommes à
-mesurés. Le gouvernement fait les élections, les élec- E
-tions font le gouvernement. C'est un prêté rendu. Le S
+mesurés. Le gouvernement fait les élections, les élec-
+tions font le gouvernement. C'est un prêté rendu. Le
 gouvernement fait les électeurs. Les électeurs font le Le
 gouvernement, Le gouvernement fait les députés. Les
-; députés font le gouvernement. On est gentil. Les popu- 4
-ÿ lations regardent. Le pays est prié de payer. Le gouver- M
+; députés font le gouvernement. On est gentil. Les popu-
+ÿ lations regardent. Le pays est prié de payer. Le gouver-
 - nement fait la Chambre. La Chambre fait le gouverne
-ment. Ce n'est point un cercle vicieux, comme vous 4
+ment. Ce n'est point un cercle vicieux, comme vous
 . pourriez le croire. Il n'est point du tout vicieux. C'est Lee
 
 un cercle, tout court, un circuit parfait, un cercle fermé. :
 | Tous les cercles sont fermés. Autrement ça ne serait
 pas des cercles. Ce n'est pas tout à fait ce que nos fon-
 É- dateurs avaient prévu. Mais nos fondateurs ne s'en
-_  tiraient pas déjà si bien. Et puis enfin on ne peut pas 5 ù
+_  tiraient pas déjà si bien. Et puis enfin on ne peut pas
 _ fonder toujours. Ça fatiguerait. La preuve que ça dure, Re
 _ la preuve que ça tient, c'est que ça dure déjà depuis
-_ quarante ans. Il y en a pour quarante siècles. C'est les 4
-_ premiers quarante ans qui sont les plus durs. C'est le Ë
+_ quarante ans. Il y en a pour quarante siècles. C'est les
+_ premiers quarante ans qui sont les plus durs. C'est le
 # premier quarante ans qui coûte. Après on est habitué. À
-È Un pays, un régime n'a pas besoin de vous, il n'a pas 4
+È Un pays, un régime n'a pas besoin de vous, il n'a pas
 _ besoin de mystiques, de mystique, de sa mystique. Ce ;
-” serait plutôt embarrassant. Pour un aussi grand voyage. 4
+” serait plutôt embarrassant. Pour un aussi grand voyage.
 662 1 a besoin d'une bonne politique, c'est-à-dire d'une :
-_ politique bien gouvernementale. e
+_ politique bien gouvernementale.
 Ils se trompent. Ces politiciens se trompent. Du haut
 4 _ de cette République quarante siècles (d'avenir) ne les A
-- contemplent pas. Si la République marche depuis qua- Le s
-$ | rante ans, c'est parce que tout marche depuis quarante < L
+- contemplent pas. Si la République marche depuis qua- Le
+$ | rante ans, c'est parce que tout marche depuis quarante <
 £ ‘s ans. Si la République est solide en France, ce n'est pas $
-… parce que la République est solide en France, c'est x
+… parce que la République est solide en France, c'est
 parce que tout est solide partout. Il y a dans l'histoire à
 - moderne, et non pas dans toute histoire, il y a pour les <
 -_ peuples modernes de grandes vagues de crises, généra- ‘à
-font tout trembler d'un bout du monde à l'autre bout. 3
-… Et il y à des paliers, plus ou moins longs, des calmes, Ÿ
+font tout trembler d'un bout du monde à l'autre bout.
+… Et il y à des paliers, plus ou moins longs, des calmes,
 % des bonaces qui apaisent tout pour un temps plus ou #
 … moins long. Il y a les époques et il y a les périodes. à
-| Nous sommes dans une période. Si la République est 5
+| Nous sommes dans une période. Si la République est
 
 assise, ce n'est point parce qu'elle est la République, à
-(cette République), ce n'est point par sa vertu propre, 1
-c'est parce qu'elle est, parce que nous sommes dans 1
+(cette République), ce n'est point par sa vertu propre,
+c'est parce qu'elle est, parce que nous sommes dans
 
 une période, d'assiette. La durée de la République ne “
 prouve pas plus la durée de la République que la :
-durée des monarchies voisines ne prouve la durée de 3
+durée des monarchies voisines ne prouve la durée de
 la Monarchie. Cette durée ne signifie point qu'elles sont <
 durables, maïs qu'elles ont commencé, qu'elles sont
-s dans une période, durable. Qu'elles se sont trouvées É
-comme ça, dans une période, de durée. Elles sont con- e
+s dans une période, durable. Qu'elles se sont trouvées
+comme ça, dans une période, de durée. Elles sont con-
 temporaines, elles trempent dans le même temps, dans À
 le même bain de durée. Elles baïignent dans la même “À
-période. Elles sont du même âge. Voilà tout ce que ça 4
+période. Elles sont du même âge. Voilà tout ce que ça
 
 Quand donc les républicains arguënt de ce que la ;
 
 République dure pour dire, pour proposer, pour faire à
 
-/ état, pour en faire cette proposition qu'elle est durable, 4
+/ état, pour en faire cette proposition qu'elle est durable,
 quand ils arguënt de ce qu'elle dure depuis quarante
 
 ans pour inférer, pour conclure, pour proposer qu'elle ee
 
-est durable, pour quarante ans, et plus, qu'elle était au 4
+est durable, pour quarante ans, et plus, qu'elle était au
 
 - moins durable pour quarante ans, qu'elle était valable, À
-qu'elle avait un bon au moins pour quarante ans, ils ont L
+qu'elle avait un bon au moins pour quarante ans, ils ont
 
 l'air de plaider l'évidence même. Et pourtant ils font, ils É-
 commettent une pétition, de principe, un dépassement Fr:
-d'attribution. Car dans la République, qui dure, ce n'est E
+d'attribution. Car dans la République, qui dure, ce n'est
 
-point la République, qui dure. C'est la durée. Ce n'est 1
+point la République, qui dure. C'est la durée. Ce n'est
 point elle la République qui dure en elle-même, en soi- ;:
 
-: même. Ce n'est point le régime qui dure en elle. Mais 4
+: même. Ce n'est point le régime qui dure en elle. Mais
 
 en elle c'est le temps qui dure. C'est son temps, c'est :
 
-son âge. En elle ce qui dure c'est tout ce qui dure. C'est 3
+son âge. En elle ce qui dure c'est tout ce qui dure. C'est
 
-la tranquillité d'une certaine période de humanité, F
+la tranquillité d'une certaine période de humanité,
 
 ns d'une certaine période de l'histoire, d'une certaine
 - période, d'un certain palier historique.
@@ -591,48 +591,48 @@ ne tranquillité, à leur solidité, à leur durée leur durée ils
 attribuent à ces monarchies ce qui n'est pas d'elles
 mais du temps où elles se meuvent. Du même temps.
 Qui est le temps de tout le monde. Et cet escalier à.
-double révolution centrale, cette symétrie, cet anti- Î
-thétisme homothétique des situations, cet appareille- 1
+double révolution centrale, cette symétrie, cet anti-
+thétisme homothétique des situations, cet appareille-
 ment des attributions n'a rien qui doive nous étonner. |
 Les républicains et les monarchistes, les gouvernants
 ; républicains et les théoriciens monarchistes font le |
 - même raisonnement, commettent la même attribution, ?
 des attributions contraires, complémentaires, homo- :
-thétiques, la même fausse attribution parce que tous l
+thétiques, la même fausse attribution parce que tous
 les deux ils ont la même conception, les uns et les |
-autres ils sont des intellectuels, tous les deux ensemble 4
+autres ils sont des intellectuels, tous les deux ensemble
 et séparément, tous les deux contrairement et ensemble
 ils sont des politiques, ils croient en un certain sens à {
 la politique, ils parlent le langage politique, ils sont
-situés, ils se meuvent sur le plan (de la) politique. Ils 4
+situés, ils se meuvent sur le plan (de la) politique. Ils
 parlent donc le même langage. Ensemble les uns et les
 | autres. Ils se meuvent donc sur le même plan. Ils ; |
-7 croient aux régimes, et qu'un régime fait ou ne fait pas L
-re maladie, l'assiette, la durée, la tranquillité d'un peuple. 4
+7 croient aux régimes, et qu'un régime fait ou ne fait pas
+re maladie, l'assiette, la durée, la tranquillité d'un peuple.
 La force d'une race. C'est comme si l'on croyait que les
-châteaux de la Loire font ou ne font pas les tremble- 5
+châteaux de la Loire font ou ne font pas les tremble-
 ments de terre. $
-: Nous croyons au contraire (au contraire des uns et 4
-Ç des autres, au contraire de tous les deux ensemble) h:
-qu'il y a des forces et des réalités infiniment plus pro- 4
-fondes, et que ce sont les peuples au contraire qui font 4
-la force et la faiblesse des régimes; et beaucoup moins D,
+: Nous croyons au contraire (au contraire des uns et
+Ç des autres, au contraire de tous les deux ensemble)
+qu'il y a des forces et des réalités infiniment plus pro-
+fondes, et que ce sont les peuples au contraire qui font
+la force et la faiblesse des régimes; et beaucoup moins
 - les régimes, des peuples. LT Si
 
 pos - Nous croyons que les uns et les autres ensemble ils
-ne voient pas, ils ne veulent pas voir ces forces, ces Ë
+ne voient pas, ils ne veulent pas voir ces forces, ces
 _ réalités infiniment plus profondes. ;
-3 Si la République et les monarchies voisines jouissent |
+Si la République et les monarchies voisines jouissent |
 _ de la même tranquillité, de la même durée, c'est :
 5 qu'elles trempent, qu'elles baignent dans le même baïn,
 . dans la même période, qu'elles parcourent ensemble le :
-4 même long palier. C'est qu'elles mènent la même vie, au Ë
-4 fond, la même diète. Là-dessus les républicains et les F2
+4 même long palier. C'est qu'elles mènent la même vie, au
+4 fond, la même diète. Là-dessus les républicains et les
 À monarchistes font des raisonnements contraires, le
 même raisonnement contraire, ils font des raisonne- -
 É. ments conjugués. Nous au contraire, nous autres, nous }
-3 plaçant sur un tout autre terrain, descendant sur un 2
-| tout autre plan, essayant d'atteindre à de tout autres ë.
+3 plaçant sur un tout autre terrain, descendant sur un
+| tout autre plan, essayant d'atteindre à de tout autres
 __ profondeurs, nous pensons, nous croyons au contraire |
 E _ que ce sont les peuples qui font les régimes, la paix et :
 des régimes. ;
@@ -642,7 +642,7 @@ he. Les républicains et les monarchistes ensemble, pre- ;
 he. Nous tournant donc vers les jeunes gens, nous tour- :
 …. nant d'autre part, nous tournant de l'autre côté nous ne
 * _ pouvons que dire et faire, nous ne pouvons que leur
-Éc: dire : Prenez garde. Vous nous traitez de vieilles bêtes. 3
+Éc: dire : Prenez garde. Vous nous traitez de vieilles bêtes.
 ES C'est bien. Mais prenez garde. Quand vous parlez à la
 légère, quand vous traitez légèrement, si légèrement
 la République, vous ne risquez pas seulement d'être :
@@ -663,26 +663,26 @@ dirai des saints, — et quand je dis des saints je sais
 peut-être ce que je dis, — des hommes ont vécu sans :
 nombre, héroïquement, saintement, des hommes ont 1 » souffert, des hommes sont morts, tout un peuple a vécu
 pour que le dernier des imbéciles aujourd'hui ait le
-droit d'accomplir cette formalité truquée. Ce fut un È
+droit d'accomplir cette formalité truquée. Ce fut un
 terrible, un laborieux, un redoutable enfantement. Cene
-: fut pas toujours du dernier grotesque. Et des peuples Ë
+: fut pas toujours du dernier grotesque. Et des peuples
 - autour de nous, des peuples entiers, des races tra À
 vaillent du même enfantement douloureux, travaillent À
 et luttent pour obtenir cette formalité dérisoire. Ces À
-élections sont dérisoires. Mais il y a eu un temps, mon È
+élections sont dérisoires. Mais il y a eu un temps, mon
 cher Variot, un temps héroïque où les malades et les à
 mourants se faisaient porter dans des chaises pour
 aller déposer leur bulletin dans l'urne. Déposer son
-bulletin dans l'urne, cette expression vous paraît aujourd'hui du dernier grotesque. Elle a été préparée par k
+bulletin dans l'urne, cette expression vous paraît aujourd'hui du dernier grotesque. Elle a été préparée par
 un siècle d'héroïsme. Non pas d'héroïsme à la manque,
 d'un héroïsme à la littéraire. Par un siècle du plus ;
 
-_ incontestable, du plus authentique héroïsme. Et je dirai ÿ
+_ incontestable, du plus authentique héroïsme. Et je dirai
 É du plus français. Ces élections sont dérisoires. Mais il
 | y a eu une élection. C'est le grand partage du monde, :
 | la grande élection du monde moderne entre l'Ancien ;
 | tage, Variot, Jean Variot. Il y a eu ce petit ballottage ;
-qui commença au moulin de Valmy et qui finit à peine s
+qui commença au moulin de Valmy et qui finit à peine
 sur les hauteurs de Hougoumont. D'ailleurs ça a fini
 | comme toutes les affaires politiques, par une espèce de
 + compromis, de cote mal taillée entre les deux partis
@@ -690,12 +690,12 @@ sur les hauteurs de Hougoumont. D'ailleurs ça a fini
 __ Ces élections sont dérisoires. Mais l'héroïsme et la
 È sainteté avec lesquels, moyennant lesquels on obtient >
 : des résultats dérisoires, tenporellement dérisoires, c'est :
-_ tout ce qu'il y a de plus grand, de plus sacré au monde. î
-4 C'est tout ce qu'il y a de plus beau. Vous nous repro4 chez la dégradation temporelle de ces résultats, de nos
+_ tout ce qu'il y a de plus grand, de plus sacré au monde.
+C'est tout ce qu'il y a de plus beau. Vous nous repro4 chez la dégradation temporelle de ces résultats, de nos
 4 résultats. Voyez vous-mêmes. Voyez vos propres résul-
 “_ ‘tats. Vous nous parlez toujours de la dégradation répu- *
 4 blicaine. La dégradation de la mystique en politique ;
-“à n'est-elle pas une loi commune. É
+“à n'est-elle pas une loi commune.
 + Vous nous parlez de la dégradation républicaine, |
 … c'est-à-dire, proprement, de la dégradation de la mys- |
 — tique républicaine en politique républicaine. N'y at-il
@@ -707,26 +707,26 @@ _ mence en mystique et finit en politique. Tout commence
 be sant que, mais l'intérêt, la question n'est pas que telle
 
 politique l'emporte sur telle ou telle autre et desavoir
-qui l'emportera de toutes les politiques. L'intérêt, la 3
+qui l'emportera de toutes les politiques. L'intérêt, la
 question, l'essentiel est que dans chaque ordre, dans a
-chaque système la mystique ne soit point dévorée 4
+chaque système la mystique ne soit point dévorée
 par la politique à laquelle elle a donné naissance. +
 L'essentiel n'est pas, l'intérêt n'est pas, la question
 n'est pas que telle ou telle politique triomphe, mais À
 que dans chaque ordre, dans chaque système chaque
-mystique, cette mystique ne soit point dévorée par la 4
+mystique, cette mystique ne soit point dévorée par la
 politique issue d'elle. ;
-En d'autres termes il importe peut-être, il importe 4
-évidemment que les républicains l'emportent sur les 4
+En d'autres termes il importe peut-être, il importe
+évidemment que les républicains l'emportent sur les
 royalistes ou les royalistes sur les républicains, mais à
 cette importance est infiniment peu, cet intérêt n'est :
-rien en comparaison de ceci : que les républicains 4
-demeurent des républicains; que les républicains soient 4
-des républicains. ; Ù
+rien en comparaison de ceci : que les républicains
+demeurent des républicains; que les républicains soient
+des républicains.
 ee Et j'ajouterai, et ce ne sera pas seulement pour la _4
 symétrie, complémentairement j'ajoute : que les roya- :
 listes soient, demeurent des royalistes. Or c'est peut- |
-être ce qu'ils ne font pas en ce moment-ci même, où très L
+être ce qu'ils ne font pas en ce moment-ci même, où très
 sincèrement ils croient le faire le plus, l'être le plus. |
 Vous nous parlez toujours de la dégradation républi- À |
 caine. N'y a-t-il point eu, par le même mouvement, ny 4 |
@@ -738,7 +738,7 @@ une certaine politique, issue d'elle, correspondante, en
 une, en la politique monarchiste, en la politique roya- $
 
 #4 liste. N'avons-nous pas vu pendant des siècles, ne
-É “a _ yoyons-nous pas tous les jours les effets de cette poli- é
+É “a _ yoyons-nous pas tous les jours les effets de cette poli-
 L tique. N'avons-nous pas assisté pendant des siècles à
 
 = ù _ la dévoration dela mystique royaliste par la politique
@@ -747,7 +747,7 @@ L tique. N'avons-nous pas assisté pendant des siècles à
 
 g soit pas au pouvoir, dans ses deux journaux principaux
 
-3 nous voyons, nous lisons tous les jours les effets, les ÿ
+3 nous voyons, nous lisons tous les jours les effets, les
 
 E misérables résultats d'une politique; et même, je dirai AE,
 
@@ -760,61 +760,61 @@ _ entre une mystique et une politique, entre leur mystique *
 EE et leur politique, entre la mystique royaliste et la poli- ; +
 - tique royaliste, la mystique étant naturellement à l'Ac- à
 De. tion française, sous des formes rationalistes qui n'ont |
-jamais trompé qu'eux-mêmes, et la politique étant au 4
+jamais trompé qu'eux-mêmes, et la politique étant au
 _ Gaulois, comme d'habitude sous des formes mondaines.
 . Que serait-ce s'ils étaient au pouvoir. (Comme nous, ÉLaS
 É- On nous parle toujours de la dégradation républi- :
-+3 _ caine. Quand on voit ce que la politique cléricale a fait : k
++3 _ caine. Quand on voit ce que la politique cléricale a fait
 =. de la mystique chrétienne, comment s'étonner de ce à
 
 1 _ que la politique radicale a fait de la mystique républi- :
 _  caine. Quand on voit ce que les clercs ont fait généra- à
-- lement des saints, comment s'étonner de ce que nos £ 3
+- lement des saints, comment s'étonner de ce que nos £
 
-… parlementaires ont fait des héros. Quand on voit ce que 3
+… parlementaires ont fait des héros. Quand on voit ce que
 les réactionnaires ont fait de la sainteté, comment
-| s'étonner de ce que les révolutionnaires ont fait de 3
-| l'héroïsme. 4
+| s'étonner de ce que les révolutionnaires ont fait de
+| l'héroïsme.
 
-Et alors il faut être juste, tout de même. Quand on 3
-veut comparer un ordre à un autre ordre, un système à d
+Et alors il faut être juste, tout de même. Quand on
+veut comparer un ordre à un autre ordre, un système à
 un autre système, il faut les comparer par des plans et ;
-sur des plans du même étage. Il faut comparer les mys- Ë
-tiques entre elles; et les politiques entre elles. Il ne faut 3
+sur des plans du même étage. Il faut comparer les mys-
+tiques entre elles; et les politiques entre elles. Il ne faut
 pas comparer une mystique à une politique; ni une
 politique à une mystique. Dans toutes les écoles pri-
-: maires de la République, et dans quelques-unes des k
+: maires de la République, et dans quelques-unes des
 ë secondaires, et dans beaucoup des supérieures on
 : compare inlassablement la politique royaliste à la mys- À
-tique républicaine. Dans l'Action française tout revient 4
-à ce qu'on compare presque inlassablement la politique é
+tique républicaine. Dans l'Action française tout revient
+à ce qu'on compare presque inlassablement la politique
 républicaine à la mystique royaliste. Cela peut durer ;
-On ne s'entendra jamais. Mais c'est peut-être ce que d
+On ne s'entendra jamais. Mais c'est peut-être ce que
 demandent les partis.
 C'est peut-être le jeu des partis.
-Nos maîtres de l'école primaire nous avaient masqué 4
+Nos maîtres de l'école primaire nous avaient masqué
 ; la mystique de l'ancienne France, la mystique de
 l'ancien régime, ils nous avaient masqué dix siècles de :
 l'ancienne France. Nos adversaires d'aujourd'hui nous
-veulent masquer cette mystique d'ancien régime, cette 4
+veulent masquer cette mystique d'ancien régime, cette
 - mystique de l'ancienne France que fut la mystique pl:
 Et nommément la mystique révolutionnaire. |
 Car le débat n'est pas, comme on le dit, entre l'Ancien )
 régime et la Révolution. L'Ancien Régime était un |
-régime de l'ancienne France. La Révolution est émi- E;
+régime de l'ancienne France. La Révolution est émi-
 nemment une opération de l'ancienne France. La date
-discriminante n'est pas le premier janvier 1789, entre 4
+discriminante n'est pas le premier janvier 1789, entre
 minuit et minuit une. La date discriminante est située 3%
 aux environs de 1881. à
 
 #4 Ici encore les républicains et les royalistes, les gou2 vernements, les gouvernants républicains et les théo4 riciens royalistes font le même raisonnement, un raisonse nement en deux, complémentaires, deux raisonnements }
 EE conjugués, complémentaires, conjugués. Couplés; gémis: nés. Nos bons maîtres de l'école primaire nous disaient
 à sensiblement : jusqu'au premier janvier 1789 (heure de
-4 Paris) notre pauvre France était un abîme de ténèbres
+Paris) notre pauvre France était un abîme de ténèbres
 é et d'ignorance, de misères les plus effrayantes, des
 3 barbaries les plus grossières, (enfin ils faisaient leur
 ; leçon), et vous ne pouvez pas même vous en faire une
-* idée; le premier janvier 1789 on installa partout la Û
+* idée; le premier janvier 1789 on installa partout la
 É lumière électrique. Nos bons adversaires de l'École d'en
 1 face nous disent presque : jusqu'au premier janvier 1789
 # brillaït le soleil naturel; depuis le premier janvier 1789
@@ -836,26 +836,26 @@ qui parasite la République, qui est le plus dangereux
 -_ Le débat est entre toute cette culture, toute la culture,
 
 et toute cette barbarie, qui est proprement la bare “24
-Le débat n'est pas entre les héros et les saints; le N
+Le débat n'est pas entre les héros et les saints; le
 combat est contre les intellectuels, contre ceux qui ke
 méprisent également les héros et les saints. à
-à Le débat n'est point entre ces deux ordres de (la) 4
+à Le débat n'est point entre ces deux ordres de (la)
 | ‘grandeur. Le combat est contre ceux qui haïssent la À
-grandeur même, qui haïssent également l'une et l'autre 3
+grandeur même, qui haïssent également l'une et l'autre
 $ grandeurs, qui se sont faits les tenants officiels de la à
 ï ; C'est ce que l'on verra, ce qui éclate avec une évi- =
 dence saisissante dans les papiers de cette famille répu- Le
 blicaine fouriériste. Ou plutôt, car c'est un peu moins
-compact, un peu moins tassé, dans les cahiers de cette : 3
-= famille de républicains fouriéristes. Mon Dieu, s'il y a 2
-des lettres de Victor Hugo, eh bien, oui, nous les 4
+compact, un peu moins tassé, dans les cahiers de cette
+= famille de républicains fouriéristes. Mon Dieu, s'il y a
+des lettres de Victor Hugo, eh bien, oui, nous les
 publierons. Nous ne serons pas méchants. Nous ne Se
-ferons pas exprès d'embêter cette grande mémoire. Mais 4
+ferons pas exprès d'embêter cette grande mémoire. Mais
 ce que nous publierons surtout, ce sont les dossiers, ce à
 sont les papiers des Milliet. On y verra comment le
-tissu même du parti républicain était héroïque, et ce 4
+tissu même du parti républicain était héroïque, et ce
 qui est presque plus important combien il était cultivé; “4
-: combien il était classique; en un mot, pour qui sait voir, E
+: combien il était classique; en un mot, pour qui sait voir,
 ; pour qui sait lire, combien il était ancienne France,et,
 
 F _ On y verra ce que c'était que la pâte même dont le
@@ -863,58 +863,58 @@ F _ On y verra ce que c'était que la pâte même dont le
 à Notre collaborateur M. Daniel Halévy a fort bien
 É indiqué, dans ces cahiers mêmes, dans son dernier
 À cahier, il a marqué seulement mais il a fort bien marqué
-8 que l'histoire de ce siècle ne va pas pour ainsi dire tout É
+8 que l'histoire de ce siècle ne va pas pour ainsi dire tout
 s de go. Qu'elle n'est pas simple, unique, unilatérale,
 k univoque, bloquée, blocarde, enfin elle-même qu'elle :
 à n'est pas un bloc; qu'elle ne va point toute et toujours |
 É dans le même sens; qu'elle n'est point d'un seul tenant.
 1 . Il n'y a pas eu un ancien régime qui a duré des siècles; %
-È puis un jour une révolution qui a renversé l'ancien 3
+È puis un jour une révolution qui a renversé l'ancien
 + régime; puis des retours offensifs de l'ancien régime; et =:
-L. une lutte, un combat, un débat d'un siècle entre la révo- S ï
+L. une lutte, un combat, un débat d'un siècle entre la révo-
 É lution et l'ancien régime, entre l'ancien régime et la |
 z révolution. La réalité est beaucoup moins simple. #
-1 Halévy a fort bien montré que la République avait, ä
+Halévy a fort bien montré que la République avait, ä
 1 était une tradition, une conservation, elle aussi, (elle :
-surtout peut-être), qu'il y avait une tradition, une con- È
+surtout peut-être), qu'il y avait une tradition, une con-
 É servation républicaine. La différence, la distance entre
 -. les deux hypothèses, entre les deux théories se voit >.
-. surtout, surgit comme d'elle-même naturellement à 4
+. surtout, surgit comme d'elle-même naturellement à
 É certains points critiques, par exemple aux coups d'État. $
-Dans la première théorie, dans la première hypothèse, 4
-4 _ dans l'hypothèse du bloc et de la rigidité, les deux coups 3
+Dans la première théorie, dans la première hypothèse,
+4 _ dans l'hypothèse du bloc et de la rigidité, les deux coups
 -_ d'État sont des mouvements du même ordre, du même :
 Ée. _ sens, du même gabarit, de la même teneur. C'est un |
 E mouvement, le même mouvement en deux fois. Le à
-Êe _ deuxième coup d'État est le recommencement, le double, ë
+Êe _ deuxième coup d'État est le recommencement, le double,
 
-Décembre est comme une deuxième édition deBrumaire. É
+Décembre est comme une deuxième édition deBrumaire.
 Brumaire était la première édition.de Décembre. C'est
 ce qu'enseignent par un double enseignement, conjugué,
 par le même enseignement, par un enseignement con- ;
 jugué, géminé, d'une part les instituteurs, d'autre part
-les réactionnaires. Pour les instituteurs et dans l'ensei- Ë
-gnement des instituteurs (notamment de Victor Hugo) 1
+les réactionnaires. Pour les instituteurs et dans l'ensei-
+gnement des instituteurs (notamment de Victor Hugo)
 les deux coups d'État sont deux crimes, un même crime, $
 £ redoublé, le même crime, en deux temps. Pour les réac-
 # tionnaires et dans l'enseignement des réactionnaires les
 deux coups d'État sont deux opérations de police, deux <
 heureuses opérations de police, renouvelées l'une de
-l'autre, recommencées l'une de l'autre, redoublées lune 3
-de l'autre. Recommandées l'une de lautre. 4
+l'autre, recommencées l'une de l'autre, redoublées lune
+de l'autre. Recommandées l'une de lautre.
 Un mouvement en deux temps. Brumaire et décembre.
 C'est la double idée de Hugo et des bonapartistes.
-La réalité est beaucoup moins simple, beaucoup plus È
+La réalité est beaucoup moins simple, beaucoup plus
 complexe et peut-être même beaucoup plus compliquée. ;
-: La Révolution française fonda une tradition, amorcée 4
-é déjà depuis un certain nombre d'années, une conserva- È
+: La Révolution française fonda une tradition, amorcée
+é déjà depuis un certain nombre d'années, une conserva-
 tion, elle fonda un ordre nouveau. Que cet ordre nouLS veau ne valût pas l'ancien, c'est ce que beaucoup de :
-: bons esprits ont été amenés aujourd'hui à penser. Mais 4
+: bons esprits ont été amenés aujourd'hui à penser. Mais
 elie fonda certainement un ordre nouveau, non pas un :
-désordre, comme les réactionnaires le disent. Cet d
-ordre ensuite dégénéra en désordre(s), qui sous le e.
+désordre, comme les réactionnaires le disent. Cet
+ordre ensuite dégénéra en désordre(s), qui sous le
 Directoire atteignirent leur plus grande gravité. Dès lors :
-si nous nommons, comme on le doit, restaurations les j
+si nous nommons, comme on le doit, restaurations les
 restaurations d'ordre, quel qu'il soit, d'un certain ordre, |
 de l'un ou de l'autre ordre, et si nous nommons perturbations les introductions de désordre(s), le 18 Bru- $
 maire fut certainement une restauration (ensemble, Le
@@ -962,7 +962,7 @@ seulement à la tête, mais dans le corps même, dans
 
 S la nation, dans le tissu du corps politique et social un
 
-politique et démagogique; il fut proprement l'introduc- F
+politique et démagogique; il fut proprement l'introduc-
 tion d'une démagogie; le 4 septembre fut une restaura-
 
 ‘ tion, républicaine; le 31 octobre, le 22 janvier même fut
@@ -970,7 +970,7 @@ une journée républicaine; le 18 mars même fut une
 journée républicaine, une restauration républicaine en
 un certain sens, et non pas seulement un mouvement
 
-5 35
+5
 
 -de température, un coup de fièvre obsidionale, mais
 une deuxième révolte, une deuxième explosion de la |
@@ -981,35 +981,35 @@ ration jusque vers 1881 où l'intrusion de la tyrannie |
 intellectuelle et de la domination primaire commença
 d'en faire un gouvernement de désordre.
 C'est en ce sens, et en ce sens seulement, que le {
-2 Décembre fut le Châtiment, l'Expiation du 18 Bru- |
+Décembre fut le Châtiment, l'Expiation du 18 Bru- |
 maire, et que le Deuxième Empire fut le Châtiment du
 ; Premier. Mais loin d'être la réplique du premier le |
 ; Second Empire fut en un sens tout ce qu'il y eut de plus
 contraire au premier. Le Premier Empire fut un régime
 , d'ordre, d'un certain ordre. Il fut même, sous beaucoup
-: d'indisciplines, même militaires, comme une sorte è
-$ : d'apothéose de la discipline, éminemment de la discipline j
+: d'indisciplines, même militaires, comme une sorte
+$ : d'apothéose de la discipline, éminemment de la discipline
 ; militaire. IL fut un régime d'un très grand ordre et *
 d'une très grande histoire. Le Deuxième Empire fatun
 régime de tous les désordres. Il fut réellement l'intro- \
-à duction d'un désordre, d'un certain désordre, l'intro- 4
-duction, l'installation au pouvoir d'une certaine bande, F
-déconsidérée, très moderne, très avancée, nullement 4
+à duction d'un désordre, d'un certain désordre, l'intro-
+duction, l'installation au pouvoir d'une certaine bande,
+déconsidérée, très moderne, très avancée, nullement
 ancienne France, nullement ancien régime. Ou encore #
 on peut dire que le Deuxième Empire est le plus
 gros boulangisme que nous ayons eu, et aussi le seul à
 qui ait réussi. ;
 
-La Révolution au contraire, la grande, avait été une 3:
+La Révolution au contraire, la grande, avait été une
 
-Ke instauration. Une instauration plus ou moins heureuse, é
-| mais enfin une instauration. Ë
+Ke instauration. Une instauration plus ou moins heureuse,
+| mais enfin une instauration.
 | Une instauration, c'est-à-dire ce dont toute restauration même n'est déjà plus qu'une répétition, une image
 affaiblie, un essai de recommencement,
 En d'autres termes encore, en un autre terme, le à
 | premier Empire ne fut point ce que nous nommons un
 
-césarisme. Le deuxième Empire fut ce que nous nom- s
+césarisme. Le deuxième Empire fut ce que nous nom-
 | mons un césarisme., Le bouiangisme fut un césarisme.
 | Il y eut beaucoup de césarisme dans l'antidreyfusisme. Il
 
@@ -1018,7 +1018,7 @@ n'y en eut point dans le dreyfusisme. La domination coni-
 biste fut très réellement un césarisme, le plus dangereux ce
 . de tous, parce que c'était celui qui se présentait le plus
 
-comme républicain. La domination radicale et radicale- d
+comme républicain. La domination radicale et radicale-
 
 socialiste est proprement un césarisme, nommément un
 
@@ -1027,30 +1027,30 @@ multicésarisme de comités électoraux.
 Il faut si peu suivre les noms, les apparences, les à
 aspects, il faut tant se méfier des noms que de même <
 que le Deuxième Empire, historiquement, réellement,
-ne continue pas l'Empire premier, de même la troisième Ù
-République, historiquement, réellement, ne se continue 3
+ne continue pas l'Empire premier, de même la troisième
+République, historiquement, réellement, ne se continue
 pas elle-même. La suite, la continuation de la troisième si
 République ne continue pas le commencement de la }
-troisième République. Sans qu'il y ait eu en 188r Ê.
+troisième République. Sans qu'il y ait eu en 188r
 
-aucun grand événement, je veux dire aucun événement 5
+aucun grand événement, je veux dire aucun événement
 
 inscriptible, à cette date la République a commencé de |
-se discontinuer. De républicaine elle est notamment l
+se discontinuer. De républicaine elle est notamment
 Il ne faut pas dire seulement : Tout s'explique, je
-dirai : Tout s'éclaire par là. Les difficultés incroyables ë
+dirai : Tout s'éclaire par là. Les difficultés incroyables
 : de l'action publique et privée s'éclairent soudainement,
 ; d'un grand jour, d'une grande lumière, quand on veut
 bien donner audience pour ainsi dire, quand on
-veut bien considérer, quand on veut bien seulement faire attention à cette distinction, à cette ï
+veut bien considérer, quand on veut bien seulement faire attention à cette distinction, à cette
 a récrimination, je veux dire à cette discrimination
 remontante que nous venons de reconnaître. Tous les
 É sophismes, tous les paralogismes de l'action, tous les
 i parapragmatismes, — ou du moins tous les nobles, :
-£ tous les dignes, les seuls précisément où nous puissions 3
+£ tous les dignes, les seuls précisément où nous puissions
 : tomber, les seuls que nous puissions commettre, les à
-: seuls innocents, — si coupables pourtant, — viennent de : 4
-à. ce que nous prolongeons indûment dans l'action poli- L
+: seuls innocents, — si coupables pourtant, — viennent de
+à. ce que nous prolongeons indûment dans l'action poli-
 > tique, dans la politique, une ligne d'action dûmentcom-
 Ë mencée dans la mystique. Une ligne d'action était commencée, était poussée dans la mystique, avait jailli
 dans la mystique, y avait trouvé, y avait pris sa source
@@ -1110,42 +1110,42 @@ Fe de discernement ne devient pas seulement autre, elle
 
 … traire. Et c'est ainsi qu'on devient innocemment
 
-… La même action, qui était propre, devient sale, devient L
+… La même action, qui était propre, devient sale, devient
 
 … une autre action, sale.
 
-C'est ainsi qu'on devient innocent criminel, peut-être e.
-les plus dangereux de tous. 3
+C'est ainsi qu'on devient innocent criminel, peut-être
+les plus dangereux de tous.
 Une action commencée sur la mystique continue sur
-la politique et nous ne sentons point que nous passons 3
+la politique et nous ne sentons point que nous passons
 sur ce point de discernement, La politique dévore la ;
 mystique et nous ne sautons point quand nous passons à
 sur ce point de discontinuité. #
 Quand par impossible un homme de cœur discerne ;
 " : au point de discernement, s'arrête au point d'arrêt,
 | refuse de muer à ce point de mutation, rebrousse à ce
-point de rebroussement, refuse, pour demeurer fidèle 2
+point de rebroussement, refuse, pour demeurer fidèle
 à une mystique, d'entrer dans les jeux politiques, dans |
-les abus de cette politique qui est elle-même un abus, 4
-| quand un homme de cœur, pour demeurer fidèle à une 3
+les abus de cette politique qui est elle-même un abus,
+| quand un homme de cœur, pour demeurer fidèle à une
 mystique, refuse d'entrer dans le jeu de la politique
-correspondante, de la politique issue, de la parasitaire, F
+correspondante, de la politique issue, de la parasitaire,
 de la dévorante politique, les politiciens ont accoutumé >
 de le nommer d'un petit mot bien usé aujourd'hui :
 ; volontiers ils nous nommeraient traître.
 D'ailleurs ils nous nommeraient traîtres sans convic- À
 tion, pour mémoire, pour les électeurs. Parce qu'il faut
-= , bien mettre quelque mot dans les programmes et dans 4
-: les polémiques. ; 1
+= , bien mettre quelque mot dans les programmes et dans
+: les polémiques.
 Qu'on le sache bien c'est ce traître que nous avons à
 toujours été et que nous serons toujours. C'est ce traître, Er
 notamment, éminemment, que nous avons toujours été .
-dans l'affaire Dreyfus et dans l'affaire dreyfusisme. Le É
-véritable traître, le traître au sens plein, au sens fort, 3
-au sens ancien de ce mot, c'est celui qui vend sa foi, 3
+dans l'affaire Dreyfus et dans l'affaire dreyfusisme. Le
+véritable traître, le traître au sens plein, au sens fort,
+au sens ancien de ce mot, c'est celui qui vend sa foi,
 qui vend son âme, qui livre son être même, qui perd &
-son âme, qui trahit ses principes, son idéal, son être 4
-même, qui trahit sa mystique pour entrer dans la poli- 4
+son âme, qui trahit ses principes, son idéal, son être
+même, qui trahit sa mystique pour entrer dans la poli-
 
 FU tique correspondante, dans la politique issue, passant
 à ve complaisamment par dessus le point de discrimination. :
@@ -1158,25 +1158,25 @@ ne Je ne suis pas le seul. Les abonnés de ces cahiers,
 de cœur, des petites gens, généralement obscurs, géné-
 ralement pauvres, quelques-uns très pauvres, pour ainsi
 É dire misérables, qui ont sacrifié deux fois leur carrière,
-- _ leur avenir, leur existence et leur pain : une première 4
+- _ leur avenir, leur existence et leur pain : une première
 _ fois pour lutter contre leurs ennemis, une deuxième fois
-5 _ pour lutter contre leurs amis; et combien n'est-ce pas É
+5 _ pour lutter contre leurs amis; et combien n'est-ce pas
 : plus difficile ; une première fois pour résister à la poli-
 
-no tique de leurs ennemis, une deuxième fois pour résister 4
+no tique de leurs ennemis, une deuxième fois pour résister
 
 à la politique de leurs amis ; une première fois pour ne
 pas succomber à leurs ennemis, une deuxième fois pour
 ne pas succomber à leurs amis.
 
-4 C'est ce traître-ci que nous entendons être.
+C'est ce traître-ci que nous entendons être.
 à. Une première fois pour ne pas succomber à la déma- à
 ki gogie de leurs ennemis, une deuxième fois pour ne pas
 + succomber à la démagogie de leurs amis; une première
 = fois pour ne pas succomber à l'inimitié, une deuxième
 +1 fois pour ne pas succomber à la plus difficile amitié.
 
-4 Tous nous savons ce que ça nous a coûté. Et c'est
+Tous nous savons ce que ça nous a coûté. Et c'est
 pour cela que nous exigerons toujours de nos amis un
 
 4 respect que nos ennemis ne nous ont jamais refusé.
@@ -1199,22 +1199,22 @@ Mais ils n'en sont peut-être pas maîtres.
 Ils ne sont pas nos maîtres. Tout le monde n'est pas
 sous leurs ordres. Ils ne sont pas même leurs propres
 
-Parlons plus simplement de ces grands hommes. Et 3
-moins durement. Leur politique est devenue un manège Ë
+Parlons plus simplement de ces grands hommes. Et
+moins durement. Leur politique est devenue un manège
 de chevaux de bois. Ils nous disent : Monsieur, vous
-avez changé, vous n'êtes plus à la même place. La É
-preuve, c'est que vous n'êtes plus en face du même 1
+avez changé, vous n'êtes plus à la même place. La
+preuve, c'est que vous n'êtes plus en face du même
 
 < chevau de bois. — Pardon, monsieur le député, ce sont
 les chevaux de Bois qui ont tourné. (
 
-Il faut rendre d'ailleurs cette justice à ces malheureux ë
-qu'iis sont généralement très gentils avec nous, excepté 4
-la plupart de ceux qui sortant du personnel enseignant 1
-constituent le parti intellectuel. Tous les autres, les 5
+Il faut rendre d'ailleurs cette justice à ces malheureux
+qu'iis sont généralement très gentils avec nous, excepté
+la plupart de ceux qui sortant du personnel enseignant
+constituent le parti intellectuel. Tous les autres, les
 députés propres, les politiciens proprement dits, les
 parlementaires professionnels ont bien autre chose à
-faire que de s'occuper de nous, et surtout que de nous 1
+faire que de s'occuper de nous, et surtout que de nous
 ennuyer ou de nous être désagréables : les concurrents, ;
 
 les compétiteurs, les électeurs, la réélection, les compé-
@@ -1252,25 +1252,25 @@ nommément les anciens normaliens. Ceux-là en veulent
 véritablement à la culture. Ils ont contre elle une sorte |
 de haïne véritablement démoniaque.
 
-Il faut d'ailleurs bien faire attention. Quand on parle É
+Il faut d'ailleurs bien faire attention. Quand on parle
 de parti intellectuel et de l'envahissement de la domi- |
-. nation du primaire il faut prendre garde. Il ne suffit J
+. nation du primaire il faut prendre garde. Il ne suffit
 pas de dire primaire, primaire. Il faut bien voir aujour- $
-d'hui que le primaire n'est pas tout, (tout entier), dans 3
-le primaire. Il s'en faut. Il n'est point tant dans le pri- 1
+d'hui que le primaire n'est pas tout, (tout entier), dans
+le primaire. Il s'en faut. Il n'est point tant dans le pri-
 maire. Il s'en faut, et ce n'est même pas là qu'il est le ?
-plus. Il faut prendre garde que c'est sans aucun doute 4
-dans le supérieur aujourd'hui qu'il y a le plus de pri- Ë
+plus. Il faut prendre garde que c'est sans aucun doute
+dans le supérieur aujourd'hui qu'il y a le plus de pri-
 maire, de contamination primaire, de domination primaire. Pour moi j'ai la conviction qu'il 8e distribue ;
 Le beaucoup plus de véritable culture, aujourd'hui même
 encore, dans la plupart des écoles primaires, dans la
-plupart des écoles des villages de France, entre les carrés x
+plupart des écoles des villages de France, entre les carrés
 de vignes, à l'ombre des platanes et des marronniers, -
-; qu'il ne s'en distribue entre les quatre murs de la Sor- 4
-bonne. Voici quelle est à peu près aujourd'hui, dans la h
+; qu'il ne s'en distribue entre les quatre murs de la Sor-
+bonne. Voici quelle est à peu près aujourd'hui, dans la
 réalité, la hiérarchie des trois enseignements : Un très
-grand nombre d'instituteurs encore, même radicaux et 1
-radicaux-socialistes, même francs-maçons, même librepenseurs professionnels, pour toutes sortes de raisons È
+grand nombre d'instituteurs encore, même radicaux et
+radicaux-socialistes, même francs-maçons, même librepenseurs professionnels, pour toutes sortes de raisons
 de situation et de race continuent encore d'exercer,
 généralement à leur insu, dans les écoles des provinces - |
 et même des villes un certain ministère de la culture. $
@@ -1284,7 +1284,7 @@ _ classique dont il avait le dépôt, dont il garde envers :
 # et contre tout la tradition. C'est un spectacle admirable
 E que (celui que) donnent tant de professeurs de l'ensei-
 ÿ: gnement secondaire, pauvres, petites gens, petits fonc4 tionnaires, exposés à tout, sacrifiant tout, luttant contre
-3 tout, résistant à tout pour défendre leurs classes. É
+3 tout, résistant à tout pour défendre leurs classes.
 É Luttant contre tous les pouvoirs, les autorités tempo- ;
 bee relles, les puissances constituées. Contre les familles,
 - ces électeurs, contre l'opinion; contre le proviseur, qui
@@ -1305,31 +1305,31 @@ Fe est toute moderne. Pourquoi. Par une indestructible
 -…._  probité. Par une indestructible piété. Par un invincible,
 #4 Re un insurmontable attachement de race et de liberté à
 
-leur métier, à leur office, à leur ministère, à leur vieille 4
+leur métier, à leur office, à leur ministère, à leur vieille
 vertu, à leur fonction sociale, à un vieux civisme classique et français. Par un inébranlable attachement à ;
 ‘la vieille .culture, qui en effet était la vieille vertu, $
 qui était tout un avec la vieille vertu, par une continuation, par une sorte ‘d'héroïque attachement au
-vieux métier, au vieux pays, au vieux lycée. Pour Ë
+vieux métier, au vieux pays, au vieux lycée. Pour
 quoi. Pour tâcher d'en sauver un peu. C'est par eux, à
 par un certain nombre de maîtres de l'enseignement ;
-secondaire, par un assez grand nombre encore heureusement, que toute culture n'a point encore disparu de È
-ce pays. Je connais, je pourrais citer moi tout seul, moi É
-tout petit cent cinquante professeurs de l'enseignement È
+secondaire, par un assez grand nombre encore heureusement, que toute culture n'a point encore disparu de
+ce pays. Je connais, je pourrais citer moi tout seul, moi
+tout petit cent cinquante professeurs de l'enseignement
 secondaire qui font tout, qui risquent tout, qui bravent :
-tout, même et surtout l'ennui, le plus grand risque, la 4
-5 petite fin de carrière, pour maintenir, pour sauver tout 4
-ce qui peut encore être sauvé. On trouverait difficile- 4
+tout, même et surtout l'ennui, le plus grand risque, la
+5 petite fin de carrière, pour maintenir, pour sauver tout
+ce qui peut encore être sauvé. On trouverait difficile-
 ment cinquante maîtres de l'enseignement supérieur, et
 même trente, et même quinze, qui se proposent autre
-chose (outre la carrière, et l'avancement, et pour com- 4
+chose (outre la carrière, et l'avancement, et pour com-
 mencer précisément d'être de l'enseignement supérieur) ;
-qui se proposent autre chose que d'ossifier, que de Ë
-momifier la réalité, les réalités qui leur sont imprudem- 4
+qui se proposent autre chose que d'ossifier, que de
+momifier la réalité, les réalités qui leur sont imprudem-
 : ment confiées, que d'ensevelir dans le tombeau des : (
 fiches la matière de leur enseignement.
-Je citerais cent cinquante professeurs de l'enseignement secondaire qui font tout ce qu'ils peuvent, et : - 1
+Je citerais cent cinquante professeurs de l'enseignement secondaire qui font tout ce qu'ils peuvent, et :
 même plus, pour essayer seulement de sauvegarder un :
-peu, dans ce vieux pays, un peu de bon goût, un peu ï
+peu, dans ce vieux pays, un peu de bon goût, un peu
 de tenue, un peu d'ancien goût, un peu des anciennes |
 mœurs de l'esprit, un peu de ce vieil esprit de la liberté ;
 
@@ -1363,48 +1363,48 @@ $ ce sont ces jeunes gens qui passent directement de
 3 nous envoyer encore tout un paquet de ces jolis gar-
 çons. Les enfants de chœur, notamment celui qui est si
 4 joli et joufflu. Comme c'est son devoir d'enfant de chœur.
-75 47
+75
 
 Notre première règle de conduite, ou, si l'on préfère, “4
-la première règle de notre conduite sera done, étant 3
-dans l'action, de ne jamais tomber dans la politique, É
-c'est-à-dire, très précisément, suivant une ligne de 25
+la première règle de notre conduite sera done, étant
+dans l'action, de ne jamais tomber dans la politique,
+c'est-à-dire, très précisément, suivant une ligne de
 l'action, de nous défier, de nous méfier de nous-mêmes ;
 et de notre propre action, de faire une extrême atten- |
 tion à distinguer le point de discernement, et ce point
 reconnu, de rebrousser en effet à ce point de rebrous- ;
-sement: Au point où la politique se substitue à la 1
-| mystique, dévore la mystique, trahit la mystique, celui- É
-là seul qui laisse aller, qui abandonne, qui trahit la 4
+sement: Au point où la politique se substitue à la
+| mystique, dévore la mystique, trahit la mystique, celui-
+là seul qui laisse aller, qui abandonne, qui trahit la
 politique est aussi le seul qui demeure fidèle à la mys- \
 tique, celui-là seul qui trahit la politique est aussi le - :
 seul qui ne trahit pas la mystique. à
-Au point de rebroussement il ne faut rien garder de À ï
-la vieille analyse, de la vieille idée. De l'habitude. Il 4
-faut être prêt à recommencer, il faut recommencer de 4
+Au point de rebroussement il ne faut rien garder de À
+la vieille analyse, de la vieille idée. De l'habitude. Il
+faut être prêt à recommencer, il faut recommencer de
 plano l'analyse. |
-| Si notre première règle d'action, de conduite sera de 73
-ne point continuer aveuglément par dessus le point de Ë
-discernement une action commencée en mystique et qui k
-finit en politique, pareillement, parallèlement notre 4
-première règle de connaissance, de jugement, de con- 4
-- naissement sera de ne point continuer aveuglément par 4
+| Si notre première règle d'action, de conduite sera de
+ne point continuer aveuglément par dessus le point de
+discernement une action commencée en mystique et qui
+finit en politique, pareillement, parallèlement notre
+première règle de connaissance, de jugement, de con-
+- naissement sera de ne point continuer aveuglément par
 dessus le point de discernement un jugement, un con- Ee
 naissement sur une action commencée en mystique et
-qui finit en politique. Il faut avant tout et sur tout se 3
-défier, se méfier de soi, de son propre jugement, de £ 4
+qui finit en politique. Il faut avant tout et sur tout se
+défier, se méfier de soi, de son propre jugement, de £
 
 _ son propre connaissement. Il faut sur tout se donner
 -<e _ garde de continuer. Continuer, persévérer, en ce sens-
 | là, c'est tout ce qu'il y a de plus dangereux pour la
 es justice, pour l'intelligence même. Prendre son billet
-1 ES au départ, dans un parti, dans une faction, et ne
+ES au départ, dans un parti, dans une faction, et ne
 à plus jamais regarder comment le train roule et
 4 surtout sur quoi le train roule, c'est, pour un homme,
 4 se placer résolument dans les meilleures conditions À
 x pour se faire criminel.
-1 Tout le fatras des propos et des conversations, les
-. £ embarras, les apparentes contradictions, les embrous- Ë
+Tout le fatras des propos et des conversations, les
+. £ embarras, les apparentes contradictions, les embrous-
 A saillements, les inextricables difficultés du jugement,
 2 les apparentes incompréhensions et impossibilités de
 e 4 comprendre et de suivre, les bonnes fois contraires et
@@ -1423,35 +1423,35 @@ ei de la mystique, et l'autre répond de la politique corres- Le
 “ Ce n'est pas seulement la justice, dans l'ordre du jugeF4 ment moral, qui demande que l'on compare toujours
 deux actions aux mêmes étages et non point en deux
 
-étages différents, la mystique à la mystique et la 1
-politique à la politique, et non point la mystique à la F
+étages différents, la mystique à la mystique et la
+politique à la politique, et non point la mystique à la
 politique ni la politique à la mystique, c'est aussi la
-justesse, dans l'ordre du jugement mental, qui a exacte- 1
+justesse, dans l'ordre du jugement mental, qui a exacte-
 ment la même exigence.
 Quand nos instituteurs comparent incessamment la
 mystique républicaine à la politique royaliste et quand
 tous les matins nos royalistes comparent la mystique à
-royaliste à la politique républicaine, ils font, ils s
-commettent le même manquement, deux manquements F
+royaliste à la politique républicaine, ils font, ils
+commettent le même manquement, deux manquements
 le même, un manquement conjugué; ensemble ils
 manquent à la justice et à la justesse ensemble.
-< Une première conséquence de cette distinction, une i 4
-première application de ce reconnaissement, de ce dis- L.
-cernement, de cette redistribution, c'est que les mys- L
+< Une première conséquence de cette distinction, une
+première application de ce reconnaissement, de ce dis-
+cernement, de cette redistribution, c'est que les mys-
 tiques sont beaucoup moins ennemies entre elles que à
 les politiques, et qu'elles le sont tout autrement. IL ne À
-faut donc pas faire porter aux mystiques la peine des 4
+faut donc pas faire porter aux mystiques la peine des
 dissensïons, des guerres, des inimitiés politiques, il ne :
-faut pas reporter sur les mystiques la malendurance É
-des politiques. Les mystiques sont beaucoup moins F4
+faut pas reporter sur les mystiques la malendurance
+des politiques. Les mystiques sont beaucoup moins
 ennemies entre elles que les politiques ne le sont entre ;
-elles. Parce qu'elles n'ont point comme les politiques à É:
-se partager sans cesse une matière, temporelle, un É.
-moride temporel, une puissance temporelle incessam- 4
+elles. Parce qu'elles n'ont point comme les politiques à
+se partager sans cesse une matière, temporelle, un
+moride temporel, une puissance temporelle incessam-
 ment limitée. Des dépouilles temporelles. Des dépouilles
 mortelles. Et quand elles sont ennemies, elles le $
-sont tout autrement, à une profondeur infiniment plus È
-essentielle, avec une noblesse infiniment plus profonde. 4
+sont tout autrement, à une profondeur infiniment plus
+essentielle, avec une noblesse infiniment plus profonde.
 
 $ Ë Par exemple jamais la mystique civique, la mystique
 5 antique ne s'est opposée, n'a pu s'opposer à la mystique
@@ -1468,7 +1468,7 @@ a ensemble bon chrétien et bon citoyen, tant qu'on ne
 À: tique en politique, une mystique en une politique, si ;
 À on ne les suit pas, alors c'est eux qui vous accusent de
 x Nous en avons eu un exemple éminent dans l'affaire
-4 Dreyfus continuée en affaire dreyfusisme. On peut dire .
+Dreyfus continuée en affaire dreyfusisme. On peut dire .
 ee que les politiciens introduisent et dans l'action et dans
 À D ‘ de naturelles), des difficultés artificielles, des difficultés
 &: supplémentaires, des difficultés surérogatoires, des diff-
@@ -1484,31 +1484,31 @@ _  déchirures temporelles gratuites, des déchirures poli-
 tiques artificielles. Comme si ce n'était pas assez déjà $ À
 des grands déchirements mystiques. Ils créent ainsi des :
 Nous en avons eu un exemple éminent dans cette ;
-sisme. S'il y en eut une qui sauta par dessus son point ê
+sisme. S'il y en eut une qui sauta par dessus son point
 de discernement, ce fut celle-là. Elle offre, avec une #
 perfection peut-être unique, comme une réussite peut- Re
-être unique, comme un exemple unique, presque comme 4
+être unique, comme un exemple unique, presque comme
 à un modèle un raccourci unique généralement de ce que %
-c'est que la dégradation, l'abaissement d'une action 8
+c'est que la dégradation, l'abaissement d'une action
 humaine, mais non pas seulement cela : particulière- ‘4
 à ment, proprement un raccourci unique, (comme) une À
-culmination de ce que c'est que la dégradation d'une 4
-: ment?) par dessus son point de rupture, par dessus son 4
-point de discernement, par dessus son point de rebrous- Ê
+culmination de ce que c'est que la dégradation d'une
+: ment?) par dessus son point de rupture, par dessus son
+point de discernement, par dessus son point de rebrous-
 sement, par dessus son point de continuité discontinue. ‘4
-Faut-il noter une fois de plus qu'il y eut, qu'il y a 4
-dans cette affaire Dreyfus, qu'il y aura longtemps 4
+Faut-il noter une fois de plus qu'il y eut, qu'il y a
+dans cette affaire Dreyfus, qu'il y aura longtemps
 3 en elle, et peut-être éternellement, une vertu singulière.
 Je veux dire une force singulière. Nous le voyons bien ;
 aujourd'hui. A présent que l'affaire est finie. Ce n'était
 pas une illusion de notre jeunesse. Plus cette affaire est À
 finie, plus il est évident qu'elle ne finira jamais. Plus
 elle est finie plus elle prouve. Et d'abord il faut noter 4 |
-qu'elle prouve qu'elle avait une vertu singulière. Dans E
+qu'elle prouve qu'elle avait une vertu singulière. Dans
 les deux sens. Une singulière vertu de vertu tant qu'elle LA
-demeura dans la mystique. Une singulière vertu de E
+demeura dans la mystique. Une singulière vertu de
 malice aussitôt qu'elle fut entrée dans la politique. C'est a
-un des plus grands mystères qu'il y ait dans l'histoire 4
+un des plus grands mystères qu'il y ait dans l'histoire
 et dans la réalité, et naturellement aussi, naturellement 3 ;
 | 52 -
 
@@ -1551,13 +1551,13 @@ silence et l'ombre, pour la nuit et le silence, pour tom-
 un mystèreque nous ne voyons pas, comme tous les plus
 grands mystères, précisément parce que nous y baï- ke
 gnons, comme dans tous les plus grands mystères; À
-enfin qu'il y ait non seulement des hommes et pour ainsi F
+enfin qu'il y ait non seulement des hommes et pour ainsi
 ‘ dire des dieux temporellement élus, mais des peuples
 | entiers temporellement élus et peut-être plus, c'est cer- à
 tainement peut-être le plus grand mystère de l'événe- ‘4
-ment, le plus poignant problème de l'histoire. Qu'il y ï 1
+ment, le plus poignant problème de l'histoire. Qu'il y
 ait même comme des événements élus. C'est le plus #
-grand problème de la création. Nous ne manquerons 4
+grand problème de la création. Nous ne manquerons
 point, nous n'éviterons point de le considérer, de le $
 méditer longuement dans les études que nous avons Fa
 commencées de la situation faite à l'histoire et à la
@@ -1568,9 +1568,9 @@ dans trois histoires elles-mêmes éminentes. Elle fut une +
 crise éminente dans l'histoire d'Israël. Elle fut une crise
 éminente, évidemment, dans l'histoire de France. Elle $
 fut surtout une crise éminente, et cette dignité apparaitra de plus en plus, elle fut surtout une crise éminente -*
-dans l'histoire de la chrétienté. Et peut-être de plusieurs 4
+dans l'histoire de la chrétienté. Et peut-être de plusieurs
 autres, Ainsi par un recoupement, par une élection ;
-peut-être unique elle fut triplement critique. EHe fut 4
+peut-être unique elle fut triplement critique. EHe fut
 triplement éminente. Elle fut proprement une affaire ;
 
 …_  culminante. Pour moi, si je puis continuer ces études
@@ -1604,46 +1604,46 @@ A qui se tient, tout article de revue ou de journal; tout
 3 livre, tout cahier qui s'écrit de l'affaire Dreyfus a en lui,
 ‘à porte en lui on ne sait quel virus, quel point de virus
 
-‘qui nous travaille infatigable. On n'en peut point tou- 4
+‘qui nous travaille infatigable. On n'en peut point tou-
 cher un mot qui ne soit nocif et sacré. Nous n'en souf- À
 
 frons que trop, quelquefois, aux cahiers, le jeudi. Mais
 
-c'est la marque même et le signe de la valeur, du prix 3
-propre, le signe de l'élection. F
+c'est la marque même et le signe de la valeur, du prix
+propre, le signe de l'élection.
 Pour moi si ayant achevé une œuvre infiniment plus À
 
 grave je viens à l'âge des Confessions, qui est, comme |
-: on sait, cinquante ans révolus, à neuf heures du matin, É
+: on sait, cinquante ans révolus, à neuf heures du matin,
 c'est ce que je me proposerai certainement d'y repré- ;
-senter. J'essaierai, reprenant, achevant mon ancienne 3
-décomposition du dreyfusisme en France de donner 84
+senter. J'essaierai, reprenant, achevant mon ancienne
+décomposition du dreyfusisme en France de donner
 non pas une idée, mais j'essaierai de donner une repré- à
 sentation de ce que fut dans la réalité cette immortelle ;
-affaire Dreyfus. Elle fut, comme toute affaire qui se 4
-respecte, une affaire essentiellement mystique. Elle e
-vivait de sa mystique. Elle est morte de sa politique. 2
-ÿ C'est la loi, c'est la règle. C'est le niveau des vies. Tout 4
-: parti vit de sa mystique et meurt de sa politique. C'est 4
-; ce que j'essaierai de représenter. J'avoue, je commence É
-à croire que ce ne sera pas inutile. Je soupçonne qu'il: É
+affaire Dreyfus. Elle fut, comme toute affaire qui se
+respecte, une affaire essentiellement mystique. Elle
+vivait de sa mystique. Elle est morte de sa politique.
+ÿ C'est la loi, c'est la règle. C'est le niveau des vies. Tout
+: parti vit de sa mystique et meurt de sa politique. C'est
+; ce que j'essaierai de représenter. J'avoue, je commence
+à croire que ce ne sera pas inutile. Je soupçonne qu'il:
 
-” y a sur cette affaire Dreyfus de nombreux malentendus. 3
+” y a sur cette affaire Dreyfus de nombreux malentendus.
 J'avoue que je ne me reconnais pas du tout dans le il
 
-portrait que Halévy a tracé ici même du dreyfusiste. Je 4
+portrait que Halévy a tracé ici même du dreyfusiste. Je
 
-ne me sens nullement ce poil de chien battu. Je consens 3
+ne me sens nullement ce poil de chien battu. Je consens
 
-d'avoir été vainqueur, je consens (ce qui est mon juge- è
+d'avoir été vainqueur, je consens (ce qui est mon juge-
 
 ment propre) d'avoir été vaincu (ça dépend du point +
-de vue auquel on se place), je ne consens point d'avoir 3
-été battu. Je consens d'avoir été ruiné, (dans le tem- j
+de vue auquel on se place), je ne consens point d'avoir
+été battu. Je consens d'avoir été ruiné, (dans le tem-
 
-porel, et fort exposé dans l'intemporel), je consens 1
+porel, et fort exposé dans l'intemporel), je consens
 
-d'avoir été trompé, je consens d'avoir été berné. Jene , 1
+d'avoir été trompé, je consens d'avoir été berné. Jene
 
 s | consens point d'avoir été mouillé. Je ne me sens point
 < ce poil de chien mouillé. Je ne me reconnais point dans
@@ -1666,12 +1666,12 @@ une pénitence qui ne serait point une pénitence chré-
 à serait une espèce d'humilité civile, civique, laïque, une
 : imitation, une contrefaçon de l'humilité. Dans le civil,
 F dans le civique, dans le laïque, dans le profane je veux
-$ * être bourré d'orgueil. Nous l'étions. Nous en avions le F
+$ * être bourré d'orgueil. Nous l'étions. Nous en avions le
 É droit. Nous en avions le devoir. Non seulement nous SL
 | n'avons rien à regretter. Mais nous n'avons rien, nous ‘
 n'avons rien fait dont nous n'ayons à nous glorifier. Dont
 3 nous ne puissions, dont nous ne devions nous glorifier.
-4 On peut commencer demain matin la publication de
+On peut commencer demain matin la publication de
 4 mes œuvres complètes. On pourrait même y ajouter la
 È publication de mes propos, de mes paroles complètes. |
 É Il n'y a pas, dans tous ces vieux cahiers, un mot que À
@@ -1687,7 +1687,7 @@ mais nous n'avons rien dont nous n'ayons à nous glorifier. Car dans nos plus ar
 invectives, dans nos pampbhlets nous n'avons jamais
 perdu le respect du respect. Du respectable respect.
 
-Nous n'avons, nous n'avons à avoir ni regret ni j
+Nous n'avons, nous n'avons à avoir ni regret ni
 remords. Dans ces confessions d'un dreyfusiste qui
 feront une part importante de nos Confessions géné-
 £ rales, il ÿy aura, je l'ai promis, de nombreux cahiers qui
@@ -1697,17 +1697,17 @@ qui s'intitulera mémoires d'un lâche, ou d'un pleutre
 (nous laisserons ceux-ci à faire à M. Jaurès et ils ne :
 seront certainement pas mal faits). (Il est si bon à
 maquignon.) Il n'y en aura aucun qui s'intitulera :
-cahiers, mémoires d'un faible; d'un repentant. Il n'y ÿ j
-en aura aucun qui s'intitulera mémoires d'un homme 4
+cahiers, mémoires d'un faible; d'un repentant. Il n'y
+en aura aucun qui s'intitulera mémoires d'un homme
 ' politique. Ils seront tous, dans le fond, les mémoires |
-d'un homme mystique. 4
+d'un homme mystique.
 On peut publier demain matin nos œuvres complètes. :
 >: Non seulement il n'y a pas une virgule que nous ayons
-à désavouer, mais il n'y a pas une virgule dont nous 4
+à désavouer, mais il n'y a pas une virgule dont nous
 n'ayons à nous glorifier.
-C'est bien l'idée de Halévy, qu'en effet je ne m'y 1
-reconnaisse pas. Plusieurs fois il nous le dit expressé- É
-ment. Mais je ne sais pas si son lecteur voit bien toujours que c'est son idée. Ç
+C'est bien l'idée de Halévy, qu'en effet je ne m'y
+reconnaisse pas. Plusieurs fois il nous le dit expressé-
+ment. Mais je ne sais pas si son lecteur voit bien toujours que c'est son idée.
 
 ; _ Notre collaborateur a bien marqué, dans tout son
  - cahier, qu'en effet il ne s'agit point de nous. Ce qu'il a
@@ -1730,8 +1730,8 @@ ce double sens et la confusion de ce double sens. C'est
 pour cela que j'avais une sourde révolte, sourde natu-
 | rellement parce que je ne suis pas éloquent. Je ron- |
 | chonnaïs, je marmonnais, je marmottais, tout en lisant
-| mes épreuves, et plus je trouvais que le cahier est beau, B
-; plus je trouvais qu'il est bon, plus.je me révoltais. Parce e
+| mes épreuves, et plus je trouvais que le cahier est beau,
+; plus je trouvais qu'il est bon, plus.je me révoltais. Parce
 É que plus je pensais qu'il serait écouté. Plus je pensais
 % qu'il porterait. C'est pourquoi ce que je veux contester
 4 à notre collaborateur, c'est la proportion, c'est la quotité
@@ -1744,7 +1744,7 @@ S. Il a bien pensé lui-même, il a fait une réserve, il a fait
 
 ..
 à part ceux des dreyfusistes qui n'étaient point entrés
-dans les démagogies politiques, notamment dans la 2
+dans les démagogies politiques, notamment dans la
 démagogie combiste. Mais où je conteste à notre collaborateur, c'est quand il paraît admettre que nous ne
 représentons pas le dreyfusisme et que les autres le
 représentent, quand il nous classe et nous met à part
@@ -1754,12 +1754,12 @@ ceux que nous sommes autorisés à nommer les politis ciens. Nous prétendons au
 nous seuls nous le représentons. }
 Halévy a quelquefois l'air de dire que les autres
 auraient comme suivi une courbe légitime et que nous !
-autres nous serions des sauvages, presque comme des i
-fantaisistes, que nous aurions fait une rupture, brusque, ï.
+autres nous serions des sauvages, presque comme des
+fantaisistes, que nous aurions fait une rupture, brusque,
 un saut illégitime. Ce seraient les autres qui seraient à
-pour ainsi dire de droit et nous qui serions comme de + 4
+pour ainsi dire de droit et nous qui serions comme de +
 ES travers. Ce seraient les autres qui seraient la règle, le 1]
-EF as £ commun, l'ordinaire, le naturel, et nous qui serions non s: 1
+EF as £ commun, l'ordinaire, le naturel, et nous qui serions non
 : _ pas seulement l'extraordinaire, mais l'exception, et
 : surtout une exception artificielle. On veut toujours que |
 ce soit la faiblesse et la dégradation qui soit la règle, {
@@ -1767,9 +1767,9 @@ l'ordinaire, le commun, qui soit comme de droit, qui
 aille de soi. C'est précisément ce que je conteste dans }
 tous les ordres, au moins pour cette race française. En
 France le courage et la drciture vont très bien de soi.
-Sans doute les apparences donneraient raison à î
-Halévy, les apparents seraient pour lui. Je veux dire 1
-que si l'on (ne) considère (que) les dreyfusistes appa- j
+Sans doute les apparences donneraient raison à
+Halévy, les apparents seraient pour lui. Je veux dire
+que si l'on (ne) considère (que) les dreyfusistes appa-
 
 Fe se rents, les hommes en vue, journalistes, publicistes, conre férenciers, Universités Populaires, parlementaires, can-
 $ didats, hommes politiques, tout ce qui parle et tout ce
@@ -1785,7 +1785,7 @@ retour, saisit avec tant d'empressement) aient une
 Ë sont demeurés dreyfusistes, qu'ils sont demeurés myÿs2 tiques, et qu'ils sont demeurés les mains pures. Qu''imee. porte que tous les apparents, tous les phénomènes, tous
 les officiels, tous les avantageux aient abandonné, aient
 É raillé, aient renié, aient trahi cette mystique pour la
-politique issue, pour toutes sortes de politiques, pour S
+politique issue, pour toutes sortes de politiques, pour
 toutes les démagogies politiques. Cela, mon cher
 Halévy, vous l'avez dit vous-même : C'est le niveau des
 4 vies. Qu'importe qu'ils nous raillent. Seuls nous repré-
@@ -1829,7 +1829,7 @@ Re et en inspection. Qu'ils nous demandent des comptes,
 “£a eux à nous, vraiment ce serait risible. Tout le droit
 qu'ils ont, avec nous, c'est de se taire. Et de tâcher de
 à se faire oublier. Espérons qu'ils en useront largement.
-4 Ce que je prétends, c'est que tout le corps mystique
+Ce que je prétends, c'est que tout le corps mystique
 3 du dreyfusisme est demeuré intact. Qu'importe que les
 À politiciens aient trahi cette mystique. C'est leur office
 “3 Après vous me direz que ni les États-Majors ni les
@@ -1843,39 +1843,39 @@ Là politique, cent politiques, au prix d'une mystique. Tout
 É: détestables qu'ils soient, ils ne sont encore que par nous,
 e ils sont encore et toujours nos débiteurs. Toute mystique
 É- es est créancière de toutes politiques.
-4 Leur détestation même est de nous, est notre œuvre,
+Leur détestation même est de nous, est notre œuvre,
 ‘4 nous parasite.
-4 Vous ajouterez que la victime elle-même n'était done
+Vous ajouterez que la victime elle-même n'était done
 ee point de sa mystique. De sa propre mystique. Cela est
 : 4 devenu évident. Nous fussions morts pour Dreyfus.
 
 Dreyfus n'est point mort pour Dreyfus. Il est de bonne nu à
-règle que la victime ne soit point”de la mystique de sa È
-C'est le triomphe de la faiblesse humaine, le couron- 4
-nement de notre vanité, la plus grande preuve; le plus 4
+règle que la victime ne soit point”de la mystique de sa
+C'est le triomphe de la faiblesse humaine, le couron-
+nement de notre vanité, la plus grande preuve; le plus
 grand effort, le chef-d'œuvre, la démonstration la plus
-haute, suprême, culminante de notre infirmité. 2 1
+haute, suprême, culminante de notre infirmité.
 Il fallait que ce fût ainsi pour que le chef-d'œuvre de
-; notre misère fût achevé, pour que toute l'amertume fût 1
+; notre misère fût achevé, pour que toute l'amertume fût
 bue, pour que l'ingratitude fût vraiment couronnée.
 Pour que ce fût complet. Pour que le désabusement |
-; L'affaire Dreyfus, le dreyfusisme, la mystique, le î
-mysticisme dreyfusiste fut une culmination, un recou- i
-pement en culmination de trois mysticismes au moins : 4
-juif, chrétien, français. Et comme je le montrerai ces k
-trois mysticismes ne s'y déchiraient point, ne s'y meur- 3
-3 trissaient point, mais y concouraient au contraire par 4
-: une rencontre, par un recoupement, en une rencontre, :S
+; L'affaire Dreyfus, le dreyfusisme, la mystique, le
+mysticisme dreyfusiste fut une culmination, un recou-
+pement en culmination de trois mysticismes au moins
+juif, chrétien, français. Et comme je le montrerai ces
+trois mysticismes ne s'y déchiraient point, ne s'y meur-
+3 trissaient point, mais y concouraient au contraire par
+: une rencontre, par un recoupement, en une rencontre,
 en un recoupement peut-être unique dans l'histoire du À
 monde. à
 Je suis en mesure d'affirmer que tous les mystiques :
-dreyfusistes sont demeurés mystiques, sont demeurés 4
-dreyfusistes, sont demeurés les mains pures. Je le 4
+dreyfusistes sont demeurés mystiques, sont demeurés
+dreyfusistes, sont demeurés les mains pures. Je le
 sais, j'en ai la liste aux cahiers. Je veux dire que ‘à
 tout ce qu'il y avait de mystique, de fidèle, de croyant à
-dans le dreyfusisme s'est réfugié, s'est recueilli aux ë
+dans le dreyfusisme s'est réfugié, s'est recueilli aux
 cahiers, dès le principe et toujours, guidés par un ‘1
-64 1
+64
 
 x So instinct sûr, par le plus profond des instincts, comme :
 dans la seule maison qui eût gardé le sens et la
@@ -1898,7 +1898,7 @@ k. avait de mystique, de fidèle, de croyant dans le dreyfu- eee
 
 Re amis et nos abonnés, mais nos cahiers mêmes, le corps
 
-:3 et l'institution de nos cahiers. Je puis donc le dire. Les 2
+:3 et l'institution de nos cahiers. Je puis donc le dire. Les
 . hommes qui se taisent, les seuls qui importent, les silen-
 
 5e cieux, les seuls qui comptent, les tacites, les seuls qui |
@@ -1913,7 +1913,7 @@ s vacances de Pâques, aux dernières, et à ces vacances
 He de la Pentecôte, où tant de nos amis et de nos abonnés
 _ des départements, notamment des professeurs, nous
 
-__ ont fait l'amitié de venir nous voir aux cahiers. Ils s
+__ ont fait l'amitié de venir nous voir aux cahiers. Ils
 Eur sont comme ils étaient, ce qu'ils étaient, ils sont les
 
 . mêmes hommes qu'il y a dix ans. Qu'il y a douze ans. -
@@ -1921,36 +1921,36 @@ __ Qu'il y a quinze ans. Et moi aussi j'ose dire qu'ils m'ont
 he: trouvé le même homme qu'il y a dix ans. Douze ans.
 = Quinze ans. Ce qui est peut-être plus difficile.
 
-È 1 Ceux qui se taisent, les seuls dont la parole compte. è
+È 1 Ceux qui se taisent, les seuls dont la parole compte.
 Voilà quel était le cœur et la force du dreyfusisme. :
 Ms. Ce cœur, ce centre, cette force est demeurée intacte.
 
 Il s'était même créé un honneur dreyfusiste, ce qui ;
-est la marque même et la consécration d'une mystique, 3
+est la marque même et la consécration d'une mystique,
 de la création d'une mystique. Quand une mystique en |
-vient à créer un honneur, son honneur, un honneur ù É
+vient à créer un honneur, son honneur, un honneur
 propre, particulier, c'est qu'elle existe bien, comme
 mystique. Elle a donné, elle a trouvé sa marque. Cet
-honneur, dreyfusiste, est demeuré intact. i
+honneur, dreyfusiste, est demeuré intact.
 Cette fidélité même que nos amis et que nos abonnés
 , nous ont gardée depuis quinze ans à travers tant
 d'épreuves, à travers toutes les misères, toutes les |
-détresses, à travers, dessous tous les malentendus poli- é
+détresses, à travers, dessous tous les malentendus poli-
 tiques, toutes les hontes politiques, cette amitié impec- ‘5 :
 cable, cette fidélité d'un autre âge, cette fidélité à
 ancienne, antique, d'un autre temps, cette amitié, cette à
-fidélité unique dans tout le monde moderne ne s'ex- j
+fidélité unique dans tout le monde moderne ne s'ex-
 plique elle-même que comme une amitié, une fidélité de
-= lordre mystique. Elle nous récompense nous-mêmes 3
+= lordre mystique. Elle nous récompense nous-mêmes
 d'une fidélité toute mystique à notre mystique.
 Il n'est pas mort, pour lui; mais plusieurs sont morts
 : pour lui. Cela fait, cela consacre, cela sanctionne une ,
-D'autres sont morts pour lui. 1
+D'autres sont morts pour lui.
 Il ne s'est pas ruiné pour lui-même. Il ne se ruinera
 pour nul autre. Mais beaucoup se sont ruinés pour lui. |
 Beaucoup ont sacrifié pour lui leur carrière, leur pain, ;
-leur vie même,-le pain de leurs femmes et de leurs 4
-enfants. Beaucoup se sont jetés pour lui dans une É:
+leur vie même,-le pain de leurs femmes et de leurs
+enfants. Beaucoup se sont jetés pour lui dans une
 
 _ misère inexpiable. Cela fait, cela consacre, cela sanc54 tionne une mystique.
 -1 La misère, le seul incurable des maux.
@@ -1960,9 +1960,9 @@ _ misère inexpiable. Cela fait, cela consacre, cela sanc54 tionne une mystique.
 Le plus grand de tous, Bernard-Lazare, quoi qu'on
 n- en ait dit, quoi qu'on en ait, plus lâchement, laissé dire,
 4 a vécu pour lui, est mort pour lui, est mort pensant à
-4 HE Ce qu'il y a de plus fort, c'est que cette mystique, que
+HE Ce qu'il y a de plus fort, c'est que cette mystique, que
 e. nos amis ont ignorée, plus que méconnue, ignorée, (nos
-4 Se amis, j'entends ici ce mot au sens politique, au sens des
+Se amis, j'entends ici ce mot au sens politique, au sens des
 E. combats politiques, nos amis politiques, nos politiciens,
 = nos parasites), nos adversaires eux-mêmes l'ont soupk çonnée. M. Barrès a fort bien noté plusieurs fois que le
 ‘ mouvement dreyfusiste fut un mouvement religieux. Il
@@ -1980,7 +1980,7 @@ n tant d'épreuves, forgés par nos misères mêmes. Aux
 
 Ke. pleine, le cœur plein, les mains pleines et pures.
 
-2 67
+2
 
 Moi-même si depuis bientôt quinze ans (en comptant HUE à
 
@@ -1990,39 +1990,39 @@ tout ordre, mal doué de talents, à travers des difficultés FE
 
 de toutes sortes, à travers des traverses sans nombre
 
-j'ai pu tenir le coup, si j'ai pu continuer cette œuvre, 3
-persévérer dans cette œuvre, dans cette opération inces- 4
-sante, c'est certainement que je suis attaché à ces : 4
+j'ai pu tenir le coup, si j'ai pu continuer cette œuvre,
+persévérer dans cette œuvre, dans cette opération inces-
+sante, c'est certainement que je suis attaché à ces
 
 cahiers, à cette institution, à cette œuvre d'un atta- RE
 
-- chement, d'une liaison qui est de l'ordre mystique. ë
-Je le disais précisément à Isaac pendant les vacances 4
+- chement, d'une liaison qui est de l'ordre mystique.
+Je le disais précisément à Isaac pendant les vacances
 : de Pâques. Nous déjennions ensemble, une fois par an. —
 Je lui disais: Vous croyez, vous dites que nous sommes +
 
 purs, que nous avons les mains pures. Vous le croyez, À
 
-vous le dites. Mais vous ne savez pas ce que vous dites. ï 4
+vous le dites. Mais vous ne savez pas ce que vous dites.
 
 z Vous ne pouvez pas mesurer ce que vous croyez. Il faut à
 " .vivre à Paris, dans ce que l'on a fait de la République, <
-pour savoir, pour mesurer ce que c'est que d'être pur. 4
+pour savoir, pour mesurer ce que c'est que d'être pur.
 
 J'ai la certitude en effet que nos amis de province ‘4
 
-. nous font confiance. Mais ils ne peuvent pas savoir, ils 4
+. nous font confiance. Mais ils ne peuvent pas savoir, ils
 ne peuvent pas soupçonner de quoi ils nous font con- À
 
-fiance, quelle est la matière, le terrain de la confiance 4
-qu'ils nous font. É:
+fiance, quelle est la matière, le terrain de la confiance
+qu'ils nous font.
 
-L'affaire Dreyfus fut un recoupement, une culmination 4
+L'affaire Dreyfus fut un recoupement, une culmination
 
 s de trois mystiques au moins. Premièrement elle fut sur de
 le chemin de la mystique hébraïque. Pourquoi le nier. _
 
-Ce serait le contraire au contraire qui serait suspect. 4
+Ce serait le contraire au contraire qui serait suspect.
 
 _ Il y a une politique juive. Pourquoi le nier. Ce serait
 le contraire au contraire qui serait suspect. Elle est
@@ -2056,7 +2056,7 @@ mieux le silence, une tranquillité basse. Si on pouvait
 “2 _ s'arranger moyennant un silence entendu, acheter la
 
 paix en livrant le bouc, payer de quelque livraison, de
-: quelque trahison, de quelque bassesse une tranquillité j
+: quelque trahison, de quelque bassesse une tranquillité
 précaire. Livrer le sang innocent, elle sait ce que
 c'est. En temps de paix elle craint la guerre. Elle a .
 peur des coups. Elle a peur des affaires. Elle est
@@ -2065,12 +2065,12 @@ grands destins douloureux que forcée par une poignée
 de factieux, une minorité ag'issante, une bande d'énergumènes et de fanatiques, une bande de forcenés,
 : groupés autour de quelques têtes qui sont très précisé-
 ment les prophètes d'Israël. Israël a fourni des prophètes innombrables, des héros, des martyrs, des guerriers sans nombre. Maïs enfin, en temps ordinaire, le
-peuple d'Israël est comme tous les peuples, il ne 1
-: demande qu'à ne pas entrer dans un temps extraordi- 4
+peuple d'Israël est comme tous les peuples, il ne
+: demande qu'à ne pas entrer dans un temps extraordi-
 naire. Quand il est dans une période, il est commetous …
-les peuples, il ne demande qu'à ne pas entrer dans une k
+les peuples, il ne demande qu'à ne pas entrer dans une
 époque. Quand il est dans une période, il ne demande
-qu'à ne pas entrer dans une crise. Quand il est dans 3
+qu'à ne pas entrer dans une crise. Quand il est dans
 une bonne plaine, bien grasse, où coulent les ruisseaux :
 sur la montagne, cette montagne füt-elle la montagne -
 : de Moïse. Israël a fourni des prophètes innombrables; :
@@ -2078,10 +2078,10 @@ plus que cela elle est elle-même prophète, elle est ellemême la race prophét
 corps, un seul prophète. Mais enfin elle ne demande que ;
 ceci : c'est de ne pas donner matière aux prophètes à À
 s'exercer. Elle sait ce que ça coûte. Instinctivement,
-historiquement, organiquement pour ainsi dire elle sait n.
+historiquement, organiquement pour ainsi dire elle sait
 ce que ça coûte. Sa mémoire, son instinct, son orga- À
 nisme même, son corps temporel, son histoire, toute sa :
-mémoire le lui disent. Toute sa mémoire en est pleine. 4
+mémoire le lui disent. Toute sa mémoire en est pleine.
 
 _ Vingt, quarante, cinquante siècles d'épreuves le lui -
 “4 disent. Des guerres sans nombre, des meurtres, des
@@ -2099,7 +2099,7 @@ D Champs-Élysées, les rois d'Égypte et les rois d'Orient,
 $ ont dit le prix pour leur éternité. Ils savent ce que ça
 F coûte, eux, que d'être la voix charnelle et le corps tem_ porel. Ils savent ce que ça coûte que de porter Dieu et
 . ses agents les prophètes. Ses prophètes les prophètes.
-4 Alors, obscurément, ils aimeraient mieux qu'on ne
+Alors, obscurément, ils aimeraient mieux qu'on ne
 = recommence pas. Ils ont peur des coups. Ils en ont
 : tant reçu. Ils aimeraient mieux qu'on n'en parle pas
 : Ils ont tant de fois payé pour eux-mêmes et pour
@@ -2114,23 +2114,23 @@ tant de fois payé pour tout le monde, pour nous. Si
 4 _ après. Heureusement elle n'a quelquefois pas peur des
 É. coups pendant. Les plus merveilleux soldats peut-être |
 
-du grand Napoléon, ceux de la fin, ne provenaient-ils 3
+du grand Napoléon, ceux de la fin, ne provenaient-ils
 pas généralement de bandes de déserteurs et d'insoumis
-que les gendarmes impériaux avaient poussés, menottes É
+que les gendarmes impériaux avaient poussés, menottes
 aux mains, avaient refoulés comme un troupeau
 jusqu'en cette île de Walcheren. De là sortit pourtant
-Lutzen, Bautzen, la Bérésina, le glorieux WalcherenInfanterie, 131%° de l'arme. i
-Ils ont tant fui, tant et de telles fuites, qu'ils savent 4
+Lutzen, Bautzen, la Bérésina, le glorieux WalcherenInfanterie, 131%° de l'arme.
+Ils ont tant fui, tant et de telles fuites, qu'ils savent
 le prix de ne pas fuir. Campés, entrés dans les peuples |
 = modernes, ils voudraient tant s'y trouver bien. Toute
 la politique d'Israël est de ne pas faire de bruit, dans ]
 le monde (on en a assez fait), d'acheter la paix par un :
 que tout le monde nomme, de se faire oublier. Tant de +
-meurtrissures lui saignent encore. Mais toute la î
-mystique d'Israël est qu'Israël poursuive dans le monde 4
-à sa retentissante et douloureuse mission. De là des 4
+meurtrissures lui saignent encore. Mais toute la
+mystique d'Israël est qu'Israël poursuive dans le monde
+à sa retentissante et douloureuse mission. De là des
 : déchirements incroyables, les plus douloureux antago- ‘à
-d nismes intérieurs qu'il y ait eu peut-être entre une 4
+d nismes intérieurs qu'il y ait eu peut-être entre une
 mystique et une politique. Peuple de marchands. Le
 5 même peuple de prophètes. Les uns savent pour les :
 autres ce que c'est que des calamités.
@@ -2141,12 +2141,12 @@ Je connais bien ce peuple. Il n'a pas sur la peau un
 point qui ne soit pas douloureux, où il n'y ait un ancien
 bleu, une ancienne contusion, une douleur sourde, la #4
 : mémoire d'une douleur sourde, une cicatrice, une bles-.
-sure, une meurtrissure d'Orient ou d'Occident. Ils ont 4
-les leurs, et toutes celles des autres. Par exemple on a 4
+sure, une meurtrissure d'Orient ou d'Occident. Ils ont
+les leurs, et toutes celles des autres. Par exemple on a
 
-se | meurtri comme Français tous ceux de l'Alsace et de la 2
+se | meurtri comme Français tous ceux de l'Alsace et de la
 Te C'est bien mal connaître la politique juive, au moment
-4 même qu'on en parle, que de supposer que ce soit la k
+4 même qu'on en parle, que de supposer que ce soit la
 | politique juive et le parti juif qui aient jamais soulevé
 LE. une affaire comme l'affaire Dreyfus. Au contraire. Ce
 E ne sont jamais eux qui soulèvent les tumultes. Ils ne
@@ -2161,7 +2161,7 @@ que de s'imaginer qu'elle est comme une invention, une
 4 cœur poindre le commencement de cette affaire. C'est
 “ très exactement le contraire. Ils ne savaient pas bien,
 s mais ils se méfiaient. Ils avaient raison de se méfier.
-4 Au point de vue des intérêts. Cette affaire, somme
+Au point de vue des intérêts. Cette affaire, somme
 F toute, et sous des victoires apparentes, sous des aspects
 Ë de conquête(s), sous des surfaces de triomphe, leur a
 —._ fait (beaucoup) plus de mal que de bien.
@@ -2178,13 +2178,13 @@ cet énorme ébranlement. On ne prévoit jamais tout. En à
 tout cas ils n'aiment pas soulever des tumultes.
 Quand donc la famille de M. Dreyfus, pour obtenir
 une réparation individuelle, envisageait un chambarde- :<
-ment total de la France, et d'Israël, et de toute la chré- Ê
+ment total de la France, et d'Israël, et de toute la chré-
 tienté, non seulement elle allait contre la politique |
-française, mais elle n'allait pas moins contre la poli- 4
+française, mais elle n'allait pas moins contre la poli-
 tique juive qu'elle n'allait évidemment contre la politique
 È cléricale. Une mystique peut aller contre toutes les politiques à la fois. Ceux qui apprennent l'histoire ailleurs - :
 que dans les polémiques, ceux qui essaient de la suivre
-dans les réalités, dans la réalité même, savent que c'est Ë
+dans les réalités, dans la réalité même, savent que c'est
 en Israël que la famille Dreyfus, que l'affaire Dreyfus :
 naissante, que le dreyfusisme naissant rencontra d'abord +
 les plus vives résistances. La sagesse est aussi une vertu
@@ -2199,13 +2199,13 @@ Plus tard, bientôt tous, ou presque tous, marchèrent, :
 parce que quand un prophète a parlé en Israël, tous le
 haïssent, tous l'admirent, tous le suivent. Cinquante :
 siècles d'épée dans les reins les forcent à marcher.
-Ils reconnaissent l'épreuve avec un instinct admirable, 1
+Ils reconnaissent l'épreuve avec un instinct admirable,
 avec un instinct de cinquante siècles. Îls reconnaissent,
 ils saluent le coup. C'est encore un coup de Dieu. La -
-ville encore sera prise, le Temple détruit, les femmes F
+ville encore sera prise, le Temple détruit, les femmes
 
 _  emmenées. Une captivité vient, après tant de captivités.
-2 De longs convois traîneront dans le désert. Leurs
+De longs convois traîneront dans le désert. Leurs
 14 cadavres jalonneront les routes d'Asie. Très bien, ils
 4 savent ce que c'est. Ils ceignent leurs reins pour ce nou2 veau départ. Puisqu'il faut y passer ils y passeront
 L encore. Dieu est dur, mais il est Dieu. Il punit, et il
@@ -2225,7 +2225,7 @@ a - J'avais commencé d'écrire un portrait de Bernard-
 4 faut bien peut-être un recul de cinquante ans. D'énormes
 1 quantités d'imbéciles, et en Israël et en Chrétienté, à
 ri croient encore que Bernard-Lazare fut un jeune homme,
-2 É un homme jeune, on ne sait pas bien, un jeune écrivain,
+É un homme jeune, on ne sait pas bien, un jeune écrivain,
 —_._ venu à Paris comme tant d'autres, pour s'y pousser,
 ee: pour y faire sa fortune, dans les lettres, comme on
 _ disait encore alors, dans le théâtre, dans les contes,
@@ -2233,38 +2233,38 @@ _ disait encore alors, dans le théâtre, dans les contes,
 F2 k … le recueil, dans le conte, dans le fatras, dans le journal,
 € 3 Dons la politique, dans toute la misère temporelle, venu
 
-au quartier, comme tous les jeunes gens de ces pays-là, 4
+au quartier, comme tous les jeunes gens de ces pays-là,
 un jeune juif du Midi, d'Avignon et de Vaucluse, ou des _
-Bouches du Rhône, ou plutôt du Gard et de l'Hérault. 1
+Bouches du Rhône, ou plutôt du Gard et de l'Hérault.
 Un jeune juif de Nimes ou de Montpellier. Je ne serais
-pas surpris, j'ai même la certitude que le jeune Bernard- é
-Lazare le croyait lui-même. Le prophète d'abord ne 4
+pas surpris, j'ai même la certitude que le jeune Bernard-
+Lazare le croyait lui-même. Le prophète d'abord ne
 se connaît point. On trouverait encore des gens qui ;
-feraient tout un travail sur Bernard-Lazare sym- 4
-boliste et jeune poète ou ami des symbolistes ou 3
+feraient tout un travail sur Bernard-Lazare sym-
+boliste et jeune poète ou ami des symbolistes ou
 4 ennemi des symbolistes. On ne sait plus. Et dans À
-; l'affaire Dreyfus même je ne serais pas surpris que 4
-l'État-Major dreyfusiste, l'entourage de Dreyfus, la 3
+; l'affaire Dreyfus même je ne serais pas surpris que
+l'État-Major dreyfusiste, l'entourage de Dreyfus, la
 famille de Dreyfus et Dreyfus lui-même aient toujours .
-considéré Bernard-Lazare comme un agent, que l'on 4
+considéré Bernard-Lazare comme un agent, que l'on
 payait, comme une sorte de conseil juridique, ou judi- ‘4
-ë ciaire, non pas seulement dans les matières juridiques, 3
+ë ciaire, non pas seulement dans les matières juridiques,
 comme un faiseur de mémoires, salarié, comme un (i
 3 publiciste, comme un pamphlétaire, à gages, comme ‘4
-un polémiste et un polémiqueur, comme un journaliste 4
+un polémiste et un polémiqueur, comme un journaliste
 sans journal, comme un avocat officieux, honoré, comme
 un officieux, comme un avocat non plaidant. Comme
 un faiseur, comme un établisseur de mémoires et dos- À
 | siers, comme une sorte d'avocat consultant en matières >.
-juridiques et surtout en matières politiques, enfin ù.
-comme un folliculaire. Comme un écrivain profes- È
+juridiques et surtout en matières politiques, enfin
+comme un folliculaire. Comme un écrivain profes-
 sionnel. Par conséquent comme un homme que l'on $
-méprise. Comme un homme qui travaillait, qui écri- E
+méprise. Comme un homme qui travaillait, qui écri-
 vait sur un thème. Qu'on lui donnait, qu'on lui avait “4
-donné. Comme un homme qui gagnait sa vie, qui 4
-gagnait ce qu'il pouvait, qui gagnait ce qu'il gagnait. D
-Par conséquent comme un homme que l'on méprise. 3
-Comme un homme à la suite. Peut-être comme un É
+donné. Comme un homme qui gagnait sa vie, qui
+gagnait ce qu'il pouvait, qui gagnait ce qu'il gagnait.
+Par conséquent comme un homme que l'on méprise.
+Comme un homme à la suite. Peut-être comme un
 
 Se agent d'exécution. Israël passe à côté du Juste, et le
 ï ER méprise. Israël passe à côté du Prophète, le suit, et ne
@@ -2286,7 +2286,7 @@ _ plutôt à l'École (pratique (?) (!) des Hautes Études. Qua-
 …_  trième section. Ou cinquième. Ou troisième. Enfin sec_ tion des sciences religieuses. A la Sorbonne, au bout de ;
 4 la galerie des Sciences, escalier E, au premier étage. On
 __ pourra toujours. On est si puissant dans l'État français.
-1 L'un des documents les plus effrayants de lingratiLe _ tude humaïne, (ici ce fut particulièrement de l'ingrati-
+L'un des documents les plus effrayants de lingratiLe _ tude humaïne, (ici ce fut particulièrement de l'ingrati-
 …_  tude juive, mais généralement aussi ce fut l'ingratitude
 es de tant d'autres, sinon la nôtre, une ingratitude com- &
 _  mune), fut la situation faite à Bernard-Lazare aussitôt
@@ -2294,11 +2294,11 @@ _  mune), fut la situation faite à Bernard-Lazare aussitôt
 _ faux triomphe de l'affaire Dreyfus. La méconnaissance à
 520 totale, l'ignorance même, la solitude, l'oubli, le mépris
 
-périr. Où on le fit mourir. î
+périr. Où on le fit mourir.
 
 — C'est de sa faute aussi s'il est mort, disent-ils .
 dans leur incroyable, dans leur incurable bassesse, |
-dans leur grossière promiscuité révoltante. Il ne faut 1
+dans leur grossière promiscuité révoltante. Il ne faut
 jamais mourir. On a toujours tort de mourir. — Il faut
 donc dire, il faut donc écrire, il faut donc publier que
 comme il avait vécu pour eux, littéralement il est mort
@@ -2306,17 +2306,17 @@ par eux et pour eux. Oui, oui, je sais, il est mort de ;
 ceci. Et de cela. On meurt toujours de quelque chose. |
 Mais le mal terrible dont il est mort lui eût laissé un
 délai, dix, quinze, vingt ans de répit sans l'effroyable ©
-surmenage qu'il avait assumé pour sauver Dreyfus. b:
-Tension nerveuse effrayante et qui dura des années. E
-Effroyable surmenage de corps et de tête. Surmenage 1
+surmenage qu'il avait assumé pour sauver Dreyfus.
+Tension nerveuse effrayante et qui dura des années.
+Effroyable surmenage de corps et de tête. Surmenage
 de cœur, le pire de tous. Surmenage de tout. À
 On meurt toujours de quelque(s) atteinte(s). :
-Je ferai le portrait de Bernard-Lazare. Il avait, indé- s
-5 niablement, des parties de saint, de sainteté. Et quand Ô
-je parle de saint, je ne suis pas suspect de parler par É
+Je ferai le portrait de Bernard-Lazare. Il avait, indé-
+5 niablement, des parties de saint, de sainteté. Et quand
+je parle de saint, je ne suis pas suspect de parler par
 métaphore. Il avait une douceur, une bonté, une ten-
-- dresse mystique, une égalité d'humeur, une expérience 4
-de l''amertume et de l'ingratitude, une digestion parfaite ï
+- dresse mystique, une égalité d'humeur, une expérience
+de l''amertume et de l'ingratitude, une digestion parfaite
 
 de l'amertume et de l'ingratitude, une sorte de bonté à
 qui on n'en remontrait point, une sorte de bonté parfai- +
@@ -2326,7 +2326,7 @@ fondeur incroyable. Comme une bonté à revendre. Il
 vécut et mourut pour eux comme un martyr. Il fut un .
 prophète. IL était donc juste qu'on l'ensevelît prématu- À
 rément dans le silence et dans l'oubli. Dans un silence \
-fait. Dans un oubli concerté. 3
+fait. Dans un oubli concerté.
 
 # 11 ne faut pas lui alléguer sa mort. Car sa mort même
 - * fut pour eux. Il ne faut pas lui reprocher sa mort.
@@ -2351,51 +2351,51 @@ pe termes ennemis, mais enfin où on ait dit combien il
 É aimait Israël et combien il était grand fut la Libre
 D: Parole, et que le seul homme qui l'ait dit fut M. Édouard
 “& _  Drumont. C'est une honte pour nous que le nom de
-3 Bernard-Lazare, depuis cinq ans, sept ans qu'il est
+Bernard-Lazare, depuis cinq ans, sept ans qu'il est
 4 mort, n'ait jamais figuré que dans un journal ennemi.
 de Je ne parle pas des cahiers, dont il demeure l'ami
 4 x intérieur, l'inspirateur secret, je dirai très volontiers, et
 
 très exactement, le patron. En dehors de nous, je dis £ :
-très limitativement, comme on dit dans le droit, en É
-dehors de nous des cahiers, il n'y a que M. Édouard 4
-Drumont qui ait su parler de Bernard-Lazare, qui ait 9
--_ voulu en parler, qui lui ait fait sa mesure. 3
+très limitativement, comme on dit dans le droit, en
+dehors de nous des cahiers, il n'y a que M. Édouard
+Drumont qui ait su parler de Bernard-Lazare, qui ait
+-_ voulu en parler, qui lui ait fait sa mesure.
 Les autres, les nôtres se taisaient dès avant sa mort, à
-se sont tus depuis avec un soin, honteux, avec une s
-perfection, avec une patience, avec une réussite extra- ï
-Eu il était mort avant d'être mort. 4
+se sont tus depuis avec un soin, honteux, avec une
+perfection, avec une patience, avec une réussite extra-
+Eu il était mort avant d'être mort.
 Ils avaient comme honte de lui. Mais en réalité :
-c'étaient eux qui avaient honte d'eux devant lui. 1
-C'étaient les politiciens, c'était la politique même qui Œ
-avait honte de soi devant la mystique. ; 4
+c'étaient eux qui avaient honte d'eux devant lui.
+C'étaient les politiciens, c'était la politique même qui
+avait honte de soi devant la mystique.
 Combien de fois n'ai-je pas monté cette rue de ne
 Florence. Il y a pour tous les quartiers de Paris non Bt
-seulement une personnalité constituée, mais cette personnalité a une histoire comme nous. Il n'y a pas bien 4
-longtemps et pourtant tout date. Déjà. Le propre de 4
-; l'histoire, c'est ce changement même, cette génération 2.
-et corruption, cette abelition constante, cette révolution 3
-. perpétuelle. Cette mort. Il n'y a que quelques années, 5
-huit ans, dix ans, et quelle méconnaissance déjà, 4
+seulement une personnalité constituée, mais cette personnalité a une histoire comme nous. Il n'y a pas bien
+longtemps et pourtant tout date. Déjà. Le propre de
+; l'histoire, c'est ce changement même, cette génération
+et corruption, cette abelition constante, cette révolution
+. perpétuelle. Cette mort. Il n'y a que quelques années,
+huit ans, dix ans, et quelle méconnaissance déjà,
 quelle méconnaissance immobilière. — Le vieux Paris #4
-n'est plus (la forme d'une ville ; x
+n'est plus (la forme d'une ville
 Change plus vite, hélas! que le cœur d'un mortel); ‘3
 On demeurait alors dans ce haut de Paris où personne
-: aujourd'hui ne demeure plus. On bâtit tant de maisons 5
+: aujourd'hui ne demeure plus. On bâtit tant de maisons
 demeurer encore 36 ou 38 rue de Lisbonne. Ou un autre FA #
 numéro. Mais enfin Bernard-Lazare y passait, y pouvait Ci
 
 _ passer comme en voisin, en passant. Le quartier Saint-
 
 eS. _ Lazare. La rue de Rome et la rue de Constantinople.
-__ Tout le quartier de l'Europe. Toute l'Europe. Des réso__  nances de noms qui secrètement flattaient leur besoin S
+__ Tout le quartier de l'Europe. Toute l'Europe. Des réso__  nances de noms qui secrètement flattaient leur besoin
 
 3 de voyager, leur aisance à voyager, leur résidence
 3% européenne. Un quartier de gare qui flattait leur
 besoin de chemin de fer, leur goût du chemin de fer, à
 “à leur aisance en chemin de fer. Tout le monde a démé-
 4 nagé. Quelques-uns dans la mort. Et même beaucoup.
-L ; Zola demeurait rue de Bruxelles, 81 ou 81 bis ou 83
+L ; Zola demeurait rue de Bruxelles, 81 ou 81 bis ou
 
 s rue de Bruxelles. Première audience. — Audience du
 Re 7 février. — Vous vous appelez Émile Zola? — Oui,
@@ -2421,7 +2421,7 @@ ns. Paris, dans ce haut Paris serré, tout un peuple, amis,
 
 E. dans cet immense Paris.
 
-5 Combien de fois n'ai-je point monté, dans les jours
+Combien de fois n'ai-je point monté, dans les jours
 
 _ douloureux, jusqu'à cette rue de Florence. Jours dou-
 
@@ -2429,37 +2429,37 @@ LE dE . loureux pour lui et pour moi, ensemble, également, car à
 
 Charles Péguy ne À
 
-nous sentions ensemble, également, que tout était Ë
+nous sentions ensemble, également, que tout était
 perdu, que la politique, notre politique, (je veux dire la
 politique des nôtres), commençait à dévorer notre mystique. Lui le sentait si je puis dire avec plus de rensei- … .
 gnement, je le sentais avec plus d'innocence. Mais il ;
-avait encore une innocence désarmante. Et j'avais déjà É:
+avait encore une innocence désarmante. Et j'avais déjà
 beaucoup de renseignement. à
 
 Je puis dire, pour qu'il n'y ait aucun malentendu, je
-dois dire que pendant ces dernières années, pendant 4
-cette dernière période de sa vie je fus son seul ami. 3
+dois dire que pendant ces dernières années, pendant
+cette dernière période de sa vie je fus son seul ami.
 Son dernier et son seul ami. Son dernier et son seu
-confident. A moi seul il disait alors ce qu'il pensait, ce 4
+confident. A moi seul il disait alors ce qu'il pensait, ce
 qu'i sentait, ce qu'il savait enfin. Je le rapporterai à
 quelque jour. à
-Je suis forcé d'y insister, je fus son seul ami et son 4
+Je suis forcé d'y insister, je fus son seul ami et son
 seul confident. J'y insiste parce que quelques amis de ‘4
-: contrebande qu'il avait, ou plutôt qu'il avait eus, des 4
-amis littéraires enfin, entreprenaient de se faire croire, Ë
+: contrebande qu'il avait, ou plutôt qu'il avait eus, des
+amis littéraires enfin, entreprenaient de se faire croire,
 et de faire croire au monde, qu'ils étaient restés ses À
-amis, même après qu'ils avaient saboté, dénaturé, 4
-méconnu, inconnu, empolitiqué sa mystique. 4
-Des amis de Quartier enfin, d'anciens amis d'étu- 1
+amis, même après qu'ils avaient saboté, dénaturé,
+méconnu, inconnu, empolitiqué sa mystique.
+Des amis de Quartier enfin, d'anciens amis d'étu-
 diants, peut-être de Sorbonne. Des amis qui tutoient. ri
-Et lui il était si bon que par cette incurable, par cette 1
+Et lui il était si bon que par cette incurable, par cette
 inépuisable bonté il le leur laissait croire aussi, et il le +
-laissait croire au monde. Mais il m'en parlait tout Ë
+laissait croire au monde. Mais il m'en parlait tout
 autrement, parce que j'étais son seul confident, parce
 qu'il me confiait tous les secrets, tout le secret de sa £.
-Il avait de l'amitié non pas une idée mystique seu- e
+Il avait de l'amitié non pas une idée mystique seu-
 lement, mais un sentiment mystique, mais une expé- °4
-82 4
+82
 
 66 rience d'une incroyable profondeur, une épreuve, une
 expérience, une connaissance mystique. Il avait cet
@@ -2474,10 +2474,10 @@ k du désabusement de toutes les infidélités.
 ? Cette amitié que nulle mort ne rompra.
 * I avait au plus haut degré, au plus profond, cette
 1 morale de bande, qui est peut-être la seule morale.
-3 Or pour sa mystique même il avait cette fidélité mys-
+Or pour sa mystique même il avait cette fidélité mys-
 à F tique, cette amitié mystique.
 F Cette amitié, cette morale de bande.
-4 Il avait cette fidélité à soi-même qui est tout de même
+Il avait cette fidélité à soi-même qui est tout de même
 4 l'essentiel. Beaucoup peuvent vous trahir. Mais c'est
 “4 beaucoup, c'est déjà beaucoup que de ne pas se trahir
 D soi-même. Beaucoup de politiques peuvent trahir,
@@ -2488,31 +2488,31 @@ D : Beaucoup de maréchaux ont pu trahir Napoléon. Mais
 au moins Napoléon ne s'est pas trahi lui-même. Le. 5 +2
 maréchal Napoléon n'a pas trahi Napoléon empereur. 5 Se
 
-On peut dire que ses dernières joies, tant qu'il 4
+On peut dire que ses dernières joies, tant qu'il
 3 marchait, tant qu'il allait encore, furent de venir comme :
 : se réchauffer parmi nous aux jeudis des cahiers, ou, #
 pour parler plus exactement, le jeudi aux cahiers. Il &.
 
 aimait beaucoup deviser avec M. Sorel. Je dois dire CARS.
-que leurs propos étaient généralement empreïints d'un = 4
+que leurs propos étaient généralement empreïints d'un =
 
 Il avait un goût secret, très marqué, très profond, et “4
 
-: presque très violent, pour M. Sorel. Un goût commun = 4
+: presque très violent, pour M. Sorel. Un goût commun =
 > de désabusement; de gens à qui on n'en contait point. ‘24
 TE Quand ils riaient ensemble, quand ils éclataient, au ., :
 même moment, car tous les deux avaient le rire jailli, :
 
-è c'était avec une profondeur d'accord, une complicité 3
+è c'était avec une profondeur d'accord, une complicité
 incroyable. Cet accord saisissant de l'esprit, du rire, - à
 
 Es qui n'attend pas, qui ne calcule pas, qui d'un coup de
-= atteint au plus profond, au dernier point, éclate et 23
+= atteint au plus profond, au dernier point, éclate et
 révèle. Qui d'un mot atteint au dernier mot. Tout ce  :
 
 que disait M. Sorel le frappait tellement qu'il m'en par- =
 
-lait encore tous les autres matins de la semaine. Ils e 4
+lait encore tous les autres matins de la semaine. Ils
 
 étaient comme deux grands complices. Deux grands ee
 
@@ -2520,7 +2520,7 @@ enfants terribles. Deux grands enfants complices qui .
 
 : eussent très bien connu les hommes. : a
 
-. L'amitié qu'il avait pour ces cahiers naissants, pour | 4
+. L'amitié qu'il avait pour ces cahiers naissants, pour
 
 __ moi, avait quelque chose de désarmant. C'était toute la
 ne SA sollicitude, toute la tendresse, tout le renseignement,
@@ -2528,31 +2528,31 @@ ne SA sollicitude, toute la tendresse, tout le renseignement,
 tout l'avertissement d'un grand frère aîné qui en a
 * beaucoup vu.
 
-: Qui a été très éprouvé par la vie. Par l'existence. 5
+: Qui a été très éprouvé par la vie. Par l'existence.
 L- Dès lors il était suspect. Dès lors il était isolé. ;
 n- L'honneur d'avoir fait l'affaire Dreyfus lui collait aux |
 $ épaules comme une chape inexpiable. Suspect surtout, ne
 EE . solitaire surtout dans son propre parti. Pas un journal, ,
 É pas une revue n'acceptait, ne tolérait sa signature. On <
 “ eût pris peut-être à la rigueur un peu de sa copie, en la ‘3
-5 maquillant, en l'avachissant, en la sucrant. Surtout en ÿ
-284 ; . enlevant, en effaçant cette diablesse de signature. Il d
+5 maquillant, en l'avachissant, en la sucrant. Surtout en
+284 ; . enlevant, en effaçant cette diablesse de signature. Il
 É- _ revenait naturellement vers nous. Il n'y avait plus |
 _ qu'aux cahiers qu'il pût parler, écrire, publier, — causer
-ne. _ même. Quand on faisait des pourparlers pour créer un è
+ne. _ même. Quand on faisait des pourparlers pour créer un
 “4 grand quotidien (dans ce temps-là on pourparlait :
 É toujours pour créer un grand nouveau quotidien) et . |
 4 qu'on demandait de l'argent aux Juifs (ils en donnaient : à
 5 alors, ils s'en laissaient arracher beaucoup trop,
 
-4 M. Jaurès en sait quelque chose) les capitalistes, les : |
+M. Jaurès en sait quelque chose) les capitalistes, les : |
 
 # commanditaires juifs n'y mettaient guère qu'une con- |
 he dition : c'était que Bernard-Lazare n'y écrivit pas. |
 
 ee On s'organisait fort proprement de toutes parts pour
 
-E qu'il mourût tout tranquillement de faim. ÿ
+E qu'il mourût tout tranquillement de faim.
 
 Le Il revenait vers nous comme par sa pente naturelle.
 
@@ -2565,12 +2565,12 @@ Le Il revenait vers nous comme par sa pente naturelle.
 K _ plus entendre parler de lui. Tout le monde le taisait,
 
 Ceux qu'il avait sauvés le taisaient plus obstinément,
-plus silencieusement que tous, l'enfonçaient dans un 7
+plus silencieusement que tous, l'enfonçaient dans un
 silence plus sourd, plus obstiné. Quelques-uns, dans la
 criminelle pénombre de l'arrière-pensée, commençaient .
 à laisser se penser en eux qu'il était peut-être bien
 heureux, qu'il mourait peut-être juste à temps pour
-sa gloire. Quelques-uns le pensaient peut-être, quelques- F
+sa gloire. Quelques-uns le pensaient peut-être, quelques-
 uns le pensaient sans doute. Le fait est, il faut
 lui rendre cette justice qu'il mourait opportunément,
 commodément pour beaucoup. Presque pour tout le
@@ -2582,14 +2582,14 @@ tribut de vingt francs par an qu'il leur avait imposé
 pendant l'affaire Dreyfus, comme on disait déjà. Nous |
 reçûmes le désabonnement de M. Louis Louis-Dreyfus
 2 dans la quinzaine ou dans le mois, peut-être dans la
-semaine qui suivit la mort de Bernard-Lazare. 4
+semaine qui suivit la mort de Bernard-Lazare.
 Ceux qu'il avait sauvés étaient les plus pressés. Lui- |
-même le savait très bien. On a beau savoir aussi que É
+même le savait très bien. On a beau savoir aussi que
 c'est la règle. A chaque fois c'est toujours nouveau. Et :
-, c'est toujours dur à avaler. b
+, c'est toujours dur à avaler.
 Lui-même ïil ne se faisait aucune illusion sur les
-hommes qu'il avait défendus. Il voyait partout les politiques, les hommes politiques arriver, dévorer tout, F
-dévorer, déshonorer son œuvre. Je dirai tout ce qu'il 3
+hommes qu'il avait défendus. Il voyait partout les politiques, les hommes politiques arriver, dévorer tout,
+dévorer, déshonorer son œuvre. Je dirai tout ce qu'il
 m'a dit. Il atteignait, il obtenait une profondeur de $
 sentiment(s), une profondeur de regret incroyable, il  :
 
@@ -2611,7 +2611,7 @@ E Je dirai donc quel fut son enterrement.
 
 à Je dirai quelle fut toute sa fin.
 
-4 Je dirai combien il soufirit.
+Je dirai combien il soufirit.
 
 E Je dirai, dans ces confessions, combien il se tut. :
 “+ Je vois encore sur moi son regard de myope, si intel-
@@ -2631,38 +2631,38 @@ A fallait écouter, il fallait voir cet homme qui naturel4 lement se croyait un 
 . métaphysique dominante seulement, c'était la métaphy-
 % __ sique ambiante, celle que l'on respirait, une sorte de
 
-métaphysique climatérique, atmosphérique; qui allait L
-de soi, comme d'être bien élevé: et en outre il était 3
+métaphysique climatérique, atmosphérique; qui allait
+de soi, comme d'être bien élevé: et en outre il était
 | ment, que ce n'était pas, qu'elle n'était pas une méta- ;
-physique; il était positiviste, scientificiste, intellectuel, Ë
-moderne, enfin tout ce qu'il faut; surtout il ne voulait É
-pas entendre parler de métaphysique(s). Un de ses F
-arguments favoris, celui qu'il me servait toujours, était 4
+physique; il était positiviste, scientificiste, intellectuel,
+moderne, enfin tout ce qu'il faut; surtout il ne voulait
+pas entendre parler de métaphysique(s). Un de ses
+arguments favoris, celui qu'il me servait toujours, était
 qu'Israël étant de tous les peuples celui qui croyait le À
-moins en Dieu, c'était évidemment celui qu'il serait le 3
-plus facile de débarrasser des anciennes superstitions; p
-et ainsi ce serait celui qui montrerait la route aux Ë
-autres. L'excellence des Juifs était selon lui, venait de 2
+moins en Dieu, c'était évidemment celui qu'il serait le
+plus facile de débarrasser des anciennes superstitions;
+et ainsi ce serait celui qui montrerait la route aux
+autres. L'excellence des Juifs était selon lui, venait de
 ce qu'ils étaient comme d'avance les plus libres pen- à
 seurs. Même avec un trait d'union. Et là dessous, et là à
-dedans un cœur qui battait à tous les échos du monde, É
+dedans un cœur qui battait à tous les échos du monde,
 un homme qui sautait sur un journal et qui.sur les +
-quatre pages, sur les six, huit, sur les douze pages b:
+quatre pages, sur les six, huit, sur les douze pages
 d'un seul regard comme la foudre saisissait une ligne et à |
 dans cette ligne il y avait le mot Juif, un être qui ko
 rougissait, pâlissait, un vieux journaliste, un routier du #
-:  journal(isme) qui blêmissait sur un écho, qu'il trouvait e
+:  journal(isme) qui blêmissait sur un écho, qu'il trouvait
 dans ce journal, sur un morceau d'article, sur un filet, à
 sur une dépêche, et dans cet écho, dans ce journal, dans :
-ce morceau d'article, dans ce filet, dans cette dépêche 1
+ce morceau d'article, dans ce filet, dans cette dépêche
 il y avait le mot Juif; un cœur qui saignaït dans tous ‘3
 les ghettos du monde, et peut-être encore plus dans les à
 ghettos rompus, dans les ghettos diffus, comme Paris, ‘4
 que dans les ghettos conclus, dans les ghettos forclus; “4
-un cœur qui saignait en Roumanie et en Turquie, en 4
+un cœur qui saignait en Roumanie et en Turquie, en
 Russie et en Algérie, en Amérique et en Hongrie, ?
-partout où le Juif est persécuté, c'est-à-dire, en un 4
-88 31
+partout où le Juif est persécuté, c'est-à-dire, en un
+88
 
 is certain sens, partout; un cœur qui saignait en Orient et
 en Occident, dans l'Islam et en Chrétienté; un cœur qui
@@ -2675,9 +2675,9 @@ _  saïgnait en Judée même, et un homme en mêmetemps
 F plus misérable juif de Roumanie. Un tremblement, une
 #4 vibration perpétuelle. Tout ce qu'il faut pour mourir à
 E. quarante ans. Pas un muscle, pas un nerf qui ne fût
-É tendu pour une mission secrète, perpétuellement vibré Ë
+É tendu pour une mission secrète, perpétuellement vibré
 __ pour la mission. Jamais homme ne se tint à ce point
-Dé . chef de sa race et de son peuple, responsable pour sa k
+Dé . chef de sa race et de son peuple, responsable pour sa
 _ race et pour son peuple. Un être perpétuellement tendu.
 Le. _ Une arrière-tension, une sous-tension inexpiable. Pas
 - _ _unsentiment, pas une pensée, pas l'ombre d'une passion
@@ -2691,44 +2691,44 @@ _ charbon ardent sur la lèvre prophète.
 #2 _ Quand je viens en relation avec quelqu'un de nos
 Lt anciens adversaires (c'est un phénomène de plus en
 
-Charles Pégur ce # e.
-plus fréquent, inévitable, désirable même, car il faut É
-bien qu'un peuple se refasse, et se refasse de toutes f
+Charles Pégur ce #
+plus fréquent, inévitable, désirable même, car il faut
+bien qu'un peuple se refasse, et se refasse de toutes
 ses forces), je commence par lui dire : Vous ne nous #
-connaissez pas. Vous avez le droit de ne pas nous 4
+connaissez pas. Vous avez le droit de ne pas nous
 connaître. Nos politiciens ont fait une telle Foire sur : #
 la Place que vous ne pouviez pas voir ce qui se à
-passait dans la maison. Nos politiciens n'ont pas 4
+passait dans la maison. Nos politiciens n'ont pas
 dévoré seulement, absorbé notre mystique. Ils la {
-masquaient complètement, au moins au public, à ce Ÿ
+masquaient complètement, au moins au public, à ce
 qu'on nomme le grand public. Vous n'étiez pas abonné ;
-aux cahiers. C'est tout naturel. Vous aviez autre chose 3
-à faire. Vous ne lisiez pas les cahiers. Mais cette 5
-mystique dont nous parlons, nous ne l'inventons pas E
+aux cahiers. C'est tout naturel. Vous aviez autre chose
+à faire. Vous ne lisiez pas les cahiers. Mais cette
+mystique dont nous parlons, nous ne l'inventons pas
 aujourd'hui pour les besoins de la cause, nous ne #
-Vimprovisons pas aujourd'hui. Elle fut pendant dix 4
-= et quinze ans la mystique même de ces cahiers en k
-toutes ces matières et nous l'avons assez souvent manifestée. La seule différence qu'il y avait, c'est que 3
+Vimprovisons pas aujourd'hui. Elle fut pendant dix
+= et quinze ans la mystique même de ces cahiers en
+toutes ces matières et nous l'avons assez souvent manifestée. La seule différence qu'il y avait, c'est que
 masqués par les politiciens nos cahiers ne parvenaient À
 point alors auprès du grand public et qu'aujourd'hui, :
-dans le désarroi des politiciens, et sans doute pour une 4
+dans le désarroi des politiciens, et sans doute pour une
 autre cause, et au moins même pour deux, ils y par- :
 La seule différence qu'il y a, c'est qu'on ne nous lisait :
-point ; et que l'on commence à nous lire. j
+point ; et que l'on commence à nous lire.
 
 Et d'autre part il est certain que nous sommes les
 seuls, qu'il n'y a que nous qui depuis quinze ans ayons :
-cette mystique. Là était notre force. Et aujourd'hui, Ê
-obscure avec nous, ignorée avec nous, conservée avec F
-90 4
+cette mystique. Là était notre force. Et aujourd'hui,
+obscure avec nous, ignorée avec nous, conservée avec
+90
 
 2258 nous, par nos soins, aujourd'hui par nos soins, avec ;
 __ nous cette mystique naturellement apparaît.
 À Elle était notre force, à nous autres faibles, à nous
 - autres pauvres. La mystique est la force invincible des
-] Mais toute la différence qu'il y a, c'est qu'elle était ï
+] Mais toute la différence qu'il y a, c'est qu'elle était
 è inconnue ; et qu'aujourd'hui, avec nous, en nous elle est
-1 C'est pour cela que je veux bien qu'il y aït une
+C'est pour cela que je veux bien qu'il y aït une
 4 $ apologie pour notre passé, et que je La trouve très bien
 1 ë faite, pourvu qu'il soit bien entendu seulement qu'il ne
 4 s'agit pas de notre passé, à nous, mais du passé des
@@ -2749,34 +2749,34 @@ F: regrets et des soucis, qu'ils fassent des repentirs et
 É. des pénitences, laïques, qu'ils demandent et qu'ils
 L: obtiennent des absolutions, laïques, civiques, civiles et
 
-obligatoires. Nous leur en donnerons même les for- à È
+obligatoires. Nous leur en donnerons même les for- à
 rules. Mais nous demandons qu'ils ne les demandent
-pas et ne les obtiennent pas pour nous; qu'ils ne les Ê
-exercent pas pour nous; et deuxièmement qu'ils ne les F
+pas et ne les obtiennent pas pour nous; qu'ils ne les
+exercent pas pour nous; et deuxièmement qu'ils ne les
 demandent pas et ne les obtiennent pas et ne les à
 exercent pas pour l'affaire Dreyfus elle-même et pour le À
 dreyfusisme. Je ne veux point d'une apologie pour
 Péguy ni pour le passé de Péguy, ni d'une apologrie #
-pour les cahiers ni pour le passé des cahiers. Je ne veux E
-| pas qu'on me défende. Je n'ai pas besoin d'être défendu. k
-Je ne suis accusé de rien. F0 2
+pour les cahiers ni pour le passé des cahiers. Je ne veux
+| pas qu'on me défende. Je n'ai pas besoin d'être défendu.
+Je ne suis accusé de rien.
 Je ne redoute rien tant que ceci : qu'on me défende. :
 Voilà tout le désaveu que j'ai le courage de m'in- - |
 Je ne suis pas accusé. Nous ne sommes pas accusés. # |
 Notre affaire Dreyfus n'est pas accusée. Sous ce nom À
-commun d'affaire Dreyfus, comme il arrive si souvent 4
-en histoire, sous ce nom presque générique il y a eu au 7
-moins, dans la réalité, deux affaires parfaitement É
-distinctes, extrêmement différentes. Deux affaires ont 1
+commun d'affaire Dreyfus, comme il arrive si souvent
+en histoire, sous ce nom presque générique il y a eu au
+moins, dans la réalité, deux affaires parfaitement
+distinctes, extrêmement différentes. Deux affaires ont
 couru, ont poussé leur carrière, ont suivi leur fortune. “A
 Ont poussé leur chemin. La nôtre n'a rien à se repro- 3 |
-.. cher. Il y a eu des dreyfusistes purs et des dreyfu- 4
+.. cher. Il y a eu des dreyfusistes purs et des dreyfu-
 sistes impurs. C'est le niveau de l'humanité. Il y a
 eu une affaire Dreyfus pure et une affaire Dreyfus |
-impure. C'est le niveau de l'événement. Nous ne souf- 4
+impure. C'est le niveau de l'événement. Nous ne souf-
 frirons pas que la première fasse des excuses, donne |
-des pénitences pour la deuxième. Ou si l'on préfère, É l
-que la deuxième en fasse et en donne pour la première. 3
+des pénitences pour la deuxième. Ou si l'on préfère,
+que la deuxième en fasse et en donne pour la première.
 Avec la première. Ensemble. Nous n'avons rien à nous ‘4
 faire pardonner. Nous ne souffrirons pas que ceux qui À
 
@@ -2798,7 +2798,7 @@ L restés, c'est nous qui sommes l'âme. L'axe passe par
 “#4 _ pasété fidèles à cet honneur, ceux qui n'ont pas suivi
 #4 . cet honneur n'ont point à demander pardon pour ceux
 + qui l'ont suivi, qui le suivent.
-2 À Quand de loin en loin je viens en relations avec
+À Quand de loin en loin je viens en relations avec
 - quelqu'un de ces anciens adversaires, je lui dis : Vous
 243 ne nous connaissez pas. Vous ne nous soupçonnez peutnn Ë être pas. Vous en avez le droit. Tant des nôtres ne
 …_ nous connaissent pas. Nos politiciens ont tout fait pour
@@ -2809,26 +2809,26 @@ L restés, c'est nous qui sommes l'âme. L'axe passe par
 # _ dessus, la politique, qui se manifestait, et que vous ne
 ‘50 _ nous ayez pas vu, que vous n'ayez pas vu le dessous,
 
-les profondeurs, qui nourrissaient. Vous avez vu les 3
-manifestations et pendant que nous suivions les règles 4
+les profondeurs, qui nourrissaient. Vous avez vu les
+manifestations et pendant que nous suivions les règles
 de notre honneur vous n'avez pas vu les forces. C'est la
-loi même du combat. Aujourd'hui vous ne pouvez pas : l
-tout lire. En arrière, en remontant. Vous ne pouvez pas L
-tout nous connaître. On ne se rattrape pas, on ne se 4
-refait pas, on ne se remet pas de dix, douze ou quinze F
+loi même du combat. Aujourd'hui vous ne pouvez pas
+tout lire. En arrière, en remontant. Vous ne pouvez pas
+tout nous connaître. On ne se rattrape pas, on ne se
+refait pas, on ne se remet pas de dix, douze ou quinze
 ans. Prenez seulement ceci. Et alors je leur donne ou je ; ;
 leur envoie un exemplaire du IlI-21, Jean Deck, pour la ;
-Finlande, non point seulement pour qu'ils lisent ce gros | É
-et beau travail de notre collaborateur, au moment 1
-même où la Finlande, qui avait tout de même un peu j
-résisté à l'autocratie pure, à la bureaucratie autocra- ÿ
+Finlande, non point seulement pour qu'ils lisent ce gros
+et beau travail de notre collaborateur, au moment
+même où la Finlande, qui avait tout de même un peu
+résisté à l'autocratie pure, à la bureaucratie autocra-
 tique, ne peut plus résister à l'autocratie parlemen- &
-taire, ne peut plus se défendre contre la bureau- 3
-cratie autocratique déguisée, masquée d'un vague ë
+taire, ne peut plus se défendre contre la bureau-
+cratie autocratique déguisée, masquée d'un vague
 appareil parlementaire, mais parce qu'à la fin de ‘4
-ce cahier, dans ce désastreux mois d'août de 1902, nous 3
+ce cahier, dans ce désastreux mois d'août de 1902, nous
 ‘ avions, dans le désastre et dans le désarroi de notre
-zèle, dans le deuil de notre désastre, groupé hâtivement 4
+zèle, dans le deuil de notre désastre, groupé hâtivement
 à la fin de ce cahier tout ce que nous avions pu grouper de
 bâtivement de dreyfusiste, tout ce que nous avions pu
 ramasser contre la politique, contre la démagogie de la 1 |
@@ -2838,7 +2838,7 @@ pour et contre les congrég'ations. Lisez même seulement, : |
 à la fin de ce dossier, cette consultation de Bernard- _.
 Lazare datée du 6 août 1902, intitulée La loi et les con à
 grégations. Vingt-cinq pages. Les dernières vraiment Ë |
-qu'il ait données. Un an après il était mort ou mourait. É:
+qu'il ait données. Un an après il était mort ou mourait.
 Il faut leur faire cette justice qu'ils sortent de cette -
 94 -
 
@@ -2866,9 +2866,9 @@ en politique, en démagogie combiste. Que ceux qui ont
 
 cédé d'une ligne, de grâce, que l'on n'en fasse point.
 
-4 Quand on relit cet admirable mémoire de Bernard-
+Quand on relit cet admirable mémoire de Bernard-
 
-Lazare, on est comme choqué, il vient une rougeur à ï
+Lazare, on est comme choqué, il vient une rougeur à
 : _ cette idée seulement que l'idée viendrait qu'un tel
 
 , homme füt englobé, pût être englobé inconsidérément
@@ -2883,7 +2883,7 @@ k la même matière il y à eu au moins deux affaires
 
 Dreyfus, élaborant la matière de la même histoire. Celle
 
-3 de Bernard-Lazare, la nôtre, était innocente et n'a pas 5
+3 de Bernard-Lazare, la nôtre, était innocente et n'a pas
 
 # besoin d'être défendue. Et en un autre sens encore
 
@@ -2892,7 +2892,7 @@ GS. il y avait très notamment deux affaires Dreyfus, celle :
 
 sortie du colonel Picquart- Celle qui était sortie du
 colonel Picquart était très bien. Celle qui était sortie
-de Bernard-Lazare était infinie. e
+de Bernard-Lazare était infinie.
 
 Il faut penser que, notamment dans cette consultation, qui fut littéralement son testament mystique, il ne
 s'opposait pas seulement au combisme, qui fut l'abus,
@@ -2907,20 +2907,20 @@ de pensée profonde. Il avait discerné l'effet dans la
 cause, l'abus dans l'usage. I1 faut penser donc qu'il À
 s'était opposé, de toutes ses forces, de tout ce qui lui ik
 restait de forces, non point au développement seule- ;
-ment, et aux promesses de développement, mais à l'ori- h
+ment, et aux promesses de développement, mais à l'ori-
 gine même, au principe de la politique dreyfusiste. Il ke
-faut relire ce dossier, cette consultation, cette adjura- ù.
+faut relire ce dossier, cette consultation, cette adjura-
 tion éloquente à Jaurès, presque cette mise en demeure, il
-certainement déjà cette menace. É
+certainement déjà cette menace.
 Il faut penser que c'était un homme, j'ai dit très pré |
 ? cisément un prophète, pour qui tout l'appareil des puis- ;
 sances, la raison d'État, les puissances temporelles, les |
 puissances politiques, les autorités de tout ordre, politiques, intellectuelles, mentales même ne pesaient pas {
 une once devant une révolte, devant un mouvement de
-la conscience propre. On ne peut même en avoir aucune 4
+la conscience propre. On ne peut même en avoir aucune
 idée. Nous autres nous ne pouvons en avoir aucune :
 idée. Quand nous nous révoltons contre une autorité,
-quand nous marchons contre les autorités, au moins d
+quand nous marchons contre les autorités, au moins
 
 52 _ nous les soulevons. Enfin nous en sentons le poids. Au ;
 
@@ -2930,16 +2930,16 @@ __  vions. Nous savons, nous sentons que nous marchons
 
 L- contre elles et que nous les soulevons. Pour lui elles
 
-‘& n'existaient pas. Moins que je ne vous dis. Je ne sais 4
+‘& n'existaient pas. Moins que je ne vous dis. Je ne sais
 
 i même pas comment représenter à quel point il mépri-
 
-: sait les autorités, temporelles, comment il méprisait 7
+: sait les autorités, temporelles, comment il méprisait
 
 | les puissances, comment en donner une idée. Il ne les
-méprisait même pas. Il les ignorait, et même plus. Il é
+méprisait même pas. Il les ignorait, et même plus. Il
 ne les voyait pas, il ne les considérait pas. IL était .
-myope. Elles n'existaient pas pour lui. Elles n'étaient s
+myope. Elles n'existaient pas pour lui. Elles n'étaient
 
 + pas de son grade, de son ordre de grandeur, de sa |
 
@@ -2983,37 +2983,37 @@ E. nom de gouvernement Combes, manquait à tous les ;
 
 - séquent du gouvernement, faussait enfin la parole de
 
-l'État, s'il est permis de mettre ces deux mots ensemble, x
+l'État, s'il est permis de mettre ces deux mots ensemble,
 Bernard-Lazare avait jugé naturellement qu'il fallait |
-acquitter la parole de la République. Il avait jugé qu'il F
+acquitter la parole de la République. Il avait jugé qu'il
 fallait que la République tint sa parole. Il avait jugé ;
 qu'il fallait appliquer, interpréter la loi comme le gou- |
 vernement, les deux Chambres, l'État enfin avaient À
-promis de la faire appliquer, s'étaient engagés à l'appli- 4
+promis de la faire appliquer, s'étaient engagés à l'appli-
 quer, à l'interpréter eux-mêmes. Avaient promis qu'on À
-lappliquerait. Cela était pour lui l'évidence même. La W
-Cour de Cassation, naturellement aussi, n'hésita point i
-à se ranger à l'avis (de ces messieurs) du gouverne- 1
+lappliquerait. Cela était pour lui l'évidence même. La
+Cour de Cassation, naturellement aussi, n'hésita point
+à se ranger à l'avis (de ces messieurs) du gouverne-
 ment. Je veux dire du deuxième gouvernement. Un :}
 ami (comme on dit) vint lui dire, triomphant : Vous ä
-voyez, mon cher ami, la Cour de Cassation a jugé F
+voyez, mon cher ami, la Cour de Cassation a jugé
 contre vous. Les dreyfusards devenus combistes cre- *
 vaient déjà d'orgueil, et de faire les malins, et de la À
 pourriture politicienne. Il faut avoir vu alors son œil
-pétillant de malice, mais douce, et de renseignement, E
-Qui n'a pas vu son œil noir n'a rien vu, son œil de i
+pétillant de malice, mais douce, et de renseignement,
+Qui n'a pas vu son œil noir n'a rien vu, son œil de
 myope; et le pli de sa lèvre. Un peu grasse. — Mon $
 cher ami, répondit-il doucement, vous vous trompez. ;
-. C'est moi qui ai jugé autrement que la Gour de Gassa- 3
+. C'est moi qui ai jugé autrement que la Gour de Gassa-
 tion. L'idée qu'on pouvait un instant lui comparer, à lui À
 Bernard-Lazare, la Cour de Cassation, toutes chambres [e
 éployées, lui paraissait bouffonne. Comme l'autre était +
 tout de même un peu suffoqué. — Mais, mon garçon, #
 lui dit-il très doucement, la Cour de Cassation, c'est _
 des hommes. Il avait l'air souverain de parler très dou- { |
-cement, très délicatement comme à un petit imbécile 4
-d'élève. Qui n'aurait pas compris. Pensez que c'était le É.
-temps où tout dreyfusard politicien cousinait avec la 2
+cement, très délicatement comme à un petit imbécile
+d'élève. Qui n'aurait pas compris. Pensez que c'était le
+temps où tout dreyfusard politicien cousinait avec la
 Cour de Cassation, disait {a Cour de Cassation en gon- à
 
 ES flant les joues, crevait d'orgueil d'avoir été historique-
@@ -3048,12 +3048,12 @@ $ autrement. Que lui-même il ne pouvait les voir qu'en
 …_ croire, d'abord, comme un premier examen, superficiel,
 
 hâtif, pourrait d'abord le laisser supposer, en vieux :
-singes revêtus de la simarre et de l'hermine. On sentait 4
+singes revêtus de la simarre et de l'hermine. On sentait
 si bien qu'il savait que lui Bernard-Lazare il avait fait
 marcher ces gens-là, qu'on les ferait marcher encore,
-et que lui Bernard-Lazare on ne le ferait jamais mar- Ë
-cher, que ces gens-là surtout ne le feraient jamais mar- s
-cher. Qu'il avait temporellement fait marcher tout le 3
+et que lui Bernard-Lazare on ne le ferait jamais mar-
+cher, que ces gens-là surtout ne le feraient jamais mar-
+cher. Qu'il avait temporellement fait marcher tout le
 monde ; et que tout le monde ne le ferait jamais spiri- :
 tuellement marcher. Pour lui ce n'était pas, ce ne serait +
 | jamais la plus haute autorité du royaume, la plus haute
@@ -3064,38 +3064,38 @@ juge. On sentait si bien qu'il savait qu'il avait fait #
 marcher ces gens-là, et qu'ils ne le feraient jamais à
 marcher. Quand l'autre fut parti : Vous l'avez ou, me à
 dit-il en riant. Il était rigolo avec sa Cour de Cassation. :
-Notez qu'il était, et très délibérément, contre les lois 4
-É Waldeck même. Contre la loi Waldeck. Mais enfin, 4
+Notez qu'il était, et très délibérément, contre les lois
+É Waldeck même. Contre la loi Waldeck. Mais enfin,
 > puisqu'il y avait une loi Waldeck, il voulait, il fallait
-F qu'on s'y tint juridiquement. Et même loyalement. 1
-Qu'on l'appliquât, qu'on l'interprétât comme elle était. 2
+F qu'on s'y tint juridiquement. Et même loyalement.
+Qu'on l'appliquât, qu'on l'interprétât comme elle était.
 | Il n'aimait pas l'État. Mais enfin puisqu'il y avait un
-| État, et qu'on ne pouvait pas faire autrement, il voulait 4
-au moins que le même État qui fît une loi fût le même 4
+| État, et qu'on ne pouvait pas faire autrement, il voulait
+au moins que le même État qui fît une loi fût le même
 aussi qui l'appliquât. Que l'État ne se dérobât point et 1 |
-ne changeât point de nom et de statut entre les deux, 3
+ne changeât point de nom et de statut entre les deux,
 qu'il ne fit point ceci sous un nom et qu'il ne le défit À
 point sous un autre, sous un deuxième nom. Il voulait au È |
 moins que l'Etat fût, au moins quelques années, constant +
-É avec lui-même. L'autre voulait dire évidemment qu'il 3
-était d'un très grand prix, d'un prix suprême, d'un prix Ë
+É avec lui-même. L'autre voulait dire évidemment qu'il
+était d'un très grand prix, d'un prix suprême, d'un prix
 
-| decour suprême que la Cour de Cassation eût innocenté 4
+| decour suprême que la Cour de Cassation eût innocenté
 _ Dreyfus. Pour lui ce n'était d'aucun prix. Il considérait ,
 _ cette sorte de consécration juridique comme une consé- #
 cration purement judiciaire, et uniquement comme une ‘
-_ victoire temporelle, surtout sans doute comme une vic- 3
+_ victoire temporelle, surtout sans doute comme une vic-
 
 - toire de lui Bernard-Lazare sur la Cour de Cassation. Il *à
 
 _ ne lui venait point à la pensée qu'une Cour de Cassa- CRE.
 
-4 à tion pût faire ou ne pas faire, fit ou ne fit pas l'inno- ë
+4 à tion pût faire ou ne pas faire, fit ou ne fit pas l'inno-
 
-cence de Dreyfus. Mais il sentait, il savait parfaitement è
+cence de Dreyfus. Mais il sentait, il savait parfaitement
 
 à que c'était lui Bernard-Lazare qui faisait l'autorité d'une Fe
-4 Cour de Cassation, qui faisait ou ne faisait pas une +
+Cour de Cassation, qui faisait ou ne faisait pas une +
 
 . Cour de Cassation même, parce qu'il en faisait la nour- ‘
 
@@ -3115,41 +3115,41 @@ _ par des puissances spirituelles intérieures. On sait
 5 qui se sont produits, qui sont résultés du jeu de cet
 ‘4 article, ou plutôt de ce jeu de cet article étaient évités |
 - si on lui avait laissé le gouvernement de l'affaire. Il ne
-fait aucun doute qu'il considérait ce jeu comme une for- j
+fait aucun doute qu'il considérait ce jeu comme une for-
 __ faiture, comme un abus, comme un coup de force judi- :
 É _ciaire, comme uneillégalité. En outre, avec son clair bon
 sens, bien français, ce juif, bien parisien, avec son clair
 
 regard juridique il prévoyait les difficultés inextricables
 où elle nous jetterait, qu'elle rouvrirait éternellement ;
-Vaffaire ou plutôt qu'elle empécheraït éternellement 1
+Vaffaire ou plutôt qu'elle empécheraït éternellement
 l'affaire de se clore. Il me disait : Dreyfus passera
 devant cinquante conseils de guerre, s'il faut, ouencore :
 Dreyfus passera devant des conseils de guerre toute sa |
-vie. Mais il faut qu'il soit acquitté comme tout le monde. i
-Le fond de sa pensée était d'ailleurs que Dreyfus était 1
+vie. Mais il faut qu'il soit acquitté comme tout le monde.
+Le fond de sa pensée était d'ailleurs que Dreyfus était
 
 | bien sot de se donner tant de mal pour faire consacrer à
 : son innocence par les autorités constituées; que ces
 gens-là ne font rien à l'affaire; que puisqu'on l'avait +
 arraché à une persécution inique le principal était fait, ;
-tout était fait; que les revêtements d'autorité, les consécrations judiciaires sont bien superflues, n'existent É
+tout était fait; que les revêtements d'autorité, les consécrations judiciaires sont bien superflues, n'existent
 pas, venant de corps négligeables; que c'est faire beau- À
-coup d'honneur à ces messieurs; qu'on est bien bon, 4
+coup d'honneur à ces messieurs; qu'on est bien bon,
 quand on est innocent, en plus de le faire constater. à
 | Qu'on apporte ainsi, à ces autorités, une autorité dont
 elles ont grand besoïn. Mais alors, au deuxième degré,
-si on y avait recours, il fallait y avoir recours droite- 4
+si on y avait recours, il fallait y avoir recours droite-
 : ment, il ne fallait point biaiser, il ne fallait point tricher,
-; surtout sans doute parce que c'était se donner les apparences, et peut-être la réalité, de s'incliner devant elles, É
-de les redouter. Puisqu'on y allait, puisqu'on s'en servait, il fallait s'en servir, et y aller droitement. C'était F
+; surtout sans doute parce que c'était se donner les apparences, et peut-être la réalité, de s'incliner devant elles,
+de les redouter. Puisqu'on y allait, puisqu'on s'en servait, il fallait s'en servir, et y aller droitement. C'était
 encore un moyen de leur commander. Si c'était de la À
 politique, il fallait au moins qu'elle fût droite. Il avait
-un goût incroyable de la droiture, surtout dans ce qu'il L.
+un goût incroyable de la droiture, surtout dans ce qu'il
 p'aimait pas, dans la politique et dans le judiciaire. IL EL
 se rattrapait pour ainsi dire ainsi d'y aller malgré lui $
 en y étant droit malgré eux. Je n'ai jamais vu quelqu'un
-savoir aussi bien garder ses distances, être aussi distant, 4
+savoir aussi bien garder ses distances, être aussi distant,
 
 ne - aussi doucement, aussi savamment, aussi horizontale-
 à ment pour ainsi dire. Je n'ai jamais vu une puissance
@@ -3186,31 +3186,31 @@ Deuxièmement il avait certainement une sympathie + à
 secrète, une entente intérieure avec les autres puis- :
 sances spirituelles. Sa haïne de l'État, du temporel se $
 retrouvait là toute entière. On ne peut pas poursuivre, ;
-- disait-il, par des lois, des gens qui s'assemblent pour 1
-faire leur prière. Quand même ils s'assembleraient cinq ï
-cent mille. Si on trouve qu'ils sont dangereux, qu'ils 4
-ont trop d'argent, qu'on les poursuive, qu'on les atteigne 2
-par des mesures générales, comme tout le monde, (ce Ë
+- disait-il, par des lois, des gens qui s'assemblent pour
+faire leur prière. Quand même ils s'assembleraient cinq
+cent mille. Si on trouve qu'ils sont dangereux, qu'ils
+ont trop d'argent, qu'on les poursuive, qu'on les atteigne
+par des mesures générales, comme tout le monde, (ce
 : même mot, cette même expression, comme tout le
 à monde, dont il se servait toujours, dont il se servait
 précisément pour Dreyfus), par des lois, économiques à
-générales, qui poursuivent, qui atteignent tous ceux 4
+générales, qui poursuivent, qui atteignent tous ceux
 : qui sont aussi dangereux qu'eux, qui ont de l'argent À
 ; comme eux. Il n'aimait pas que les partis politiques,
 que l'État, que les Chambres, que le gouvernement lui :
 enlevât la gloire du combat qu'il voulait soutenir, lui ‘1
 : déshonorât d'avance son combat. SE
 à D'une manière générale il n'aimait pas, il ne pouvait >
-pas supporter que le temporel se mêlât du spirituel. Tous E
-: ces appareils temporels, tous ces organes, tous ces ap- 1
-pareils de levage lui paraissaient infiniment trop gros- 4
-2 siers pour avoir le droit de mettre leur patte grossière non 4
-seulement dans les droits mais même dans les intérêts espirituels. Que des organes aussi grossiers que le gou- 3
+pas supporter que le temporel se mêlât du spirituel. Tous
+: ces appareils temporels, tous ces organes, tous ces ap-
+pareils de levage lui paraissaient infiniment trop gros-
+2 siers pour avoir le droit de mettre leur patte grossière non
+seulement dans les droits mais même dans les intérêts espirituels. Que des organes aussi grossiers que le gou-
 vernement, la Chambre, l'État, le Sénat, aussi étrangers :
-à tout ce qui est spirituel, missent les doigts de la main 5
-dans le spirituel, c'était pour lui non pas seulement une 4
-profanation grossière, mais plus encore, un exercice de L
-mauvais goût, un abus, l'exercice, l'abus d'une singulière 4
+à tout ce qui est spirituel, missent les doigts de la main
+dans le spirituel, c'était pour lui non pas seulement une
+profanation grossière, mais plus encore, un exercice de
+mauvais goût, un abus, l'exercice, l'abus d'une singulière
 incompétence. Il se sentait au contraire une secrète, ;
 
 ©  üne singulière complicité de compétence spirituelle au
@@ -3219,60 +3219,60 @@ incompétence. Il se sentait au contraire une secrète, ;
 _ dis savoir à ce point je ne dis pas seulement qu'une :
 4 conscience est au-dessus de toutes les juridictions, mais Se
 __ quelle est, qu'elle exérce elle-même dans la réalité une $
-; juridiction, qu'elle est la suprême juridiction, la seule. 4
-È Si on l'avait suivi, si on avait au moins suivi son 4
-| enseignement et son exemple, si on avait continué dans Be ÿ
+; juridiction, qu'elle est la suprême juridiction, la seule.
+È Si on l'avait suivi, si on avait au moins suivi son
+| enseignement et son exemple, si on avait continué dans Be
 > son sens, si on avait seulement suivi le respect que l'on Me.
 ÈS devait à sa mémoire, aujourd'hui la revision même du :
-É: procès Dreyfus ne serait pas en danger, comme elle 4
-2 l'est. Elle ne serait pas exposée, comme elle l'est. 4
+É: procès Dreyfus ne serait pas en danger, comme elle
+2 l'est. Elle ne serait pas exposée, comme elle l'est.
 EN Aussi nous avons vu son enterrement, Je dirai quel .
-> fut son enterrement. Qui nous étions, combien peu É
+> fut son enterrement. Qui nous étions, combien peu
 L: dans ce cortège, dans ce convoi, dans cet accompagne- SUR à
 . ment fidèle gris descendant et passant dans Paris. En ;
 a pleines vacances. Dans ce mois d'août ou plutôt dans ce Fa
 A commencement de mois de septembre. Quelques-uns, les $
 Re mêmes forcenés, les mêmes fanatiques, Juifs et chrétiens, %
-Le quelques Juifs riches, très rares, quelques chrétiens 4
--_ riches, très rares, des Juifs et des chrétiens pauvres et 3
+Le quelques Juifs riches, très rares, quelques chrétiens
+-_ riches, très rares, des Juifs et des chrétiens pauvres et
 > Es misérables, eux-mêmes en assez petit nombre. Une petite Se
 4 troupe en somme, une très petite troupe. Comme une ”
 - espèce de compagnie réduite qui traversait Paris. De >
 Be. misérables juifs étrangers, je veux dire étrangers à la
-nationalité française, car il n'était pas un Juif roumain, 4
+nationalité française, car il n'était pas un Juif roumain,
 
 je veux dire un Juif de Roumanie, qui ne le sût pro- ;
 phète, qui ne le tint pour un véritable prophète. Il était
 pour tous ces misérables, pour tous ces persécutés, un
-éclair encore, un rallumage du flambeau qui éternelle- i
-ment ne s'éteindra point. Temporellement éternellement. 3
+éclair encore, un rallumage du flambeau qui éternelle-
+ment ne s'éteindra point. Temporellement éternellement.
 Et comme toutes ces marques mêmes sont de famille, ‘
 comme tout ce qui est d'Israël est de race, comme ces
-choses-là restent dans les familles, comment ne pas se 5
+choses-là restent dans les familles, comment ne pas se
 rappeler, comment ne point voir cet ancien enterrement
 quand on voyait si peu de monde, il y a quelques à
-semaines encore, à l'enterrement de sa mère. Relative- É
+semaines encore, à l'enterrement de sa mère. Relative-
 ment peu de monde. Et pourtant ils connaissaient £
 beaucoup de monde. Je dirai sa mort, et sa longue et à
 sa cruelle maladie, et tout le lent et si prompt achemi- $
-nement de sa mort. Cette sorte de maladie féroce. Ë
-Comme acharnée. Comme fanatique. Comme elle-même 1
+nement de sa mort. Cette sorte de maladie féroce.
+Comme acharnée. Comme fanatique. Comme elle-même
 forcenée. Comme lui. Comme nous. Je ne sais rien de À
-si poignant, de si saisissant, je ne connais rien d'aussi 4
-tragique que cet homme qui se roïdissant de tout ce qui Ë
-: lui restait de force se mettait en travers de son parti k
-victorieux. Qui dans un effort désespéré, où il se brisait E
-lui-même, essayait, entreprenait de remonter cet élan, É
-cette vague, ce terrible élan, l'insurmontable élan de la 3
-victoire et des abus, de l'abus de la victoire. Le seul 1
+si poignant, de si saisissant, je ne connais rien d'aussi
+tragique que cet homme qui se roïdissant de tout ce qui
+: lui restait de force se mettait en travers de son parti
+victorieux. Qui dans un effort désespéré, où il se brisait
+lui-même, essayait, entreprenait de remonter cet élan,
+cette vague, ce terrible élan, l'insurmontable élan de la
+victoire et des abus, de l'abus de la victoire. Le seul
 élan qu'on ne remontera jamais. L'insurmontable élan :
-de la victoire acquise. De la victoire faite. De l'entraîne- É
+de la victoire acquise. De la victoire faite. De l'entraîne-
 ment de la victoire. L'insurmontable, le mécanique, l'au-
-: tomatique élan du jeu même de la victoire. Je le revois ï
+: tomatique élan du jeu même de la victoire. Je le revois
 encore dans son lit. Cet athée, ce professionnellement
-athée, cet officiellement athée en qui retentissait, avec e
-une force, avec une douceur incroyable, la parole éter- 3
-nelle; avec une force éternelle; avec une douceur éter- É
+athée, cet officiellement athée en qui retentissait, avec
+une force, avec une douceur incroyable, la parole éter-
+nelle; avec une force éternelle; avec une douceur éter-
 
 __ nelle; que je n'ai jamais retrouvée égale nulle part
 4 ailleurs. J'ai encore sur moi, dans mes yeux, l'éternelle
@@ -3304,50 +3304,50 @@ plus laquelle des deux se nomme laquelle, jusqu'à ce
 à drais. Quand j'ai pris cet appartement-là, je croyais
 ke que je ferais un grand journal et qu'on travaillerait ici.
 
-J'avais des plans. Il en était loin, de faire un grand 4
+J'avais des plans. Il en était loin, de faire un grand
 journal. Les journaux des autres se faisaient, des autres |
 mêmes, à condition qu'il n'y fût pas. Je revois encore
 cette grande chambre, rue de Florence, 5, (ou 7) rue de
 Florence, la chambre du lit, la chambre de souffrance,
 la chambre de couchée, la chambre d'héroïsme, (la :
-chambre de sainteté), la chambre mortuaire. La e
-chambre du lit d'où il ne se releva point. L'ai-je donc 3
-tant oublié moi-même que ce 5, (ou ce 7), ne réponde s
+chambre de sainteté), la chambre mortuaire. La
+chambre du lit d'où il ne se releva point. L'ai-je donc
+tant oublié moi-même que ce 5, (ou ce 7), ne réponde
 plus mécaniquement à l'appel de ma mémoire, que ce |
 5 et ce 7 se battent comme des chiffonniers dans le |
 magasin de ma mémoire, que chacun s'essaye et fasse |
 valoir ses titres. Et pourtant j'y suis allé. Et nous
 disions familièrement entre nous : Est-ce que tu es allé Fe
-rue de Florence. Dans la grande chambre rectangulaire, ë
+rue de Florence. Dans la grande chambre rectangulaire,
 je vois le grand lit rectangulaire. Une, ou deux, ou trois Fe.
-grandes fenêtres rectangulaires donnaient de grands e
+grandes fenêtres rectangulaires donnaient de grands
 jours” de gauche obliques rectangulaires; tombant, %
-descendant lentement; lentement penchés. Le lit venait 3
+descendant lentement; lentement penchés. Le lit venait
 : du fond, non pas du fond opposé aux fenêtres, où #
 étaient les portes, et, je pense, les corridors, mais du |
-| fond qu'on avait devant soi quand on avait les fenêtres 4
+| fond qu'on avait devant soi quand on avait les fenêtres
 e à gauche. De ce fond le lit venait bien au milieu, bien #
-ï carrément, la tête au fond, jointe le fond, les pieds vers 4
+ï carrément, la tête au fond, jointe le fond, les pieds vers
 le milieu de la chambre. Lui-même juste au milieu de À
 son lit, sur le dos, symétrique, comme l'axe de son lit, |
 1 comme un axe d'équité. Les deux bras bien à gauche |
-et à droite. C'étaient dans les derniers temps. La 1
-maladie approchait de sa consommation. Une profonde, 5 4
+et à droite. C'étaient dans les derniers temps. La
+maladie approchait de sa consommation. Une profonde,
 ; une vigilante affection fraternelle, la diligence d'une #l
 affection fraternelle pensait déjà à lui faire, à lui pré- à
 parer une mort qui ne fût point la consommation de à
-108 4
+108
 
 | cette cruauté, qui fût plus douce, un peu adoucie, qui
 É _ n'eût point toute la cruauté, toute la barbarie de cette
-: maladie forcenée. Qui ne fût point le couronnement de d
+: maladie forcenée. Qui ne fût point le couronnement de
 F cette cruauté. On lui avait conté des histoires sur sa |
 É maladie, des histoires et des histoires. Qu'en croyait- ;
 ; il? 11 faisait, comme tout le monde, semblant de les
 
 : croire. Qu'en croyaitil, c'est le secret des morts.
-Morientium ac mortuorum. Dans cette incurable 4
-4 lâcheté du monde moderne, où nous osons tout dire à 3
+Morientium ac mortuorum. Dans cette incurable
+4 lâcheté du monde moderne, où nous osons tout dire à
 É lhomme, excepté ce qui l'intéresse, où nous n'osons $ <
 i pas dire à l'homme la plus grande nouvelle, la nouvelle |
 | de la seule grande échéance nous avons menti nous- +
@@ -3356,7 +3356,7 @@ mêmes tant de fois, nous avons tant menti à tant de |
 quand c'est notre tour nous ne croyons pas nous-mêmes |
 
 tout à fait aux mensonges que l'on nous fait. Il faisait
-__ - donc semblant d'y croire. Mais dans ses beaux yeux Ÿ
+__ - donc semblant d'y croire. Mais dans ses beaux yeux
 
 doux, dans ses grands et gros yeux clairs il était impos-
 
@@ -3391,12 +3391,12 @@ d'orgueil, enfantin, que le métro Amsterdam était
 ouvert. Ou quelque autre. Il se passionnaït ingénument
 pour tout ce qui était voies et moyens de communica-
 . tions. Tout ce qui était allées et venues, géographiques,
-et retour, circulations, déplacements, replacements, É
-voyages, exodes et deutéronomes lui causaïit un amoncellement de joie enfantine inépuisable. Le métro parti- 4
+et retour, circulations, déplacements, replacements,
+voyages, exodes et deutéronomes lui causaïit un amoncellement de joie enfantine inépuisable. Le métro parti-
 culièrement lui était une victoire personnelle. Tout ce
 qui était rapidité, accélération, fièvre de communication, déplacement, circulation rapide l'emplissait d'une
 joie enfantine, de la vieille joie, d'une joie de cinquante
-siècles. C'était son affaire, propre. Étre ailleurs, le ÿ
+siècles. C'était son affaire, propre. Étre ailleurs, le
 grand vice de cette race, la grande vertu secrète; la
 grande vocation de ce peuple. Une remontée de cin- |
 quante siècles ne le mettait point en chemin de fer que
@@ -3413,7 +3413,6 @@ temple. Ils sont toujours sur le dos des chameaux. ;
 Peuple singulier. Combien de fois n'y ai-je point pensé.
 Pour qui les plus immobilières maisons ne seront jamais
 que des tentes. Et nous au contraire, qui avons réelle- ;
-| 110
 
 Fe ment couché sous la tente, sous des vraies tentes, com-
 
@@ -3446,51 +3445,51 @@ E += alors, la ligne numéro 1 seulement je crois était en
 s exploitation. Il avait un orgueil local, un orgueil de
 1 quartier, qu'il eût abouti, déjà, jusqu'à lui, un des pre-
 ; : miers, qu'il eût percé jusqu'à lui, qu'il eût commencé
-L à monter vers ces hauteurs. Il me l'avait dit, quelques j
+L à monter vers ces hauteurs. Il me l'avait dit, quelques
 D. mois auparavant, quand on avait essayé de l'envoyer,
 à ; comme tout le monde, vers les réparations du Midi. Il
 ee était allé d'hôtel en hôtel. Il était heureux comme un
 + enfant. Jusqu'à ce qu'il trouva une espèce de petite
 
 maison de paysan; qu'il me présenta dans une lettre .:
-comme le paradis réalisé. Et d'où natureliement il 4
-revint rapidement, il rentra à Paris. Il me l'avait dit F
+comme le paradis réalisé. Et d'où natureliement il
+revint rapidement, il rentra à Paris. Il me l'avait dit
 alors, dans un de ces mots qui éclairent un homme, un À
 peuple, une race. Voyez-vous, Péguy, me disait-il, je ne ;
 commence à me sentir chez moi que quand j'arrive dans pe
-un hôtel. Il le disait en riant, mais c'était vrai tout de : ï
+un hôtel. Il le disait en riant, mais c'était vrai tout de
 ) En somme, dans l'action, dans la politique, puisqu'il :
-À en faut une, puisqu'il fallait y descendre, il était parti- : 4
+À en faut une, puisqu'il fallait y descendre, il était parti-
 san du droit commun. Droit commun dans laffaire à
-Dreyfus, droit commun dans l'affaire Congrégations. Ê
-7x Droit commun pour Dreyfus, droit commun contre les 4
-congrégations. Cela n'a l'air de rien, cela peut mener 4
-loin. Cela le mena jusqu'à l'isolement dans la mort. 4
-Il était essentiellement pour la justice, pour l'équité, E.
-pour l'égalité (non point naturellement au sens démo- 3
-Ë cratique, mais au sens d'équilibre parfait, d'horizonta- 3
-5 lité parfaite dans la justice. Il était contre l'exception, É
-contre la loi d'exception, contre la mesure d'exception, 4
-qu'elle fût pour ou contre, persécution ou grâce. Il était É
+Dreyfus, droit commun dans l'affaire Congrégations.
+7x Droit commun pour Dreyfus, droit commun contre les
+congrégations. Cela n'a l'air de rien, cela peut mener
+loin. Cela le mena jusqu'à l'isolement dans la mort.
+Il était essentiellement pour la justice, pour l'équité,
+pour l'égalité (non point naturellement au sens démo-
+Ë cratique, mais au sens d'équilibre parfait, d'horizonta-
+5 lité parfaite dans la justice. Il était contre l'exception,
+contre la loi d'exception, contre la mesure d'exception,
+qu'elle fût pour ou contre, persécution ou grâce. Il était
 pour le niveau de la justice.
 Je le regardais donc ce matin-là. 7, rue de Florence. :
-Et je l'écoutais. J'étais assis au pied de son lit à gauche 4
-comme un disciple fidèle. Tant de douceur, tant de n
-mansuétude dans une si cruelle situation me désar- 4
-112 4
+Et je l'écoutais. J'étais assis au pied de son lit à gauche
+comme un disciple fidèle. Tant de douceur, tant de
+mansuétude dans une si cruelle situation me désar-
+112
 
 Re _ maït, me dépassait. Tant de douceur pour ainsi dire
 __  inexpiable. J'écoutais dans une piété, dans un demi-
 ; 4 silence respectueux, affectueux, ne lui fournissant que
 4 le propos pour se soutenir. Le Beethoven de Romain
-D = Rolland venait de paraître. Nos abonnés se rappelss lent encore quelle soudaine révélation fut ce cahier, ù
+D = Rolland venait de paraître. Nos abonnés se rappelss lent encore quelle soudaine révélation fut ce cahier,
 3 quel émoi il souleva d'un bout à l'autre, comme il
 £ se répandit soudainement, comme une vague, comme <
 3 en dessous, pour ainsi dire instantanément, com- à
 : ment il fut soudainement, instantanément, dans une $
 Ée révélation, aux yeux de tous, dans une entente
 É soudaine, dans une commune entente, non point seule7 ment le commencement de la fortune littéraire de ;
-“4 Romain Rolland, et de la fortune littéraire des cahiers, Ÿ
+“4 Romain Rolland, et de la fortune littéraire des cahiers,
 4 mais infiniment plus qu'un commencement de fortune
 ET, littéraire, une révélation morale, soudaine, un pressenEee timent dévoilé, révélé, la révélation, l'éclatement, la :
 Ë _ soudaine communication d'une grande fortune morale.
@@ -3506,7 +3505,7 @@ Le l'âme hellénique ont été deux grands morceaux de
 = saisi, je me sentis poursuivi jusque dans les vertèbres. .
 É Car j'étais venu pour voir, je m'étais attendu à voir les
 “_ avancées de la mort. Et c'est déjà beaucoup. Et je
-voyais brüsquement les avancées des au delà de la 4
+voyais brüsquement les avancées des au delà de la
 
 mort. Pour mesurer la profondeur, la nouveauté d'un tel
 mot, l'âme éternelle, et même l'âme juive, et l'âme
@@ -3519,25 +3518,25 @@ deuxième affaire Dreyfus il y eut un long temps de
 calme plat, de silence, d'une solitude totale. On ne ;
 savait pas alors, du tout, pendant tout ce temps, si $
 l'affaire recommencerait; jamais. Mieux eût valu qu'elle
-ne recommençât point. Nous n'eussions point été i
+ne recommençât point. Nous n'eussions point été
 acquittés par la Cour de Cassation. Maïs nous demeurions ce que nous étions, nous demeurions purs devant &
-le pays et devant l'histoire. Mais tout pantelants de Ÿ
+le pays et devant l'histoire. Mais tout pantelants de
 cette grande Affaire, de cette première grande histoire, #
 tout suants et tout bouillants de la bataille, tout décon- |
-certés du repos, du calme, du plat, de la paix fourrée, 4
-a du repos louche, du traité louche, de l'inaction, de la Ÿ
+certés du repos, du calme, du plat, de la paix fourrée,
+a du repos louche, du traité louche, de l'inaction, de la
 paix des dupes, tout anxieux de n'avoir point obtenu, $
-atteint tous les résultats temporels que nous espérions, 4
+atteint tous les résultats temporels que nous espérions,
 que nous attendions, que nous escomptions, de m'avoir À
-point réalisé le royaume de la justice sur la terre et le ñ
+point réalisé le royaume de la justice sur la terre et le
 royaume de la vérité, tout anxieux surtout de voir ;
 notre mystique nous échapper, nous ne pensions dans :
 le secret de nos cœurs qu'à une reprise de l'affaire, à ce à
 que nous nommions entre nous, comme des conjurés, la
-reprise. Nous ne prévoyions pas, hélas, que cette 2
+reprise. Nous ne prévoyions pas, hélas, que cette
 reprise n'en serait que la plus basse dégradation, un ?
 détournement total, un détournement grossier de la à
-mystique en politique. Nous en parlions. Lui, dans son L.
+mystique en politique. Nous en parlions. Lui, dans son
 
 rx lit, m'en parlait doucement. Je vis rapidement qu'il
 
@@ -3551,7 +3550,7 @@ __ m'en parlait comme d'une conjuration, mais comme
 
 faire quelque chose sans moi.
 
-Ils, c'était tout, c'étaient tous les autres, c'était f
+Ils, c'était tout, c'étaient tous les autres, c'était
 
 : Dreyfus qu'il aimait comme un jeune frère.
 
@@ -3573,52 +3572,52 @@ Fe voudrait étudier, considérer, connaître un mouvement ;
 
 A vement religieux était d'essence chrétienne, d'origine
 
-chrétienne, qu'il poussait de souche chrétienne, qu'il 4
+chrétienne, qu'il poussait de souche chrétienne, qu'il
 
-coulait de l'antique source. Nous pouvons aujourd'hui ï
-nous rendre ce témoignage. La Justice et la Vérité que 4
+coulait de l'antique source. Nous pouvons aujourd'hui
+nous rendre ce témoignage. La Justice et la Vérité que
 
 nous avons tant aimées, à qui nous avons donné tout, à
 
 notre jeunesse, tout, à qui nous nous sommes donnés
-tout entiers pendant tout le temps de notre jeunesse 3
+tout entiers pendant tout le temps de notre jeunesse
 n'étaient point des vérités et des justices de concept, À
-elles n'étaient point des justices et des vérités mortes, : 1
+elles n'étaient point des justices et des vérités mortes,
 
-elles n'étaient point des justices et des vérités de livres É
+elles n'étaient point des justices et des vérités de livres
 
 et de bibliothèques, elles n'étaient point des justices et -
 
 des vérités conceptuelles, intellectuelles, des justices et
 
-des vérités de parti intellectuel, mais elles étaient orga- 3
-niques, elles étaient chrétiennes, elles n'étaient nulle- 4
-ment modernes, elles étaient éternelles et non point 4
+des vérités de parti intellectuel, mais elles étaient orga-
+niques, elles étaient chrétiennes, elles n'étaient nulle-
+ment modernes, elles étaient éternelles et non point
 temporelles seulement, elles étaient des Justices et des *
 Vérités, une Justice et une Vérité vivantes. Et de tous à
 
 À les sentiments qui ensemble nous poussèrent, dans un ;.
-tremblement, dans cette crise unique, aujourd'hui nous 3
-pouvons avouer que de toutes les passions qui nous 4
+tremblement, dans cette crise unique, aujourd'hui nous
+pouvons avouer que de toutes les passions qui nous
 
-= poussèrent dans cette ardeur et dans ce bouillonnement, : 4
+= poussèrent dans cette ardeur et dans ce bouillonnement,
 3 dans ce gonflement et dans ce tumulte, une vertu était EF
-au cœur, et que c'était la vertu de charité. Et je ne 4
+au cœur, et que c'était la vertu de charité. Et je ne
 
 veux pas rouvrir un ancien débat, aujourd'hui, désor- ne.
 mais historique, mais dans nos ennemis, chez nos <
-ennemis, chez nos adversaires d'alors, historiques 4
+ennemis, chez nos adversaires d'alors, historiques
 
-comme nous, devenus historiques, je vois beaucoup k.
-d'intelligence, beaucoup de lucidité même, beaucoup S L.
+comme nous, devenus historiques, je vois beaucoup
+d'intelligence, beaucoup de lucidité même, beaucoup
 
 x d'acuité : ce qui me frappe le plus, c'est certaine- 2%
 ment un certain manque de charité. Je ne veux #4
 
-pas anticiper sur ce qui est le propre des confes- 754
+pas anticiper sur ce qui est le propre des confes-
 
 sions. Mais il est incontestable que dans tout notre À
-socialisme même il y avait infiniment plus de chris- 4
+socialisme même il y avait infiniment plus de chris-
 
 pe tianisme que dans toute la Madeleine ensemble avec
 
@@ -3647,7 +3646,7 @@ _ christianisme ne sera jamais ni un christianisme parle- |
 
 É même temps si historique, si éventuelle, si événemen-
 
-3 taire que depuis nous n'avons jamais pu nous en tirer, 4
+3 taire que depuis nous n'avons jamais pu nous en tirer,
 2 que je commence à croire que nous ne pourrons nous
 
 À en tirer jamais.
@@ -3670,31 +3669,31 @@ pe beau cas de religion, de mouvement religieux, de com-
 mencement, d'origine de religion, un Cas rare, peut- Ë |
 être un cas unique. qe |
 _ La mystique dreyfusiste enfin fut pour nous essen- ;
-tiellement une crise de (la) mystique française. Cette 3
+tiellement une crise de (la) mystique française. Cette
 affaire fat pour nous et par nous très exactement dans %
-la ligne française. Comme elle avait été très exactement ÿ
+la ligne française. Comme elle avait été très exactement
 pour nous et par nous dans la ligne chrétienne. Nous- à
-mêmes nous y fûmes très exactement dans la ligne k
-française comme nous y avions été très exactement ë
-dans la ligne chrétienne. Nous y fâmes de qualité fran- 3
+mêmes nous y fûmes très exactement dans la ligne
+française comme nous y avions été très exactement
+dans la ligne chrétienne. Nous y fâmes de qualité fran-
 çaise comme nous y avions été de qualité chrétienne. $
 Nous y déployâmes proprement les vertus, les qua- à
 lités françaises, les vertus de la race : la vaillance à
-claire, la rapidité, la bonne humeur, la constance, la x
-fermeté, un courage opiniâtre, mais de bon ton, de 3
+claire, la rapidité, la bonne humeur, la constance, la
+fermeté, un courage opiniâtre, mais de bon ton, de
 belle tenue, de bonne tenue, fanatique à la fois et |
-mesuré, forcené ensemble et pleinement sensé; une 3
+mesuré, forcené ensemble et pleinement sensé; une
 tristesse gaie, qui est le propre du Français; un propos à
-délibéré; une résolution chaude et froide; une aisance, h:
-un renseignement constant; une docilité et ensemble 4
-une révolte constante à l'événement; une impossibilité 4
+délibéré; une résolution chaude et froide; une aisance,
+un renseignement constant; une docilité et ensemble
+une révolte constante à l'événement; une impossibilité
 organique à consentir à l'injustice, à prendre son parti #
-de rien. Un délié, une finesse de lame. Une acuité de 3
-pointe. Il faut dire simplement que nous fûmes des L
-héros. Et plus précisément des héros à la française. E
-(La preuve, c'est que nous ne nous en sommes pas 2
+de rien. Un délié, une finesse de lame. Une acuité de
+pointe. Il faut dire simplement que nous fûmes des
+héros. Et plus précisément des héros à la française.
+(La preuve, c'est que nous ne nous en sommes pas
 relevés, que nous ne nous en sommes pas retirés). à
-; (Toute notre vie peut-être nous serons des demi-soldes). 3
+; (Toute notre vie peut-être nous serons des demi-soldes).
 
 À Il faut bien voir en effet comment la question se posait.
 
@@ -3730,36 +3729,36 @@ ni malgré les apparences, malgré un palier apparent,
 3 qu'elle ne peut guère aller plus avant, tomber plus bas,
 È - parce que beaucoup de monde aujourd'hui s'en moquent
 
-Charles Péguyr ne Sun RT 4
-totalement, et surtout parce que nous sommes retombés A 4
-: à un certain équilibre, dans un certain équilibre très 4
-tentant, très solide, très commun, le même où nous E
-nous étions arrêtés si longtemps à la montée : la France, 4
+Charles Péguyr ne Sun RT
+totalement, et surtout parce que nous sommes retombés A
+: à un certain équilibre, dans un certain équilibre très
+tentant, très solide, très commun, le même où nous
+nous étions arrêtés si longtemps à la montée : la France,
 le monde, l'histoire coupés en deux, en deux partis _
 bien distincts, bien coupés, bien arrêtés, croyant pro- %
-l'autre à l'innocence, faisant profession de croire l'un à 5
+l'autre à l'innocence, faisant profession de croire l'un à
 la culpabilité et l'autre à l'innocence. C'est la situation, 4 :
-c'est la position commune, usuelle, familière, pour ainsi - 4
+c'est la position commune, usuelle, familière, pour ainsi
 dire classique, c'est la situation connue, le monde ;
 coupé en deux sur une question. C'est la situation +
-: commode, car c'est la situation de guerre, la situation N
+: commode, car c'est la situation de guerre, la situation
 ° de haine, mutuelle. C'est la situation à laquelle tout #
-le monde est habitué. C'est donc celle qui durera, qui 3
-déjà faillit durer pendant la montée de notre courbe, 4
+le monde est habitué. C'est donc celle qui durera, qui
+déjà faillit durer pendant la montée de notre courbe,
 . qui s'est retrouvée, qui s'est reçue, qui s'est recueillie EL.
 _-—_ elle-même au même niveau dans la descente, qui ne se À
-reperdra plus, qui sera définitive. Avec les amortisse- É
-raents successifs naturellement par la successive arrivée È
-des nouvelles générations; avec les amortissements 4
-croissants et l'extinction finale, l'extinction historique. 4
-; £e qu'il y a de remarquable, c'est combien cette situa- 4
+reperdra plus, qui sera définitive. Avec les amortisse-
+raents successifs naturellement par la successive arrivée
+des nouvelles générations; avec les amortissements
+croissants et l'extinction finale, l'extinction historique.
+; £e qu'il y a de remarquable, c'est combien cette situa-
 tion, ce palier intermédiaire est commode, du pays coupé
-en deux, combien nous nous y sommes arrêtés complai- 4
-samment, commodément, à la montée, comment, com- 4
+en deux, combien nous nous y sommes arrêtés complai-
+samment, commodément, à la montée, comment, com-
 bien nous nous y sommes retrouvés aisément, rapide- ‘2
-ment à la descente. Commodément. Combien nous nous y 4
-mouvions aisément, naturellement à la montée, en pleine 74
-bataille, combien nous y bataiïllions aisément, naturelle- 53
+ment à la descente. Commodément. Combien nous nous y
+mouvions aisément, naturellement à la montée, en pleine
+bataille, combien nous y bataiïllions aisément, naturelle-
 ment, comme chez nous, et combien nous nous y sommes ‘4%
 même attardés. Et combien au retour, à la descente. =
 
@@ -3768,7 +3767,7 @@ nous l'avons retrouvé aisément, combien rapidement
 j À _ est incontestable c'est que cette courbe, dans ces sou- |
 -_  bresauts, à l'issue de cette montée atteignit plusieurs
 Fa fois un maximum qui était même un universum. Je
-__ veux dire que dans ces fluctuations, dans ces agitations, ï
+__ veux dire que dans ces fluctuations, dans ces agitations,
 à : dans cette crise, dans ces sautes, dans ces coups de à
 B: force et dans ces coups de théâtre il y eut au moins
 L x deux ou trois fois quarante-huit heures où tout le pays
@@ -3791,8 +3790,8 @@ L à tenir cette gageure, à nous faire tomber de ce maxi_  mum total, c'est la 
 ne _ des politiciens. Comment on perd une bataille qui :
 … était gagnée, demandez-le à Jaurès. Aujourd'hui
 É nous sommes condamnés à la contestation, perpétuelle,
-0 jusqu'à cet émoussement, cette hébétude, cette oblité- x
-4 É ration, inévitable, qui vient du temps, des générations
+0 jusqu'à cet émoussement, cette hébétude, cette oblité-
+É ration, inévitable, qui vient du temps, des générations
 suivantes, qu'on nomme proprement l'histoire, la posi-
 
 tion, l'acquisition de l'histoire. Quand nos ennemis, |
@@ -3802,27 +3801,27 @@ tort sur nous et contre nous (sur notre mystique et ;
 contre notre mystique; ils avaient partiellement raison :
 ‘sur et contre notre État-Major, qui précisément nous
 masquait à eux, qui faisait même tout ce qu'il pouvait |
-pour nous masquer, devant le monde, et qui y a si par- 3
-faitement, si complètement réussi; ils avaient partiellement raison, (peut-être pour un tiers, en quotité), sur 0
+pour nous masquer, devant le monde, et qui y a si par-
+faitement, si complètement réussi; ils avaient partiellement raison, (peut-être pour un tiers, en quotité), sur
 et contre nos chefs, sur et contre notre politique, sur et
 contre nos politiciens, l'adhésion à Hervé et à l'hervéisme, la flatterie pour Hervé et pour l'hervéisme, la
 lâcheté, le tremblement de Jaurès, la platitude, l'aplatissement devant Hervé et devant le hervéisme, plus
 que cela l''empressement, la sollicitude empressée pour
-Hervé et l'hervéisme l'ont bien prouvé); mais enfin ils s:
-avaient le droit de ne pas nous connaître, dans le fatras 2
+Hervé et l'hervéisme l'ont bien prouvé); mais enfin ils
+avaient le droit de ne pas nous connaître, dans le fatras
 de la bataille ils pouvaient à la rigueur, historiquement, 3 :
 à la rigueur historique ils pouvaient ne pas nous con- À
 naître; la Foire sur la Place pouvait leur masquer lin- à
 
 : térieur de la maison; ils pouvaient ne voir que la à
 à parade politique; mais enfin au pis aller, à l'extrême, ! &
-à la limite, à l'extrême rigueur quand nos ennemis, L
+à la limite, à l'extrême rigueur quand nos ennemis,
 quand nos adversaires nous accusaient d'être le parti £
 de l'étranger, ils ne pouvaient jamais que nous faire un ni
-tort temporel; un tort extrême temporel, un tort capital k
+tort temporel; un tort extrême temporel, un tort capital
 temporel, mais en fin un tort temporel. Ils ne pouvaient :
 pas nous déshonorer. Ils pouvaient nous faire perdre pe
-nos biens, ils pouvaient nous faire perdre la liberté, ils 3
+nos biens, ils pouvaient nous faire perdre la liberté, ils
 pouvaient nous faire perdre la vie, ils pouvaient nous :
 faire perdre la terre même de la patrie. Ils ne pouvaient ee:
 
@@ -3858,31 +3857,31 @@ s Jaurès, que c'est Jaurès qui par sa détestable force po-
 E mémoire, dans cette admirable consultation, datée de
 
 Paris, 6 août 1902, quand on voulait que la loi ;
-Waideck eût un effet global, et qu'elle eût un effet 4
+Waideck eût un effet global, et qu'elle eût un effet
 rétroactif, Quand Jaurès se présente devant nous pour
 soutenir une œuvre qu'il approuve, à laquelle il veut ;
-collaborer, il doit, parce qu'il est Jaurès, parce qu'il 3
-.a été notre compagnon dans une bataille qui n'est pas 3
-finie, (ce qu'il y avait d'admirable en effet, même au 3
+collaborer, il doit, parce qu'il est Jaurès, parce qu'il
+.a été notre compagnon dans une bataille qui n'est pas
+finie, (ce qu'il y avait d'admirable en effet, même au
 point de vue politique, au seul point de vue politique, É-
-et Bernard-Lazare, avec sa grande lucidité politique, 3
+et Bernard-Lazare, avec sa grande lucidité politique,
 l'avait aperçu instantanément, c'était qu'on n'avait $
 même pas attendu la fin de laffaire Dreyfus, la conclu- %
 sion pour opérer la contamination, la dégénération, le À
 déshonneur, la déviation, la dégradation de mystique :
-en politique, mais c'était entre les deux affaires Drey- Ë
+en politique, mais c'était entre les deux affaires Drey-
 fus même que l'on se préparait à la commettre, à :
 4 laccomplir, avant même d'avoir liquidé l'affaire, au <
-reprendre), (c'est-à-dire qu'on avait commencé d'opérer î
-la dégénération de mystique en politique au moment s
-même où l'on se préparait à faire appel de nouveau à 4
-toutes les forces, aux forces incalculables de la mystique. É
-C'est pour cela que nos politiciens, que nos politiques Ë
+reprendre), (c'est-à-dire qu'on avait commencé d'opérer
+la dégénération de mystique en politique au moment
+même où l'on se préparait à faire appel de nouveau à
+toutes les forces, aux forces incalculables de la mystique.
+C'est pour cela que nos politiciens, que nos politiques
 furent les derniers des criminels, qu'ils furent des cfimi- #
 nels au deuxième degré. S'ils n'avaient fait que leur poli- à
-tique, pour ainsi dire professionnellement, s'ils n'avaient Æ
+tique, pour ainsi dire professionnellement, s'ils n'avaient
 fait qu'exercer leur métier de politiciens, ils pouvaient A
-premier degré. Mais ils voulaient en même temps con- 3
+premier degré. Mais ils voulaient en même temps con-
 server tous les avantages de la mystique. Et c'est cela -
 -_ très précisément qui constitue le deuxième degré. Ils à
 voulaient bien en même temps trahir la mystique et en “4
@@ -3901,7 +3900,7 @@ L en même temps faire appel à la mystique et à l'argent |
 | des pauvres gens, puiser toujours dans le cœur et‘dans :
 à la bourse des pauvres gens.
 C'est ce qui fait que la responsabilité de Jaurès dans
-k ce crime, dans ce double crime, dans ce crime au Ë
+k ce crime, dans ce double crime, dans ce crime au
 B: deuxième degré est culminante. Lui entre tous, lui au
 | chef de l'opération il était un politicien comme les
 ê autres, pire que les autres, un retors entre les retors,
@@ -3914,41 +3913,41 @@ le parti de l'étranger, ils ne pouvaient que nous calom-
 . temporel extrême. Quand Jaurès au contraire parlait
 pour nous, s'avouait pour nous, quand à ce titre, à +
 E notre titre, il intercalait le dreyfusisme et l'affaire |
-3 Dreyfus d'une part dans l'antipatriotisme, politique,
+Dreyfus d'une part dans l'antipatriotisme, politique,
 J É dans l'antipatriotisme hervéiste, dans la politique anti-
-# _ patriotique, hervéiste, dans l'agitation, dans la démane 125
+# _ patriotique, hervéiste, dans l'agitation, dans la démane
 
 gogie antipatriotique, hervéiste, quand il l'intercalait À
 d'autre part dans cette autre démagogie politique, dans }
-ja démagogie antichrétienne, il atteignait, il touchait, 3
+ja démagogie antichrétienne, il atteignait, il touchait,
 il blessait au cœur le dreyfusisme même. ;
-Ce qui fait à Jaurès dans ce double crime, dans ce Ë
-crime au deuxième degré, une responsabilité culmi- F
-nante, c'est que lui entre tous il était un politique, un k
-politicien comme les autres et que lui il disait qu'il était É
-un mystique. Il me chicanerait naturellement sur ce s.
-mot, car c'est un homme de marchandage, et le plus 3
+Ce qui fait à Jaurès dans ce double crime, dans ce
+crime au deuxième degré, une responsabilité culmi-
+nante, c'est que lui entre tous il était un politique, un
+politicien comme les autres et que lui il disait qu'il était
+un mystique. Il me chicanerait naturellement sur ce
+mot, car c'est un homme de marchandage, et le plus
 maquignon que je connaisse. Mais il sait très bien ce À
-£ que nous voulons dire. 4
+£ que nous voulons dire.
 Par son passé universitaire, intellectuel, par son $
-commencement de carrière universitaire, intellectuelle, Û
-= par ses relations, par tout son ton, par le grand é
-nombre, par le faisceau d'amitiés ardentes qui mon- 4
-taient vers lui et qu'il encourageait, complaisamment, 2
-qu'il excitait constamment à monter vers lui, amitiés 2.
+commencement de carrière universitaire, intellectuelle,
+= par ses relations, par tout son ton, par le grand
+nombre, par le faisceau d'amitiés ardentes qui mon-
+taient vers lui et qu'il encourageait, complaisamment,
+qu'il excitait constamment à monter vers lui, amitiés
 de pauvres, de petites gens, de professeurs, de nous, *
-et qu'il récapitulait pour ainsi dire en lui, qu'il ramas- 2
-sait comme un foyer ramasse un faisceau de lumière 4
+et qu'il récapitulait pour ainsi dire en lui, qu'il ramas-
+sait comme un foyer ramasse un faisceau de lumière
 : et de chaleur, Jaurès faisait figure d'une sorte de pro- à
 fesseur délégué dans la politique, mais qui n'était pas &
-politique, d'un intellectuel, d'un philosophe (dans ce 4
+politique, d'un intellectuel, d'un philosophe (dans ce
 temps-là tous les agrégés de philosophie étaient philo- :
 sophes, comme aujourd'hui ils sont tous sociologues). -
-D'un homme qui travaillait, qui savait ce que c'est 3
+D'un homme qui travaillait, qui savait ce que c'est
 que de travailler. Qui avait un métier. Il faisait essen- ; *
 tiellement figure d'un impolitique, d'un homme qui #
-était comme chargé de nous représenter, de nous E.
-transmettre dans la politique. Au contraire c'était un s.
+était comme chargé de nous représenter, de nous
+transmettre dans la politique. Au contraire c'était un
 politicien qui avait fait semblant d'être un professeur, à
 
 | qui avait fait semblant d'être un intellectuel, qui avait
@@ -3975,41 +3974,41 @@ dans les mains. Il ne rirait peut-être pas toujours.
 adjuration de Bernard-Lazare condamné, de Bernard-
 à Lazare destiné, quoi de plus redoutable que ce témoi4 gnage, redoutable par sa mesure même. Quand Jaurès,
 
-écrivait Bernard-Lazare, se présente devant nous pour 4
+écrivait Bernard-Lazare, se présente devant nous pour
 soutenir une œuvre qu'il approuve, à laquelle il veut à
-collaborer, il doit, parce qu'il est Jaurès, parce qu'il 1
+collaborer, il doit, parce qu'il est Jaurès, parce qu'il
 a été notre compagnon dans une bataille qui n'est pas à
-finie, nous donner d'autres raisons que des raisons 4
-* théologiques. (Il voyait très nettement combien il y 4
-avait de théologie grossière dans Jaurès, dans toute 4
-cette mentalité moderne, dans ce radicalisme politique 1
-et parlementaire, dans cette pseudométaphysique, 4
+finie, nous donner d'autres raisons que des raisons
+* théologiques. (Il voyait très nettement combien il y
+avait de théologie grossière dans Jaurès, dans toute
+cette mentalité moderne, dans ce radicalisme politique
+et parlementaire, dans cette pseudométaphysique,
 dans cette pseudophilosophie, dans cette sociologie.) à
 Or c'est une raison théologique que de nous dire :
 « (Ici je préviens que c'est du Jaurès, cité par #
-Bernard-Lazare) : « Il y a des crimes politiques et n
-2 sociaux qui se payent, et le grand crime collectif 4
-commis par l'Église contre la vérité, contre l'humanité, à 4
-centre le droit et contre la République, va enfin rece- 4
+Bernard-Lazare) : « Il y a des crimes politiques et
+2 sociaux qui se payent, et le grand crime collectif
+commis par l'Église contre la vérité, contre l'humanité, à
+centre le droit et contre la République, va enfin rece-
 voir son juste salaire. Ce n'est pas en vain qu'elle a A
 révolté les consciences par sa complicité avec le faux, le #
 de Jaurès. Bernard-Lazare disait plus simplement : On à
-4 ne peut pas embéter des hommes parce qu'ils font leur 3
+4 ne peut pas embéter des hommes parce qu'ils font leur
 : prière. Il les avait, celui-là, les mœurs de la liberté. à
 Il avait la liberté dans la peau; dans la moelle et
 dans le sang; dans les vertèbres. Non point, non plus, À
 une liberté intellectuelle et conceptuelle, une liberté &
 livresque, une liberté toute faite, une liberté de biblio- A
-thèque. Une liberté d'enregistrement. Mais une liberté, É
+thèque. Une liberté d'enregistrement. Mais une liberté,
 aussi, de source, une liberté toute organique et vivante. :
-Je n'ai jamais vu un homme croire, à ce point, avoir à 4
+Je n'ai jamais vu un homme croire, à ce point, avoir à
 ce point la certitude, avoir conscience à ce point qu'une -
-conscience d'homme était un absolu, un invincible, un 4
+conscience d'homme était un absolu, un invincible, un
 éternel, un libre, qu'elle s'opposait victorieuse, éternel
-128 0
+128
 
 lement triomphante, à toutes les grandeurs de la terre.
-3 Il ne faut pas recevoir des justifications semblables,
+Il ne faut pas recevoir des justifications semblables,
 4 écrivait encore Bernard-Lazare, méme et surtout quand
 elles sont données par Jaurès, car, au-dessous, d'autres
 5 sont prêts à les interpréter dans un sens pire, à en
@@ -4020,7 +4019,7 @@ antinomies, les capitales, quelques-uns de ces antagonismes. Il te prévoyait, B
 peuple polonais aux exactions de la germanisation
 prussienne. Dès lors il écrivait en effet, et ces paroles
 < sont claires, elles sont capitales, elles sont actuelles |
-| comme au premier jour : Si nous n'y prenons garde, 3
+| comme au premier jour : Si nous n'y prenons garde,
 demain on nous mettra en demeure d'applaudir le :
 ; gendarme français qui prendra l'enfant par le bras a
 pour l'obliger à entrer dans l'école laïque, tandis que
@@ -4039,32 +4038,32 @@ gnant, que les dogmes formulés par l'Église. |
 Nous n'avons pas plus confiance en l'Université ;
 _ qu'en la Congrégation. » Mais il faut que je m'arrête
 
-de citer. Je ne peux pourtant pas citer toute cette E
+de citer. Je ne peux pourtant pas citer toute cette
 admirable consultation, citer tout un cahier dans un $
-cahier, refaire les cahiers dans les cahiers, mettre tout 1
-Voilà l'homme, voilà l'ami que nous avons perdu. É
-. Pour un tel homme nous ne ferons jamais une apologie, k.
+cahier, refaire les cahiers dans les cahiers, mettre tout
+Voilà l'homme, voilà l'ami que nous avons perdu.
+. Pour un tel homme nous ne ferons jamais une apologie,
 nous ne souffrirons jamais qu'on en fasse une. |
 Ce sont de tels hommes qui comptent, et qui comptent ;
-seuls. C'est nous qui comptons, seuls. Non seulement 3
-les autres n'ont point à parler pour nous. Mais c'est 4
+seuls. C'est nous qui comptons, seuls. Non seulement
+les autres n'ont point à parler pour nous. Mais c'est
 nous qui avons à parler, pour tout. %
-IL fut un héros et en outre il eut de grandes parties de 4
-sainteté. Et avec lui nous fâmes, obscurément, des héros. F
-5 Comment ne pas noter dans les quelques mots que 1
-nous avons cités, dans ces quelques phrases seulement ique nous avons rapportées, je ne me retiens pas de É
-noter non pas seulement ce sens de la liberté, et cette 3
-aisance dans la liberté, dans le maniement de la 3
-liberté, mais ce sens beaucoup plus curieux, beau- 1
+IL fut un héros et en outre il eut de grandes parties de
+sainteté. Et avec lui nous fâmes, obscurément, des héros.
+Comment ne pas noter dans les quelques mots que
+nous avons cités, dans ces quelques phrases seulement ique nous avons rapportées, je ne me retiens pas de
+noter non pas seulement ce sens de la liberté, et cette
+aisance dans la liberté, dans le maniement de la
+liberté, mais ce sens beaucoup plus curieux, beau-
 : coup plus imprévu, apparemment plus imprévu, de +
-la théologie, cet avertissement de la théologie. Instan- ï
-= tanément il la voyait poindre partout où en effet elle 4
+la théologie, cet avertissement de la théologie. Instan-
+= tanément il la voyait poindre partout où en effet elle
 point, elle-même ou quelque imitation, quelque contre- ‘È
 façon, elle-même ou contrefaite. %
 Comment ne pas noter aussi son exact, son parfait, ;
 son réel internationalisme, Israël excepté, l'exactitude, FE
-l'aisance, l'allant de soi de son internationalisme, qui était 3
-trop aisé, beaucoup trop allant de soi pour jamais 3
+l'aisance, l'allant de soi de son internationalisme, qui était
+trop aisé, beaucoup trop allant de soi pour jamais
 
 être un antinationalisme. Quand il parlait des Polonais
 pour les Bretons, ce n'était point un amusement, un
@@ -4112,14 +4111,14 @@ encore, que c'est au contraire la bourgeoisie, le bourgeoisisme, le capitalisme 
 faut bien penser qu'il n'y avait rien de commun entre
 le socialisme d'alors, notre socialisme, et ce que nous ;
 connaissons aujourd'hui sous ce nom. Ici encore la
-politique a fait son œuvre, et nulle part autant qu'ici la j
+politique a fait son œuvre, et nulle part autant qu'ici la
 politique n'a défait, dénaturé la mystique. La politique,
 je dis La politique des politiques, professionnels, des
 politiciens, des politiques parlementaires. Mais plus
 encore, sans aucun doute, par l'invention, par linter- ,
 vention, par l'intercalation du sabotage, qui est une |
-invention politique, au même titre que le vote, plus 4
-132 3
+invention politique, au même titre que le vote, plus
+132
 
 encore que le vote, pire, je veux dire plus politique, plus
 _ profondément politique, plus encore sans aucun doute
@@ -4129,11 +4128,11 @@ _ Nous pensions alors, nous pensons toujours, maisily a
 15 quinze ans tout le monde pensait comme nous, pensait
 F avec nous, ou affectait de penser avec nous, il n'y avait
 3 sur ce point, sur ce principe même pas l'ombre d'une hési- ;
-Ë tation, pas l'ombre d'un débat. Il est de toute évidence 0
+Ë tation, pas l'ombre d'un débat. Il est de toute évidence
 3 que ce sont les bourgeois et les capitalistes qui ont commencé. Je veux dire que les bourgeois et les capitalistes
 ; ont cessé de faire leur office, social, avant les ouvriers
 + le leur, et longtemps avant. Il ne fait aucun doute que |
-…_ le sabotage d'en haut est de beaucoup antérieur au Ë
+…_ le sabotage d'en haut est de beaucoup antérieur au
 É sabotage d'en bas, que le sabotage bourgeois et capita- ;
 E liste est antérieur, et de beaucoup, au sabotage ouvrier;
 25 . que les bourgeois et les capitalistes ont cessé d'aimer le :
@@ -4144,7 +4143,7 @@ E liste est antérieur, et de beaucoup, au sabotage ouvrier;
 4 désaffection générale du travail qui est la tare la plus |
 % profonde, la tare centrale du monde moderne. Telle
 : étant la situation générale du monde moderne, il ne
-E s'agissait point, comme nos politiciens syndicalistes Ë
+E s'agissait point, comme nos politiciens syndicalistes
 % l'ont inventé, d'inventer, d'ajouter un désordre ouvrier
 É au désordre bourgeois, un sabotage ouvrier au sabotage
 1% bourgeois et capitaliste. Il s'agissait au contraire, notre
@@ -4172,17 +4171,17 @@ M. Sorel, moraliste et philosophe, son expression la
 _ plus haute, son expression définitive. J'ajoute même
 É que ce ne pouvait être que cela.
 
-Et qu'il ne pouvait nullement, aucunement être j
+Et qu'il ne pouvait nullement, aucunement être
 question que ce fût rien d'autre. Disons-le; pour le &
-philosophe, pour tout homme philosophant notre socia- È
-lisme était et n'était pas moins qu'une religion du 4
-salut temporel. Et aujourd'hui encore il n'est pas moins 4
+philosophe, pour tout homme philosophant notre socia-
+lisme était et n'était pas moins qu'une religion du
+salut temporel. Et aujourd'hui encore il n'est pas moins
 que cela. Nous ne cherchions pas moins que le salut . ;
 temporel de l'humanité par l'assainissement du monde $
 ouvrier, par l'assainissement du travail et du monde du #
-travail, par la restauration du travail et de la dignité É
+travail, par la restauration du travail et de la dignité
 
-134 4
+134
 
 _ du travail, par un assainissement, par une réfection
 & organique, moléculaire du monde du travail, et par lui
@@ -4196,7 +4195,7 @@ nous nommons le monde industriel, opposé au monde
 culaire) économique, industrielle; c'est ce que nous
 j nommons l'industrie, le régime industriel; c'est ce que
 ] nous nommons le régime de la production industrielle.
-4 Le monde intellectuel et le monde politique au contraire,
+Le monde intellectuel et le monde politique au contraire,
 E- le monde scolaire et le monde parlementaire vont
 à ensemble. Par la restauration des mœurs industrielles,
 …. par l'assainissement de l'atelier industriel nous n'espé-
@@ -4213,38 +4212,38 @@ F, sortira point, qu'il ne s'en tirera point à moins d'une-
 s. 2 toutes ses difficultés réelles, profondes, populaires : de
 4 _ ce que, malgré quélques prétendues œuvres ouvrières,
 
-sous le masque de quelques prétendues œuvres ou- E
-._ vrières et de quelques prétendus ouvriers catholiques, É:
+sous le masque de quelques prétendues œuvres ou-
+._ vrières et de quelques prétendus ouvriers catholiques,
 de ce que latelier lui est fermé, et de ce qu'elle est £
 fermée à l'atelier; de ce qu'elle est devenue dans le
-. monde moderne, subissant, elle aussi, une moderni- 3
+. monde moderne, subissant, elle aussi, une moderni-
 sation, presque uniquement la religion des riches et À
 ainsi qu'elle n'est plus socialement si je puis dire la
 communion des fidèles. Toute la faiblesse, et peut-être
-‘ faut-il dire la faiblesse croissante de l'Église dans le Ë
+‘ faut-il dire la faiblesse croissante de l'Église dans le
 monde moderne vient non pas comme on le croit de ce
 que la Science aurait monté contre la Religion des
 systèmes soi-disant invincibles, non pas de ce que la À
-5 Science aurait découvert, aurait trouvé contre la Reli- LR
+Science aurait découvert, aurait trouvé contre la Reli- LR
 gion des arguments, des raisonnements censément vic- %
 torieux, mais de ce que ce qui reste du monde chrétien à
-socialement manque aujourd'hui profondément de 4
+socialement manque aujourd'hui profondément de
 charité. Ce n'est point du tout le raisonnement qui :
 e manque. C'est la charité. Tous ces raisonnements, tous |
-ces systèmes, tous ces arguments pseudoscientifiques È
-ne seraient rien, ne pèseraient pas lourd s'il y avait une 4
+ces systèmes, tous ces arguments pseudoscientifiques
+ne seraient rien, ne pèseraient pas lourd s'il y avait une
 once de charité. Tous ces airs de tête ne porteraient
-- .. pas loin si la chrétienté était restée ce qu'elle était, une 4
+- .. pas loin si la chrétienté était restée ce qu'elle était, une
 communion, si le christianisme était resté ce qu'il était, ÊÈ
-une religion du cœur. C'est une des raisons pour É.
-lesquelles les modernes n'entendent rien au christia- 4
+une religion du cœur. C'est une des raisons pour
+lesquelles les modernes n'entendent rien au christia-
 nisme, au vrai, au réel, à l'histoire vraie, réelle du 4 |
 christianisme, et à ce que c'était réellement que la chré- #
 tienté. (Et combien de chrétiens y entendent encore. À
-Combien de chrétiens, sur ce point même, sur ce point 1
+Combien de chrétiens, sur ce point même, sur ce point
 aussi, ne sont-ils pas modernes.) Ils croient, quand ils .
 sont sincères, il y en a, ils croient que le christianisme si.
-fut toujours moderne, c'est-à-dire, exactement, qu'il É:
+fut toujours moderne, c'est-à-dire, exactement, qu'il
 
 fut toujours comme ils voient qu'il est dans le monde
 __  avaitune. Ainsi dans le monde moderne tout estmoderne,
@@ -4254,7 +4253,7 @@ __  avaitune. Ainsi dans le monde moderne tout estmoderne,
 - moderne le christianisme même, l'Église et ce qu'il y
 _ avait encore de chrétienté. C'est ainsi que quandily a » une éclipse, tout le monde est à l'ombre. Tout ce qui
 3 passe dans un âge de l'humanité, par une époque, dans
-_ une période, dans une zone, tout ce qui est dans un k
+_ une période, dans une zone, tout ce qui est dans un
 monde, tout ce qui a été placé dans une place, dans un
 + temps, dans un monde, tout ce qui est situé dans une
 ‘4 _ certainesituation, temporelle, dans un monde, temporel,
@@ -4277,11 +4276,11 @@ a _ christianisme n'est plus socialement la religion des pro-
 
 fondeurs, une religion peuple, la religion de tout un ;
 peuple, temporel, éternel, une religion enracinée aux
-plus grandes profondeurs temporelles mêmes, la reli- 3
+plus grandes profondeurs temporelles mêmes, la reli-
 gion d'une race, de toute une race temporelle, de toute
-une race éternelle, mais qu'il n'est plus socialement 1
+une race éternelle, mais qu'il n'est plus socialement
 
-- qu'une religion de bourgeois, une religion de riches, une 1
+- qu'une religion de bourgeois, une religion de riches, une
 espèce de religion supérieure pour classes supérieures ;
 de la société, de la nation, une misérable sorte de à
 
@@ -4297,11 +4296,11 @@ l'esprit de son institution. De sa propre institution. Il À
 : suffit de se reporter au moindre texte des Évangiles.
 
 Il suffit de se reporter à tout ce que d'un seul tenant
-il vaut mieux nommer l'Évangile. s
-C'est cette pauvreté, cette misère spirituelle et cette J
-richesse temporelle qui a tout fait, qui a fait le mal. 4
+il vaut mieux nommer l'Évangile.
+C'est cette pauvreté, cette misère spirituelle et cette
+richesse temporelle qui a tout fait, qui a fait le mal.
 C'est ce modernisme du cœur, ce modernisme de la ;
-charité qui a fait la défaillance, la déchéance, dans 1
+charité qui a fait la défaillance, la déchéance, dans
 l'Église, dans le christianisme, dans la chrétienté même À
 qui a fait la dégradation de la mystique en politique. à
 -On mène aujourd'hui grand bruit, je vois qu'on fait :
@@ -4326,7 +4325,7 @@ laissé socialement toutes les charges de servitude qui
 fermé, et qu'elle est fermée à l'atelier. Elle fait, elle est
 la religion officielle, la religion formelle du riche. Voilà
 
-ce que le peuple, obscurément ou formellement, très Ë
+ce que le peuple, obscurément ou formellement, très
 1 assurément sent très bien. Voilà ce qu'il voit. Elle n'est
 donc rien, voilà pourquoi elle n'est rien. Et surtout et
 elle n'est rien de ce qu'elle était, et elle est, devenue,
@@ -4339,22 +4338,22 @@ révolution industrielle, pour dire le mot d'une révolu-
 É tion temporelle pour le salut éternel. Tel est, éternelle-
 
 et temporellement éternellement), le mystérieux assu- ;
-jettissement de l'éternel même au temporel. Telle est e
+jettissement de l'éternel même au temporel. Telle est
 proprement l'inscription de léternel même dans le
-temporel. Il faut faire les frais économiques, les frais k
+temporel. Il faut faire les frais économiques, les frais
 sociaux, les frais industriels, les frais temporels. Nul
 - ne s'y peut soustraire, non pas même l'éternel, non :
-pas même le spirituel, non pas même la vie inté- c
-.rieure. C'est pour cela que notre socialisme n'était pas E
-si bête, et qu'il était profondément chrétien. L.
+pas même le spirituel, non pas même la vie inté-
+.rieure. C'est pour cela que notre socialisme n'était pas
+si bête, et qu'il était profondément chrétien.
 C'est pour cela que lorsqu'on leur met sous les yeux |
-la vieille chrétienté, quand on les met en face de ce que È
+la vieille chrétienté, quand on les met en face de ce que
 c'était dans la réalité qu'une paroisse chrétienne, une .
-paroisse française au commencement du quinzième æ
-siècle, du temps qu'il y avait des paroisses françaises, E
+paroisse française au commencement du quinzième
+siècle, du temps qu'il y avait des paroisses françaises,
 quand on leur montre, quand on leur fait voir ce que à
 : c'était dans la réalité que la chrétienté, du temps qu'il À
-y avait une chrétienté, ce que c'était qu'une grande 4
+y avait une chrétienté, ce que c'était qu'une grande
 sainte, la plus grande peut-être de toutes, du temps <3
 qu'il y avait une sainteté, du temps qu'il y avait une È |
 charité, du temps qu'il y avait des saintes et des
@@ -4364,9 +4363,9 @@ aussitôt quelques-uns de nos catholiques modernes, #
 
 - modernes à leur insu, mais profondément modernes, à
 jusque dans les moelles, intellectuels à leur insu et En?
-qui se vantent de ne pas l'être, intellectuels tout de 4
-même, profondément intellectuels, intellectuels jus- 4
-au'aux moelles, bourgeois et fils de bourgeois, rentiers É:
+qui se vantent de ne pas l'être, intellectuels tout de
+même, profondément intellectuels, intellectuels jus-
+au'aux moelles, bourgeois et fils de bourgeois, rentiers
 et fils de rentiers, pensionnés du gouvernement, pen- |
 siornés de l'État, fonctionnaires, pensionnés des autres, #
 
@@ -4379,7 +4378,7 @@ Le outragée. Dans un besoin ils renieraient Joinville, |
 4 comme trop grossier, comme trop peuple. Le sire de
 ; Joinville. Ils renieraient peut-être bien saint Louis.
 | Comme trop roi de France.
-1 Il faut faire les frais temporels. C'est-à-dire que nul,
+Il faut faire les frais temporels. C'est-à-dire que nul,
 | _ … füt-ce l'Église, fût-ce n'importe quelle puissance spiriRe tuelle, ne s'en tirera à moins d'une révolution tempo-
 % relle, d'une révolution économique, d'une révolution
 î sociale. D'une révolution industrielle. A moins de
@@ -4389,7 +4388,7 @@ s'est instituée, s'est jouée, se joue entre l'Église et le
 E-. parti intellectuel. Ce serait même amusant, ce serait
 risible si ce n'était aussi profondément triste. Ce con4 cert, cette collusion consiste à décaler, à déplacer le se
 à débat, le terrain même du débat. L'objet du débat.
-3 A dissimuler dans un coin le modernisme du cœur, le
+A dissimuler dans un coin le modernisme du cœur, le
 2 modernisme de la charité pour mettre en valeur, en
 É- fausse valeur, en lumière, en fausse lumière, pour
 è mettre en surface, en vue, dans toute la surface le
@@ -4398,36 +4397,36 @@ risible si ce n'était aussi profondément triste. Ce con4 cert, cette collusion
 r le monde y gagne, car ça ne coûte plus rien, ça ne
 
 coûte plus aucune révolution économique, industrielle, _%
-sociale, temporelle, et nos bourgeois de l'un et l'autre 4
+sociale, temporelle, et nos bourgeois de l'un et l'autre
 côté, nos capitalistes de l'un et l'autre bord, de l'une et #
 
 l'autre confession, les cléricaux et les radicaux, les ‘4
 cléricaux radicaux et les radicaux cléricaux, les intel- à
-lectuels et les clercs, les intellectuels clercs et les clercs 4
+lectuels et les clercs, les intellectuels clercs et les clercs
 
 - intellectuels ne veulent rien tant, ne veulent que ceci : #
 ne pas payer. Ne point faire de frais. Ne point faire les à
 
 ” frais. Ne point lâcher les cordons de la bourse. On me :
-pardonnera cette expression grossière. Mais il en faut 5
+pardonnera cette expression grossière. Mais il en faut
 une, il la faut dans cette situation grossière. Concert :
-merveilleux, merveilleuse collusion. Tout le monde y 4
-gagne tout. Non seulement que ça ne coûte rien, mais 4
+merveilleux, merveilleuse collusion. Tout le monde y
+gagne tout. Non seulement que ça ne coûte rien, mais
 aussi, en surplus, naturellement la gloire, qui ne vient à
 : jamais qu'à ceux qui la méritent. Tout le monde y À
-trouve son compte, et même le nôtre. Une fois de plus 4
-deux partis contraires sont d'accord, se sont trouvés, Ë
+trouve son compte, et même le nôtre. Une fois de plus
+deux partis contraires sont d'accord, se sont trouvés,
 se sont mis d'accord non pas seulement pour fausser le
-débat qui les divise ou paraît les diviser, mais pour É
+débat qui les divise ou paraît les diviser, mais pour
 fausser, pour transporter le terrain même du débat là À
-où le débat leur sera le plus avantageux, leur coûtera 4
+où le débat leur sera le plus avantageux, leur coûtera
 le moins cher à l'un et à l'autre, poussés par la seule
-considération de leurs intérêts temporels. L'opération è
+considération de leurs intérêts temporels. L'opération
 consiste à effacer, à tenir dans l'ombre cet effrayant NA
 modernisme du cœur et à mettre en première place, |
-en seule place, le modernisme intellectuel, à tout attri- 3
+en seule place, le modernisme intellectuel, à tout attri-
 buer, tout ce qui se passe, à la feinte toute-puissance, +
-à l'effrayante, à la censément effrayante puissance du 3
+à l'effrayante, à la censément effrayante puissance du
 modernisme intellectuel. C'est un décalage, une substi- 3 |
 tution, un transfert, un transport, une transposition +
 merveilleuse. Un déplacement perfectionné. Les intel- #
@@ -4466,33 +4465,33 @@ A. Tel étant notre socialisme, et cela ne faisait alors
 aucun secret, comme cela ne faisait aucun doute, il est j |
 évident que non seulement il ne portait aucune atteinte
 : et ne pouvait porter aucune atteinte aux droits légitimes |
-à des nations, mais qu'étant, que faisant un assainisse- 4
+à des nations, mais qu'étant, que faisant un assainisse-
 : ment général, et par cela même, en dedans de cela ;
 4 même un assainissement du nationalisme et de la nation À
-: même, il servait, il sauvait les intérêts les plus essen- F
+: même, il servait, il sauvait les intérêts les plus essen-
 - tiels, les droits les plus légitimes des peuples. Les droits, -
-> les intérêts les plus sacrés. Et qu'il n'y avait que lui qui 4
+> les intérêts les plus sacrés. Et qu'il n'y avait que lui qui
 le faisait. Ce n'était point violer, effacer les nations et |
 les peuples, ce n'était point les fausser, les violenter, les
 oblitérer, les forcer, leur donner une entorse, mais au
 a contraire, que de travailler à remplacer d'une substitution, d'un remplacement organique, moléculaire, un
 champ clos, une concurrence anarchique de peuples for- :
 cenés, frénétiques, par une forêt saine, par une forêt |
-grandissante de peuples prospères, par tout un peuple 4
-de peuples florissauts. Montants dans ieur sève, dans 4
-leur essence, dans la droiture et la lignée de leur végé- 4
+grandissante de peuples prospères, par tout un peuple
+de peuples florissauts. Montants dans ieur sève, dans
+leur essence, dans la droiture et la lignée de leur végé-
 tale race, libres de l'écrasement des servitudes écono- :
-miques, libres de la corruption organique, moléculaire 4
+miques, libres de la corruption organique, moléculaire
 des mauvaises mœurs industrielles. Ce m'était point à
 annuler les nations et les peuples. Au contraire c'était à
-les fonder, les asseoir enfin, les faire naître, les faire et É
-les laisser pousser. C'était les faire. Nous avions dès e
-__ lors la certitude, que nous avons, que le monde souffre n.
-infiniment plus du sabotage bourgeois et capitaliste que 4
+les fonder, les asseoir enfin, les faire naître, les faire et
+les laisser pousser. C'était les faire. Nous avions dès
+__ lors la certitude, que nous avons, que le monde souffre
+infiniment plus du sabotage bourgeois et capitaliste que
 du sabotage ouvrier. Non seulement c'est le sabotage
 bourgeois et capitaliste qui a commencé, mais il est
 devenu rapidement presque total. Et il est si je puis dire +
-: entré dans le monde bourgeois comme une seconde race. 4
+: entré dans le monde bourgeois comme une seconde race.
 - Il est fort loin au contraire d'avoir pénétré aussi pro144 “4
 
 | fondément dans le monde ouvrier, à cette profondeur,
@@ -4525,24 +4524,24 @@ bourgeois et capitaliste est presque tout entier, pour
 
 ainsi dire tout entiér consacré au plaisir. On trouverait !
 ‘encore un très grand nombre d'ouvriers, et non pas à
-“ seulement des vieux, qui aiment le travail. s
+“ seulement des vieux, qui aiment le travail.
 / Tel étant notre socialisme, il est évident qu'il était,
-un renforcement encore inconnu, une prospérité, une 4
-floraison, une fructification. Bien loin d'en conjurer, 4
+un renforcement encore inconnu, une prospérité, une
+floraison, une fructification. Bien loin d'en conjurer,
 d'en conspirer la perte. Nous avions déjà la certitude, :
 que nous avons, que le peuple qui entrerait le premier $
-dans cette voie, qui aurait cet honneur, qui aurait ce k,
-courage, et en un sens cette habileté, en recevrait une É.
-; telle force, une telle prospérité organique et molécu- :æ
+dans cette voie, qui aurait cet honneur, qui aurait ce
+courage, et en un sens cette habileté, en recevrait une
+; telle force, une telle prospérité organique et molécu-
 laire, constitutionnelle, histologique, un tel renforce- &
 ÿ ment, un tel accroissement, un tel assainissement de (2
-; tous les ordres de sa force que non seulement ïül L
+; tous les ordres de sa force que non seulement ïül
 marcheraït à la tête des peuples, mais qu'il n'aurait 4 |
 plus rien à redouter jamais, ni dans le présent ni dans D !
 l'avenir, ni de ses concurrents économiques, industriels, 3 |
-commerciaux, ni de ses concurrents militaires. :4
-Ainsi lembourgeoisement par le sabotage suit une F:
-marche exactement inverse de celle que nous voulions 4 i
+commerciaux, ni de ses concurrents militaires.
+Ainsi lembourgeoisement par le sabotage suit une
+marche exactement inverse de celle que nous voulions
 suivre. Et faire suivre. Nous voulions qu'un assaïnisse- |
 ment du monde ouvrier, remontant de proche en à
 proche, assainît le monde bourgeois et ainsi toutela
@@ -4583,7 +4582,7 @@ l'effort au bien, la morale qui soit artificielle. Le mal,
 
 l'effort d'avilissement, de contamination peut aussi bien
 
-3 Autant que personne je sais combien ces efforts d'in-
+Autant que personne je sais combien ces efforts d'in-
 
 __  struction et de moralisation, ces Universités Populaires
 
@@ -4594,32 +4593,32 @@ __  struction et de moralisation, ces Universités Populaires
 Rs: ss d'en haut sur le monde ouvrier, étaient factices,
 
 vides, vains; creux; combien ils ne rendaient pasetne
-pouvaient pas rendre. Combien ils étaient artificiels, 3
+pouvaient pas rendre. Combien ils étaient artificiels,
 * superficiels. Mais ce que je veux dire, c'est que au contraire, par contre les enseignements du sabotage étaient
 ; . * aussi des enseignements bourgeois et intellectuels; qu'ils
-: étaient aussi des enseignements, donnés, reçus; versés, É.
+: étaient aussi des enseignements, donnés, reçus; versés,
 reçus; enseignés, appris. Des enseignements et des À
 apprentissages. Ils ont plus rendu, ils ont mieux porté, :
-ils ont plus et mieux entré, ils sont entrés beaucoup É
-plus profond parce que le mal entre toujours plus que é
+ils ont plus et mieux entré, ils sont entrés beaucoup
+plus profond parce que le mal entre toujours plus que
 le bien, mais ce que je veux dire et que l'on ne dit pas, ;
 ce que je tiens à dire, ce qu'il faut dire c'est qu'ils
 étaient bien des enseignements du même ordre, venus,
 descendus du même lieu, du même monde. Aussi bourgeois, aussi intellectuels, aussi artificiels. Peut-être un
-peu moins superficiels, parce que le mal est toujours F
-moins superficiel que le bien. Au fond aussi étrangers F
+peu moins superficiels, parce que le mal est toujours
+moins superficiel que le bien. Au fond aussi étrangers
 au monde ouvrier. À
 C'étaient des enseignements de (la) même sorte. >
-Étant donné ce qu'était le monde ouvrier, c'était une Ë
-erreur de croire que le mal y était naturel et que le 4
-bien seul, par une sorte de disgrâce, y était artificiel. 1
+Étant donné ce qu'était le monde ouvrier, c'était une
+erreur de croire que le mal y était naturel et que le
+bien seul, par une sorte de disgrâce, y était artificiel.
 
 Ainsi dans ce monde moderne tout entier tendu à #4
-l'argent, tout à la tension à l'argent, cette tension à F
+l'argent, tout à la tension à l'argent, cette tension à
 l'argent contaminant le monde chrétien même lui fait &
 sacrifier sa foi et ses mœurs au maintien de sa paix à
-économique et sociale. 4
-C'est là proprement ce modernisme du cœur, ce mo- n
+économique et sociale.
+C'est là proprement ce modernisme du cœur, ce mo-
 dernisme de la charité, ce modernisme des mœurs. -5+
 
 À Il y a deux sortes de riches : les riches athées, qui
@@ -4649,38 +4648,38 @@ française, l'office français même. L'assainissement de ce
 3 ; qui est brut. Faut-il noter combien ce socialisme à base
 : de générosité, combien cette générosité claire, combien
 
-cette générosité pleine et pure était dans la tradition | 4
+cette générosité pleine et pure était dans la tradition
 ._ française; plus que dans la tradition française même,
 ! plus profondément, dans le génie français. Dans
-la sève et dans la race même. Dans la sève 3
+la sève et dans la race même. Dans la sève
 : - abondante et sobre, généreuse et pourtant renseignée, À
-| pleine et pure, féconde et nette, pleine et fine, abon- 5
-| dante sans niaiserie, renseignée sans stérilité. Un 4
+| pleine et pure, féconde et nette, pleine et fine, abon-
+| dante sans niaiserie, renseignée sans stérilité. Un
 héroïsme enfin plein et sobre, gai et discret, un héroïsme #2
-2 Telétant notre socialisme, un socialisme français, quel Es
-devait être notre dreyfusisme, un dreyfusisme éminem- 4
+Telétant notre socialisme, un socialisme français, quel Es
+devait être notre dreyfusisme, un dreyfusisme éminem-
 ment français. La plus grande erreur sur ce point, la À
-plus grande illusion, sur ce chef de la patrie, est venue- 4
-sans aucun doute de l'affaire Hervé. De l'hervéisme, -4
-de la démagogie hervéiste. Et surtout et sans aucun 4
-doute beaucoup plus de la complaisance suspecte à la 4
-démagogie hervéiste. Je ne parlerai qu'avec un grand 4
+plus grande illusion, sur ce chef de la patrie, est venue-
+sans aucun doute de l'affaire Hervé. De l'hervéisme,
+de la démagogie hervéiste. Et surtout et sans aucun
+doute beaucoup plus de la complaisance suspecte à la
+démagogie hervéiste. Je ne parlerai qu'avec un grand
 respect d'un homme qui vient de rentrer en prison pour “2
 la troisième ou quatrième fois, peut-être plus. Au moins =
-il va en prison. On n'en saurait dire autant de M. Jaurès 3
+il va en prison. On n'en saurait dire autant de M. Jaurès
 qui s'est toujours arrangé pour ne pas aller en prison.
 Et pourtant ce n'est point tant Hervé qui a fait le virus ne |
-de l'hervéisme, de la démagogie hervéiste. C'est sans -4 1
-aucun doute M. Jaurès, nul autre, ce sont les louches D.
-- conversations, les intrigues, les compromissions, les 3
-négociations de groupes et de congrès, de parti et = 2
+de l'hervéisme, de la démagogie hervéiste. C'est sans
+aucun doute M. Jaurès, nul autre, ce sont les louches
+- conversations, les intrigues, les compromissions, les
+négociations de groupes et de congrès, de parti et =
 
 | d'unification, ce sont les troubles ententes, les avances,
 
 ee _ les platitudes, les plates capitulations de Jaurès à Hervé
 4 j et à tout le hervéisme. Ce qui fut dangereux dans : .
 4 a Hervé et dans le hervéisme, mortellement dangereux, .
-1 ce ne fut point tant Hervé lui-même, ce ne fut point ÿ
+1 ce ne fut point tant Hervé lui-même, ce ne fut point
 e tant le hervéisme. Ce fut Jaurès et le jauressisme, car
 
 + ce fut cette incroyable capitulation perpétuelle de
@@ -4699,7 +4698,7 @@ Ho d'une autorité politique, d'une autorité sociale. Car |
 8 l'homme qui l'autorisait ainsi, et de la meilleure des
 É autorisations, en capitulant perpétuellement devant lui,
 à è et presque solennellement, en causant même avec lui,
-É - - avait lui-même une haute autorité morale, celle précik: sément que nous lui avions conférée, il avait une grosse S
+É - - avait lui-même une haute autorité morale, celle précik: sément que nous lui avions conférée, il avait une grosse
 ; autorité politique, une grosse autorité sociale. Il ne SJ
 à - faut jamais oublier que pendant toute cette période cet
 F: homme, par cette invention qu'il avait faite du com- :
@@ -4712,7 +4711,7 @@ F: homme, par cette invention qu'il avait faite du com- :
 ER È devint autorisé, il devint authentique, il devint (comme) £
 = _ un membre, et secrètement à beaucoup près le plus
 
-Jaurès, par le jauressisme, par le combisme, c'était le 3
+Jaurès, par le jauressisme, par le combisme, c'était le
 gouvernement même pour ainsi dire qui recevait, qui :
 
 Cela étant, il faut serrer de plus près, d'un peu plus
@@ -4720,26 +4719,26 @@ près, il faut serrer au plus près cette affaire Hervé. Il +
 faut bien voir ce que cela veut dire, ce qu'il y avait #
 dedans. Et la serrant il faut bien dire que ceux qui ont =) |
 fait et endossé Hervé, fait et endossé le hervéisme sont ?
-ceux qui ont fait une atteinte mortelle, qui ont porté un f
+ceux qui ont fait une atteinte mortelle, qui ont porté un
 coup incalculable, un coup mortel à la croyance publique |
 à l'innocence de Dreyfus. C'est par eux, surtout par £
-eux, par Jaurès dans la mesure où il a autorisé Hervé, 2
+eux, par Jaurès dans la mesure où il a autorisé Hervé,
 par Dreyfus même dans la mesure où il a autorisé #
 
 Jaurès, que nous sommes retombés sur ce palier moyen, |
 ; sur ce palier sans fin, à mi-côte, dont nous avons dit 4 |
-que nous ne sortirions, que nous ne remonterons 4
-jamais, dont nous avons dit que l'histoire ne remon- 3
+que nous ne sortirions, que nous ne remonterons
+jamais, dont nous avons dit que l'histoire ne remon-
 terait jamais. À
-Car il faut enfin, en quelques mots, démonter le F3
+Car il faut enfin, en quelques mots, démonter le
 mécanisme de cette dangereuse, de cette démagogie #
 mortelle. Il me semble bien, si ma mémoire est bonne, %
 si mes souvenirs sont justes, que pendant toute l'affaire à
-Dreyfus nous nous efforcions de démontrer que Dreyfus E
+Dreyfus nous nous efforcions de démontrer que Dreyfus
 n'était pas un traître. Autant que je me rappelle
  c'étaient nos adversaires qui s'efforçaient de démontrer *
 ou enfin qui prétendaient qu'il était un traître. Ce
-152 3
+152
 
 ee: n'était pas nous. Autant que je me rappelle. Nous nous
 prétendions qu'il n'était pas un traître. Les uns et les -
@@ -4776,94 +4775,94 @@ qui prouve que les uns et les autres nous étions
 
 : sorte de rage, parce qu'on nous le niait publiquement,
 et surtout peut-être parce que notre situation géogra- ;
-: phique dans la carte mentale et sentimentale, parce ; « que les circonstances, les événements historiques nous 2
+: phique dans la carte mentale et sentimentale, parce ; « que les circonstances, les événements historiques nous
 L . avaient plusieurs fois donné les apparences de ne pas eS être: à à
-; Fondés sur le même postulat, partant du même pos- - É
+; Fondés sur le même postulat, partant du même pos-
 Er tulat nous parlions le même langage. Les antidreyfu
-; sistes disaient : La trahison militaire est un crime et É
-- Dreyfus à trahi militaire. Nous disions : La trahison 4
-| militaire est un crime et Dreyfus n'a pas trahi. IL est 4
-innocent de ce crime. Tout a changé de face depuis 3
-__ que Hervé est venu. La même conversation eut l'air de ; 4
+; sistes disaient : La trahison militaire est un crime et
+- Dreyfus à trahi militaire. Nous disions : La trahison
+| militaire est un crime et Dreyfus n'a pas trahi. IL est
+innocent de ce crime. Tout a changé de face depuis
+__ que Hervé est venu. La même conversation eut l'air de
 se poursuivre. L'affaire continue. Mais elle n'était plus &
 fus la même affaire, la même conversation. Elle n'était
-plus la même. Elle en était une tout autre, infiniment È.
-autre, parce que le langage même était autre, infini- S E
-ment autre, parce que le plan même du débat n'était 4
+plus la même. Elle en était une tout autre, infiniment
+autre, parce que le langage même était autre, infini-
+ment autre, parce que le plan même du débat n'était
 plus le même. Hervé est un homme qui dit : Il faut À
 | Nommément il faut trahir militairement. “34
 Les antidreyfusistes professionnels disaient : Il ne À
-faut pas être un traître et Dreyfus est un traître. Nous 3
-les dreyfusistes professionnels nous disions : Il ne faut D.
+faut pas être un traître et Dreyfus est un traître. Nous
+les dreyfusistes professionnels nous disions : Il ne faut
 pas être un traître et Dreyfus n'est pas un traître. Hervé D :
 est un qui dit, et Jaurès laisse dire à Hervé, et Dreyfus #4
 même laisse Jaurès laisser dire à Hervé, et en un sens, +
 et en ce sens au moins Dreyfus même laisse dire à #4
-Jaurès même : 1! faut étre un traître. 7
-Nommément il faut être un traître militaire. 4
+Jaurès même : 1! faut étre un traître.
+Nommément il faut être un traître militaire.
 - Par cet entraînement de proche en proche, par cette .
-sorte de dérapage de proche en proche, par cette déri- 4
+sorte de dérapage de proche en proche, par cette déri-
 
 __  vation, par ce détournement, par ce déglinguement
 _ Jaurès est entré dans le crime de Hervé; par cette à
 ES _ réversion, par cette réversibilité des responsabilités; et |
 Eee de la plus basse façon que l'on y pût entrer, non point ;
 3 ; même par une complicité active, qui a ses risques, qui
-2 a son efficience, qui peut avoir même pour ainsi dire sa 4
-4 grandeur, mais obliquement, mais bassement, par une Ë
+2 a son efficience, qui peut avoir même pour ainsi dire sa
+4 grandeur, mais obliquement, mais bassement, par une
 ; complicité sourde et silencieuse, par une complicité
-à tacite, sournoise, par une complicité de laissez faire et É
-3 de laisser passer, par une complicité les yeux baissés. 2
+à tacite, sournoise, par une complicité de laissez faire et
+3 de laisser passer, par une complicité les yeux baissés.
 É. La plus basse de toutes. Et Dreyfus, faute de marquer
 à _ les temps, est entré, s'est laissé entrer dans le crime *
 F Quelle fut la répercussion de cette double dérivation,
-es de cette double décadence, de ce double détournement, Ë
+es de cette double décadence, de ce double détournement,
 -_ de ce détournement à deux temps sur l'efficacité de ;
 # nos démonstrations dreyfusistes, il était aisé de le pré- | |
-< voir. Quand on s'efforce de démontrer qu'un homme 2
+< voir. Quand on s'efforce de démontrer qu'un homme
 + n'est point un traître pensant profondément qu'il ne $
-6 faut pas être un traître, on est au moins écouté. Mais 3
+6 faut pas être un traître, on est au moins écouté. Mais
 Ée quand on s'efforce de démontrer qu'un homme n'est :
-D _ point un traître laissant dire et disant qu'il faut être un e
-es traître, l'opération, la démonstration devient extrême- 3
+D _ point un traître laissant dire et disant qu'il faut être un
+es traître, l'opération, la démonstration devient extrême-
 À ment suspecte. Car alors, dans l'hypothèse hervéiste,
 É. . qu'il faut trahir, qu'il faut être un traître, s'il n'a pas +
 4 - trahi, il a eu les plus grands torts, ce Dreyfus. Et alors : |
-F. pourquoi le défendre. Par une sorte de gageure, de Ë
-- suprême élégance on le défendrait d'avoir commis un S;
+F. pourquoi le défendre. Par une sorte de gageure, de
+- suprême élégance on le défendrait d'avoir commis un
 3 crime que précisément il faudrait commettre, on le
 L_  défendrait d'avoir fait ce que précisément il fallait :
 É: faire : c'est bien de l'honneur, c'est bien de la poli44 tesse. C'est trop poli pour être honnête. S'il faut être
 
 ua traître militaire, Dreyfus a eu les plus grands torts $
-d'avoir fait ce qu'il faut faire. On dirait : Il n'a pas 1
-trahi. Il a eu tort, car il faut trahir. Aussi nous le dé- 1
+d'avoir fait ce qu'il faut faire. On dirait : Il n'a pas
+trahi. Il a eu tort, car il faut trahir. Aussi nous le dé-
 ‘_ fendons. Ce serait, ce ferait un retournement de poli- À
 S tesse bien acrobatique, une galanterie bien française, &
 un retournement diagonal, diamétral de politesse. Une 4 :
-opération bien suspecte. Ces gens ne nous avaient 3
+opération bien suspecte. Ces gens ne nous avaient
 point habitués à ces gageures de politesse. Tant de . :
 politesse devient extrêmement suspecte. Dans le raison- Fi
 nement hervéiste en effet, s'il est permis de le nommer à
-ainsi, Dreyfus, tant qu'il ne trahit pas, est un bien 3j
+ainsi, Dreyfus, tant qu'il ne trahit pas, est un bien
 grand coupable. Il est un grand criminel. D'autant
 plus criminel et d'autant plus coupable qu'il était
 mieux situé, militairement, qu'il avait une admirable =
 situation pour trahir. Militairement. Hervé, lui, n'avait Le
 pas cet honneur, il n'avait pas ce bonheur d'avoir, à
-de pouvoir avoir à sa disposition les graphiques j
-des chemins de fer. Comment, voilà un homme, Drey- F
+de pouvoir avoir à sa disposition les graphiques
+des chemins de fer. Comment, voilà un homme, Drey-
 fus, qui pouvait avoir en mains les graphiques des ;
 chemins de fer et il ne les aurait pas instantanément Ne:
-sabotés. Quel être. Il ne faut pas oublier que Hervé est 3
-un monsieur qui le premier jour de la mobilisation, 1
+sabotés. Quel être. Il ne faut pas oublier que Hervé est
+un monsieur qui le premier jour de la mobilisation,
 plus précisément dans la première heure du premier de
 jour, c'est-à-dire, je pense, de minuit or à 1 heure 00 FL
 fusillera les cinq cent trente-sept mille hommes de FE:
 l'armée (française) active; plus les treize cent cinquante- 4. Le
 sept mille hommes de la réserve de l'armée active, qui #
-forment avec elle le premier ban; puis les cinq cent : E.
-soixante-seize mille hommes de l'armée territoriale; : - 1
+forment avec elle le premier ban; puis les cinq cent
+soixante-seize mille hommes de l'armée territoriale; :
 puis les sept cent cinquante et un mille hommes de %
 la réserve de l'armée territoriale, qui forment avec +
 
@@ -4886,7 +4885,7 @@ conséquent, constant avec lui-même, s'il était logique,
 4 logiciens, pour les autres, ne sont pas toujours ceux
 qui sont les plus impitoyables pour soi, — s'il était
 ; logique avec lui-même il dirait : Nous avons défendu
-ce Dreyfus, nous avons eu tort. Pensez donc : Il était k
+ce Dreyfus, nous avons eu tort. Pensez donc : Il était
 capitaine; capitaine d'État-Major; enfin il travaillait
 dans les bureaux de l''État-Major de l'armée. Il était
 $ merveilleusement outillé, merveilleusement situé pour
@@ -4899,37 +4898,37 @@ la conséquence, quelle est sur notre situation histo- à
 rique la répercussion de ce changement de situation
 # géographique. Quand je dis nous, naturellement je
 
-42 Charles Péguy ee re de.
+Charles Péguy ee re de.
 veux dire notre parti, nos politiciens. Car il ne s'agit “2
 pas de nous mêmes. C'est un retour en arrière, une ‘à
  répercussion en arrière, une répercussion remontante, ;
-reportée, en arrière, réversible, réversée, reportée sur 4
-; . tout ce que nous avions dit, sur tout ce que nous 4
-: . avions fait, sur tout ce que nous avions été. Quand 3
-nous repoussions l'accusation d'être un traître repous- 2
-: sant profondément l'idée même d'être un traître, on 4
-2 pouvait nous combattre, mais au moins nous nous fai- 4
+reportée, en arrière, réversible, réversée, reportée sur
+; . tout ce que nous avions dit, sur tout ce que nous
+: . avions fait, sur tout ce que nous avions été. Quand
+nous repoussions l'accusation d'être un traître repous-
+: sant profondément l'idée même d'être un traître, on
+2 pouvait nous combattre, mais au moins nous nous fai-
 sions écouter. Quand au contraire nous repoussons
 l'accusation d'être un traître accueillant profondément #
 l'idée d'être un traître, comment ne pas voir que nous -
 devenons instantanément suspects. Que uous perdons Là
 l'audience même. +
-Et même l'audience que nous avions déjà, eue, F
+Et même l'audience que nous avions déjà, eue,
 obtenue. L'ancienne audience. -“$
-Une audience qui paraissait acquise. S 4
+Une audience qui paraissait acquise.
 | Une audience aujourd'hui annulée. NC
-On peut se déshonorer en arrière. 2
+On peut se déshonorer en arrière.
 . Jaurès ici intervient, au débat, et se défend. Si je - "
 ; reste avec Hervé, dit-il, dans le même parti, si j'y suis “%
-resté constamment, toujours, si longtemps, malgré les : 20
+resté constamment, toujours, si longtemps, malgré les
 innombrables couleuvres que Hervé m'a fait avaler, +
-c'est pour deux raisons également valables. Premiè- 4
-rement c'est précisément, c'est à cause de ces innom 5
-brables couleuyres mêmes. Il faut bien songer que ce 1e
-Hervé est l'homme du monde qui m'a administré le. M
+c'est pour deux raisons également valables. Premiè-
+rement c'est précisément, c'est à cause de ces innom
+brables couleuyres mêmes. Il faut bien songer que ce
+Hervé est l'homme du monde qui m'a administré le.
 plus de coups de pied dans le derrière. En public et en
-particulier. Dans les congrès et dans les meetings. Dans : E:
-son journal. Publiquement et privément, comme dit 7 0
+particulier. Dans les congrès et dans les meetings. Dans
+son journal. Publiquement et privément, comme dit
 
 ‘40 Péguy. Il faut l'en louer. Et comme il me connaît bien. Il
 
@@ -4949,7 +4948,7 @@ tirent. Qui me bourrent. Et que je ne marche jamais
 
 pensée. Il me connaît si bien. Il me connaît comme
 
-1 moi-même. Il sait que quand quelqu'un m'aime et me 3
+1 moi-même. Il sait que quand quelqu'un m'aime et me
 
 à sert, le sot, me prodigue les preuves les plus incontes-
 
@@ -4971,7 +4970,7 @@ L sentiment de jalousie, de la haine envieuse la plus
 
 Ë basse contre un homme qui est capable de concevoir |
 
-É les sentiments de l'amitié. Enfin un tas d'autres beaux j
+É les sentiments de l'amitié. Enfin un tas d'autres beaux
 
 É: sentiments, fleurs de boue, plantes de vase, qui pous-
 
@@ -4991,36 +4990,36 @@ quand je reçois un bon coup de pied dans le derrière,
 
 5 pour mon derrière, qui me vaut cet honneur. Un bon
 
-coup de pied dans le Xinterland, dans mon Hinterland. 4
-.Et quand je pense qu'il y a des gens qui disent que je n'ai 4
-* pas de fond. Je hais mes amis. J'aime mes ennemis. On 3
-_ ferait une belle comédie avec mon caractère. Je hais mes 2
-amis parce qu'ils m'aiment. Je méprise mes amis parce 4
-- qu'ils m'aiment. Parce qu'ils m'aiment j'ai en moi pour 4
-S ‘eux, je sens monter en moi contre eux une jalousie bas- S
-3 sement envieuse, l'invincible sentiment d'une incurable Ë
-haine. Je trahis mes amis parce qu'ils m'aiment. J'aime, É
-je sers, je suis, j'admire mes ennemis parce qu'ils me 4
-méprisent, (ils ne me haïssent même pas), parce qu'ils 3
+coup de pied dans le Xinterland, dans mon Hinterland.
+.Et quand je pense qu'il y a des gens qui disent que je n'ai
+* pas de fond. Je hais mes amis. J'aime mes ennemis. On
+_ ferait une belle comédie avec mon caractère. Je hais mes
+amis parce qu'ils m'aiment. Je méprise mes amis parce
+- qu'ils m'aiment. Parce qu'ils m'aiment j'ai en moi pour
+S ‘eux, je sens monter en moi contre eux une jalousie bas-
+3 sement envieuse, l'invincible sentiment d'une incurable
+haine. Je trahis mes amis parce qu'ils m'aiment. J'aime,
+je sers, je suis, j'admire mes ennemis parce qu'ils me
+méprisent, (ils ne me haïssent même pas), parce qu'ils
 me maltraitent, parce qu'ils me violentent, parce qu'ils ;
 me connaissent enfin, parce qu'ils me connaissent donc.
 Et ils savent si bien comment on me fait marcher.
 Quand un me trahit, je l'aime double, je l'admire, à
 j'admire sa compétence. Il me ressemble tant. J'ai un &
-goût secret pour la lâcheté, pour la trahison, pour tous 1
+goût secret pour la lâcheté, pour la trahison, pour tous
 les sentiments de la trahison. Je suis double. Je m'y #
 connais. J'y suis chez moi. J'y suis à l'aise. On ferait À
-une grande tragédie, une triste comédie avec mon 4
+une grande tragédie, une triste comédie avec mon
 caractère. Hervé ne la ferait peut-être pas mal. Il me à
 connaît si bien. Il y a des exemples innombrables que :
 j'aie trahi mes amis. Depuis trente ans que je fonc- À
-tionne, il n'y a pas un exemple que j'aie trahi mes 1
+tionne, il n'y a pas un exemple que j'aie trahi mes
 ennemis. C'est vous dire que j''excelle dans tous les +
 sentiments politiques. On ferait un beau roman de À
 l'histoire des soumissions que j'ai faites à notre cama- À
 Ce vice, secret, ce goût secret que j'ai pour l'avanie. a
 J'encaisse, j'encaisse. Ce goût infâme que j'ai pour ‘4
-l'avanie. Pour le déshonneur, de l'avanie. Je suis E
+l'avanie. Pour le déshonneur, de l'avanie. Je suis
 Jhomme du monde qui reçoit, qui encaisse le plus
 
 ; 3 d'avanies. A mon banc. Dans mon journal même. A
@@ -5055,31 +5054,31 @@ n'empêche pas de parler, au contraire. Ça lance pour
 parler. Enfin bref, ou plutôt long, après un certain
 temps de cet exercice, (et je ne parle pas seulement,
 
-Ë j'agis en outre, j'agis en dessous), (j'excelle dans le traF- 161
+Ë j'agis en outre, j'agis en dessous), (j'excelle dans le traF-
 
-s< vail des commissions, dans les (petits) complots, oi Es 1
-. les combinaisons, dans le jeu des ordres du jour, dans F2
-- les petites manigances, dans les commissions et compro- 4
-- missions et ententes, dans tout le travail souterrain, sous s:
-: ” la main, sous le manteau. Dans le jeu, dans l'invention des 3
-; .majorités, factices ; faites, obtenues par un savant com- 4
-partimentage des scrutins. Dans tout ce qui est le petit 3
+s< vail des commissions, dans les (petits) complots, oi Es
+. les combinaisons, dans le jeu des ordres du jour, dans
+- les petites manigances, dans les commissions et compro-
+- missions et ententes, dans tout le travail souterrain, sous
+: ” la main, sous le manteau. Dans le jeu, dans l'invention des
+; .majorités, factices ; faites, obtenues par un savant com-
+partimentage des scrutins. Dans tout ce qui est le petit
 $ et le grand mécanisme politique et parlementaire.) enfin, 4 -
-à au bout d'un certain temps de cet exercice il n'y a plus É:
-< parti, il n'y a plus rien, il n'y a plus aucune de ces viru- 4
+à au bout d'un certain temps de cet exercice il n'y a plus
+< parti, il n'y a plus rien, il n'y a plus aucune de ces viru-
 lences. Quand je me suis bien collé à eux pendant un +
-certain temps, supportant pour cela les avanies qu'il È
-faut, quand je suis resté dans un parti pendant un cer- æ k
+certain temps, supportant pour cela les avanies qu'il
+faut, quand je suis resté dans un parti pendant un cer-
 tain temps, pendant le temps voulu, au bout de ce &
 temps on voit, on s'aperçoit, tout le monde comprend “à
-que je les ai trahis. Comprenez-vous enfin, gros bête, 3
+que je les ai trahis. Comprenez-vous enfin, gros bête,
 me dit-il me poussant du coude.
-Quand je suis, quand je me mets dans un parti, ça se 4
-connaît tout de suite, presque tout de suite, à ce que 4
+Quand je suis, quand je me mets dans un parti, ça se
+connaît tout de suite, presque tout de suite, à ce que
 c'est un parti qui devient malade. Quand je me mets ;
 mal. Ça ne marche plus. Quand je me mets dans une En.
 idée, elle devient véreuse. Ë à
-Je l'ai fait au dreyfusisme; je l'avais fait et je l'ai fait : 12
+Je l'ai fait au dreyfusisme; je l'avais fait et je l'ai fait
 l'ai fait et je le fais au syndicalisme. C'est encore le À
 combisme que je n'ai jamais pas trahi du tout. E :
 Je crois Jaurès très capable de trahir tout le monde, 2540 |
@@ -5090,14 +5089,14 @@ _  etles traîtres mêmes. Mais ici encore il souffrira que
 _ d'avance. Elle est politique. C'est qu'on a beau être
 _ Jaurès, en pareille matière on ne sait jamais où l'on va,
 : jusqu'où l'on entre, jusqu'où on réussit, ou au contraire
-4 jusqu'où l'événement réussit contre vous, jusqu'où les É
+4 jusqu'où l'événement réussit contre vous, jusqu'où les
 : autres, ceux où l'on entre, réussissent contre vous, sur
 3 vous, en vous même. J'entends bien que c'est une espèce ;
 s de contre-espionnage. Mais justement on sait assez com-
 : - bien les services du contre-espionnage (on l'a su notam- +
 ment par l'affaire Dreyfus même, on l'a vu par tant
-Ex: d'autres) sont bizarrement mais naturellemeni embar- L
-% bouillés, imbriqués dans les services contraires du droit e
+Ex: d'autres) sont bizarrement mais naturellemeni embar-
+% bouillés, imbriqués dans les services contraires du droit
 2 espionnage. On ne sait jamais bien jusqu'où on trahit
 3, les traîtres. Jusqu'où on y réussit. Et jusqu'où au con4 traire la trahison, l'habitude, le goût de la trahison
 ; s'infiltre, pénètre dans les veines mêmes. On voit bien
@@ -5105,7 +5104,7 @@ Ex: d'autres) sont bizarrement mais naturellemeni embar- L
 £ fait contre eux. Quand on va officiellement, formellement avec eux, parmi eux, on voit bien la force qu'on
 È leur apporte. On voit beaucoup moins bien le tort qu'on
 leur fait.
-Ë La trahison de tous que l'on fait avec eux, à leur f
+Ë La trahison de tous que l'on fait avec eux, à leur
 1 exemple, dans leur compagnie, on voit bien ce qu'elle /
 + ; rapporte, ce qu'elle leur apporte de trahison réelle. On
 4 voit bien ce qu'elle est de trahison. Au contraire la
@@ -5117,35 +5116,35 @@ _ main, on ne sait plus jusqu'où elle se rend. | !
 
 Deuxièmement, et celle-ci est une raison de bonne
 
-- compagnie, tirée de la vieille morale, et je suis heureux 2
+- compagnie, tirée de la vieille morale, et je suis heureux
 
 de la dire : On n'a pas le droit de trahie les traîtres
 
 mêmes. On n'a jamais le droit de trahir, personne. Les :
 
 ; traîtres, il faut les combattre, et non pas les trahir. £.
-1 3
-Hervé même, qui fait tant le fendant depuis que ça D
-lui rapporte, fût-ce des mois de prison, et des années, Ÿ
-È quatre années aujourd'hui, mais c'est toujours un rap- 4
+1
+Hervé même, qui fait tant le fendant depuis que ça
+lui rapporte, fût-ce des mois de prison, et des années,
+È quatre années aujourd'hui, mais c'est toujours un rap-
 port, Hervé au contraire, qui fait profession de tout dire, *
 
-lui, et de n'avoir peur de rien, Hervé était au contraire 5
+lui, et de n'avoir peur de rien, Hervé était au contraire
 
 d'une sorte de prudence consommée, même cauteleuse,
 il ne faut pas dire bretonne pendant tout le temps de
 
-son introduction. Tout eût été si simple, si direct, s'il F
-nous eût dit directement : Mesdames et messieurs, x
+son introduction. Tout eût été si simple, si direct, s'il
+nous eût dit directement : Mesdames et messieurs,
 citoyennes et citoyens, j'arrive de Sens. Vous voyez en Es
 
-moi le traître. Ce que Dreyfus n'a malheureusement pas 2 É
+moi le traître. Ce que Dreyfus n'a malheureusement pas
 
 été, je le suis. Ce que Dreyfus n'a malheureusement pas ne
-fait, je le veux faire, je suis venu à Paris pour le faire. 4
+fait, je le veux faire, je suis venu à Paris pour le faire.
 
-Je me suis fait venir de Sens pour étre traître. Je suis 4
-celui qui enseignerai désormais la trahison militaire, E
+Je me suis fait venir de Sens pour étre traître. Je suis
+celui qui enseignerai désormais la trahison militaire,
 techniquement parlant. On s'était trompé jusqu'ici. Il &
 faut être un traître, et nommément un traître militaire. .
 Comme le disaient nos maîtres, nos communs maîtres, L a
@@ -5153,12 +5152,12 @@ j'ai renouvelé la question. : #
 S'il nous eût dit tout simplement cela. e +
 
 Mais dans ce temps-là je le connaissais beaucoup. Ce 4 °
-pacifiste s'avançait avec une prudence extraordinaire B
+pacifiste s'avançait avec une prudence extraordinaire
 
 dans le sentier. .
-164 4
+164
 
-3 4
+3
 
 % Le hervéisme a ainsi dénaturé en retour, déformé en
 
@@ -5208,36 +5207,36 @@ de la désorganisation industrielle, de la désorganisation
 
 S. Nous fâmes des héros. Il faut le dire très simplement,
 
-car je crois bien qu'on ne le dira pas pour a na 22
+car je crois bien qu'on ne le dira pas pour a na
 - très exactement en quoi et pourquoi nous fûmes des ‘4
-. héros. Dans tout le monde où nous circulions, dans tout E
-le monde où nous achevions alors les années de notre 4
+. héros. Dans tout le monde où nous circulions, dans tout
+le monde où nous achevions alors les années de notre
 apprentissage, dans tout le milieu où nous circulions, “à
 \ ‘ où nous opérions, où nous croissions encore et où nous :
 achevions de nous former, la question qui se posait, EE
 : pendant ces deux ou trois années de cette courbe mon- +
-tante, n'était nullement de savoir si en réalité Dreyfus = | F
-était innocent (ou coupable). C'était de savoir si on 4
+tante, n'était nullement de savoir si en réalité Dreyfus =
+était innocent (ou coupable). C'était de savoir si on
 aurait le courage de le reconnaître, de le déclarer à
-innocent. De le manifester innocent. C'était de savoir si È
+innocent. De le manifester innocent. C'était de savoir si
 on aurait le double courage. Premièrement le premier à à
 courage, le courage extérieur, le grossier courage, déjà ee
 difficile, le courage social, public de le manifester K<
 ionocent dans le monde, aux yeux du public, de l'avouer Lau public, (de le glorifier), de l'avouer publiquement, de $
-le déclarer publiquement, de témoigner pour lui publi- l
-quement. De risquer là-dessus, de mettre sur lui tout ce 5
+le déclarer publiquement, de témoigner pour lui publi-
+quement. De risquer là-dessus, de mettre sur lui tout ce
 que lon avait, tout un argent misérablement gagné, à
-tout un argent de pauvre et de misérable, tout un argent > 1
+tout un argent de pauvre et de misérable, tout un argent >
 | de petites gens, de misère et de pauvreté; tout le temps, “4
 < toute la vie, toute la carrière; toute la santé, tout le “4
-corps et toute l'âme; la ruine du corps, toutes les ruines, De 4
+corps et toute l'âme; la ruine du corps, toutes les ruines, De
 la rupture du cœur, la dislocation des familles, le As
-reniement des proches, le détournement (des regards) 54
+reniement des proches, le détournement (des regards)
 des yeux, la réprobation muette ou forcenée, muette et À
 forcenée, l'isolement, toutes les quarantaines; la rupture 2 ;
-d'amitiés de vingt ans, c'est-à-dire, pour nous, d'amitiés E
+d'amitiés de vingt ans, c'est-à-dire, pour nous, d'amitiés
 commencées depuis toujours. Toute la vie sociale. Toute _
-la vie du cœur, enfin tout. Deuxièmement le deuxième 2 4
+la vie du cœur, enfin tout. Deuxièmement le deuxième
 courage, plus difficile, le courage intérieur, le courage
 
 Fort _ secret, s'avouer à soi-même en soi-même qu'il était :
@@ -5252,7 +5251,7 @@ pouvaient pas savoir ce que nous avons sacrifié à cet
 homme, et de quel cœur nous l'avons sacrifié. Nous lui $
 Ë avons sacrifié notre vie entière, puisque cette affaire
 nous a marqués pour la vie. Nos ennemis ne sauront
-D jamais, nous qui avons bouleversé, retourné ce pays s
+D jamais, nous qui avons bouleversé, retourné ce pays
 à nos ennemis ne sauront jamais combien peu nous étions,
 et dans quelles conditions nous nous battions, dans
 quelles conditions ingrates, précaires, dans quelles con-
@@ -5333,58 +5332,58 @@ domination intellectuelle, une sorte de report de l'intel-
 = lectuel sur la mémoire même, une introduction de
 l'intellectuel dans la mémoire, d'obumbration, une
 ombre portée, sur la mémoire, de l'idéation intellec- ;
-Pa tuelle) il croit se rappeler que l'affaire Dreyfus a été 3
-< Ë préparée de toutes pièces, qu'elle a été comme montée è
+Pa tuelle) il croit se rappeler que l'affaire Dreyfus a été
+< Ë préparée de toutes pièces, qu'elle a été comme montée
 4 dès l'origine, dès le principe, par le parti intellectuel. £
 ë Il obéit aïnsi, il obéit ici à la plus grande illusion :
 intellectuelle peut-être, je veux dire et à celle qui est la
 À plus grande en nombre, en quotité, la plus nombreuse,
 vs à celle qui s'exerce le plus fréquemment, et à celle qui
-s est la plus grande en quantité, dont l'effet est le plus È
+s est la plus grande en quantité, dont l'effet est le plus
 grand, le plus grave; nôn pas seulement à cette illusion
 intellectuelle pour ainsi dire générale, de substituer #
 3 partout, dans tout l'événement historique, la formation
 intellectuelle à la formation organique; mais très parti- ;
-: culièrement à cette illusion d'optique historique intellectuelle qui consiste à reporter incessamment le présent ? Î
+: culièrement à cette illusion d'optique historique intellectuelle qui consiste à reporter incessamment le présent ?
 sur le passé, l'ultérieur incessamment sur l'antérieur, ;
 z tout l'ultérieur incessamment surtout l'antérieur; illusion -
 pour ainsi dire technique; et organique elle-même, je
-à veux dire organique de l'intellectuel; illusion de perspective, ou plutôt substitution totale, essai de substitution Ë
+à veux dire organique de l'intellectuel; illusion de perspective, ou plutôt substitution totale, essai de substitution
 totale de la perspective à l'épaisseur, à la profondeur,  …
 essai de substitution totale du regard de perspective :
-à la connaissance réelle, au regard en profondeur, au É
-regard de profondeur; essai de substitution totale du ÿ
-regard de perspective, à deux dimensions, à la connaissance réelle à trois dimensions d'un réél, d'une réalité k
+à la connaissance réelle, au regard en profondeur, au
+regard de profondeur; essai de substitution totale du
+regard de perspective, à deux dimensions, à la connaissance réelle à trois dimensions d'un réél, d'une réalité
 - à trois dimensions; illusion d'optique, illusion de |
 regard, illusion de recherche et de connaissance que
 
 | j'essaie d'approfondir lui-même, entre toutes les illu- CR
 sions, (car elle est capitale, et d'une importance capitale), dans ma thèse de la situation faite à l'histoire
 se dans la philosophie générale du monde moderne;
-Le illusion qui consiste à substituer constamment au e
-+3 mouvement organique réel de l'événement de l'histoire, L
+Le illusion qui consiste à substituer constamment au
++3 mouvement organique réel de l'événement de l'histoire,
 # 4 qui se meut perpétuellement du passé vers le futur en ‘
-F passant, en tombant perpétuellement par cette frange Ç
+F passant, en tombant perpétuellement par cette frange
 5% du présent, une sorte d'ombre dure angulaire portée à à
 __ chaque instant du présent sur le passé, l'ombre du coin
 
 - du mur et du coin de la maison, du pignon que nous :
 : F3 croyons avoir sur la rue. + » Quand on effectue ce report il semble en effet que le .
 ne parti intellectuel a monté toute l'affaire Dreyfus. Mais ;
-- quand on ne l'effectue pas on se rappelle qu'il n'a rien ÿ
+- quand on ne l'effectue pas on se rappelle qu'il n'a rien
 
-__ monté du tout. D'abord généralement én histoire on ne 5
-- monte rien du tout. Ou enfin on ne monte pas tant que ë
-+ ça.fe qu'il y a de plus imprévu, c'est toujours l'événe- 3
+__ monté du tout. D'abord généralement én histoire on ne
+- monte rien du tout. Ou enfin on ne monte pas tant que
++ ça.fe qu'il y a de plus imprévu, c'est toujours l'événe-
 -_ ment. Il suffit d'avoir un peu vécu soi-même hors des :
 _ livres des historiens pour savoir, pour avoir éprouvé <
-que tout ce qu'on monte est généralement ce qui arrive é
+que tout ce qu'on monte est généralement ce qui arrive
 É le moins, et que ce qu'on ne monte pas est généralement à
 24 ce qui arrive. Sans doute il y a des préparations, mais #
 4 a _ilfaut qu'elles soient générales, il n'y a guère de montages
-particuliers, de montages de détail. Et quand il y a des : Ù
+particuliers, de montages de détail. Et quand il y a des
 Pc. montages de détail, il faut qu'ils soient bien immédiats, #4
-… presque instantanés, qu'ils précèdent de bien peu è
+… presque instantanés, qu'ils précèdent de bien peu
 _ lefet. Autrement la déconvenue s'intercale. Napoléon Ne
 æ sans doute a bien monté Austerlitz. Mais il ne le mon- É ;
 
@@ -5400,12 +5399,12 @@ que de la monter, mais alors il aurait précisément les
 vertus que nous lui nions, et il n'y aurait plus, messieurs,
 qu'à lui rendre les armes. Rassurez-vous, il ne les a
 point. Il est venu pour profiter, comme tous les profi-
-; teurs viennent ensuite. Il est venu en parasite, en suiveur. Il n'était point venu pour combattre, il n'était Ê
+; teurs viennent ensuite. Il est venu en parasite, en suiveur. Il n'était point venu pour combattre, il n'était
 point venu pour fonder. C'est précisément la commune ‘à
 erreur historique, la commune erreur intellectuelle en
 matière d'histoire, que de reporter, en toute affaire historique, sur les vertus des fondateurs l'ombre portée des |
-abusements des profiteurs. 3
-Les fondateurs viennent d'abord. Les profiteurs vien- Ë
+abusements des profiteurs.
+Les fondateurs viennent d'abord. Les profiteurs vien-
 On peut préparer toute une carrière, toute une vie, |
 on ne peut pas la monter. On peut préparer une guétre, à
 une révolution, (et encore), (il faut être beaucoup, et
@@ -5445,28 +5444,28 @@ grands réalistes, des maîtres. Enfin tout ce que préci-
 k Napoléons. Ils seraient peut-être, sans doute des tyrans
 
 . encore. Mais'ils seraient des grands tyrans, des tyrans à
-. considérables, des maîtres, des réalistes. Tout ce que 4
+. considérables, des maîtres, des réalistes. Tout ce que
 précisément nous leur nions. Ils seraient des tyrans
 : comme Richelieu et Napoléon. Ils baïigneraient, ils :
 F tremperaient, ils commanderaient dans la réalité. ns
-5 On nous abuse beaucoup, les historiens, sur la -4
-valeur des préparations historiques. En 1870 même, au F
-> mois d'août, si une armée française, comme elle était, 3
-Ÿ avait été remise aux mains d'un Napoléon Bonaparte, 3
+On nous abuse beaucoup, les historiens, sur la
+valeur des préparations historiques. En 1870 même, au
+> mois d'août, si une armée française, comme elle était,
+Ÿ avait été remise aux mains d'un Napoléon Bonaparte,
 tous les tiroirs et toutes les préparations, toutes les À
 fiches et tous les registres d'un de Moltke seraient &
 aujourd'hui la risée des historiens mêmes.
-EEE) Ils commettent une erreur du même ordre, plus 4
+EEE) Ils commettent une erreur du même ordre, plus
 qu'une erreur analogue, une erreur inverse et parallèle
 ” quand ils nous nomment le parti de l'étranger. Is :
 reportent sur nous les abusements de Hervé. Ou plutôt
 ils commettent une erreur parallèle et non point de Re
-sens contraire, mais de même sens, car en un sens 4
+sens contraire, mais de même sens, car en un sens
 Hervé est lui aussi un profteur. Il est un parasite. :
-‘ Ilest même un parasite de nous. Sur ce point particulier c'est encore nous qui avons été des fondateurs, 4
-les fondateurs, et c'est Hervé qui en un sens a été un n.
+‘ Ilest même un parasite de nous. Sur ce point particulier c'est encore nous qui avons été des fondateurs,
+les fondateurs, et c'est Hervé qui en un sens a été un
 profiteur. Il n'eût point atteint en quelques jours, en. :
-- “quarante-huit heures, cette sorte non pas seulement de 1
+- “quarante-huit heures, cette sorte non pas seulement de
 réputation, de célébrité, mais de gloire propre qu'il a #
 
 __ s'ilne s'était pas fondé sur nos propres, sur nos lentes
@@ -5484,7 +5483,7 @@ un fort honorable compagnonnage de prison, pour avoir
 position, quelle qu'elle soit, quand même elle est au
 sk _ fond encore plus une opposition à eux-mêmes; une
 Æ complaisance à tout ce qui trouble un régime détesté. -
-_ A tout ce qui embête un gouvernement haï. Alors ils se ë
+_ A tout ce qui embête un gouvernement haï. Alors ils se
 =  rattrapent, de cette indulgence et de ce compagnon
 F _ nage et de cette sympathie et de cette complaisance .
 “ - en nous nommant, nous, le parti de l'étranger. C'est ! :
@@ -5502,27 +5501,27 @@ D. le même signe. Alors que, passant au contraire, elle
 une opération _intérieure, purement arbitraire, elle
 7 ba change de signe. On la fasse arbitrairement changer de
 
-. signe. Le grief que l'on devrait faire à Hervé, c'est 1
-précisément celui-là que l'on nous fait à nous son 4
-Ils commettent une erreur non pas seulement du même x
+. signe. Le grief que l'on devrait faire à Hervé, c'est
+précisément celui-là que l'on nous fait à nous son
+Ils commettent une erreur non pas seulement du même
 ordre, mais de la même tribu, de la même gens, une »
 erreur voisine, alliée, une erreur apparentée, une erreur
 de la même famille quand ils attribuent, quand ils nous
 représentent l'affaire Dreyfus comme montée par le
 parti juif. Il ne faudrait pas beaucoup me pousser pour
 me faire déclarer ce que je pense, que l'affaire Dreyfus,
-dans la mesure où elle fut montée, fut montée contre le 3
-parti juif. De toutes les résistances que Bernard-Lazare É
+dans la mesure où elle fut montée, fut montée contre le
+parti juif. De toutes les résistances que Bernard-Lazare
 eut à refouler, pour commencer, dans le principe, les :
 premières furent naturellement les résistances juives, À
-puisque c'étaient celles de son propre milieu. Mais elles 4
-ne furent pas seulement les premières, elles furent aussi F
+puisque c'étaient celles de son propre milieu. Mais elles
+ne furent pas seulement les premières, elles furent aussi
 les plus énergiques peut-être. Les plus profondes, je
-crois. Sans doute les plus agissantes. Et ensuite ceux É
+crois. Sans doute les plus agissantes. Et ensuite ceux
 qui lui pardonnèrent le moins ce furent encore les Juifs. #
 J'entends les politiciens juifs, le parti (politique) juif. à
 ! De même que du côté intellectuel, dans le camp, dans Fe
-le clan intellectuel, même dans le clan universitaire 4
+le clan intellectuel, même dans le clan universitaire
 cette affaire Dreyfus fut commencée, fut engagée par À
 quelques forcenés contre la résistance, contre la répro- +
 bation du parti, contre les résistances sourdes ou
@@ -5551,7 +5550,7 @@ par endossement de Hervé nous avons vu Jaurès. Par
 endossement dé Jaurès nous en atteindrions, j'en ai
 : bien peur, quelque autre. Mais enfin je ne vois dans ce
 parti, dans cet État-Major aucun Juif qui ait la taille,
-_ le volume social de Jaurès. 9
+_ le volume social de Jaurès.
 À Ce que nos adversaires par contre ne peuvent pas
 ; savoir, ce que sincèrement ils ne peuvent pas imaginer,
 ce qu'ils ne peuvent pas compter, ce qu'ils ne connais-
@@ -5562,36 +5561,36 @@ qu'ils ne soupçonnent pas, ce qu'ils ne peuvent pas
 . cablement enveloppés dans le désastre de l'affaire: Hi
 : Dreyfus, combien de Juifs ont été les victimes, les
 . réelles victimes, et sont demeurées les victimes de ee
-- l'affaire Dreyfus, de cette trahison, de cette livraison É.
-- de l'affaire Dreyfus. Combien de carrières, combien de 4
-\ - vies juives ont'été irréparablement ruinées, brisées, E.
-cela, nous le savons, combien de misères juives, nous 4
+- l'affaire Dreyfus, de cette trahison, de cette livraison
+- de l'affaire Dreyfus. Combien de carrières, combien de
+\ - vies juives ont'été irréparablement ruinées, brisées,
+cela, nous le savons, combien de misères juives, nous
 3 le savons, nous qui étions de ce côté-ci de la bataille EE.
 et pour le savoir il fallait être de ce côté-ci de la +
-2 bataille; combien en sont restés marqués de misère 3
+2 bataille; combien en sont restés marqués de misère
 pour leur vie entière; sans recompter celui qui est À
-mort, sans compter ceux qui sont morts, comme des E:
+mort, sans compter ceux qui sont morts, comme des
 nôtres. Car enfin c'est une prétention qui fait sourire, Hs
 que cette prétention des antisémites, que tous les Juifs %
-sont riches. Je ne sais pas où ils le prennent, comment e
-E ils font leur compte. Ou plutôt je le sais trop, quand 4
-ils sont sincères. Mettons que je le sais bien. L'expli- É
-: cation est bien simple. C'est que dans le monde É
-moderne, comme je l'ai indiqué si souvent dans ces 4
+sont riches. Je ne sais pas où ils le prennent, comment
+E ils font leur compte. Ou plutôt je le sais trop, quand
+ils sont sincères. Mettons que je le sais bien. L'expli-
+: cation est bien simple. C'est que dans le monde
+moderne, comme je l'ai indiqué si souvent dans ces
 cahiers mêmes, nul pouvoir n'existe, n'est, ne compte Re
-auprès du pouvoir de largent, nulle distinction n'existe, 4
+auprès du pouvoir de largent, nulle distinction n'existe,
 à n'est, ne compte auprès de l'abîime qu'il y a entre les
-riches et les pauvres, et ces deux classes, malgré les L
+riches et les pauvres, et ces deux classes, malgré les
 apparences, et malgré tout le jargon politique et les +
-grands mots de solidarité, s'ignorent comme à beau- 3:
+grands mots de solidarité, s'ignorent comme à beau-
 coup près elles ne se sont jamais ignorées. Infiniment _Æ
-” autrement, infiniment plus elles s'ignorent et se mécon- ; 4
-naissent. Sous les apparences du jargon politique 4
+” autrement, infiniment plus elles s'ignorent et se mécon-
+naissent. Sous les apparences du jargon politique
 parlementaire il y a un abîme entre elles, un abîme ‘4
-d'ignorance et de méconnaissance, de l'une à l'autre, b.
-ST un abime de non communication. Le dernier des serfs 4
-était de la même chrétienté que le roi. Aujourd'hui il 54
-178 0
+d'ignorance et de méconnaissance, de l'une à l'autre,
+ST un abime de non communication. Le dernier des serfs
+était de la même chrétienté que le roi. Aujourd'hui il
+178
 
 ; How a plus aucune cité. Le monde riche et le monde
 
@@ -5607,26 +5606,26 @@ Es font des affaires ne connaissent et haïssent que les
 F2 juifs qui font des affaires. Nous qui sommes pauvres,
 
 E comme par hasard nous connaissons un très grand
-s nombre de juifs pauvres, et même misérables. Dans 5
+s nombre de juifs pauvres, et même misérables. Dans
 CA . cette région des juifs pauvres l'affaire Dreyfus, la tra- =
 Er hison politique et politicienne, la trahison parlemen- ?
 _ - taire, la banqueroute frauduleuse de l'affaire Dreyfus
 
 Ê et du dreyfusisme a causé des ravages effroyables et
 
-"el qui ne seront jamais réparés. Ravages d'argent, de e
+"el qui ne seront jamais réparés. Ravages d'argent, de
 Ée: travail, de situations, de carrière, — de santé, — mais
 be: aussi ravages de cœur, désabusement qui est venu se
 É- -oindre à l'éternel désabusement de la race.
 Ê Ils sont comme nous, ils sont parmi nous, ils sont nos
-3 amis, ils ont été éprouvés, ils ont souffert, ils ont été ï
+3 amis, ils ont été éprouvés, ils ont souffert, ils ont été
 L- maltraités autant que nous, plus que nous. Car ils s'en
 
 > relèvent plus malaisément encore. ;
 | Comme nous ils sont des demi-soldes, ils sont et
 4 ils seront toute leur vie dans cette situation ingrate
 à de demi-soldes qui n'auraient point fait de grandes
-55 Ce qu'il faut dire, c'est qu'un État-Major de juifs et de
+Ce qu'il faut dire, c'est qu'un État-Major de juifs et de
 > chrétiens a trahi des troupes excellentes de juifsetde
 
 chrétiens. Et ce qu'il faut dire aussi, c'est que c'est toujours comme ça.
@@ -5650,33 +5649,33 @@ veux dire, c'est que sous Bernard-Lazare elles ne pas-
 ! a l'appui de 166 députés de l'opposition et de quelques
 - Dans le Matin du dimanche 12 juin 1910,carilyena
 
-| presque tous les jours : Les droits électoraux de la 3
+| presque tous les jours : Les droits électoraux de la
 % _ Dépêche particulière du « Matin ». — La Douma a voté e à
 3 aujourd'hui une loi créant des zemstvos électifs dans #
 six provinces du sud-ouest et assurant aux paysans un A ES
-À minimum du tiers des conseillers et aux propriétaires 51
-£ polonais un maximum qui est également fixé à un tiers. 5 É
-: Les Polonais sont éligibles comme membres des comités ; É
-| exécutifs et reconnus qualifiés pour servir comme Z
+À minimum du tiers des conseillers et aux propriétaires
+£ polonais un maximum qui est également fixé à un tiers.
+: Les Polonais sont éligibles comme membres des comités
+| exécutifs et reconnus qualifiés pour servir comme
 : employés des zsemstvos. Les juifs, par contre, (c'est :
 | moi qui souligne), les juifs par contre sont entièrement RAR
 
-exclus, sauf comme employés. ; 5
+exclus, sauf comme employés.
 
 À Le projet présenté par le gouvernement privait les *
-_ Polonais de la majeure partie de ces droits: mais g.
-ê l'opposition, soutenue par les octobristes, a imposé ces 3
-3 Dans le Matin du lundi 13 juin 1910 : Six mille k
-k. israélites sont expulsés de Kieff. — Saint-Pétersbourg, ; É
-< _ 12 juin. — D'après la Rietch, près de six mille israé- 1
-4 - lites ont été expulsés de Kieff. La plupart sont de f 7
+_ Polonais de la majeure partie de ces droits: mais
+ê l'opposition, soutenue par les octobristes, a imposé ces
+Dans le Matin du lundi 13 juin 1910 : Six mille
+k. israélites sont expulsés de Kieff. — Saint-Pétersbourg,
+< _ 12 juin. — D'après la Rietch, près de six mille israé-
+4 - lites ont été expulsés de Kieff. La plupart sont de
 pauvres gens. Beaucoup d'entre eux, sans foyer et dans Le
-_ la plus grande misère, errent aux environs de la ville. F.
+_ la plus grande misère, errent aux environs de la ville.
 % 5 Un fait à peine croyable est que leur expulsion a eu “6 :
-- lieu en vertu de la circulaire de 1906 de M. Stolypine, 4
+- lieu en vertu de la circulaire de 1906 de M. Stolypine,
 circulaire qui accordait à tous les israélites alors à RAR
-. Kieff sans droit légal de résidence la permission d'y : es 4
-he rester. Tous les israélites pouvant prouver qu'en 1906 3
+. Kieff sans droit légal de résidence la permission d'y : es
+he rester. Tous les israélites pouvant prouver qu'en 1906
 ils résidaient légalement à Kieff sont laissés tranquilles; S- à
 : | mais ceux au contraire qui s'y trouvaient alors illéga- k $
 
@@ -5741,7 +5740,7 @@ ladie naturelle. Deuxièmement cette maladie naturelle
 } coup plus universelle.
 
 s Nul n'en profite et tout le monde en souffre. Tout
-4 183
+4
 
 le monde en est atteint. Les modernes mêmes en
 ‘souffrent. Ceux qui s'en vantent, qui s'en glorifient, qui
@@ -5766,7 +5765,7 @@ sa mortelle inquiétude, son inquiétude incurable à la
 -  tude propre, à l'antique, à l'éternelle inquiétude.
 Il a ajouté l'inquiétude universelle à l'inquiétude
 é Ainsi ils cumulent. Ils sont à l'intersection. Ils se
-184 4
+184
 
 “à | recoupent sur eux-mêmes. Ils recoupent l'inquiétude
 _ juive, qui est leur, par l'inquiétude moderne, qui est
@@ -5775,7 +5774,7 @@ cette intersection, l'inquiétude verticale et l'inquiétude
 _ horizontale; l'inquiétude descendante verticale et l'in-
 Éi- quiétude étale horizontale; l'inquiétude verticale de la
 E race, l'inquiétude horizontale de l'âge, du temps.
-13 Dans cette âpre, dans cette mortelle concurrence du PA
+Dans cette âpre, dans cette mortelle concurrence du PA
 4 monde moderne, dans cette compromission, dans cette
 E. compétition perpétuelle ils sont plus chargés que nous.
 E. Ils cumulent. Ils sont doublement chargés. Ils cumulent
@@ -5793,7 +5792,7 @@ E _ rieurs; et pour prendre tout de suite un exemple écla- :
 É: seurs juifs notamment de philosophie), le mutuel appui
 - qu'ils se prêtent est amplement compensé, plus que comE- pensé par cette effrayante, par cette croissante poussée
 224 de l'antisémitisme qu'ils reçoivent tous ensemble. Qu'ils
-KE: * à: ont constamment à repousser, à réfuter, à rétorquer tous È
+KE: * à: ont constamment à repousser, à réfuter, à rétorquer tous
 
 . ensemble. Combien n'ai-je point connu de carrières de
 . juifs, de pauvres gens, fonctionnaires, professeurs, qui
@@ -5809,7 +5808,7 @@ mécanisme, qu'ils partagent avec nous, fraternellement,
 une misère double, une double infortune inexpiable.
 Dans cette course du monde moderne ils sont comme
 nous, plus que nous ils scnt lourdement, doublement
-Les antisémites parlent des Juifs. Je préviens que je d
+Les antisémites parlent des Juifs. Je préviens que je
 vais dire une énormité : Les antisémites ne con-
 $ naissent point les Juifs. Ils en parlent, mais ils ne les
 : mais ils ne les connaissent point. Les antisémites riches
@@ -5821,7 +5820,7 @@ des Juifs pauvres et des Juifs misérables. Il y en a. Il
 £ y en a tant que l'on n'en sait pas le nombre. J'en vois
 
 F Il ne sera pas dit qu'un chrétien n'aura pas porté
-3 témoignage pour eux. Il ne sera pas dit que je n'aurai ë
+3 témoignage pour eux. Il ne sera pas dit que je n'aurai
 f pas témoigné pour eux. Comme il ne sera pas dit qu'un
 # chrétien ne témoignera pas pour Bernard-Lazare.
 ! Depuis vingt ans je les ai éprouvés, nous nous sommes
@@ -5842,7 +5841,7 @@ absolue si je puis dire que la séparation verticale de
 Ë si totale, si effrayante, si impie ensemble sur les uns et
 ï sur les autres, contre les uns et contre les autres.
 
-2 Dans le monde moderne les connaissances ne se font,
+Dans le monde moderne les connaissances ne se font,
 1 ne se propagent que horizontalement, parmi les riches
 
 entre eux, ou parmi les pauvres entre eux. Par couches
@@ -5865,7 +5864,7 @@ RSS temporel du monde moderne je les vois comme nous,
 nous. Dans les maladies, dans les fatigues, dans la :
 neurasthénie, dans tous les surmenages, dans cet enfer
 ÿ temporel j'en connais des centaines, j'en vois des ;
-2 milliers qui aussi difficilement, plus difficilement, plus ÿ
+2 milliers qui aussi difficilement, plus difficilement, plus
 
 _  misérablement que nous gagnent péniblement leur
 
@@ -5932,7 +5931,7 @@ Est-ce qu'il y a une finance qui est française.
 n'existent pas. Mais cela, c'est une autre question.
 
 Que n'aurait-on pas dit s'il avait été Juif. Is sont
-190 3
+190
 
 ne victimes d'une illusion d'optique très fréquente, très
 connue dans les autres ordres, dans l'ordre de l'optique
@@ -6005,15 +6004,15 @@ he dire, précisément, si un Juif avait été lâche le ving- à
 
 ee tième de ce que Jaurès l'a été, si un Juif avait dit À
 
-‘2 contre la patrie, française, avait prononcé, contre 7
+‘2 contre la patrie, française, avait prononcé, contre
 
 À notre patrie, le vingtième des monstruosités que notre
 
-£- compatriote Hervé a si superbement sorties, qu'est-ce Ë
+£- compatriote Hervé a si superbement sorties, qu'est-ce
 
-; qu'on aurait dit. Et pareillement qu'est-ce que l'on 4
+; qu'on aurait dit. Et pareillement qu'est-ce que l'on
 
-ne dirait si Thalamas était juif. j 4
+ne dirait si Thalamas était juif.
 
 = Pour prendre un exemple d'épisode, tout petit, mais . :
 
@@ -6025,25 +6024,25 @@ k térisé, d'autant mieux (dé)limité, d'autant plus aisé, À
 
 _ été M. Bctaille qui eût été Juif et madame Bernhardt à
 
-EE qui ne l'eût pas été. 3
+EE qui ne l'eût pas été.
 
 RD Dans l'affaire Dreyfus même, sans yrevenir, ou plutôt $
 
-Es sans y entrer, dans l'État-Major même du dreyfusisme k
+Es sans y entrer, dans l'État-Major même du dreyfusisme
 
-& et de l'affaire Dreyfus il est fort notable que ce sont les 3
+& et de l'affaire Dreyfus il est fort notable que ce sont les
 
 =: Juifs, les grands Juifs qui ont encore le moins faibli. %
 
-5 L'exemple de M. Joseph Reinach est caractéristique. Je
+L'exemple de M. Joseph Reinach est caractéristique. Je
 
-3 On peut dire que dans l'affaire Dreyfus, dans l'Etat- fe
+On peut dire que dans l'affaire Dreyfus, dans l'Etat- fe
 
-__ Major de l'affaire Dreyfus et du parti dreyfusiste il É
+__ Major de l'affaire Dreyfus et du parti dreyfusiste il
 
-ë rs représentait en un certain sens, et même pour ainsi dire N
+ë rs représentait en un certain sens, et même pour ainsi dire
 
-£ ofBciellement, ce que l'on a nommé le parti juif. Dans Ë
+£ ofBciellement, ce que l'on a nommé le parti juif. Dans
 le parti politique dreyfusiste il représentait pour ainsi
 : dire le parti politique juif. Seul en outre il était d'un
 volume politique et social, d'un ordre de grandeur au
@@ -6104,48 +6103,48 @@ peu gênés, comine d'une découverte, toujours nouvelle,
 et comme si on nous ouvrait des horizons nouveaux,
 comme si on nous avait fait entrer dans une famille
 
-sans bien nous demander notre avis, un peu inconsidé- ; 4
-- rément, un peu indiscrètement, tant nous avons pris 2
+sans bien nous demander notre avis, un peu inconsidé-
+- rément, un peu indiscrètement, tant nous avons pris
 l'habitude de ne vouloir connaître en Dreyfus que *
-.. l'homme public, de ne vouloir le traiter qu'en homme É
-SEE public, durement comme un homme public. Laïssant de F
+.. l'homme public, de ne vouloir le traiter qu'en homme
+SEE public, durement comme un homme public. Laïssant de
 côté, non seulement devant une réalité, mais devant
 une aussi saisissante, aussi tragique, aussi poignante
 réalité laissant de côté tout l'appareïl des méthodes
 de côté tout l'appareil des métaphysiques métahistoriques notre vieux maître, assis, disait, avec des larmes
 intérieures : On dirait qu'il y a une fatalité. On dirait
 que c'est un homme qui est marqué d'une fatalité. Il ne
-sort point constamment du malheur. Je viens de le : 3e
-quitter encore. (Et il nous contait cette dernière ÿ
+sort point constamment du malheur. Je viens de le
+quitter encore. (Et il nous contait cette dernière
 entrevue, ce dernier deuil, cette sorte d'embrassement,
 ce deuil familial, privé). Je l'ai ou, nous disait-il, ce EST
-- héros, ce grand stoïcien, cette sorte d'âme antique. 3
+- héros, ce grand stoïcien, cette sorte d'âme antique.
 (C'est ainsi qu'il parle de Dreyfus, une âme inflexible, +
-un héros, douloureux, mais antique). Je viens de le voir. 3
-Cet homme héroïque, cette âme stoïque, ce stoïcien que 4
-J'ai ou impassible et ne jamais pleurer dans les plus 3
+un héros, douloureux, mais antique). Je viens de le voir.
+Cet homme héroïque, cette âme stoïque, ce stoïcien que
+J'ai ou impassible et ne jamais pleurer dans les plus
 grandes épreuves. Je viens de le voir. Il était courbé, il :
 : pleurait sur cette mort. Il me disait : « Je crois qu'ily
 a une fatalité sur moi. Toutes les fois que nous nous $
 | 1 attachons à quelqu'un, que nous voyons un peu de
-+ bonheur, que nous pourrions un peu commencer d'étre 4
-heureux, ils meurent. » Nous étions saisis, dans cette 1
-petite boutique, de cette révélation soudaine. Quand F
-nous pourrions un peu commencer d'être heureux, É
-> n'était-ce point le mot même, le cri d'Israël, plus qu'un É
++ bonheur, que nous pourrions un peu commencer d'étre
+heureux, ils meurent. » Nous étions saisis, dans cette
+petite boutique, de cette révélation soudaine. Quand
+nous pourrions un peu commencer d'être heureux,
+> n'était-ce point le mot même, le cri d'Israël, plus qu'un
 symbole, la destination même d'Israël. Et en outre nous
 
 E. x voyions passer, venant d'un historien, passant par :
 Dre: dessus un historien, par dessus les épaules d'un histo3 … rien, rompant toutes les méthodes, rompant toutes les |
 _  métaphysiques positivistes, rompant toutes les disci-
-à & plines modernes, rompant toutes les histoires et toutes É
+à & plines modernes, rompant toutes les histoires et toutes
 À _ les sociologies nous voyions passer les au delà de
 J l'histoire. L'arrière-pensée, l'arrière-intention, la mysté- :
 3 ? rieuse arrière-inquiétude, arrière-pensée de tant de
-4 peuples, des peuples antiques nous était ramenée, la = j
+4 peuples, des peuples antiques nous était ramenée, la =
 "4 même, intacte, intégrale, toute neuve, nous était recon- >
 4 duite entière par le plus vieux maître vivant de nos
-4 _ historiens modernes, par le plus respecté, par le plus Ë
+4 _ historiens modernes, par le plus respecté, par le plus
 E considéré. Et c'était toujours l'histoire, plus que lhis- À
 <a toire, la destination du peuple d'Israël. L'émation des ;
 _ autres était décuplée pour moi par cette sorte d'affec-
@@ -6153,15 +6152,15 @@ _ autres était décuplée pour moi par cette sorte d'affec-
 # depuis mes années de normalien j'ai toujours gardée ;
 E- pour notre vieux maître. Affection, piété un peu rude,
 . = on la vu. Mais d'autant plus secrètement profonde.
-4 D'autant plus filiale, d'autant plus comme personnelle, =
+D'autant plus filiale, d'autant plus comme personnelle, =
 n. _ d'autant plus jalousement gardée. Je me sentais dans
-4 son affection un peu frère en pensée de Dreyfus, frère 6
-4 en affection, et cela me gênait beaucoup. Nous étions È
+4 son affection un peu frère en pensée de Dreyfus, frère
+4 en affection, et cela me gênait beaucoup. Nous étions
 1 là. Nous étions des hommes. Le même souflle nous
 à courbaït, qui courba les peuples antiques. Le même |
 E problème nous soulevait, qui souleva les peuples RTE
 . antiques. Ce problème, cet arxieux problème de la
-: E: fatalité, qui se pose pour tout peuple, pour tout homme ; ÿ
+: E: fatalité, qui se pose pour tout peuple, pour tout homme
 à non livresque. Et associant dans sa pensée, dans sa ;
 =. parole, sans même s'en apercevoir, tant c'était naturel, ;
 “Fe tant on voyait que c'était l'habitude, son habitude, *
@@ -6200,7 +6199,7 @@ lui. Glorieux malgré lui il a trahi sa gloire. Là est la
 était devenu capitaine, parce qu'il était entré dans les |
 
 ; capitaines, parce qu'il était entré dans les bureaux de
-4 VÉtat-Major cet homme fut contraint de revêtir une
+VÉtat-Major cet homme fut contraint de revêtir une
 charge, une gloire inattendue, une charge, une gloire
 inexpiable. Mystérieuse destination du peuple d'Israël.
 Tant d'autres, qui voudraient la gloire, sont forcés de
@@ -6235,8 +6234,8 @@ niveau des vies héroïques, c'est le niveau des vies de
 1 de ce triple sacre, de cette triple magistrature. Et ce
 
 “plus tragique, c'est qu'à moins d'entrer dans son crime :
-et sous peine de participer de son indignité, de cette 1
-. . indignité même nous ne pouvons pas ne pas lui en 1
+et sous peine de participer de son indignité, de cette
+. . indignité même nous ne pouvons pas ne pas lui en
 as demander compte. Quiconque a eu le monde en main,
 est responsable du monde. Nous ne pouvons pas entrer
 4 dans son jeu. Nous n'avons pas le droit d'entrer dans
@@ -6249,20 +6248,20 @@ pour lui, la touchante, la paternelle affection de ce vieil
 : homme pour lui; de ce vieil homme que lui-même nous |
 respectons tant, que nous aimons tant. Nous devons :
 tout oublier et nous ne pouvons que lui demander
-compte. Compte de cette immense bataille qu'il a perdue. Il s'est trouvé engagé sans le vouloir général en É
-chef, plus que cela, drapeau d'une immense armée 1
-dans une immense bataille contre une immense armée. 5
-Et il a perdu cette immense bataille. Et nous ne pouvons F.
-lui parler que de cela. Nous n'avons le droit que de lui e
-3 parler de cela. Nous n'avons le droit d'engager, d'ac- a 4
-cepter de lui, avec lui nulle autre conversation, aucun Ù
+compte. Compte de cette immense bataille qu'il a perdue. Il s'est trouvé engagé sans le vouloir général en
+chef, plus que cela, drapeau d'une immense armée
+dans une immense bataille contre une immense armée.
+Et il a perdu cette immense bataille. Et nous ne pouvons
+lui parler que de cela. Nous n'avons le droit que de lui
+3 parler de cela. Nous n'avons le droit d'engager, d'ac- a
+cepter de lui, avec lui nulle autre conversation, aucun
 : Nous devons taire, nous devons faire taire tous nos %
-autres sentiments. Il a été constitué un homme public. Il ë
-a été constitué un homme de gloire, d'un retentissement 1
-universel. Nous ne pouvons que lui demander compte É
+autres sentiments. Il a été constitué un homme public. Il
+a été constitué un homme de gloire, d'un retentissement
+universel. Nous ne pouvons que lui demander compte
 de son action publique, de ses sentiments publics, de ce
 = désastre public. Celui qui perd une bataille, en est ;
-responsable. Et il a perdu cette immense bataille. Nous É
+responsable. Et il a perdu cette immense bataille. Nous
 
 er pouvons que lui demander compte de tout ce qui
 
@@ -6286,7 +6285,7 @@ malgré lui homme de gloire. Tant d'autres ont voulu la
 
 4 refoulés par l'événement. Et lui il a eu tout cela. Il a eu
 
-: tout malgré lui. Il a eu tout ce qu'il ne voulait pas. Mais 4
+: tout malgré lui. Il a eu tout ce qu'il ne voulait pas. Mais
 ; il faut que celui qui est investi marche. i |
 à Tant d'hommes, des milliers et des milliers d'hommes, À
 
@@ -6301,9 +6300,9 @@ publique, devenir, se faire des hommes publics; et ils y £
 
 4 d'être immortels, temporellement immortels dans la
 
-F mémoire des hommes. Et ils y ont mis le prix. Ils y ont e
+F mémoire des hommes. Et ils y ont mis le prix. Ils y ont
 à mis le génie, l'héroïsme, des efforts sans nombre, des
-É efforts incroyables, des efforts effrayants; des souf- J
+É efforts incroyables, des efforts effrayants; des souf-
 À frances effrayantes; des vies entières, et quelles vies, de
 
 “4 véritables martyres, Et rien, jamais rien. Et lui, sans :
@@ -6391,11 +6390,11 @@ mars 1871 elle n'eût fait que commencer. Une grande
 3 un très profond besoïn de gloire, de guerre, d'histoire
 É qui à un moment donné saisit tout un peuple, toute une
 race, et lui fait faire une explosion, une éruption. Un !
-mystérieux besoin d'une inscription. Historique. Un d
-5 mystérieux besoin d'une sorte de fécondité historique. î
+mystérieux besoin d'une inscription. Historique. Un
+5 mystérieux besoin d'une sorte de fécondité historique.
 À Un mystérieux besoin d'inscrire une grande histoire
 : dans l'histoire éternelle. Toute autre explication est ;
-vaine, raisonnable, rationnelle, inféconde, irréelle. De k
+vaine, raisonnable, rationnelle, inféconde, irréelle. De
 même notre affaire Dreyfus ne peut s'expliquer que
 par un besoin, le même, par un besoin d'héroïsme qui
 saisit toute une génération, la nôtre, par un besoïn de
@@ -6404,21 +6403,21 @@ guerre, de guerre militaire, et de gloire militaire, par me
 Ris un besoin de sacrifice et jusque de martyre, peut-être,
 (sans doute), par un besoin de sainteté. Ce que nos :
 _ _ adversaires n'ont pu voir que en face, de l'autre côté,
-3 de face, ce qu'ils n'ont pu recevoir que en creux, ce que 3
+3 de face, ce qu'ils n'ont pu recevoir que en creux, ce que
 __ nos chefs mêmes ont toujours ignoré, c'est à quel point à
-nous marchâmes comme une armée, militaire. Comment L
-tant d'espérance, tant d'entreprise a été brisée sans É
+nous marchâmes comme une armée, militaire. Comment
+tant d'espérance, tant d'entreprise a été brisée sans
 obtenir, sans effectuer une inscription historique, c'est
-précisément ce que j'ai essayé non pas seulement 3
-d'expliquer, mais de représenter à nos amis et à nos 3
+précisément ce que j'ai essayé non pas seulement
+d'expliquer, mais de représenter à nos amis et à nos
 _ abonnés dans un cahier de l'année dernière sensiblement :
-; à la même date. Que si nous avons été, une fois de g.
+; à la même date. Que si nous avons été, une fois de
 3 plus, une armée de lions conduite par des ânes, c'est >
-alors que nous sommes demeurés, très exactement, ï
-dans la plus pure tradition française. Ë
+alors que nous sommes demeurés, très exactement,
+dans la plus pure tradition française.
 + Nous avons été grands. Nous avons été très grands.
-4 Aujourd'hui ceux dont je parle, nous sommes des gens |
-€ qui gagnons pauvrement, misérablement, miséreusement ; l
+Aujourd'hui ceux dont je parle, nous sommes des gens |
+€ qui gagnons pauvrement, misérablement, miséreusement
 notre vie. Mais ce que je ne vois pas, ce soit que les ;
 Juifs pauvres, ici encore, se séparent de nous, qu'ils $
 gagnent leur vie en un tour de main, qu'ils n'aient point ;
@@ -6429,7 +6428,7 @@ gagnent leur vie en un tour de main, qu'ils n'aient point ;
 4 ë trahissent, en revanche ils se heurtent à un antisémitisme
 - aujourd'hui revenu, aujourd'hui croissant. Ce que je
 
-: 4 vois, c'est que juifs et chrétiens ensemble, juifs pauvres L
+: 4 vois, c'est que juifs et chrétiens ensemble, juifs pauvres
 
 à et chrétiens pauvres, nous gagnons notre vie comme .
 |. nous pouvons, généralement mal, dans cette chienne
@@ -6450,7 +6449,7 @@ assez mesurée à notre effort, à notre intention, à ce |
 
 que nous fûmes en réalité, alors nous saurions la payer ;
 
-le prix, alors nous aurions mauvaise grâce à insister F
+le prix, alors nous aurions mauvaise grâce à insister
 
 sur la considération qui nous est due. Nous sommes si ;
 attachés, nous mettons un tel prix à l'enregistrement
@@ -6468,7 +6467,7 @@ faut qu'il soit bien entendu pour nous et entre nous
 
 que nous savons que nous fûmes très grands. Nous pou-
 
-2 2
+2
 
 4 vons ne pas le dire aux autres, nous savons que les
 
@@ -6511,7 +6510,7 @@ d'ordre nous étions venus introduire un désordre.
 
 FA voir qu'il y a des ordres apparents qui recouvrent, qui
 
-Ë | sont les pires désordres. Nous retrouvons ici ce que ë
+Ë | sont les pires désordres. Nous retrouvons ici ce que
 
 Fe nous avons dit de l'égoïsme des riches dans le monde
 
@@ -6536,7 +6535,7 @@ En réalité la véritable situation des gens que nous
 ; et de dire qu'innocent ou coupable on ne troublait pas,
 on ne bouleversait pas, on ne compromettait pas, on ne
 risquait pas pour un homme, pour un seul homme, la
-vie et le salut d'un peuple, l'énorme salut de tout un É
+vie et le salut d'un peuple, l'énorme salut de tout un
 ; peuple. On sous-entendait : le salut temporel. Et préci-
 ; sément notre mystique chrétienne culminait si parfaite-
 ; ment, si exactement avec notre mystique française,
@@ -6552,14 +6551,14 @@ sagesse humaine, la loi humaine. Ce que nous faisions
 ont tant de ressemblances, tant de secrets accords, pour
 la sagesse humaine, pour un regard humain. Nous $
 allions, nous étions contre la sagesse, contre la loi.
-Fs Contre la sagesse humaine, contre la loi humaine. Voici » ce que je veux dire. Qu'est-ce que nous disions en effet. 3
+Fs Contre la sagesse humaine, contre la loi humaine. Voici » ce que je veux dire. Qu'est-ce que nous disions en effet.
 j Les autres disaient : Un peuple, tout un peuple est un
 : énorme assemblage des intérêts, des droits ies plus Re
 * légitimes. Les plus sacrés. Des milliers, des millions de
 ‘4 vies en dépendent, dans le présent, dans le passé, (dans
 le futur), des milliers, des millions, des centaines de
 È millions de vies le constituent, dans le présent, dans le
-1 passé, (dans le futur), (des millions de mémoires), et L
+1 passé, (dans le futur), (des millions de mémoires), et
 Ë par le jeu de l'histoire, par le dépôt de l'histoire la
 - garde d'intérêts incalculables. De droits légitimes,
 # sacrés, incalculables. Tout un peuple d'hommes, tout |
@@ -6570,11 +6569,11 @@ peuple d'intérêts, légitimes; tout un peuple de vies;
 passé, tout le futur, toute la promesse d'un peuple et
 ; _ d'unerace; tout ce qui est inestimable, incalculable, d'un
 4 prix infini, parce que ça ne se fait qu'une fois, parce
-- que ça ne s'obtient qu'une fois, parce que ça ne 8e
+- que ça ne s'obtient qu'une fois, parce que ça ne
 $ : recommencera jamais; parce que c'est une réussite,
 
 unique; un peuple, et notamment, nommément ce
-peuple-ci, qui est d'un prix unique; ce vieux peuple; 3
+peuple-ci, qui est d'un prix unique; ce vieux peuple;
 : un peuple n'a pas le droit, et le premier devoir, le
 > - devoir étroit d'un peuple est de ne pas exposer tout
 Fe cela, de ne pas s'exposer pour un homme, quel qu'il
@@ -6597,8 +6596,8 @@ pacte social, tout le contrat social, une seule forfaiture,
 ._ corrompt tout le corps. Ce que nous défendons, ce n'est
 5 pas seulement notre honneur. Ce n'est pas seulement
 l'honneur de tout notre peuple, dans le présent, c'est
-l'honneur historique de notre peuple, tout l'honneur 3
-historique de toute notre racé, l'honneur de nos aïeux, 6
+l'honneur historique de notre peuple, tout l'honneur
+historique de toute notre racé, l'honneur de nos aïeux,
 : l'honneur de nos enfants. Et plus nous avons de passé, $
 
 à à _ plus nous avons de mémoire, (plus ainsi, comme vous
@@ -6681,7 +6680,7 @@ fortuitement passait par Paris. Un ami qui était chrétien. |
 — Je ne connais pas cette affaire, me dit-il. Je vis dansle _
 
 fond de ma province. J'ai assez de mal à gagner ma
-vie. Je ne connais rien de cette affaire. Je ne soupçon- 4
+vie. Je ne connais rien de cette affaire. Je ne soupçon-
 
 4  nais pas l'état où je trouve Paris. Mais enfin on ne peut
 à. RE pas sacrifier tout un peuple pour un homme. Je n'eus :
@@ -6730,7 +6729,7 @@ peuvent tenir aucun propos que dans le langage poli-
 tique, parlementaire, ils ne peuvent engager, soutenir
 
 aucune action que sur le terrain, sur le plan politique,
-parlementaire. Et surtout, et en outre, et naturellement È
+parlementaire. Et surtout, et en outre, et naturellement
 
 ils veulent que nous en fassions autant. Que nous soyons
 
@@ -6755,7 +6754,7 @@ qui les suivent, de ceux qui en sont, dans les imagi- |
 
 nations de ceux qui les suivent. Tout ce que nous
 $ disons, tout ce que nous faisons, ils le traduisent, ils le +
-214 4
+214
 
 : trahissent. 7Traducunt. Tradunt. On ne sait jamais s'ils
 à vous font plus de tort, s'ils vous dénaturent plus quand
@@ -6774,7 +6773,7 @@ un tort mortel. Quand ils sont pour vous, et qu'ils
 croient que vous êtes pour eux, ils vous accaparent et
 ; vous font certainement un tort mortel. Ils veulent alors
 _ vous endosser, et qu'on les endosse. Ils vous protègent.
-Quand ils vous combattent, ils combattent vos mys- É
+Quand ils vous combattent, ils combattent vos mys-
 tiques par des bassesses politiques, par de basses
 politiques. Quand ils vous soutiennent ils traduisent,
 ce qui est infiniment pire, ils traduisent vos mystiques
@@ -6801,7 +6800,7 @@ vous, c'est partant de cela qu'ils veulent vous lier à
 leurs politiques, vous interdire les autres mystiques.
 ; Parce que depuis la dégradation de la mystique
 : dreyfusiste en politique dreyfusiste, remontant tous les
-4 courants de toutes les puissances, remontant des 4
+4 courants de toutes les puissances, remontant des
 épaules toutes les puissances de tyrannie, toutes les
 démagogies de tous nos amis (politiques), nous avons
 risqué, nous avons éprouvé quinze ans de misère pour
@@ -6817,11 +6816,11 @@ pour nous récompenser les politiques, les politiciens .
 | républicains nous interdiraient volontiers d'être chré- |
 Er $ tiens. Ainsi la République serait le régime de la liberté dre
 LEE de conscience pour tout le monde, excepté précisément :
-Fe pour nous, précisément pour nous récompenser de ce 33
+Fe pour nous, précisément pour nous récompenser de ce
 ns que nous l'avons quinze ans défendue, de ce que nous la |
 ae défendons, de ce que nous la défendrons encore. Pour
 FRE nous récompenser d'avoir mis quinze ans de misère au ;
-Érs service de la République, d'avoir défendu, d'avoir i
+Érs service de la République, d'avoir défendu, d'avoir
 Ke. sauvé un régime qui est le régime de la liberté de #
 FE conscience, on accorderait la liberté de conscience à
 Le tout le monde, excepté seulement à nous. Nous nous
@@ -6831,14 +6830,14 @@ Re vivons pas, nous ne nous mouvons pas sur le même es
 - douloureux débats que nous avons, que nous soute- £
 MA nons parfois n'ont rien de commun avec leurs faciles,  -
 Fi Le avec leurs superficielles polémiques. :
-2 La République serait le régime de la liberté de Se
+La République serait le régime de la liberté de Se
 Ê . conscience pour tout le monde, excepté précisément |
 Re pour les républicains. OURS
 FER Ze Nous demanderons à ces messieurs la permission See
 Ls + _de nous passer de leur permission. Nos cahiers sont :
 : devenus, non point par le hasard, mais ils se sont
 . ne constitués par une lente élaboration, par de puissantes, ;
-- par de secrètes affinités, par une sorte de longue évaLS _ poration de la politique, comme une compagnie parfai- 2
+- par de secrètes affinités, par une sorte de longue évaLS _ poration de la politique, comme une compagnie parfai-
 
 -___ tement libre d'hommes qui tous croient à quelque chose,
 : à commencer par la typographie, qui est un des plus
@@ -6858,7 +6857,7 @@ c'est que politique, quid sit mysticum, et quid politicum,
 la mystique républicaine, c'était quand on mourait pour
 la République, la politique républicaine, c'est à présent
 qu'on en vit. Vous comprenez, n'est-ce pas. £
-Les papiers de M. Milliet que nous publierons donneront immédiatement l'impression d'avoir eux-mêmes 4
+Les papiers de M. Milliet que nous publierons donneront immédiatement l'impression d'avoir eux-mêmes
 été choisis d'un monceau énorme de papiers. On ne
 peut naturellement tout donner. A partir du moment où ;
 M. Milliet m'apporta les premiers paquets de sa copie, À
@@ -6878,17 +6877,17 @@ gomme exprès pour effacer son crayon. Il voulait s'ef_ facer. Je lui dis : Para
 _ textes; il apporte infiniment plus que le meilleur des pa-
 É piers; il est infinimeat plus que le meilleur des papiers ;
 À € il apporte, à infiniment près, le meilleur des témoignages.
-É Vous remarquerez, Variot, vous entendrez le ton de É
+É Vous remarquerez, Variot, vous entendrez le ton de
 ÿ ces mémoires. C'est le ton même du temps. Je ne serais à
-u Pas surpris qu'un imbécile, et qui manquerait du sens s
+u Pas surpris qu'un imbécile, et qui manquerait du sens
 historique trouvât ce ton un peu ridicule. Il est passé. $
 Ces hommes, qui avaient ce ton, ont fait de grandes “
-choses. Et nous ? È
+choses. Et nous ?
 ù Le civisme aussi paraît aujourd'hui ridicule. Civique
 F4 est un adjectif aujourd'hui qui se porte très mal. Il à
 ; __  Sonne en ique. Civique a l'air de rimer avec bourrique à
 CORRE « . et avec atavique. Et même avec ataxique. Que des AR
-ê . vieillards, que des malades, que des mourants se fissent 4
+ê . vieillards, que des malades, que des mourants se fissent
 (trans)porter aux urnes, évidemment ce n'est pas les” *
 : rs _ cuirassiers de Morsbronn. Pourtant tous ceux qui ont |
 5 _ vu Coppée se faire porter mourant à l'Académie pour pes
@@ -6903,18 +6902,18 @@ dignité de tout, c'est d'être aimé. Que tant d'hommes
 <  aïent tant vécu et tant souffert pour la République, Re
 € qu'ils aient tant cru en elle, qu'ils soient tant morts
 3% pour elle, que pour elle ils aient supporté tant d'épreuves, “à
-< souvent extrêmes, voilà ce qui compte, voilà ce qui Æ
-: m'intéresse, voilà ce qui existe. Voilà ce qui fonde, voilà 3
-a - ce qui fait la légitimité d'un régime. Quand je trouve 3
+< souvent extrêmes, voilà ce qui compte, voilà ce qui
+: m'intéresse, voilà ce qui existe. Voilà ce qui fonde, voilà
+a - ce qui fait la légitimité d'un régime. Quand je trouve
 Æ dans l'Action française tant de dérisions et tant de sar- Pa
-# casmes, souvent tant d'injures, j'en suis peiné, car il 4
+# casmes, souvent tant d'injures, j'en suis peiné, car il
 | s'agit d'hommes qui veulent restaurer, restituer les plus +
 Fat anciennes dignités de notre race et on ne fonde, on ne &
-ar refonde aucune culture sur la dérision et la dérision et 7
-es le sarcasme et l'injure sont des barbaries. Ils sont même 4
+ar refonde aucune culture sur la dérision et la dérision et
+es le sarcasme et l'injure sont des barbaries. Ils sont même
 ke __: restaure, on ne restitue rien sur la dérision. Des calem- =
-À bours ne font pas une restitution de culture. J'avoue 3
-; : que je n'arrive point à comprendre tout ce que l'on met, : # 4
+À bours ne font pas une restitution de culture. J'avoue
+; : que je n'arrive point à comprendre tout ce que l'on met, : #
 
 e tout ce qu'il y a évidemment d'esprit dans cette graphie
 ; de Respubliquains que l'on nous répète à satiété. Cela
@@ -6929,7 +6928,7 @@ cet s à Respubliquains on ne fait rien, on ne peut rien
 faire que de lui conférer un peu de la majesté romaine, |
 Je suis plongé en ce moment-ci, pour des raisons parti-
 * culières, dans le de Viris. J'avoue que respublica y est
-: un mot d'une grandeur extraordinaire. D'une amplitude, d'une voûte romaine. Quant au changement de c
+: un mot d'une grandeur extraordinaire. D'une amplitude, d'une voûte romaine. Quant au changement de
 pas plus déshonoran: que le féminin de Turc en 7 urque,
 et de Grec en Grecque, et de sec en sèche .comme la $
 è grammaire (française) nous l'enseigne. On a le féminin
@@ -6944,7 +6943,7 @@ pas comme un mordant prend ou ne prend pas sur un
 : vernis. Ça n'entre pas. Des explications, toute notre
 éducation, toute notre formation intellectuelle, universitaire, scolaire nous a tellement appris à en donner, :
 
-. à en faire, des explications et des explications, que nous 7
+. à en faire, des explications et des explications, que nous
 en sommes saturés. Au besoin nous ferions les siennes.
 : Nous allons au devant des siennes, et c'est précisément
 4 ce qui les émousse pour nous. Nous sortons d'en prendre.
@@ -6971,5 +6970,5 @@ brusquement : Tout cela c'est très bien parce qu'ils ne
 sont qu'une menace imprécise et théorique. Mais le jour , |
 où ils deviendraient une menace réelle ils verraient ce ;
 que nous sommes encore capables de faire pour la :
-République, tout le monde comprit qu'enfin on venait 4
+République, tout le monde comprit qu'enfin on venait
 de dire quelque chose. ;

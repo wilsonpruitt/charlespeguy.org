@@ -48,7 +48,7 @@ Cette ingratitude nous délie du secret professionnel, nous
 donne le droit de nous venger, en vous signalant, que
 parmi vous, vous avez un traître dangereux, qui paraît-il
 a vendu non seulement ses corréligionnaires en Russie,
-mais aussi ceux d'ici, il cherche à prendre tout en mains Æ
+mais aussi ceux d'ici, il cherche à prendre tout en mains
 pour pouvoir mieux vous rouler. C'est dans ce but qu'il
 
 cherche à vous grouper autour de lui, pour mieux profiter
@@ -146,14 +146,14 @@ enthousiastes, devant le prolétariat russe, l'immense impor-
 tance de cet événement historique. Alors se produisit une
 série de coups qui sont terribles venant d'un socialiste,
 même en état de congé. Witte, le principal artisan de la
-réaction en Russie, auteur responsable de tant de massa- j
+réaction en Russie, auteur responsable de tant de massa-
 cres de prolétaires russes, est reçu avec éclat par M. Millerand qui porte des toasts au « grand souverain et à son
 auguste famille » — les bourreaux de notre peuple.
 Pas un membre de cette « auguste famille » ne peut venir
 à Paris sans que M. Millerand n'accoure s'incliner devant
 lui en courtisan consommé. Puis, au moment des récents
 massacres de Pétersbourg, de Moscou et de Kharkoff, lorsque tous en Europe, je ne dis pas socialistes et révolution-
-naires, mais tout simplement honnêtes et progressistes, 4
+naires, mais tout simplement honnêtes et progressistes,
 frémissaient d'indignation contre les procédés barbares du
 gouvernement barbare, lorsque des milliers et des milliers
 de nos eamärades gisaient en prison, lorsqu'on supprimait
@@ -224,7 +224,7 @@ un agent du tsarisme dans sa lutte contre notre parti ? Que a
 l'internationalisme est un vain mot ?
 Nous sommes donc obligés de repousser toute solidarité
 avec le ministre socialiste et, puisque son parti ne veut pas
-rompre avec lui, puisqu'il ne veut pas se séparer de lui, 1
+rompre avec lui, puisqu'il ne veut pas se séparer de lui,
 avec son parti lui-même. Oui, citoyen Jaurès, vous nous
 obligez, par votre tactique, à repousser toute solidarité
 avec votre parti. Ceux qui restent avec Millerand ne quittant pas le ministère, même lorsque celui-ci commet de
@@ -240,7 +240,7 @@ demande, camarades, de la solidarité internationale
 ouvrière ? Le jour où le cas Millerand serait devenu un fait
 général, il faudrait dire adieu à tout internationalisme, et
 devenir les nationalistes que ni vous, ni moi, ne consentirions jamais à être. »
-Aujourd'hui, après tous les faits que je viens de raconter, 2
+Aujourd'hui, après tous les faits que je viens de raconter,
 vous devez convenir que Guesde a vu juste. Vous savez
 que Millerand agit de cette sorte non seulement envers
 nous, mais aussi à l'égard d'autres partis étrangers.
@@ -291,8 +291,8 @@ Abonnements gratuits. — C'est trente et non cinquante francs par mois que les 
 donnaient pour nos abonnements gratuits.
 Vacances. — Définitivement c'est à peu près du .
 samedi 3 août au lundi 16 septembre que nous demandons qu'on nous laisse des vacances devenues indispensables.
-Cependant même alors je serai aux cahiers, réguliè- 4
-rement, le jeudi de deux heures à cinq heures ; F:
+Cependant même alors je serai aux cahiers, réguliè-
+rement, le jeudi de deux heures à cinq heures
 et nous prions nos souscripteurs mensuels de vouloir
 bien nous continuer leurs souscriptions pendant les vacances. Nous prions nos nouveaux souscripteurs men-
 suels de vouloir bien commencer leurs souscriptions

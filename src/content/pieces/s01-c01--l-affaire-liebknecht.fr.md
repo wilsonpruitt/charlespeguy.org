@@ -14,7 +14,7 @@ mouvements des masses, comme une puissance mysté-
 rieuse, humble et superbe, commune et autoritaire, À
 Guesde, que ses adversaires avaient plusieurs fois
 demandé, mais qui s'était gardé jusque là, Guesde parlait pour la première fois. Cheveux et barbe broussailleuse, voix grinçante et malade, regard de croyant, il
-parlait. Jamais homme en cette assemblée houleuse s
+parlait. Jamais homme en cette assemblée houleuse
 n'inspira autant d'amour étroit, ne souleva une aussi
 furieuse réprobation. Maïs la réprobation même, haï-
 neuse et violente de parole et de geste, était respectueuse d'attitude. Guesde le sentait bien et, comme un
@@ -24,7 +24,7 @@ provocations démagogiques. Il en vint à parler de la
 consultation internationale ouverte à la Petite République sur l'affaire Dreyfus et le cas Millerand. Il prononça done les noms de Schoenlank, de Bebel, de
 Liebknecht. Ici une rumeur, et dans la rumeur confuse
 un cri, pas très haut, plutôt une affirmation qu'une
-Je sursautai, tant cela était imprévu. Cette exclamation, prononcée sans éclat, fut instantanément et di- f
+Je sursautai, tant cela était imprévu. Cette exclamation, prononcée sans éclat, fut instantanément et di-
 stinctement entendue dans toute la salle. Immédiatement
 une formidable clameur de réprobation et d'horreur
 éclata, peu à peu polarisée à gauche, où elle se disciplinait sur l'air des Lampions : À la porte! à la porte!
@@ -34,7 +34,7 @@ pris plusieurs fois l'aspect d'une réunion publique, et
 plus d'un sans doute se dit: « Tiens ! il y a un mouchard dans la salle. On va l'expulser. » Puis aussitôt,
 pensant qu'il y avait là des citoyens délégués et non pas
 des citoyens ordinaires, que le mouchard classique
-n'était pas à redouter, « c'est sans doute un pauvre x
+n'était pas à redouter, « c'est sans doute un pauvre
 bougre délégué de la province, ignorant les usages, les
 convenances, le protocole et tous les respects. IL va
 payer cher son ignorance. » J'avais à côté de moi un
@@ -43,16 +43,16 @@ comme on les nomme improprement, ou un ami des
 allemanistes. Les allemanistes ont une facilité admirable à ne pas « faire la foule », à se trouver seuls. Mon
 camarade n'avait pas bougé dans tout ce vacarme:
 — « C'est Joindy qui a crié cela. Laissez-le... Il doit
-savoir ce qu'il dit... Laissez-le s'expliquer... » Je ne le d
-croyais nullement. Je ne croyais pas que ce fût Joindy, È
-homme au courant des convenances. Le tumulte conti- ; Ë
+savoir ce qu'il dit... Laissez-le s'expliquer... » Je ne le
+croyais nullement. Je ne croyais pas que ce fût Joindy,
+homme au courant des convenances. Le tumulte conti-
 nuait, spontané pour beaucoup de croyants, instinctif,
 habituel pour beaucoup d'hommes simples, désiré,
 caressé, commandé par certains tacticiens. Toute la
 gauche debout huait la droite et la rendait responsable.
 Peu à peu le soulèvement gagnait le centre et, par
 
-complaisance, plusieurs délégués de la droite ellemême. — C'était bien Joindy, mon camarade avait c
+complaisance, plusieurs délégués de la droite ellemême. — C'était bien Joindy, mon camarade avait
 
 Joindy à la tribune. Paroles sages. Assemblée frémissante, prête à bondir. Guesde s'était assis, la figure
 bouleversée, immuable d'horreur. Joindy, très digne, en
@@ -108,7 +108,7 @@ adresse de félicitations et de sympathie à la démocratie allemande et en part
 J'ai reçu la proposition suivante du citoyen Delory et de
 plusieurs de ses collègues : « Nous demandons l'expulsion
 
-de l'insulteur de Liebknecht. » (Applaudissements prolongés) k
+de l'insulteur de Liebknecht. » (Applaudissements prolongés)
 — Je pense qu'avant de voter cette proposition, comme vous
 allez être des juges, vous voudrez entendre celui que vous
 Le citoyen Joindy se présente aussitôt à la tribune. Nouveau et
@@ -205,7 +205,7 @@ condamnation du Juif. Je ne veux pas dire par là qu'il n'y
 ait eu de l'autre côté que des gens honorables et propres.
 Quelques-uns sentaient fortement le Panama; et un Tra-
 rieux, persécuteur des socialistes, qui a jeté plus d'une fois
-en prison des travailleurs évidemment innocents, ou un d
+en prison des travailleurs évidemment innocents, ou un
 Galliffet, meurtrier des socialistes, qui, pendant la semaine
 sanglante de mai 1871, souriant, la cigarette aux lèvres,
 faisait abattre à coups de fusil, par douzaines et par centaines, les prolétaires, hommes, femmes et enfants, pour
@@ -215,7 +215,7 @@ vers les Versaillais, héros de l'ordre, — un spectacle qui
 secouàt un peu les nerfs, — ces gens-là ne valent pas mieux,
 assurément, que la compagnie des Henry, Mercier et
 En ce qui concerne ces derniers, je veux tout d'abord relever une circonstance atténuante, que les meneurs de la
-campagne dreyfusiste ont tenue cachée à bon escient; c'est f
+campagne dreyfusiste ont tenue cachée à bon escient; c'est
 que le procès Dreyfus était un procès d'espionnage, et que
 dans les procès d'espionnage les espions ont naturellement
 un rôle éminent, sinon le rôle principal. Mais l'espionnage, ,
@@ -233,7 +233,7 @@ façon générale l'ensemble des gouvernements allemands
 ne font qu'un.
 
 Dans cette stupide injustice il y avait tout un parti pris,
-et ce qui le prouve, c'est que les meneurs de la campagne, j
+et ce qui le prouve, c'est que les meneurs de la campagne,
 comme on l'a déclaré mille fois et cent mille fois donné à ds
 entendre, partaient de cette hypothèse, que l'état-major ,
 français aurait condamné sciemment un innocent. C'est une
@@ -246,7 +246,7 @@ sens. Le mouvement antisémite était très faible en France
 en 1894; ses promoteurs passaient pour des gens ridicules.
 Depuis lors il est devenu plus fort, mais c'est essentiellement par suite de la campagne; aujourd'hui même il s'en
 faut de beaucoup qu'il égale en violence l'antisémitisme
-allemand, quoiqu'il s'étale davantage, à la manière fran- l
+allemand, quoiqu'il s'étale davantage, à la manière fran-
 caise. Personne ne me croira suspect de sympathie pour les
 antisémites; mais quelque haute opinion que j'aie de la
 haïne de MM. Liebermann de Sonnenberg, Bockel, Ahlwardt
@@ -450,8 +450,8 @@ met en marche, un monsieur de haute stature bondit dans
 
 (1) En Allemagne, où l'on mène maintenant une campagne patriotique contre les mots étrangers, d'ailleurs avec peu de goût et de
 connaissance de la langue, le mot de coupé est proscrit et il faut
-dire Abtheil. — W.
-le coupé, et, après un salut rapide, se jette dans le qua- ê
+dire Abtheil.
+le coupé, et, après un salut rapide, se jette dans le qua-
 trième coin. Il est visiblement très agité, ce qui s'explique
 par sa hâte et son arrivée précipitée.
 L'étranger ne dit mot, et tint sa casquette à demi baissée
@@ -756,7 +756,7 @@ a beau assurer qu'on n'a pas visé les soldats ou les catholiques, cela ne sert 
 e que l'on manque de logique ou que l'on manque de courage.
 
 Pour juger exactement des actes, des pensées et des sentiments d'autrui, le meilleur est toujours de se mettre
-soi-même à la place d'autrui. s
+soi-même à la place d'autrui.
 
 ‘ Renversons donc les rôles de la France et de l'Allemagne
 
@@ -891,7 +891,7 @@ de Schoenstedt, si au cours d'un entretien sur l'affaire
 Ziethen je lui avais dit : « Je n'ai pas de fait nouveau, mais
 j'ai ma conviction. » Votre conviction! Bah! que voulez-
 
-vous que ça me fasse ?.… s
+vous que ça me fasse ?.…
 
 Aïünsi, l'on n'avait pas de fait nouveau, mais seulement
 la conviction que Dreyfus était innocent ; avec cela l'on
@@ -929,7 +929,7 @@ l'indulgence des juges du procès Zola, et j'ai fait la comparaison de la procé
 ‘trouvé dès la première demi-heure en conflit si grave avec
 le président, qu'il ne serait jamais venu à bout de son plaidoyer. La procédure française vaut beaucoup mieux que la
 procédure allemande, et elle est bien plus favorable à Paccusé. Cela, on ne pouvait pas exiger de la presse dreyfusiste allemande qu'elle voulût bien le reconnaître. Mais on
-pouvait exiger que la vérité ne füt point mise la tête en bas, l
+pouvait exiger que la vérité ne füt point mise la tête en bas,
 que les comptes rendus des débats ne fussent point falsifiés, .
 et que l'on n'adressät point à la procédure française des
 reproches qui se trouvaient en contradiction criante avec
@@ -1030,7 +1030,7 @@ Jondamentale, la mensongère apparence de sainteté donnée
 les comédies d'indignation. Ceci s'applique en particulier
 la campagne telle qu'on l'a menée en Allemagne. C'est qu'en
 Allemagne, en effet, le contraste est plus grand et plus
-criant qu'ailleurs entre l'idéal hypocrite de ceux qui s'acharnent contre la France avec une vertueuse indignation, et k
+criant qu'ailleurs entre l'idéal hypocrite de ceux qui s'acharnent contre la France avec une vertueuse indignation, et
 - Vétat véritable, l'état lamentable de nos institutions politiques et judiciaires. Si l'Affaire avait eu lieu en Allemagne,
 au lieu d'éclater dans cette France dégénérée — c'est une
 idée que j'ai déjà indiquée — Zola, Labori, etc., seraient
@@ -1042,7 +1042,7 @@ rébellion, reconduits à la frontière sous escorte, Picquart,
 à cause de... — mettons à cause de différentes choses, aurait
 été condamné à dix ans de forteresse, sans perspective de
 grâce, et — la revision n'aurait pas eu lieu, le Dreyfus allemand aurait été enseveli vivant, et en cas de tentative de
-fuite, impitoyablement fusillé, car c'est ainsi qu'en Allemagne on se comporte généralement à l'égard des prison- 1 j l
+fuite, impitoyablement fusillé, car c'est ainsi qu'en Allemagne on se comporte généralement à l'égard des prison-
 niers, non seulement de ceux qui ont commis le crime de \ 3}
 haute trahison, mais encore des braillards inoffensifs qui, \ À
 mis en belle humeur par la bière, se sont laissés aller à offen-
@@ -1281,7 +1281,7 @@ chose de sa saveur de terroir.
 Elle n'en garde pas moins, fort heureusement, toute l'ironie amusante et souvent cruelle de son bon sens, toute la
 force irrésistible de sa logique. C'est bien la première fois,
 on peut le dire, qu'un antimilitariste avéré, qu'un ennemi
-acharné de l'idée même de Patrie, tient à propos de l'affaire q
+acharné de l'idée même de Patrie, tient à propos de l'affaire
 Dreyfus un raisonnement qui n'ait pas l'air de sortir en
 droite ligne de Bicètre et de Charenton...
 
@@ -1900,13 +1900,13 @@ classes, à savoir qu'elle est le principe du socialisme. » Et comme l'événem
 Qu'a-t-on atteint, dans le parti socialiste français, dans le
 parti internationaliste, par la présence de Millerand dans
 le gouvernement ? Rien. Qu'a-t-on empêché? Rien. » Bien au contraire, les socialistes français, en encourageant, en provoquant l'entrée d'un des leurs dans ce gouvernement, se sont rendus complices de Millerand par tous
-les méfaits gouvernementaux perpétrés pendant la durée e
+les méfaits gouvernementaux perpétrés pendant la durée
 de son ministère. » Qu'on ne vienne donc pas nous corner aux oreilles,
 pour excuser cet acte absolument insensé — ou trop
 réfléchi — de Millerand, qu'on se trouvait alors en France
 dans une situation politique exceptionnelle, que la République était en danger et qu'il fallait la sauver : c'est ce que
 j'appelle une bonne blague ! Car cette attitude ne supporte
-pas une critique tant soit peu sérieuse. » Voyons? A qui fera-t-on croire que la République, en Ÿ
+pas une critique tant soit peu sérieuse. » Voyons? A qui fera-t-on croire que la République, en
 France, n'est maintenue que grâce aux quelques hommes
 qui sont à la tête de son gouvernement, y compris monsieur le
 socialiste ? La vérité, c'est qu'elle est soutenue par la masse
@@ -2134,7 +2134,7 @@ sans doute la cause déterminante de mon intervention ; tout
 
 » Nous sommes une armée où chacun agit isolément selon
 
-ses vues, mais où tous nous devons marcher d'accord lors- ÿ
+ses vues, mais où tous nous devons marcher d'accord lors-
 que l'intérêt du parti entier est en jeu.
 
 — Ne vous a-t-on pas adressé des lettres d'injures à la
@@ -2193,7 +2193,7 @@ les amis des citoyens français qui préparent la Révolu-
 
 — Mais, citoyen docteur, si les citoyens camarades
 
-allemands sont les amis des citoyens camarades français, E
+allemands sont les amis des citoyens camarades français,
 peuvent-ils ainsi, inconsidérément ou injustement, faire
 le jeu des ennemis des citoyens camarades français ?
 — Il ne s'agit nullement de faire le jeu ou de ne pas
@@ -2290,7 +2290,7 @@ cela voulait dire d'abord ou bien que Liebknecht était
 le socialiste le plus âgé du monde, ou bien qu'il était le
 citoyen du monde le plus âgé en socialisme, ou bienles
 deux à la fois. Mais j'ai oublié de vous avertir que
-souvent, dans l'histoire cérémonielle des compagnies, t
+souvent, dans l'histoire cérémonielle des compagnies,
 dans les réceptions, dans les séances d'ouverture, dans
 les inaugurations, dans les congrès, dans les banquets,
 le doyen agit et parle au nom de la compagnie ellemême, officiellement ou officieusement, qu'il soit doyen
@@ -2362,7 +2362,7 @@ de son doyen vénérable impose à celui-ci au moins
 que je suis trop long, vous n'aviez pas qu'à venir consulter. — Donc, est-il vrai que le citoyen Liebknecht
 soit le doyen d'âge ou de camaraderie du socialisme
 international? Je n'en sais rien. Nous ne connaissons
-pas tous les hommes à la parole articulée, nous ne con- j
+pas tous les hommes à la parole articulée, nous ne con-
 
 naissons pas tous les militants socialistes et révolutionnaires. Il se peut très bien qu'il y ait en quelque pays
 perdu de tyrannie, en Russie ou en France, un pauvre
@@ -2447,7 +2447,7 @@ ceux qui travaillent bien dans la partie intellectuelle,
 comme l'élite manuelle se compose de tous les travailleurs manuels qui travaillent bien, chacun dans sa
 Réagissant contre les passions par quoi les mauvais
 
-dreyfusards étrangers haïssaient la France, Liebknecht j
+dreyfusards étrangers haïssaient la France, Liebknecht
 l'a aimée comme jamais les bons Français, ne fussentils pas encore devenus socialistes, n'ont consenti qu'on
 
 Plus profondément il me semble que je vois dans ces
@@ -2923,7 +2923,7 @@ lumière dans ces honteuses ténèbres.
 Veuillez agréer, monsieur le président, l'assurance de ma
 
 J'attends la réponse de M. Waldeck-Rousseau, président
-du conseil des ministres. k
+du conseil des ministres.
 « L'Aurore » du jeudi 21 décembre
 
 La Réponse de M. Waldeck-Rousseau
@@ -2965,7 +2965,7 @@ dans mon enquête.
 « L'Aurore » du samedi 1 6 décembre
 
 La section clermontoise de la Ligue, après avoir pris
-connaissance de l'article de M. Henry Leyret (Aurore, 26
+connaissance de l'article de M. Henry Leyret (Aurore,
 novembre 1899), sollicite respectueusement de M. le président de la République l'acte d'humanité et d'apaisement
 que serait la grâce des huit malheureux condamnés : Meunier, Chevry, Bury, Liard-Courtois, Bouysset, Lardaux,
 Grangé et Philippe.
@@ -3050,7 +3050,7 @@ Nous publierons sur feuille rose les souscriptions que
 nous aurons reçues par la poste; nous prions nos correspondants d'adopter pour ces insertions un signe
 reproduire dans leurs lettres de souscription, sur le
 
-Ce premier cahier vaut 1 fr. 50.
+Ce premier cahier vaut 1 fr.
 
 Nous vendons l'exemplaire au prix marqué: nous
 

@@ -66,7 +66,7 @@ et annotés par AULARD. Imprimerie Nationale.
 Concours de Théâtre populaire. Revue d'art dramatique.
 
 CoxsTANT PIERRE. — Musique des fêtes et cérémonies de
-la Révolution. 1900. Imprimerie Nationale. 3
+la Révolution. 1900. Imprimerie Nationale.
 
 PIERRE CoRNEILLE. — Le Théâtre populaire poitevin.
 
@@ -76,7 +76,7 @@ des Idées. Revue d'art dramatique. Avril 1903.
 Henrr DARGEL. — Le Théâtre du Peuple. Le Volume.
 
 J.-L. Jures Davin. — Le peintre Louis David. Souvenirs ;
-et documents inédits. 1880. Havard. 2 volumes in-folio. 4
+et documents inédits. 1880. Havard. 2 volumes in-folio.
 
 Eucène Despois. — Le vandalisme révolutionnaire. 1885.
 
@@ -141,17 +141,17 @@ du Peuple. Revue d'art dramatique. Décembre 1900.
 Romaix RozLanp. — L'Œuvre des Trente ans de Théâtre
 ei les galas populaires. Revue d'art dramatique. Juillet 1903.
 
-J.-J. Rousseau. — Lettre à M. d'Alembert {sur les specLacles). 1758. 3
+J.-J. Rousseau. — Lettre à M. d'Alembert {sur les specLacles). 1758.
 
 ALPHONSE Sécr. — À propos du Théâtre populaire.
 
 Théâtres en plein air (les). L'Art du théâtre. Octobre 1903:
 
-JuLrEN Trersor. — Les Fêtes de la Révolution française. M
+JuLrEN Trersor. — Les Fêtes de la Révolution française.
 
 GABRIEL TRARIEUx. — La lanterne de Diogène {notes sur
 
-Le théâtre). 1902. Librairie Molière. 4
+Le théâtre). 1902. Librairie Molière.
 
 Henri Turor. — Le Théâtre et le socialisme. Revue d'art
 
@@ -171,42 +171,42 @@ GEORGES HanTz. — La légende d'Anniviers à Vissoye
 Pauz MariéTox. — Le théâtre antique d'Orange, éditions
 de la Revue félibréenne, 1903.
 
-; Ve — Le, théâtré bourgeoise nee et A 30
+; Ve — Le, théâtré bourgeoise nee et A
 ° V. — Le répertoire étranger. Les tragiques
 Sophocle ; Lope et Calderon ; Shakespeare ;
 Henri de Kleist; Schiller; Raimund, Anzengruber ; Tolstoy et Gorki; Hauptmann; Wagner.
 VI. — Il n'existe dans le passé qu'un répertoire
 de lectures populaires, non de théâtre
 populaire. — Les lectures ne suflisent
-point. Le théâtre est nécessaire . . . . 50
+point. Le théâtre est nécessaire . . .
 
 le théâtre du peuple Ér:
 VIL — L''Œuvre des Trente ans de Théâtre et les à
 
 I. — Les précurseurs du théâtre du peuple : *
 Rousseau, Diderot, la Révolution fran- À
-çaise, Michelet. — Les premières tenta- È
-tives de théâtres du peuple. — Le 74
+çaise, Michelet. — Les premières tenta-
+tives de théâtres du peuple. — Le
 théâtre de Bussang . ce à
-Rousseau, lettre à d'Alembert sur les spec- F
+Rousseau, lettre à d'Alembert sur les spec-
 tacles; Diderot, paradoxe sur le comédien, #
-deuxième entretien sur le Fils naturel; les F
+deuxième entretien sur le Fils naturel; les
 Shakespeariens allemands de la Siurm und $
 essai sur l'Art dramatique, nouvel examen de ;
 la Tragédie française; Bernardin de Saint- +4
-Pierre, treisième Étude de la Nature; Marie- 2:
-La Révolution française : le théâtre du peuple Ë
+Pierre, treisième Étude de la Nature; Marie-
+La Révolution française : le théâtre du peuple
 préconisé par tous les partis ; rapport de David, #
 11 juillet 1793, pour ia fête du 10 août; 2 août 3%
-1793, proposition du comité de Salut public; E.
+1793, proposition du comité de Salut public;
 adoptée par la Convention, après un discours ; ‘+
 de Couthon ; décret de la Convention ; novembre “4
-1793, après discours de Marie-Joseph Chénier 3
+1793, après discours de Marie-Joseph Chénier
 sur les fêtes populaires, Fabre d'Églantine fait ee
 adopter l'idée de créer des théâtres nationaux ; +
 d'Instruction publique ; 4 pluviôse an II, la Con- “#4
 an Il, recommandation du comité de Süreté #
-générale ; 25 pluviôse an II, demande de Boissy M
+générale ; 25 pluviôse an II, demande de Boissy
 
 d'Anglas à la Convention et au comité d'Instruction; 20 ventôse an Il, arrêté du comité de
 
@@ -243,25 +243,25 @@ Sainte-Croix propose de former un groupe de
 projet qui sera présenté au Conseil municipal » “4
 par M. Turot et à la Chambre par M. Sembat ; LS
 Les campagnes de presse. ir
-II. — Le théâtre nouveau. — Conditions maté- 5
-Le projet d'Eugène Morel ; la première condi- 4
-tion d'un théâtre populaire, c'est d'être un 8
-délassement; que le théâtre soit une source 4
-d'énergie, c'est la seconde loi; le théâtre doit 24
+II. — Le théâtre nouveau. — Conditions maté-
+Le projet d'Eugène Morel ; la première condi-
+tion d'un théâtre populaire, c'est d'être un
+délassement; que le théâtre soit une source
+d'énergie, c'est la seconde loi; le théâtre doit
 être une lumière pour l'intelligence ; avec ces oi
 rielles, architecture de la salle, organisation de = #
 la scène, les décors ; les acteurs; Grétry,essai sur ‘a
-la musique ; le théâtre du peuple pour et par le 4
+la musique ; le théâtre du peuple pour et par le
 peuple. Ebauche d'un art dramatique nouveau. %
 III. — Quelques genres de théâtre populaire. — ee
-Souci d'émotions variées ; souci de réalisme 4
-“vrai;-souci de moralité simple ; souci de pro- -Æ e
+Souci d'émotions variées ; souci de réalisme
+“vrai;-souci de moralité simple ; souci de pro-
 Vitet; histoire nationale et histoireuniverselle. :
 V. — De quelques autres genres. — Drame
-| social. — Drame rustique. — Cirque. . 130.
-Les fêtes du peuple. — Conclusion. . . . . . . . 13.
+| social. — Drame rustique. — Cirque.
+Les fêtes du peuple. — Conclusion. . . . . . .
 Rousseau ; Mirabeau, discours de l'organisa Me
-_ tion des fêtes nationales ; un rapport de Talley- i
+_ tion des fêtes nationales ; un rapport de Talley-
 rand ; 11 juillet 1593, David, rapport et TE
 
 sur la fête de la réunion républicaine du :
@@ -289,14 +289,14 @@ le théâtre du peuple
 Séance de la Convention nationale, du :
 Afliche des spectacles du même jour. |
 Comité de Salut public. — 20 ventôse an I, |
-Comité de Salut public. — 5 floréal an I,
-Séance de la Convention nationale, du 18 floréal l
+Comité de Salut public. — 5 floréal an
+Séance de la Convention nationale, du 18 floréal
 an I, — 7; mai 1794, — discours de Robespierre |
-sur les rapports des idées religieuses et morales È
+sur les rapports des idées religieuses et morales
 avec les principes républicains et sur les fêtes |
-Dans ce discours, proposition de décret sur L
+Dans ce discours, proposition de décret sur
 les fêtes populaires.
-Comité de Salut public. — 21 floréal an II, Î
+Comité de Salut public. — 21 floréal an II,
 Comité de Salut public. — 25 floréal an II, |
 Comité de Salut public. — 27 floréal an I, |
 Comité de Salut public. — 18 prairial an II, |
@@ -314,20 +314,20 @@ IL. — Rapport sur la fête de la reprise de
 IL. — Rapport sur la Fête de l'Être Supréme.
 IV.— Rapport sur la fête de Bara et de Viala
 | III. — Les représentations de mai (maggi) en
-IV. — Le Théâtre du Peuple de Bussang. . . . . 185
+IV. — Le Théâtre du Peuple de Bussang. . . .
 V. — Textes relatifs aux travaux de la Revue
 | d'art dramatique pour fonder à Paris
 | Projet de circulaire rédigé en mars-avril
 1899, pour provoquer la réunion d'un Congrès
 | international de théâtre populaire.
 | Projet de théâtre populaire à Paris.
-Le Théâtre populaire de Belleville . . . . . . . . 194
-Le Théâtre du Peuple de Neuvy-sur-Loire (Nièvre). 198
+Le Théâtre populaire de Belleville . . . . . . .
+Le Théâtre du Peuple de Neuvy-sur-Loire (Nièvre).
 
-le théâtre du peuple 4
-Séance de la Convention nationale, du L
+le théâtre du peuple
+Séance de la Convention nationale, du
 Affiche des spectacles du même jour.
-Comité de Salut public. — 20 ventôse an I,
+Comité de Salut public. — 20 ventôse an
 Comité de Salut public. — 5 floréal an II,
 Séance de la Convention nationale, du 18 floréal
 an I, — 7 mai 1794, — discours de Robespierre
@@ -335,15 +335,15 @@ sur les rapports des idées religieuses et morales
 avec les principes républicains et sur les fêtes
 Dans ce discours, proposition de décret sur
 les fêtes populaires.
-Comité de Salut public. — 21 floréal an I,
+Comité de Salut public. — 21 floréal an
 Comité de Salut public. — 25 floréal an II,
 Comité de Salut public. — 27 floréal an II, |
 Comité de Salut publie. — 18 prairial an Il,
-Commission d'instruction publique. — 5 mes- 1
+Commission d'instruction publique. — 5 mes-
 Commission d'instruction publique.— 11 messidor an II, — 29 juin 1794; — Fêtes à l'Etre Su- {
 prême; pièces dramatiques; rapport et arrêté ! À
 (approuvé par le Comité de Salut public, le
-Commission d'instruction publique.— 19 messidor an Il, — 7 juillet 1794. — Rapport et -4
+Commission d'instruction publique.— 19 messidor an Il, — 7 juillet 1794. — Rapport et
 projet d'arrêté au Comité de Salut public ”
 pour la fête du 26 messidor, époque anni- #
 versaire du 14 Juillet. #
@@ -354,15 +354,15 @@ IL. — Rapport sur la fête de la reprise de
 IL. — Rapport sur la Fête de l'Être Suprême.
 IV.— Rapport sur la fête de Bara et de Viala.
 III. — Les représentations de mai (maggi) en
-IV. — Le Théâtre du Peuple de Bussang. . . . . 185
+IV. — Le Théâtre du Peuple de Bussang. . . .
 V. — Textes relatifs aux travaux de la Revue
 d'art dramatique pour fonder à Paris
 Projet de circulaire rédigé en mars-avril
 1899, pour provoquer la réunion d'un Congrès
 international de théâtre populaire.
 Projet de théâtre populaire à Paris.
-Le Théâtre populaire de Belleville . . . . . . . . 194
-Le Théâtre du Peuple de Neuvy-sur-Loire (Nièvre). 198
+Le Théâtre populaire de Belleville . . . . . . .
+Le Théâtre du Peuple de Neuvy-sur-Loire (Nièvre).
 
 Fr Nous avons donné le bon à tirer après corrections
 HAT pour deux mille exemplaires de ce quatrième cahier le
@@ -424,21 +424,21 @@ reçoit pour l'administration et pour la librairie tous
 les jours de la semaine, le dimanche excepté, — de huit
 heures à onze heures et de une heure à sept heures. À
 
-M. Charles Péguy, gérant des cahiers, reçoit pour la ; J
-rédaction le jeudi soir de deux heures à cinq heures. 4
+M. Charles Péguy, gérant des cahiers, reçoit pour la
+rédaction le jeudi soir de deux heures à cinq heures.
 
 Adresser à M. André Bourgeois, administrateur des
 cahiers, 8, rue de la Sorbonne, Paris, toute la correspondance d'administration et de librairie : abonnements et À
 réabonnements, rectifications et changements d'adresse,
-cahiers manquants, mandats, indication de nouveaux 4
+cahiers manquants, mandats, indication de nouveaux
 abonnés. N'oublier pas d'indiquer dans la COrreSpOn-"
 dance le numéro de l'abonnement, comme il est inscrit
-sur l'étiquette, avant le nom. 4
+sur l'étiquette, avant le nom.
 
 Adresser à M. Charles Péguy, gérant des cahiers,
-8, rue de la Sorbonne, Paris, la correspondance de 4
+8, rue de la Sorbonne, Paris, la correspondance de
 rédaction et d'institution. Toute correspondance d'administration adressée à M. Péguy peut entraîner pour la ».
-réponse un retard considérable. ; è j
+réponse un retard considérable.
 
 _ Collège de France. — Premier semestre 1903-1904—
 ne MM. les lecteurs et professeurs ouvriront leurs cours le
@@ -472,7 +472,7 @@ mille exemplaires, de : NRA
 de la quatrième série, un cahier de 104 pages dans la LA
 Romain Rolland. — Vies des hommes illustres. ns
 ÿ Masque de Beethoven, moulé par Franz Klein en 1812,
-dans les quatre cents premiers exemplaires de cette " k
+dans les quatre cents premiers exemplaires de cette "
 À seconde édition, qui ne sont en vente que dans nos col- #
 . Romain Rolland. — Beethoven. bn
 Beethoven. — testament d'Heiligenstadt, pour mes frères … ‘3
@@ -484,22 +484,22 @@ Heiligenstadt, le 10 octobre 1802; ;
 4 lettre de Wegeler, Coblentz, 28 décembre 1825; DA LE: RERO
 11 pour les lettres de Beethoven ; Pet ( LR
 pour la vie de Beethoven ; ; <a
-pour l'œuvre de Beethoven ; _ 131
+pour l'œuvre de Beethoven ; _
 portraits de Beethoven. ra
 
 discours pour la liberté
-paraissant vingt fois par an 35
-_ 8, rue de la Sorbonne, au rez-de-chaussée 214
+paraissant vingt fois par an
+_ 8, rue de la Sorbonne, au rez-de-chaussée
 
-Pour savoir ce que sont les Cahiers de la Quinzai j
+Pour savoir ce que sont les Cahiers de la Quinzai
 il suffit d'envoyer un mandat de trois francs cs cinquar ue
-à M. André Bourgeois, administrateur des cal hiers, â
+à M. André Bourgeois, administrateur des cal hiers,
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième >
 arrondissement. On recevra en spécimens six cahiers … ;
 Nous mettons ce cahier dans le commerce; nous le
 
 ss Nous avons fait tirer à dix mille exemplai res. sur
-PE quatre pages pour ce cinquième cahier un vient 1
+PE quatre pages pour ce cinquième cahier un vient
 >. paraître constitué par les annonces et par la tal
 _ détaillée des matières. Fe
 
@@ -524,11 +524,11 @@ constante et graduelle, raisonnée, de M. Clemenceau.
 M. Clemenceau a été élu sénateur du Var le dimanche
 6 avril 1902. Nous publions ci-après le texte officiel du
 discours prononcé par lui au Sénat dans la séance du $
-mardi 1 7 novembre dernier pour la défense des libertés É
-communes contre les usurpations de l'État : L.
+mardi 1 7 novembre dernier pour la défense des libertés
+communes contre les usurpations de l'État
 
 discours pour la liberté
-13 4
+13
 
 Sénat, session extraordinaire de 1903, compte rendu in
 extenso, neuvième séance, séance du mardi 17 novembre.
@@ -542,7 +542,7 @@ le projet de loi sur l'enseignement secondaire libre :
 M. le président. — Article 2, texte nouveau, à titre
 d'amendement proposé par M. Louis Legrand :
 ministre de l'instruction publique et des beaux-arts.
-— Retrait de l'amendement par sonauteur.— Article 2 e
+— Retrait de l'amendement par sonauteur.— Article
 de la commission : MM. de Lamarselle, Clemenf ceau. — Renvoi de la suite de la discussion à la prochaine séance.
 M. Clemenceau. — Messieurs, cette longue et grave
 k discussion aboutira-t-elle enfin à des résolutions de
@@ -564,7 +564,7 @@ eux et j'aurai la joie de me retrouver avec mes amis.
 M. de Lamarzelle. — Nous avons souvent confondu
 nos votes ensemble dans notre jeunesse, monsieur
 
-3 M. Clemenceau. — Vous voyez que je n'hésite pas
+M. Clemenceau. — Vous voyez que je n'hésite pas
 à les confondre de nouveau lorsque ma conscience l'ordonne. (Très bien! à droite) =
 
 M. l'amiral de Cuverville. — La liberté pour
@@ -580,7 +580,7 @@ parce que l'âme ne se rend pas à la contrainte. (Très
 bien! à gauche) :
 
 Si la contrainte avait pu prévaloir, l'Église serait
-maîtresse du monde. Je profite de la leçon. 4
+maîtresse du monde. Je profite de la leçon.
 
 Ma préoccupation ici, celle qui me guidera au cours …
 de mes observations est unique; je veux préserver de
@@ -613,7 +613,7 @@ quelque peu la position de chacun.
 quelque peine à se dessaisir d'une puissance qui n'a pu
 sauver la monarchie.
 
-4 Et, d'autre part, des monarchistes qui n'avaient
+Et, d'autre part, des monarchistes qui n'avaient
 jamais accordé la liberté, ne pouvaient faire autrement
 que de la réclamer dans l'opposition. De là une interversion des rôles, et c'est précisément ce qui m'amène
 à expliquer à mes collègues comment, tout à l'heure,
@@ -655,7 +655,7 @@ _ donner le même droit à tous, sans distinction d'idées
 de privilège dans la République : il ya le droit,et nous
 devons concéder le même droit à tous! (Très bien! sur
 
-Messieurs, l'erreur fondamentale de ce débat, à mon F
+Messieurs, l'erreur fondamentale de ce débat, à mon
 
 sens, c'est que les républicains sont convaincus que la
 + loi Falloux a été une loi de liberté, et ils se disent : la
@@ -745,7 +745,7 @@ que l'ordonnance de Charles X, de 1828, déclarant que
 les congrégations non autorisées ne pourraient pas
 enseigner. Charles X, sous le masque de Jules Ferry,
 fut jugé trop libéral encore par l'honorable M. Ribot,
-qui combattit l'article 7.
+qui combattit l'article
 
 Si je mentionne ce nom, c'est pour que, dans la
 confusion des idées présentes, il soit bien entendu que
@@ -839,7 +839,6 @@ demandé qu'on leur concédât encore l'enseignement
 
 ; exige le monopole de l'enseignement supérieur, c'est-à-
 . ,
-| 13
 
 dire que vous enverrez à l'armée, à l'ennemi, des
 hommes de vingt ans qui, lorsqu'ils auront quitté les
@@ -941,7 +940,7 @@ suis pas de ce pontificat. (Très bien ! très bien !)
 L'État, je le connais : ila une longue histoire, toute !
 de meurtre et de sang. Tous les crimes qui se sont ;
 accomplis dans le monde, les massacres, les guerres, à
-les manquements à la foi jurée, les bûchers, les sup- 3
+les manquements à la foi jurée, les bûchers, les sup-
 plices, les tortures, tout a été justifié par l'intérêt de
 
 l'État, par la raison d'État. (Assentiment sur divers |
@@ -965,7 +964,7 @@ ne peut pas l'apitoyer.
 
 Parce que je suis l'ennemi du roi, de l'empereur et du
 pape, je suis l'ennemi de l'État omnipotent, souverain
-maître de l'humanité. 3
+maître de l'humanité.
 
 En vérité, croyez-vous que j'aie quitté la monarchie,
 
@@ -998,7 +997,7 @@ corporation de demination par le fer et le feu: il a été
 la pire tyrannie que le ronde ait connue, et aujourd'hui,
 bien que murmurant encore les paroles qui leur viennent de la tradition, les catholiques n'aspirent à rien
 qu'à reconquérir le pouvoir politique pour refuser les
-libertés qu'ils nous demandent aujourd'hui, c'est-à-dire ï
+libertés qu'ils nous demandent aujourd'hui, c'est-à-dire
 pour continuer contre vous l'oppression d'autrefois.
 (Protestations à droite.—Applaudissements à l'extrême
 gauche et sur plusieurs bancs à gauche)
@@ -1037,13 +1036,13 @@ vous. Je montre l'aboutissant de votre thèse.
 J'ai dit que la charité de l'évangile s'était traduite en
 violences sanglantes et j'ajoute qu'il en fut ainsi d'abord de notre belle devise révolutionnaire. Notre œuvre
 est aujourd'hui d'en faire la réalisation pacifique. Prenons garde qu'en cherchant cette réalisation dans l'omnipotence de l'État, nous n'aboutissions aux violences
-qu'a toujours produites cette omnipotence. C'est ce ë
+qu'a toujours produites cette omnipotence. C'est ce
 que M. Lintilhac n'a pas compris, à mon très grand
 
-Messieurs, il y a, dans une vieille chanson de mon k
+Messieurs, il y a, dans une vieille chanson de mon
 pays, un paysan qui revient de Paris et qui raconte ses
 impressions. Il n'a pas pu voir la ville, les maisons l'en
-ont empêché. (Rires) x
+ont empêché. (Rires)
 
 Eh bien, il est arrivé à mon honorable collègue le
 
@@ -1075,7 +1074,7 @@ Ce serait le plus grand mal que je pusse dire de moimême. (Très bien ! à gauc
 Et vous cherchez un dogme! L'Église possède son
 dogme ; elle sait très bien pourquoi il lui faut le monopole de l'enseignement. M. Lucien Brun vous l'a dit tout ;
 à l'heure. Elle a son dogme à elle, il est écrit, il lui est
-venu du ciel ; elle veut le propager parmi nous, l'imposer aux hommes récalcitrants! Mais nous, où est notre k
+venu du ciel ; elle veut le propager parmi nous, l'imposer aux hommes récalcitrants! Mais nous, où est notre
 
 dogme? Que suis-je en mesure d'imposer comme vérité
 absolue à qui que ce soit ici ? Je suis très fort si je puis
@@ -1144,7 +1143,7 @@ puissance qu'il y eût dans le monde; mais cette
 puissance, nos pères l'ont prise, l'ont broyée, l'ont
 réduite en poussière et l'ont jetée en liberté sur l'huma- |
 nité tout entière ! Et c'est maintenant que vous cher- |
-chez à en rassembler quelques fragments épars pour L
+chez à en rassembler quelques fragments épars pour
 en faire un minuscule bloc d'autorité contre lequel …
 
 donneront d'ensemble toutes les libertés que vous avez
@@ -1189,8 +1188,6 @@ vous trouve même assez réactionnaires ! (Rires)
 | La loi de 1808, c'est la loi de Napoléon; c'est la loi
 
 | du temps où Napoléon prononçait la parole qu'a si ;
-
-| 21
 
 opportunément rappelée M. Béraud : « Il n'y arienque
 je ne puisse faire avec mes gendarmes et mes prêtres! »
@@ -1324,7 +1321,7 @@ ami Leydet, tout à l'heure, objectait : « Il y avait lecertificat de civisme �
 | murailles : « Liberté, égalité, fraternité », et elle lui
 avait donné, par un reste d'éducation autoritaire catholique, le commentaire de la guillotine.
 
-1 Il n'en est pas moins vrai que la Révolution française
+Il n'en est pas moins vrai que la Révolution française
 È est le plus grand mouvement d'émancipation qui se soit
 ! produit dans le monde.
 
@@ -1381,7 +1378,7 @@ propose de souscrire, je demande à réfléchir.
 
 Un très grand orateur, qui est l'honneur de la tribune
 française, M. Jean Jaurès, s'est déclaré le partisan
-résolu du monopole. J'ai cherché à savoir comment è
+résolu du monopole. J'ai cherché à savoir comment
 
 ‘ cette conviction s'était formée dans son esprit ; et ma |
 curiosité était d'autant plus grande que le chef de la
@@ -1430,7 +1427,7 @@ religieuse, ou à une mainmise funeste de l'Église sur la
 nation. J'estime également impraticable en fait, avec
 le point d'appui insuffisant dont dispose aujourd'hui à
 l'idée laïque, avec la contradiction qui existe entre
-l'idée de l'État enseignant et l'idée de la famille possé- i
+l'idée de l'État enseignant et l'idée de la famille possé-
 dant, d'établir le monopole de l'enseignement; parce à
 que l'État ne peut se charger de l'éducation de tous ;
 
@@ -1505,7 +1502,7 @@ Voilà le monopole des trois ordres de l'enseignement ;
 Il arrive que les cléricaux deviennent la majorité et
 qu'ils se servent du monopole d'État contre les libé-
 
-30 2
+30
 
 _raux. Il arrive qu'ils chassent les instituteurs libéraux.
 Il arrive qu'ils persécutent toute l'Université libérale.
@@ -1567,9 +1564,9 @@ questions de se poser dans la tête des enfants : Qui
 sommes-nous? Qu'est-ce que la terre, ce ciel, ces
 nuages, ces étoiles ? D'où cela vient-il? D'où cela procède-t-il? Où céla nous emmène-t-il ?
 
-Il y a un vieux livre qui a résolu toutes ces questions c'est la Bible. 3
+Il y a un vieux livre qui a résolu toutes ces questions c'est la Bible.
 
-Un sénateur à gauche. — Ce n'est pas très scienti- É
+Un sénateur à gauche. — Ce n'est pas très scienti-
 
 M. Clemenceau. — Je le crois bien. Il ne les a pas …
 résolues dans le même sens que la science moderne.
@@ -1645,7 +1642,7 @@ au prix de tant de sacrifices!
 
 Et maintenant, il faut, après avoir fait la critique ;
 
-d'autrui, que je subisse à mon tour la critique d'au- î
+d'autrui, que je subisse à mon tour la critique d'au-
 
 Je suis pour la liberté. Ah! si la République était
 seulement vaincue, de quels applaudissements vous
@@ -1654,13 +1651,13 @@ sommes vainqueurs, nous sommes détenteurs de l'autorité, et la liberté a cont
 fait la décadence hellénique, — que je ferais bien
 remonter, pour ma part, au temps d'Aristote, (Sourires)
 
-— et la Rome païenne, abominable dans son autorité j
-violente, et la Rome catholique, qui n'a fait qu''hériter k
+— et la Rome païenne, abominable dans son autorité
+violente, et la Rome catholique, qui n'a fait qu''hériter
 de l'ambition, de la volonté de domination à tout prix
 
 de la Rome païenne.
 
-M. Dominique Delahaye. — C'est contraire à j
+M. Dominique Delahaye. — C'est contraire à
 toute la vérité historique, cela!
 
 M. Clemenceau. — Voilà bien, mon cher collègue,
@@ -1789,7 +1786,7 @@ la direction que vous leur aurez donnée. (Très bien! a |
 gauche) Moi, je suis comme Diogène; mais, plus ambitieux que lui, je cherche des hommes et je dis que vous
 ne pouvez pas en faire, de votre propre aveu.
 
-38 7
+38
 
 Ah! vous aiderez à les faire! Ce n'est pas que je
 veuille protester contre l'action de l'enseignement, tout
@@ -1913,7 +1910,7 @@ internationale ayant pour chef un souverain étranger.
 L'honorable M. de Cuverville avait, dans une interruption, dénié au pape la qualité de souverain étranger.
 
 Fort heureusement, notre honorable collègue, M. le
-comte de Blois, a rétabli la véritable doctrine en affir- 4
+comte de Blois, a rétabli la véritable doctrine en affir-
 mant, à cette tribune, que le pape était bien un souve-
 
 M. l'amiral de Cuverville. — La véritable doc-
@@ -1925,7 +1922,7 @@ et qu'il se proclame à la fois souverain temporel et |
 
 M. l'amiral de Guverville. — C'est un souverain
 
-temporel et dépossédé. f
+temporel et dépossédé.
 
 M. Clemenceau. — Il a beau être dépossédé, il est
 souverain. C'est lui qui le dit, et il doit le savoir mieux
@@ -1989,7 +1986,7 @@ se traduittrop souvent par des martyres, par des supplices comme au refuge de To
 Ils répudient la famille, les charges de la famille, les
 devoirs de la famille, et quand ïls se sont créé une |
 existence sans devoirs humains, il en profitent pour |;
-faire une concurrence mortelle aux ouvriers qui ont des J
+faire une concurrence mortelle aux ouvriers qui ont des
 
 enfants à faire vivre, à élever. ;
 
@@ -2055,14 +2052,14 @@ Messieurs, je vous demande pardon d'avoir parlé
 aussi longtemps ; (Parlez! parlez!) j'ai, de bonne foi,
 essayé de suivre le chemin de la raison et de l'idée ré-
 publicaine à travers les incertitudes et la confusion de
-la discussion dans laquelle nous sommes engagés. Je F
+la discussion dans laquelle nous sommes engagés. Je
 ne sais pas si j'ai réussi; mon ambition est simplement
 de vous faire comprendre à quel point de vue jeme
 suis placé. J'entends beaucoup de mes amis me dire :
 Vous êtes un esprit absolu. On est toujours l'esprit
 
 absolu de quelqu'un. Cependant, je fais un grand
-effort. Le discours que je viens de prononcer, comme k
+effort. Le discours que je viens de prononcer, comme
 celui que j'ai prononcé il y a quelques mois, je ne les
 aurais certainement pas faits au début de ma carrière
 dans le Parlement. J'ai regardé, j'ai appris, j'ai tâché
@@ -2125,11 +2122,11 @@ dangers de la liberté. C'est l'omnipotence de l'État, cor-
 rigée par l'arbitraire, (Sourires) l'omnipotence de l'État,
 de l'État changeant. Qu'auriez-vous dit d'un Louis XIV
 qui aurait révodué l'édit de Nantes un jour et persécuté
-les catholiques le lendemain ? C'eût été le gâchis. C'est Ë
+les catholiques le lendemain ? C'eût été le gâchis. C'est
 le gâchis que vous nous préparez.
 
 Votre principe de l'autorisation pourrait avoir une
-apparence de raison dans une monarchie, parce qu'il J
+apparence de raison dans une monarchie, parce qu'il
 semble au moins qu'il y a une continuité de vue qui se
 
 poursuit à travers les temps. Pour nous, nous ne voyons
@@ -2181,7 +2178,7 @@ que m'impose l'indépendance de ma pensée.
 Tout en désirant très sincèrement le vote du projet
 de M. Chaumié, je rechercherai, dans la mesure de mes
 moyens, à obtenir le maximum de garanties eflicaces
-que le Sénat voudra bien consentir. Ê
+que le Sénat voudra bien consentir.
 
 Messieurs, il y a en cette affaire une question de
 méthode et, permettez-moi de le dire, bien que je n'aie
@@ -2199,7 +2196,7 @@ Messieurs, ce programme, c'est celui du gouvernement que nous avons devant nous.
 permis de dire que, dans cet ordre d'idées, aucun gouvernement, depuis la fondation de la République, n'a |
 fait davantage et n'a même fait autant. Jesais bienque
 
-vous criez à la persécution, messieurs de la droite, mais n
+vous criez à la persécution, messieurs de la droite, mais
 aussi longtemps que votre persécution n'est pas une |
 persécution, je ne redoute point vos cris. Nous avons
 commencé par refuser l'autorisation aux congrégations
@@ -2262,11 +2259,11 @@ Lorsque j'ai demandé la liberté de la presse, ces messieurs aussi (l'orateur d
 est-ce que c'était une raison pour refuser la liberté de
 la presse? Quand je demande la liberté de l'enseigne- .
 ment, ces messieurs aussi veulent bien m'applaudir :=
-est-ce une raison pour refuser la liberté de l'enseignement ? j
+est-ce une raison pour refuser la liberté de l'enseignement ?
 
 Laissez-moi donc le dire, je ne m''isole pas de vous;
 
-52 3
+52
 
 (lorateur désigne la gauche) malgré vous, je demeure |
 solidaire de mon parti à condition qu'il représente nos
@@ -2383,7 +2380,7 @@ bien! très bien! et applaudissements. — L'orateur, en …
 retournant à sa place, reçoit les félicitations d'un grand
 nombre de ses collègues.) ”
 Avant tout commentaire nous devons publier ici un ;
-article du Bloc, première année, numéro 30, dimanche 4
+article du Bloc, première année, numéro 30, dimanche
 18 août 1901, qui fait corps avec le discours que l'on
 vient de lire: le Bloc était sous-intitulé gazette hebdo-
 
@@ -2395,8 +2392,8 @@ soit qu'il les ait reçues, sans examen, des ancêtres,
 soit qu'un effort d'esprit tout personnel lui ait fait des
 On a beaucoup écrit sur « le droit de l'enfant » et sur
 « le droit du père ». On ne peut nier qu'un moment
-arrive où les deux droits s'opposeront par la force des L
-choses. L'heure vient fatalement d'une crise de l'autorité paternelle dans toute la famille. L'enfant a grandi, é
+arrive où les deux droits s'opposeront par la force des
+choses. L'heure vient fatalement d'une crise de l'autorité paternelle dans toute la famille. L'enfant a grandi,
 il éprouve plus ou moins obscurément le besoin de
 penser par lui-même et le concours des deux hérédités
 dont il sort lui fait une disposition personnelle à se |
@@ -2507,12 +2504,12 @@ s'égarer en des recherches ardues d'expérimentation,
 d'analyse. Il n'usera point sa pensée à reculer, de si peu
 que ce soit, les limites de la connaissance, caril connaît
 tout de prime abord, son autorité étant, non pas d'un
-homme borné, mais du Dieu fabricateur du monde, de = 4
+homme borné, mais du Dieu fabricateur du monde, de =
 qui il a reçu le pouvoir. Il va dire à son tour, mais cette
 fois, il n'y a plus de contradiction possible: Sans une
 variation, tous ceux qui ont reçu le même mandat,
 diront les mêmes paroles, accompliront les mêmes rites,
-et, après avoir expliqué l'univers sans le secours d'aucune science, donneront sans difficultés la formule éternelle, absolue, de l'humanité sur la terre, 4
+et, après avoir expliqué l'univers sans le secours d'aucune science, donneront sans difficultés la formule éternelle, absolue, de l'humanité sur la terre,
 Et le merveilleux, c'est qu'ici il n'est plus besoin de
 se casser la tête pour comprendre. Il suflit de répéter
 les mots qu'on vous présente. On vous demande simplement de croire, phénomène que la suggestion d'au_ trui suffit à produire chez les âmes faibles, tandis que
@@ -2617,7 +2614,7 @@ cristallisés les traditions, les mœurs, les institutions, les
 lois, les intérêts constitutifs de la société. Le support
 se prêtent un mutuel appui, subsistent en vertu de « l'équilibre ancien, et durent jusqu'à ce qu'une nouvelle
 doctrine, acceptable par tous, devienne un nouveau
-point de cristallisation sociale à son tour. Ë
+point de cristallisation sociale à son tour.
 
 C'est le problème de notre temps. Beaucoup avaient …
 pensé que la foi disparue entraïnait à bref délai une
@@ -2635,12 +2632,12 @@ sent, comme ce fut celui de leur passé. Des âmes simples #
 se rencontrent encore dans les rangs de ceux qui se :
 dénomment chez nous « l'aristocratie », comme ce com- (
 mandant de Bréon qui, après avoir demandé chaque *
-jour la lumière d'en haut, acquitta Dreyfus malgré la P:
+jour la lumière d'en haut, acquitta Dreyfus malgré la
 formidable pression de l'esprit de classe. Il n'en est pas 4]
 moins vrai que nos classes supérieures actuelles, — fort ,
-mêlées, — voient surtout dans la religion une puissante 4
+mêlées, — voient surtout dans la religion une puissante
 organisation de défense au profit des appétits satisfaits
-contre les appétits à satisfaire. l
+contre les appétits à satisfaire.
 La bourgeoisie gouvernante s'est emparée du gou- }
 vernement grâce à sa promesse réitérée d'ouvrir les ,
 voies d'accès à l'ordre nouveau qui se prépare. Mais $
@@ -2649,7 +2646,7 @@ présentent pour soutenir les maîtres du jour. Quel
 désintéressement prodigieux, quelle audace pour résister à la tentation de les appropriér à son usage ? Les
 raisons ne manquent jamais, et la masse inorganisée,
 impuissante à constituer une force d'ensemble, cède, en
-dépit des révoltes partielles, à l'antique suprématie des g
+dépit des révoltes partielles, à l'antique suprématie des
 choses qui sont.
 Je ne dis rien du peuple parce qu'il est en devenir.
 Les prolétaires des grands centres industriels cherchent
@@ -2683,9 +2680,9 @@ cette liberté que leur refuse l'empirisme intolérant de
 notre bourgeoisie « libre-penseuse », et j'ai trouvé deyant
 moi la contradiction d'hommes de la plus haute culture,
 lyriques champions d'un ordre nouveau, mais attardés
-dans' les procédés du compelle intrare plus séduisants « par leur simplicité que les chances lointaines d'une 4
+dans' les procédés du compelle intrare plus séduisants « par leur simplicité que les chances lointaines d'une
 
-Les Chambres viennent précisément de voter une loi m
+Les Chambres viennent précisément de voter une loi
 dont on a fait grand bruit et qui aboutit à ce résultat”
 de violenter les gens pour qu'une doctrine, — toujours
 la même, — soit enseignée aux enfants par des moines”
@@ -2698,7 +2695,7 @@ tions publiques aux hommes qui, au lieu d'avoir reçu
 l'enseignement scientifique et l'enseignement religieux
 en bloc, les auront reçus séparément, l'un dans l'école
 et l'autre dans l'Église. Le simple fait qu'on discute
-sérieusement de pareilles « réformes » montre où la j
+sérieusement de pareilles « réformes » montre où la
 politique dite républicaine en est arrivée.
 
 Unité ou duplicité de l'enseignement
@@ -2742,7 +2739,7 @@ comme les autres. Elle sait faire valoir à propos la
 par crainte aussi de porter la responsabilité d'une
 « position manquée » dans l'avenir. Voilà l'enfant
 | entre les deux maîtres qui vont se disputer son intelli- {
-gence, — le prêtre ayant tout l'avantage, — et le laisse- J
+gence, — le prêtre ayant tout l'avantage, — et le laisse-
 ont, tiraillé, fourbu, désorienté, découragédeconnaître,
 
 se faire une philosophie pratique des seuls moyens de ;
@@ -2762,7 +2759,7 @@ Aux prêcheurs d'idéal qui ont reculé dans cette entreprise où les attendaien
 le droit de jeter l'anathème. Je préfère à Moïse, vouant
 à la mort les infidèles, la prêtresse Théano, qui refusa
 | de maudire. Seulement je tiens à m'inscrire contre une
-- distinction jugée importante par quelques-uns de mes x
+- distinction jugée importante par quelques-uns de mes
 amis. On nous a donné à entendre que ce n'était pas du
 tout la même chose d'envoyer un enfant à l'école chez *
 les moines, ou dans quelque collège de l'Université et |
@@ -2885,7 +2882,7 @@ nous avons particulièrement publié alors tout un
 mémoires et dossiers du cas Hervé; aujourd'hui nous
 sommes particulièrement heureux de joindre au présent
 cahier de dossier un article de Hervé publié dans le
-Travailleur Socialiste de l'Yonne sur le cas Dimier ; cet e
+Travailleur Socialiste de l'Yonne sur le cas Dimier ; cet
 article vient en appoint, et méme en couronnement aux
 mémoires et dossiers que nous avons publiés alors; il
 prend en outre. un intérét singulier au lendemain du
@@ -2895,8 +2892,8 @@ prend en outre. un intérét singulier au lendemain du
 
 Beaucoup de nos abonnés s'étaient demandé quelle
 attitude Hervé avait prise quand s'était présenté le cas
-Dimier; le cas Hervé avait tenu dans nos cahiers une É
-si grande et, nous pouvons le dire, une si bonne place, l
+Dimier; le cas Hervé avait tenu dans nos cahiers une
+si grande et, nous pouvons le dire, une si bonne place,
 que l'on voulait savoir si Hervé demandait pour un
 adversaire les libertés communes qu'il avait si hau-
 
@@ -2925,9 +2922,9 @@ au point où l'on espérait qu'il passerait.
 Le Travailleur Socialiste de l'Yonne, organe de la |
 Fédération autonome des Travailleurs Socialistes du
 département, paraît le samedi matin. S'adresser pour
-la rédaction, les abonnements et les annonces à l'administrateur- gérant, rue du Puits-de-la-Chaîne, 32,
+la rédaction, les abonnements et les annonces à l'administrateur- gérant, rue du Puits-de-la-Chaîne,
 
-Sens, et au citoyen Monneret, rue Sous-Murs, 18,
+Sens, et au citoyen Monneret, rue Sous-Murs,
 Auxerre. L'article ue nous reproduisons ci-après est '
 l'article de tête, numéro daté du samedi 16 mai 1903 :
 
@@ -2961,7 +2958,7 @@ Mais que le parti démocratique en fasse autant, surtout que le parti socialiste
 là une méconnaissance de leurs principes et de leurs
 intérêts qui m'afflige et m'inquiète tout à la fois.
 
-4 Cherchez bien, et au fond de toutes les explications
+Cherchez bien, et au fond de toutes les explications
 
 : données pour justifier de pareilles mesures, vous trou-
 
@@ -2985,7 +2982,7 @@ maîtres de cet État-Patron, ils se taisent, ou plutôt ils
 
 Ô applaudissent à ses exécutions brutales. |
 
-Sur ce point, comme sur beaucoup d'autres, l''éducation du parti républicain est à refaire de fond en comble; « c'est à nos amis socialistes qu'incombe la tâche de M
+Sur ce point, comme sur beaucoup d'autres, l''éducation du parti républicain est à refaire de fond en comble; « c'est à nos amis socialistes qu'incombe la tâche de
 rechercher cette mentalité déplorable.
 
 Il faut qu'ils ne se lassent pas de répéter autour d'eux
@@ -2996,17 +2993,17 @@ pas libre d'en sortir quand l'État lui déplaît, car le plus
 souvent il mourrait de faim sur les grandes routes: que.
 le fonctionnaire, s'il est payé, est payé pour faire un
 service déterminé; que son salaire n'est pas une
-aumône ; qu'en acceptant d'entrer dans un servie e.
+aumône ; qu'en acceptant d'entrer dans un servie
 
-public, il a vendu sa force de travail, son talent, mais il ï
+public, il a vendu sa force de travail, son talent, mais il
 n'a pas vendu sa conscience. :
-Le professeur Dimier était payé pour enseigner la È
-philosophie à ses élèves. Si sous prétexte de philosophie u
+Le professeur Dimier était payé pour enseigner la
+philosophie à ses élèves. Si sous prétexte de philosophie
 il a enseigné de la théologie ; si, dans sa chaire, ila
 déformé les doctrines philosophiques qui lui déplaisent,
 le matérialisme ou l'évolutionnisme, par exemple, qu'on
 traduise devant les tribunaux universitaires et qu'on
-l'expulse. P
+l'expulse.
 Mais le professeur Dimier, pas plus que le professeur
 Hervé, n'a abdiqué sa liberté de conscience, ni ses
 droits de citoyen, en prenant la robe universitaire ; si,
@@ -3060,7 +3057,7 @@ L'ordre ministériel aurait été envoyé le lendemain de |
 
 l'acquittement. Les politiques parlementaires et le per-
 
-sonnel gouvernemental, qui ont tant fait pour désho- l
+sonnel gouvernemental, qui ont tant fait pour désho-
 
 norer l'affaire Dreyfus et le dreyfusisme, se croient-ils
 
@@ -3088,11 +3085,11 @@ l'article suivant de M. Clemenceau. M. Clemenceau a
 pris l'Aurore comme rédacteur en chef le lundi premier
 Juin 1903. Depuis le mardi premier décembre dernier,
 l'Aurore est revenue à cinq centimes le numéro pour
-Paris, la Seine, et le département de Seine-et-Oise ; elle 1
+Paris, la Seine, et le département de Seine-et-Oise ; elle
 est restée à dix centimes pour les autres départements.
 
 : Depuis la même date elle paraît à six pages le dimanche”
-et toutes les fois qu'il est nécessaire. 4
+et toutes les fois qu'il est nécessaire.
 
 Une parole malheureuse de M. de Pressensé a déchaîné
 un orage à la Chambre. Le député de Lyon ne veut point
@@ -3170,7 +3167,7 @@ socialistes allemands pourraient tenir tête à Guillaume II, si la fantaisie lu
 recommencer son « inoubliable grand-père »°?
 Il ne suflit pas de bêler la paix. Ceux qui veulent
 = fonder la paix sociale sur la pleine reconnaissance du
-droit humain, comment peuvent-ils nous recommander è
+droit humain, comment peuvent-ils nous recommander
 une paix entre nations qui aurait pour fondement la
 méconnaissance du droit primordial des hommes à |
 s'appartenir? La contradiction est si monstrueuse que
@@ -3211,7 +3208,7 @@ de M. Francis de Pressensé :
 Nous avons reçu de M. Francis de Pressensé la lettre |
 suivante, que nous insérons avec empressement :
 Paris, le 25 novembre 1903
-Je peux négliger les attaques plus ou moins violentes ÿ
+Je peux négliger les attaques plus ou moins violentes
 ou perfides des nationalistes et des crypto-nationalistes À
 à l'occasion de la parole que j'ai prononcée lundi à la ;
 Chambre, qui n'était que le raccourci, — naturellement *
@@ -3219,15 +3216,15 @@ brutal, — d'un discours applaudi le vendredi par ;
 | toute la gauche, et qui m'a valu, — comme à ceux à:
 qui protestèrent en juillet 1870 contre la guerre, — les
 ” fureurs de la droite et les foudres des radicaux : à vous,
-je veux répondre, parce qu'il ne me plaît pas d'oublier 2
-qu'à vos côtés, en butte aux mêmes reproches, j'ai F
-livré un grand combat. F
-Et d'abord permettez-moi de vous remercier d'avoir, s
+je veux répondre, parce qu'il ne me plaît pas d'oublier
+qu'à vos côtés, en butte aux mêmes reproches, j'ai
+livré un grand combat.
+Et d'abord permettez-moi de vous remercier d'avoir,
 en indiquant d'un mot ce qu'à dix-sept ans, en 1870, j'ai
 fait pendant la guerre, écarté la monstrueuse calomnie :
 - à laquelle se livrent, contre le patriotisme de ceux
 qui ne pensent pas comme eux sur la politique internationale, des hommes dont beaucoup ne prêchent la
-87 4
+87
 
 Francis de Pressensé
 
@@ -3250,19 +3247,19 @@ perte de la Champagne et de la Bourgogne. J'ai déjà
 quelquefois trouvé cet argument employé contre moi :
 c'était sous la plume des scribes de La Patrie française,
 au cours de notre lutte pour la justice. — Or, si vous ;
-aviez bien voulu lire le texte intégral de mes paroles, 4
-Vous y auriez vu : « La France, qui ne reconnaît pas les 4
+aviez bien voulu lire le texte intégral de mes paroles,
+Vous y auriez vu : « La France, qui ne reconnaît pas les
 atteintes portées au droit des peuples, ne doit pas
 s'hypnotiser comme elle l'a fait trop longtemps dans la
 perspective d'une revanche dont personne ne veut et ;
 que personne n'a jamais voulue. »— Cette formule dit
-une atteinte au droit des peuples : on a disposé, de par 4
+une atteinte au droit des peuples : on a disposé, de par
 la force, du sort d'une population ; malgré elle. Contre -
 cet attentat, la conscience proteste, et elle le fait
 d'autant plus efficacement qu'elle répudie toute idée de
 recours aux mêmes moyens et que ce n'est pas au Dieu
 des batailles qu'elle demande, avec la restauration
-pure et simple du droit de l'Alsace-Lorraine sur elle- M
+pure et simple du droit de l'Alsace-Lorraine sur elle-
 
 même, la solution d'un douloureux conflit. — Quant à
 la revanche, ce n'est pas seulement l'idée impie et
@@ -3308,11 +3305,11 @@ a pesé sur nos affaires étrangères, en faisant accroire à
 revanche dans le creux de la main du tsar et que nous
 n'avions donc rien à lui demander et tout à lui donner
 Quant à moi, au risque d'être, non seulement outragé
-par les nationalistes, mais aussi mal compris et mal É
-jugé par des hommes comme vous, j'ai la conviction, 4
+par les nationalistes, mais aussi mal compris et mal
+jugé par des hommes comme vous, j'ai la conviction,
 France, et celle de cette Alsace et de cette Lorraine
 qu'il ne s'agit pas de reconquérir de force, mais ;
-auxquelles nous voulons rendre le droit inaliénable 1
+auxquelles nous voulons rendre le droit inaliénable
 des peuples sur eux-mêmes.
 Je n'ajoute qu'un mot : si je croyais que la revanche
 est vraiment la forme nécessaire du patriotisme, je me
@@ -3321,11 +3318,11 @@ comme d'un crime de combattre le militarisme, sans
 lequel une grande guerre heureuse ne se conçoit même
 pas, et je me rangerais docilement derrière M. Paul …
 Déroulède, seul champion logique de la vraie doctrine.
-Il n'est qu'une politique qui me semble inintelligible : M
+Il n'est qu'une politique qui me semble inintelligible
 c'est celle de ceux qui, tout en répétant, — en bélant,
 puisque le mot est de vous, — les formules de tolstoïsme
 
-pacifiste et christicole, professent la nécessité, — non N
+pacifiste et christicole, professent la nécessité, — non
 des revendications imprescriptibles de la conscience, —
 mais de la revanche brutale, du talion barbare. Et je ,
 m'étonne que des hommes qui ont eu, eux aussi, à
@@ -3355,16 +3352,16 @@ Pressensé allègue que, dans la phrase même à
 laquelle je refuse mon adhésion, il a protesté contre
 « les atteintes portées au droit des peuples ». Gérault- .
 Richard, de même, qui appuie la réponse de Pressensé, "à
-me demande si la belle protestation de Jaurès est venue Ë
-à ma connaissance. Oui, certes, je reconnais que Jau- J
-rès et Pressensé ont protesté formellement. La différence 3
+me demande si la belle protestation de Jaurès est venue
+à ma connaissance. Oui, certes, je reconnais que Jau-
+rès et Pressensé ont protesté formellement. La différence
 entre eux et moi, c'est que, lorsqu'ils ont protesté, ils
 se croient en règle avec eux-mêmes et avec la France,
 et, passant à d'autres sujets de conversation, pré- à
 tendent nous interdire toute préoccupation de rentrer
 dans notre droit, de notre propre effort, si jamais la !
-chance nous en est offerte par la destinée. C'est à cela 4
-que, pour ma part, je ne souscrirai jamais. ÿ
+chance nous en est offerte par la destinée. C'est à cela
+que, pour ma part, je ne souscrirai jamais.
 
 La protestation de l'impuissance aux abois a tout À
 
@@ -3414,11 +3411,11 @@ ne m'a pas empêché d'avoir toujours présente à l'esprit ;
 la fatalité d'un retour du droit vaincu. Pressensé n'a
 envisagé que l'hypothèse d'un duel entre l'Allemagne et
 la France. Les questions de politique extérieure lui à
-sont trop familières pour qu'il ne sache pas qu'une soli- F
+sont trop familières pour qu'il ne sache pas qu'une soli-
 mettre quelque jour en présence des coalitions diversement formées. Ne croit-il donc pas qu'un tel jour, —
-d'arrêter la venue, — doive nous trouver en disposition F,
+d'arrêter la venue, — doive nous trouver en disposition
 de revendiquer notre droit? Pour moi, je n'hésite pas à ;
-répondre par l'affirmative. Est-il d'avis, au contraire, È
+répondre par l'affirmative. Est-il d'avis, au contraire,
 que notre devoir, alors, sera de nous croiser les bras et }
 de laisser se former en Europe une puissance mon- ‘
 
@@ -3467,13 +3464,13 @@ qu'on pousse à l'action pour la Macédoine ou l'Arménie,
 tirerons le canon à Navarin pour la Grèce, la France
 versera son sang pour aider à la délivrance de l'Italie,
 mais s'il n'est question que de deux provinces fran-
-À. çaises, on ne nous permettra point de prévoir que cet d
+À. çaises, on ne nous permettra point de prévoir que cet
 incident puisse avoir dans l'avenir une répercussion
 militaire. Car il faut que « quelqu'un commence » à se
 résigner, et si, en « commençant », nous ne faisons que
 nous offrir à de nouvelles violences, nous continuerons
 de donner cours à notre résignation, ornée d'une rhétorique de protestation. Si
-Eh bien, cette politique, je n'en suis pas, je n'en puis M
+Eh bien, cette politique, je n'en suis pas, je n'en puis
 pas être, parce qu'elle ne me paraît pas pouvoir aboutir …
 à autre chose qu'à l'établissement d'une vaste hégé-
 monie militaire du peuple ou des peuples qui ne se
@@ -3487,7 +3484,7 @@ aux Arméniens, Pressensé pourra prêcher la résignation
 de l'Évangile. Ils ne se soumettront pas, et les Français
 pas davantage. Et je les loue hautement de cette virile
 L'Aurore du samedi 28 novembre publiait l'article
-suivant de M. Clemenceau : ï
+suivant de M. Clemenceau
 
 Après la visite du roi d'Angleterre à Paris, le voyage
 des parlementaires anglais achève de révéler un
@@ -3502,8 +3499,8 @@ de cause, sur les peuples voisins. Et comme les Fran-
 çais eux-mêmes, délivrés de la monarchie, ont pris
 possession de leur propre gouvernement, on conçoit
 que la mentalité qui dérive d'un tel état de choses ne
-va pas sans d'assez grands périls. j
-Les Anglais, eux, parcourent toute la terre, visitent k
+va pas sans d'assez grands périls.
+Les Anglais, eux, parcourent toute la terre, visitent
 toutes les mers, tous les continents, et s'installent
 même partout où ils trouvent leur chance. Ils con-"
 naissent certainement la planète mieux qu'aucun autre.
@@ -3533,7 +3530,7 @@ famille. En France, pour une lettre apportée d'un ami,
 on échangera des visites, enguirlandées de toutes les
 formules de la courtoisie, on consacrera une journée,
 une soirée au voyageur, et puis bonsoir. Il n'est pas
-très aisé, dans ces conditions, de se pénétrer récipro- 2
+très aisé, dans ces conditions, de se pénétrer récipro-
 quement, de se connaître. Quand les Français se seront
 décidés à sortir de chez eux pour voir le monde, je ne
 doute pas qu'il n'en résulte un accroissement, plutôt
@@ -3564,13 +3561,13 @@ les circonstances actuelles, est fort loin d'être négli- .
 geable. Ce m'est un plaisir tout particulier de citer ;
 le passage où se trouve exposée, en un puissant raccourci, la situation européenne :
 
-3 L'état de l'Europe est, en vérité, déplorable. Depuis que
+L'état de l'Europe est, en vérité, déplorable. Depuis que
 les événements de 1865 à 1870 ont déchaîné de nouveau le
 : vieux droit de la force et de la conquête sur les capitaux
-acquis par le travail et, ce qui est plus cruel, sur le sol et M
+acquis par le travail et, ce qui est plus cruel, sur le sol et
 sur les habitants de différents États, chaque nation s'est
 sentie menacée et chacune s'est armée jusqu'aux dents, sur
-: terre et sur mer, grossissant ses efforts jusqu'à l'épuisement des finances et stérilisant l'énergie de ses jeunes con109 J
+: terre et sur mer, grossissant ses efforts jusqu'à l'épuisement des finances et stérilisant l'énergie de ses jeunes con109
 
 citoyens, dans la fleur de leur âge et de leur activité, pour
 la consacrer au service militaire. Nous nous sommes mis
@@ -3620,7 +3617,7 @@ rence d'arbitrage et d'une proposition de réduction
 désarmement) de la Mandchourie. Ce n'est pas, non |
 plus, par l'arbitrage et le désarmement que lord
 Curzon opère au Thibet. Beaucoup de marge encore de
-l'intention au fait !.… é
+l'intention au fait !.…
 
 Le Bloc, première année, numéro 47, daté du
 . dimanche 15 décembre 1901, avait publié l'article
@@ -3662,7 +3659,7 @@ me demander pour obtenir de moi la confession de mes
 erreurs. La seule condition nécessaire est dans l'assentiment de mon intelligence, et l'argumentation de Jaurès est bien loin d'avoir produit ce résultat. :
 Le rapprochement de la France
 et de l'Allemagne
-Le point de départ de l'affaire est um discours de s
+Le point de départ de l'affaire est um discours de
 M. Massabuau dans lequel ce député nationaliste a loué :
 M. Jules Ferry à la tribune, d'avoir voulu l'alliance |
 \ nels que nous les avons connus, les nationalistes en
@@ -3735,7 +3732,7 @@ ce qu'il y peut voir c'est une préparation du boulangisme. « Je n'aimais pas, 
 et destructive de l'extrême gauche, qui devait conduire
 à des mouvements césariens* ou au néant. » Dans la
 bouche de M. Méline ou de M. Waldeck-Rousseau, |
-cette phrase aurait un sens. Sous la plume de Jaurès, f.
+cette phrase aurait un sens. Sous la plume de Jaurès,
 « destructeur » (?) de la société bourgeoise, je suis
 obligé de constater qu'elle semble de rhétorique pure.
 Peut-être cette réponse classique des opportunistes aux
@@ -3855,10 +3852,10 @@ gouvernement que la « concentration de nos forces est la première
 — pour nous arrêter, nul ne peut prévoir où — dans les aventures
 coloniales qui aboutissaient à « disséminer sur des points épars du
 « monde les ressources de toute nature qu'un intérêt supérieurnous
-« fait la loi de concentrer sur un seul. » É
+« fait la loi de concentrer sur un seul. »
 
 « Je ne demande pas s'il est résulté pour nous de cette expansion,
-ou plutôt de cette enflure de puissance si largement dessinée sur le F
+ou plutôt de cette enflure de puissance si largement dessinée sur le
 
 été conçues et exécutées, je ne veux pas le redire. S'il
 plaît à Jaurès d'oublier ce que le Soudan, le Tonkin et
@@ -3893,7 +3890,7 @@ recrue pour notre armée, soit une recette pour notre budget.
 __ éclate en Europe, qui menacerait peut-être de deux côtés à la fois
 une frontière dont une face, au moins, est devenue si peu sûre, et
 rendrait nécessaire de garder sous la main la totalité de nos forces ?
-Ne se reprochera-t-on pas alors, d'en avoir égrené même des parcelles à toutes les extrémités du monde à la fois ? » ù
+Ne se reprochera-t-on pas alors, d'en avoir égrené même des parcelles à toutes les extrémités du monde à la fois ? »
 
 Jaurès! Jaurès qui se félicite d'un effroyable massacre d'hommes jaunes et noirs accompli par nous (au
 prix de quelle démoralisation militaire) pour leur
@@ -3925,7 +3922,7 @@ Eugène Spuller, que je fus amené, — pour ma défense,
 
 et non la rédaction, contriste si fort aujourd'hui même
 
-le Jaurès actuel, compagnon politique de Millerand et l
+le Jaurès actuel, compagnon politique de Millerand et
 
 de Waldeck-Rousseau. U:4
 
@@ -3998,7 +3995,7 @@ jeté. Ainsi les grandes réformes urgentes furent
 ajournées, si bien qu'à quinze ans de là elles attendent
 
 toujours. + Re.
-La réforme militaire, qui eût changé l'esprit monar114 ÿ
+La réforme militaire, qui eût changé l'esprit monar114
 
 __  chiste et clérical des grands cheïs de l'armée en
 
@@ -4137,7 +4134,7 @@ Un soldat au Soudan coûte annuellement 1.500 francs, chiffre déjà
 considéré comme formidable. A Madagascar 1.725, chiffre donné
 par M. Le Myre de Vilers dans son dernier rapport.
 
-() Notre « succès commercial » à Madagascar est uniquement dû 4
+() Notre « succès commercial » à Madagascar est uniquement dû
 jusqu'ici aux tarifs prohibitionnistes qui ferment purement et à
 simplement la porte à la concurrence étrangère. Est-ce un signe
 de force ou de faiblesse de la France, selon Jaurès? de
@@ -4207,13 +4204,13 @@ générale et certaine.
 
 J'ai cru devoir faire cette longue citation pour ne
 pas m'exposer à trahir la pensée de Jaurès. Puisqu'il
-annonce son intention de donner bientôt à ces grands j
+annonce son intention de donner bientôt à ces grands
 problèmes le plein des développements qu'ils lui
 paraissent comporter, je ne ferai, à son exemple, que -
-prendre position à mon tour, et j'attendrai pour une 4
+prendre position à mon tour, et j'attendrai pour une
 plus complète discussion qu'il nous ait exposé l'en- ;
 
-" semble de sa thèse. 3
+" semble de sa thèse.
 
 Je découvre d'abord qu'il s'obstine à confondre les
 simples patriotes français, dont j'ai la prétention A
@@ -4266,8 +4263,8 @@ du problème.
 Or, j'aperçois d'abord que tout le progrès humain |
 s'est fait par un développement de « patries », et bien
 que je puisse concevoir un jour où toutes ces patries se
-fondront, bien que je puisse même souhaiter ardem- 1
-ment la venue de ce jour et vouloir y contribuer dans 4
+fondront, bien que je puisse même souhaiter ardem-
+ment la venue de ce jour et vouloir y contribuer dans
 la mesure de mes moyens, il faut être simplement
 aveugle pour croire que les hommes d'aujourd'hui $
 
@@ -4276,13 +4273,13 @@ une démonstration trop facile.
 
 La constatation faite, je considère ma patrie et …
 celles qui l'entourent, et je les juge, dans ce sentiment
-supérieur au nationalisme étroit, que la France est 6
+supérieur au nationalisme étroit, que la France est
 
-122 4
+122
 
 encore nécessaire à l'humanité. Alors je trouve que la
 France ne vit pas seulement d'économie sociale, mais
-qu'une conception de sa fierté, de sa dignité, incompatible avec la soumission avilie à la force, est fatalement constitutive de son être, avec l'accompagnement È
+qu'une conception de sa fierté, de sa dignité, incompatible avec la soumission avilie à la force, est fatalement constitutive de son être, avec l'accompagnement
 inévitable d'une sentimentalité correspondante. Eh
 bien, je le demande à Jaurès en toute sincérité, quand
 nous entendons, de l'autre côté des Vosges, chaque
@@ -4327,15 +4324,15 @@ n'ont point oublié l'Alsace-Lorraine, j'estime que c'est
 de paix universelle, que je suis capable de rêver aussi |
 bien que mon contradicteur. Que n'emploie-t-il son
 éloquence à éveiller la conscience des oppresseurs, à
-leur faire honte de leurs méfaits, au lieu de s'en l
+leur faire honte de leurs méfaits, au lieu de s'en
 prendre aux victimes pour leur prêcher le renoncement ;
-à tout ce qui fait la dignité de l'âme humaine? Il est 1
+à tout ce qui fait la dignité de l'âme humaine? Il est
 drop contraire à la vérité de nous représenter comme à
-“embusqués, au coin d'un bois, pour guetter « sournoi- É
+“embusqués, au coin d'un bois, pour guetter « sournoi-
 sement » l'innocente Germanie. Depuis 1871,l Allemagne À
-a le pied sur nous : ce n'est pas la même chose. En 4
+a le pied sur nous : ce n'est pas la même chose. En
 dépit de Jaurès, je vis et je mourrai, Français et répu- #1
-blicain socialiste, dans l'espoir de la délivrance. É
+blicain socialiste, dans l'espoir de la délivrance.
 
 LE BLOC, gazette hebdomadaire rédigée par
 Georges Clemenceau, a paru du 27 janvier 1901, inclus,
@@ -4349,7 +4346,7 @@ Les numéros parus en 1902 portent, outre leur date,
 
 la mention : deuxième année, et sont numérotés
 
-La collection complète se compose donc de 49 + 11
+La collection complète se compose donc de 49 +
 
 Le prix du numéro était de o franc 50. Le prix des
 abonnements était, pour la France et les Colonies, un
@@ -4375,7 +4372,7 @@ unes et les autres ont une grande valeur, et que cette
 
 valeur ne pourra que s'accroître à mesure que les
 collections et que les numéros s'épuiseront; nous les
-mettons en vente au bureau des cahiers aux conditions Ë
+mettons en vente au bureau des cahiers aux conditions
 suivantes, qui sont des conditions économiquement
 
 Les cinquante premières collections complètes seront
@@ -4388,7 +4385,7 @@ les vingt avant-dernières collections complètes, seront
 vendues trente francs l'une; |
 
 Les dix collections complètes suivantes, c'est-à-dire
-les dix dernières collections complètes, seront vendues 1
+les dix dernières collections complètes, seront vendues
 quarante francs l'une ; ; :
 
 sous cette réserve qu'au moment où il ne nous
@@ -4437,12 +4434,12 @@ l'Affaire Dreyfus. La collusion Du Lac-Boisdeffre. Entrevue Du Lac-Reinach. La c
 | en dehors des collections, 140 exemplaires, dont les
 cent premiers o franc 50, les vingt suivants o franc 80, :
 les vingt derniers un franc.
-Toute la liberté. — Critique de la loi, présentée par î
+Toute la liberté. — Critique de la loi, présentée par
 M. Waldeck-Rousseau, sur les associations. Autorisées ou $
 non autorisées, les congrégations se valent : la loi répu- ;
 blicaine ne peut les reconnaître. Défense de la liberté .
 Encore le Jésuite de l'État-Major. :
-en dehors des collections, 96 exemplaires, dont les F
+en dehors des collections, 96 exemplaires, dont les
 quatre-vingts premiers o franc 50, les dix suivants
 o franc 80, les six derniers un franc. de
 
@@ -4472,7 +4469,7 @@ soixante premiers O franc 50, les vingt suivants
 o franc 80, Les treize derniers un franc.
 
 En vue des élections.— Examen de la situation politique,
-en vue des élections législatives du printemps 1902. Le x
+en vue des élections législatives du printemps 1902. Le
 président Loubet, partisan de la république des moines.
 Tendance du ministère à fuir au lieu de combattre, tactique renouvelée de l'amnistie de l'affaire Dreyfus.
 
@@ -4500,21 +4497,21 @@ La Justice militaire. — Gallifet, partisan d'une refonte
 complète du code de justice militaire : les délits de droit
 commun soumis, en temps de paix, aux tribunaux ordinaires. Le projet Leydet : extension des circonstances
 atténuantes aux articles du code militaire. Examen
-détaillé de la justice militaire en Allemagne : des juges L
+détaillé de la justice militaire en Allemagne : des juges
 versés dans la connaissance du code, des pénalités moins
 
 Les Folies-Doumer : l'administration du gouverneur géné-
-ral de l'Indo-Chine ; l'âge d'or... pour les entrepreneurs. 4
+ral de l'Indo-Chine ; l'âge d'or... pour les entrepreneurs.
 
 * en dehors des collections, 25 exemplaires, un franc :
 
 Gouverner, c'est prévoir. — L'empirisme de nos gouver- |
 nants. La dérision de la loi de M. Waldeck-Rousseau sur
-les associations: les congrégations subsistent. Les retraites 3
+les associations: les congrégations subsistent. Les retraites
 ouvrières ne sont pas votées. Le gâchis politique, dù à
 
-” l'impuissance d'agir. 2
-130 4
+” l'impuissance d'agir.
+130
 
 Mentiris impudentissime : la maison de tolérance des |
 Jésuites de Shanghaï.
@@ -4524,7 +4521,7 @@ quarante premiers o franc 80, les quinze derniers un
 . « Tu ne tueras pas ». —Sur le refus du service militaire,
 Des Doukhobors de Russie au Français Gontaudier. Contradiction universelle entre les paroles de pacification et
 l'organisation militaire du meurtre. La résistance : l'anarchiste Vaillant et le système de la révolte; le chrétien
-Gontaudier et la non-participation au mal. L'évolution l
+Gontaudier et la non-participation au mal. L'évolution
 lente : « Et puis, ceux d'entre nous qui sont pressés, ceux
 qui veulent absolument voir l'Eden avant que de mourir,
 
@@ -4556,9 +4553,9 @@ en dehors des collections, ce numéro est complètement
 
 Le Prix du Transvaal.— Le sang: 60.000 soldats tués.
 ; L'or : 275.000.000 d'impôts nouveaux. La diminution
-morale : importance réelle, quoique généralement méconnue, de ce facteur ; le règne de la force ne sera pas éter- U
+morale : importance réelle, quoique généralement méconnue, de ce facteur ; le règne de la force ne sera pas éter-
 : en dehors des collections, 20 exemplaires, un franc
-132 3
+132
 
 L'Ère des difficultés en Chine. — La Chine prisonnière
 ne veut pas lâcher ses vainqueurs. Compétitions d'inté-
@@ -4603,13 +4600,13 @@ de l'idée.
 Une lettre de Scheurer-Kestnér, adressée à André Lebon, en
 septembre 1897; les premiers doutes ; la volonté de savoir
 et d'agir.
-4 Bjoernson et Larroumet. — Le pangermanisme. L'exelusivisme français.
+Bjoernson et Larroumet. — Le pangermanisme. L'exelusivisme français.
 en dehors des collections, 17 exemplaires, un franc
 l'alliance franco-russe. Emprunts russes. Coquetteries
-F russo-allemandes. Quels sont nos avantages 2 k
+F russo-allemandes. Quels sont nos avantages
 La pension du Faux-Témoin : Billot et l'affaire Dreyfus;
 singulière attitude du ministère. !
-en dehors des collections, 25 exemplaires, un franc F
+en dehors des collections, 25 exemplaires, un franc
 Branle-bas d'élections. — La France est-elle un paysqui
 se gouverne lui-même ? Un socialiste de gouvernement : …
 
@@ -4634,7 +4631,7 @@ Encore l'exclusivisme français : la thèse de Larroumet.
 en dehors des collections, ce numéro est complètement
 *:  Magnificence de bourgeoisie. — « Propos de Félix
 Faure », par Saint-Simonin, parus dans le Figaro. La
-60 135
+60
 
 mentalité d'un tanneur, président de la République. ;
 
@@ -4642,7 +4639,7 @@ L'emprunt Doumer : cent millions pour l'Indo-Chine.
 en dehors des collections, ce numéro est complètement
 
 Paris-Berlin. — A propos d'une course d'automobiles. La
-noblesse n'a pas de patrie. L'argent non plus. La ques- 5
+noblesse n'a pas de patrie. L'argent non plus. La ques-
 tion du Maroc. Et l'Alsace-Lorraine ?
 
 Le « contrôle » du Parlement : l'expédition de Chine.
@@ -4656,14 +4653,14 @@ en dehors des collections, huit exemplaires, deux
 francs l'un.
 
 Ce que pensent nos Marocains. — Une question religieuse. « Pourquoi cachez-vous votre société civile, qui
-fait votre force, derrière la société religieuse du temps 4
-passé, qui est votre faiblesse, quand la première vous 1
+fait votre force, derrière la société religieuse du temps
+passé, qui est votre faiblesse, quand la première vous
 attirerait tous les cœurs que la seconde repousse ?... Le ‘
-dogme romain fait la nation chrétienne et la nation 4
-musulmane ennemies. Les « droits de l'homme » les ÿ
-réconcilient. Laissez là le dogme et arrivez, les « droits 1
+dogme romain fait la nation chrétienne et la nation
+musulmane ennemies. Les « droits de l'homme » les
+réconcilient. Laissez là le dogme et arrivez, les « droits
 « de l'homme » à la main. »
-en dehors des collections, 20 exemplaires, un franc i
+en dehors des collections, 20 exemplaires, un franc
 
 Voyage en Chine. — La christianisation de la Chine. À
 L'intervention officielle des missionnaires dans l'administration de la justice. Protestation des Chinois et révoltes
@@ -4685,7 +4682,7 @@ en dehors des collections, 22 exemplaires, un franc
 
 La colonisation de l'Église. — Comment les missionnaires s'entendent à manier le soldat français à leur usage,
 et quel but recouvre l'œuvre des prétendues conversions.
-L'expropriation à main armée des indigènes. La religion è
+L'expropriation à main armée des indigènes. La religion
 au secours du négoce. Le jésuite Labaste et le Fahavalo.
 
 Le règne de Doumer, en Indo-Chine.
@@ -4713,9 +4710,9 @@ plébiscitaire, mais ça ne fait qu'un.
 en dehors des collections, huit exemplaires, deux
 
 La « justice » du sexe fort. — L'affaire Marie Davaillant. |
-Les deux morales sexuelles : la vertu de la femme. La 4
+Les deux morales sexuelles : la vertu de la femme. La
 
-; question de l'enfant. Les problèmes du mariage et l'éga- 3
+; question de l'enfant. Les problèmes du mariage et l'éga-
 k lité des sexes.
 en dehors des collections, 19 exemplaires, un franc
 
@@ -4768,10 +4765,10 @@ actes contestables du général André.
 en dehors des collections, 15 exemplaires, un franc
 A la Comédie. — La victoire de M. Claretie sur ses comé-
 diens. Un acte d'autorité qui n'est pas un acte de raison :
-la suppression du comité de lecture. Mauvaise gestion j
-artistique et financière de l'administrateur du Théâtre- È
+la suppression du comité de lecture. Mauvaise gestion
+artistique et financière de l'administrateur du Théâtre-
 en dehors des collections, huit exemplaires, deux
-Le Peuple-Roi. — Étude critique sur La Vie Publique, de 23
+Le Peuple-Roi. — Étude critique sur La Vie Publique, de
 M. Émile Fabre, représentée au théâtre de la Renais- &
 
 sance. — L'institution du suffrage universel. Du droit de
@@ -4788,7 +4785,7 @@ aux idées. L'homme seul, contre les partis.
 en dehors des collections, 13 exemplaires, un franc
 
 L'incident franco-turc. — L'affaire des quais. L'affaire
-Tubini-Lorando. L''occupation de Mitylène. S'il n'eût été 0
+Tubini-Lorando. L''occupation de Mitylène. S'il n'eût été
 question que des Arméniens. Pourquoi n'a-t-on pas
 songé à l'arbitrage ?
 en dehors des collections, huit exemplaires, deux
@@ -4816,7 +4813,7 @@ français; l'enseignement de la langue française négligé.
 en dehors des collections, dix exemplaires, deux
 francs l'un.
 La République jésuitise. — Les moines de Chineindemnisés par le gonyernement français des « pertes » subies
-par eux durant l'expédition! La résignation des radicaux : fléchissement général des consciences, à l'approche 4
+par eux durant l'expédition! La résignation des radicaux : fléchissement général des consciences, à l'approche
 des élections législatives. #
 
 >. Le chemin de fer du Yun-nam : M. Doumer avait oublié que
@@ -4864,7 +4861,7 @@ Comédie-Française. Le déficit financier et les intérêts des
 sociétaires. L'art officiel et la direction des Beaux-Arts.
 en dehors des collections, ce numéro est complètement
 
-Discours pour la Couronne. — Discours de M. Waldeck-Rousseau. à Saint-Étienne. Que le contentement du E
+Discours pour la Couronne. — Discours de M. Waldeck-Rousseau. à Saint-Étienne. Que le contentement du
 président du Conseil ne doit pas nécessairement être
 partagé par tous les républicains. Bien parler et bien . %
 agir sont deux. Comment les faiblesses et les incohé- =
@@ -4906,13 +4903,13 @@ Les Prétendants. — Un manifeste électoral du prince |
 Victor-Napoléon Bonaparte. Le régime parlementaire »
 d'une part, et ses garanties de liberté; d'autre part, la …
 concentration réactionnaire sous la direction de Rome. |
-Le suffrage universel : difficulté de l'abdication populaire. 4
+Le suffrage universel : difficulté de l'abdication populaire.
 Choses d''Indo-Chine : La brutalité européenne; les mis-W
 sionnaires « chrétiens »; citations du courrier de M. Félicien Challaye, paru aux Cahiers de la Quinzaine. ;
 en dehors des collections, ce numéro est complètement |
 Le traité anglo-japonais. — La diplomatie française |
 prise au dépourvu. Hostilité de la Chine et du Japon.
-Les divers points de vue des diverses puissances. Un nouveau facteur de la politique internationale. 4
+Les divers points de vue des diverses puissances. Un nouveau facteur de la politique internationale.
 en dehors des collections, ce numéro est complètement
 La plateforme électorale. — La coalition contre la
 République. « Le bon maître sera le plus fort. » L'Eglise
@@ -4921,8 +4918,8 @@ liste. Alliances dans l'ombre : Méline et la Patrie Fran:
 Le service de deux ans. — Rapport de M. Berteaux, sur Île
 budget de la guerre. cé
 Encore le rapport Voyron. — Publication de nouveau
-extraits de ce document confidentiel. “à É
-en dehors des collections, ce numéro est complète: mer L
+extraits de ce document confidentiel. “à
+en dehors des collections, ce numéro est complète: mer
 
 Le Socialisme embourgeoisé. — Jugement favorable
 porté par Millerand sur lui-même. La doctrine opportuniste du socialisme de gouvernement. Changement de
@@ -4937,7 +4934,7 @@ la critique du ministère, en vue des sympathies nationa-
 : Question des sucres. — La conférence internationale de
 Bruxelles. L'abolition des primes.
 
-La Traite rétablie. — Le recrutement d'Annamites, trans- 4
+La Traite rétablie. — Le recrutement d'Annamites, trans-
 
 en dehors des collections, ce numéro est complètement
 Les deux premières feuilles de ce cahier étaient tirées
@@ -4960,12 +4957,12 @@ condamné se rendît à la prison, au bagne, ou même à
 l'échafaud. La force armée classique veille à l'exécution des arrêts de justice, et, par ce moyen, ces arrêts
 sont autre chose qu'un simple passe-temps.
 Quand le tribunal de La Haye aura dit que l'Angleterre a tort, je suppose, et que la Hollande a raison,
-comment obligera-t-on le fort à se soumettre à la déci- 4
+comment obligera-t-on le fort à se soumettre à la déci-
 sion qui le condamne à s'incliner devant le faible? ‘4
-Cette question n'a pas beaucoup préoccupé jusqu'ici, 3
-et pour cause, les politiques excellents qui se font 4
+Cette question n'a pas beaucoup préoccupé jusqu'ici,
+et pour cause, les politiques excellents qui se font
 honneur de palabrer sur la vertu de l'arbitrage. Rien ;
-n'est si malheureux que cette négligence, car, aussi 3
+n'est si malheureux que cette négligence, car, aussi
 longtemps que le tribunal international ne disposera +
 
 | d'aucun moyen de faire exécuter obligatoirement ses
@@ -5019,8 +5016,8 @@ autrui, serait de la cultiver soigneusement en nous- , ;
 mêmes. C'est la partie la moins tentante, mais la plus .
 efficace, de notre tâche. Et pourtant, si par la culture |
 prolongée du juste en nos âmes, il se faisait quelque :
-jour une génération d'hommes sincèrement respectueux 1
-du droit, toutes les difficultés que j'ai signalées plus 2x
+jour une génération d'hommes sincèrement respectueux
+du droit, toutes les difficultés que j'ai signalées plus
 haut se trouveraient d'un seul coup résolues. Fe
 
 L'Aurore du jeudi 3 décembre publiait la commu-
@@ -5108,7 +5105,7 @@ note de l'Havas annonçant que le garde des sceaux
 avait saisi la commission instituée au ministère de la
 justice avait été publiée dans les journaux, et en particulier dans l'Aurore, du dimanche 29 novembre;
 Varticle de M. Clemenceau du même dimanche 29 était
-sur l'appel à la conscience humaine du Bureau Socia- L
+sur l'appel à la conscience humaine du Bureau Socia-
 liste International contre les lynchages des noïrs dans
 l'Amérique du Nord et portait ensuite le texte de ce
 manifeste: l'article de M. Clemenceau du lendemain *

@@ -192,7 +192,7 @@ France pour la Célébration de Diderot.
 
 Nous publions ci-après, sur la copie de l'auteur, et
 avec son assentiment très bienveillant, plusieurs fragments de l'Histoire contemporaine. Les fragments que
-l'on va lire n'ont jamais été réunis en volume. l
+l'on va lire n'ont jamais été réunis en volume.
 
 — C'était au printemps de 1895, j'avais vingt ans.
 Nouveau venu à Paris, je traversais des temps difficiles. Cette nuit-là je m'étais étendu dans un taillis
@@ -524,7 +524,7 @@ plus je m'aperçois qu'il n'y a pas de coupables et
 qu'il n'y a que des malheureux. »
 
 I nous fit entrer dans son cabinet et donna à un
-surveillant l'ordre de lui amener la détenue 503.
+surveillant l'ordre de lui amener la détenue
 
 — Je vais, nous dit-il, vous donner un spectacle
 que je n'ai point préparé, je vous prie de le croire,
@@ -746,7 +746,7 @@ d'aimer, camarade : il a voulu que beaucoup d'entre
 nous fussent faits hongres. C'est son ordre. Les lois
 devront maintenir cet ordre adorable.
 
-— Mais es-tu bien sûr, ami, demanda Rous- J
+— Mais es-tu bien sûr, ami, demanda Rous-
 
 F sin, que ces maux viennent du cheval céleste qui
 nous a créés, et non pas seulement de l'homme, sa
@@ -789,11 +789,11 @@ une dalle chaude. Cette dalle est divine.
 Je parle quand je veux. De la bouche du maître
 il sort aussi des sons qui forment des sens. Mais
 ces sens sont bien moins distincts que ceux que ‘2
-j'exprime par les sons de ma voix. Dans ma bouche p
+j'exprime par les sons de ma voix. Dans ma bouche
 tout a un sens. Dans celle du maître il y a beaucoup de vains bruits. Il est difficile et nécessaire de À
 deviner la pensée du maître.
 
-Manger est bon. Avoir mangé est meilleur. Car M
+Manger est bon. Avoir mangé est meilleur. Car
 l'ennemi qui vous épie pour prendre votre nourriture est prompt et subtil.
 Tout passe et se succède. Moi seul je demeure.
 Je suis toujours au milieu de tout, et les hommes,
@@ -841,7 +841,7 @@ qu'un petit nombre. Les portes sont de grands fétiches qui n'obéissent pas vol
 La vie d'un chien est pleine de dangers. Et pour
 éviter la souffrance, il faut veiller à toute heure,
 pendant les repas, et même pendant le sommeil.
-On ne sait jamais si l'on a bien agi envers les d
+On ne sait jamais si l'on a bien agi envers les
 
 hommes. Il faut les adorer sans chercher à les comprendre. Leur sagesse est mystérieuse.
 
@@ -862,7 +862,7 @@ rues. Le monde est plein de choses hostiles et redoutables.
 
 Enfin nos abonnés seront heureux d'avoir en ce format
 de volume le discours prononcé par M. Anatole France,
-membre de l'Académie française, Président de la Section du quartier de la Porte-Dauphine (seizième arron- ï
+membre de l'Académie française, Président de la Section du quartier de la Porte-Dauphine (seizième arron-
 dissement), à l'assemblée générale extraordinaire, du
 Ligue française pour la défense
 des Droits de l'Homme et du Citoyen.
@@ -1080,7 +1080,7 @@ Nos cahiers étant très pauvres, nous ne servons plus
 
 Nous acceptons que nos abonnés paient leur abonnement par mensualités de un ou deux francs.
 
-Pour savoir ce que sont les Cahiers de la Quinzaine, F
+Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
 8, rue de la Sorbonne, Paris. On recevra er spécimens

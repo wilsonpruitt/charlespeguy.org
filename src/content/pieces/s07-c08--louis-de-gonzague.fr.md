@@ -9,36 +9,36 @@ wordCount: 3286
 ocrSource: "Trimmed 2026-05-25 from prior conflated OCR. Original file contained Spire poetry (now in et-vous-riez.fr.md) + this Péguy editorial back-matter."
 translationNotes: "ATTENTION : Ce texte n'est PAS l'essai *Louis de Gonzague* (sur le saint Louis de Gonzague) que la table des matières du cahier annonce à la p. XIII. Il s'agit de la matière éditoriale de Péguy à la fin du cahier (errata, *Les suppliants parallèles*, note sur Gapone). Le vrai essai *Louis de Gonzague*, qui commence au feuillet 19 du volume archive.org `s7cahiersdelaquinz08pg`, reste à OCR-iser."
 ---
-Même cahier, page 46, premier paragraphe, c'est é
+Même cahier, page 46, premier paragraphe, c'est
 moi qui ai commis la phrase suivante : « Et lui-même =
 Leconte de Lisle, voici comme on m'écrit qu'il nomme à
-les sept tragédies de Sophocle : Oidipous-Roi, Oidipous F
+les sept tragédies de Sophocle : Oidipous-Roi, Oidipous
 Vous vous demandez peut-être ce que cette phrase a
 de si extraordinaire. Et vous me le demandez. Ne vous ;
 le demandez plus. Je vais vous le dire. Cette phrase a
 ceci de particulier que les noms de tragédies qui sont è À
-alignés en italiques forment un total de six, et non Ë
-point de sept. C'est ici la revanche des méthodes histo- 4
+alignés en italiques forment un total de six, et non
+point de sept. C'est ici la revanche des méthodes histo-
 riques. Mon ami, devinant que j'aurais à utiliser ce :
 renseignement, m'avait de lui-même envoyé à mon labo- à
-ratoire au dernier moment une carte postale ainsi 4
+ratoire au dernier moment une carte postale ainsi
 énoncée : « Leconte de Lisle dans la traduction de }
-On sait ce que c'est qu'une carte postale. Cette addi- 4
+On sait ce que c'est qu'une carte postale. Cette addi-
 tion à six, qui paraît évidente dans une colonne typo- à
-graphique, ne me frappa point dans le désarroi manu- L
+graphique, ne me frappa point dans le désarroi manu-
 scrit d'une carte postale. Comme j'avais la tête pleine di
 des sept tragédies de Sophocle, je mis hardiment : Ne
-voici comme on m'écrit qu'il nomme les sept tragédies 4
+voici comme on m'écrit qu'il nomme les sept tragédies
 de Sophocle. Et voilà ce que c'est que d'être un orgueil- ‘4
 leux, et un mauvais, déjà nommé, qui un jour a parlé +
-È mal contre les méthodes historiques. ; 2
-102 30
+È mal contre les méthodes historiques.
+102
 
 La carte de mon ami était toute sage et prudente; il
 ne parlait pas de sept tragédies, lui; mais sachant que
 je travaillais sur Œdipe roi, il avait commencé de
 noter à Oidipous-Roi et il avait tranquillement continué.
-C'est moi qui, la tête pleine de traductions et de transcriptions, et de ce nombre 7, ai tant considéré l'ortho- ÿ
+C'est moi qui, la tête pleine de traductions et de transcriptions, et de ce nombre 7, ai tant considéré l'ortho-
 graphe que j'en ai oublié le nombre. J'ai joué au naturel
 cette innocente facétie par laquelle on ne prend plus
 guère aujourd'hui que les enfants au-dessous de dix
@@ -68,32 +68,32 @@ méthode le conduit à ce point : qu'il transcrit le mot
 
 par un bout, qu'il traduit le mot, le même mot, pa
 V'autre bout. Et s'il ne traduisait pas, s'il transcrivait
-cette déclinaison, comment nous la ferait-il prononcer? 14
+cette déclinaison, comment nous la ferait-il prononcer?
 Car nous touchons par là, nous parvenons à ce cas ‘34
 maximum, à ce cas éminent, à ce cas particulièrement à
 aigu : que pour les mêmes lettres, pour les mêmes syl- “4
-labes son système, sa méthode le conduit à spéculer  « sur ce malentendu : qu'il adopte une orthographe, une F5
+labes son système, sa méthode le conduit à spéculer  « sur ce malentendu : qu'il adopte une orthographe, une
 écriture telle que l'écriture de la syllabe est transcrite.  "
-et que la prononciation de la même syllabe est traduite. É
-Quand on traduit ou plutôt quand on transcrit ai Moïpeu M
-, par les Moires, et qu'ensuite on fait rimer Moires par 4
+et que la prononciation de la même syllabe est traduite.
+Quand on traduit ou plutôt quand on transcrit ai Moïpeu
+, par les Moires, et qu'ensuite on fait rimer Moires par
 exemple avec noires, — on pourrait le faire même %
-rimer avec le nom commun des moires, — on joue, on 4
+rimer avec le nom commun des moires, — on joue, on
 spécule vraiment sur l'écriture et sur la prononciation Es
 du mot les Moires. On fait presque littéralement un A
 calembour, entre l'écriture et la prononciation d'un
-même mot, de la même syllabe, entre l'écriture, qui Ÿ
+même mot, de la même syllabe, entre l'écriture, qui
 affecte d'être transcription pure, et la prononciation,
-; qui est, sournoisement, édition, traduction ordinaire. 4
+; qui est, sournoisement, édition, traduction ordinaire.
 Je reviens, malgré moi, à cette question du prix
-de la Vie heureuse, et plus généralement à toute cette n
-question des prix littéraires. C'est une des questions où 4
-lhypocrisie moderne se donne le plus généreusement F
-libre cours. Des hommes qui commettent journellement n
+de la Vie heureuse, et plus généralement à toute cette
+question des prix littéraires. C'est une des questions où
+lhypocrisie moderne se donne le plus généreusement
+libre cours. Des hommes qui commettent journellement
 les infamies les plus basses pour gagner quelques sales ne.
-G sous chez les plus infâmes éditeurs, — et ils ne peuvent 11
+G sous chez les plus infâmes éditeurs, — et ils ne peuvent
 le faire qu'en ayant un public, en obtenant un public,
-ils ne peuvent le faire qu'en apportant un public à cet 4
+ils ne peuvent le faire qu'en apportant un public à cet
 éditeur, c'est-à-dire en flattant dans ses ignominies les >
 plus basses le public le plus bête et le plus bas que l'on
 
@@ -114,7 +114,7 @@ justifie, elle se prouve entièrement. Elle se justifie d'être.
 Il ne faut pas discuter abstraitement, il ne s'agit pas de
 Savoir en théorie aprioristique si telle ou telle Académie |
 vaut mieux ou si ce ne serait pas telle ou telle institu-
-tion. En fait c'est l'institution qui aura le mieux choisi, v
+tion. En fait c'est l'institution qui aura le mieux choisi,
 et le plus constamment, qui sera la meilleure, et qui
 aura eu raison. Supposez que la Vie heureuse fasse
 pendant plusieurs années des choix aussi marqués. IL
@@ -125,39 +125,39 @@ véritable, une légitime autorité morale.
 
 J'ajoute que mes renseignements particuliers me permettent d'affirmer que l'administration de la Vie heureuse à été dans l'administration de son choix et dans
 
-l'administration de la récompense consécutive d'une M
+l'administration de la récompense consécutive d'une
 discrétion parfaite et de la meilleure bonne tenue. Er
-C'est un procédé qui a son prix, quand tant d'entre- 4
+C'est un procédé qui a son prix, quand tant d'entre-
 prises et d'institutions officielles courent elles-mêmes
-après la réclame et la manifestation. Il ne faut point É
-oublier que le commencement de tout ceci a été simple- L
+après la réclame et la manifestation. Il ne faut point
+oublier que le commencement de tout ceci a été simple-
 ment que madame de Broutelles avait lu le Jean- -
 Christophe dans l'exemplaire que lui avait prêté un PE.
-ami; que ni Rolland ni nous ses éditeurs n'avons point 8
+ami; que ni Rolland ni nous ses éditeurs n'avons point
 fait même un semblant de démarche. Cette spontanéité #
 de celui qui a la charge et la responsabilité de choisir
-et d'attribuer m'enchante. Cette histoire invraisem- L
-blable m'enchante comme une histoire du temps passé. 4
+et d'attribuer m'enchante. Cette histoire invraisem-
+blable m'enchante comme une histoire du temps passé.
 Elle est vraie, pourtant. Et elle est présente. Je ne sais
-pas si elle est unique. Mais je crois bien que bien peu 4
+pas si elle est unique. Mais je crois bien que bien peu
 de désignations académiques et littéraires pourraient
 en dire autant, pourraient sortir une histoire naïve À
-comme celle-ci. 3
-On ne doit pas moins en féliciter l'auteur. C'est ici la F
+comme celle-ci.
+On ne doit pas moins en féliciter l'auteur. C'est ici la
 question même du principe qui se pose, du principe en $
-vertu duquel fonctionnent de telles institutions. Puisque 5
+vertu duquel fonctionnent de telles institutions. Puisque
 nous n'avons plus les pensions du roi et puisque les "3
-pensions de la République, devenues les sinécures de 4
-l'État et les faveurs du gouvernement, s'égarent on ne 4
+pensions de la République, devenues les sinécures de
+l'État et les faveurs du gouvernement, s'égarent on ne
 sait sur quelles têtes, ou plutôt on sait trop sur qui, ‘À
-notamment sur la horde innombrable et famélique des s.
+notamment sur la horde innombrable et famélique des
 sociologues, il est bon, et l'on doit se féliciter sans au- À
 cune réserve et sans aucune arrière-pensée que des
-institutions particulières, que des initiatives privées 7
+institutions particulières, que des initiatives privées
 maintiennent ou restituent parmi nous quelques traces “À
-de ces anciennes mœurs. Quand on pense qu'un prix de : 3
+de ces anciennes mœurs. Quand on pense qu'un prix de
 cinq mille francs peut représenter douze ou seize mois
-7 2
+7
 
 de sécurité pour le travail en repos et pour le loisir :
 calme d'un honnête homme et d'un homme qui a fait
@@ -191,36 +191,36 @@ coquilles paraissent de préférence en belle place, naissent et prospèrent aux
 quand on ouvre le cahier, — que le m initial de mili-
 
 taire a été violemment ou insidieusement reporté sur LS
-force. On doit penser qu'une aussi grosse coquille ne 4
+force. On doit penser qu'une aussi grosse coquille ne
 nous aurait point échappé, ni à Payen ni à moi. Eten À
 effet, me reportant au dossier de la fabrication de ce %
 cahier, je constate que cette faute n'existait ni en pla- à
 cards, ni en mise, ni en tierce, qu'elle n'existait ainsi À
-à aucun degré, dans aucune des épreuves successives, 1
+à aucun degré, dans aucune des épreuves successives,
 par où nous sommes obligés de passer, qui défont les !
-yeux des misérables fonctionnaires, enfin qu'elle n'exis- 3
+yeux des misérables fonctionnaires, enfin qu'elle n'exis-
 tait pas dans ce bon à tirer définitif après lequel, toute LE
 la cause étant entendue, les machines roulent. Ainsi ;
 elle n'existait point au moment où l'irrévocable va com- À
-mencer. Je ne veux point rechercher pour établir les 4
-responsabilités ni ce qu'on nomme les fautes lourdes. 4
+mencer. Je ne veux point rechercher pour établir les
+responsabilités ni ce qu'on nomme les fautes lourdes.
 Quand un tel crime a été commis, le plus sûr est de ne À
 pas faire d'enquête. Tous les gouvernements le savent ;
-bien. Et c'est alors qu'il faut qu'un silence éternel cache Ë
+bien. Et c'est alors qu'il faut qu'un silence éternel cache
 ce souvenir. On obtient généralement ce silence en ;
 
-disant que c'est un accident de tirage. È
+disant que c'est un accident de tirage.
 Pourtant, et sans chercher à établir de vaines res- ; ;
-ponsabilités individuelles, je suis bien forcé de m'aper- 1
+ponsabilités individuelles, je suis bien forcé de m'aper-
 cevoir que cette fois le bénéfice de la faute revient tout
 entière encore au personnel ouvrier. Payen et moi nous ;
-nous étions conjurés ici pour donner bon à tirer un 1
-texte propre. Cette ligne était marquée seulement à 1
+nous étions conjurés ici pour donner bon à tirer un
+texte propre. Cette ligne était marquée seulement à
 réespacer, parce que les espaces étaient un peu inéga- à
 lement réparties. Donc il faut qu'en la réespaçant le Ée
 corrigeur ait mal remis ses espaces, coupant mal ses ;
-mots. Et il faut que le reviseur ait seulement revisé les 4
-espacements marqués, au lieu de lire et de revisertoute n
+mots. Et il faut que le reviseur ait seulement revisé les
+espacements marqués, au lieu de lire et de revisertoute
 la ligne, comme c'est un principe, une règle, un moyen | ;
 de contrôle formellement recommandé, prescrit même (re
 
@@ -230,7 +230,7 @@ geur à touché à une ligne, on n'a plus aucune sécurité
 pour aucune partie, pour aucun élément de cette ligne,
 et la ligne tou! entière est sujette à revision.
 
-4 Cette règle essentielle n'avait pas été appliquée dans
+Cette règle essentielle n'avait pas été appliquée dans
 l'espèce. On me pardonnera d'entrer dans ces détails
 de fabrication industrielle, dans ces détails de métier.
 Et si on ne me le pardonne pas j'en prendrai mon parti
@@ -248,7 +248,7 @@ le ministère de notre métier, par le métier que chacun
 
 nous faisons.
 
-3 Ce métier, cet art de typographie, cet art et métier
+Ce métier, cet art de typographie, cet art et métier
 entre tous nous donne un exemple, éminent, une repré-
 sentation, et comme un schème, un symbole de l'imperfection originelle et comme essentielle de tout travail
 
@@ -289,7 +289,7 @@ tendre à une certitude, à une sécurité hermétique. Ily +
 a toujours quelque fuite. Le total se partagetoujoursen. =
 
 RE: deux parties, l'entier se partage toujours en deux frac
-tions dont l'une, plus ou moins grande, est celle dela. 2
+tions dont l'une, plus ou moins grande, est celle dela.
 sécurité, dont l'autre plus où moins petite, mais réelle =.
 toujours et toujours positive, constitue le domaine de
 
@@ -304,10 +304,10 @@ x sur cette certaine fraction, partent de cette certaine
 proportion, de ce certain pour cent. Ils corrigent naturel-. RS
 lement quelques fautes, mais, quand même ils s'y appli.
 
-queraient, — et ils ne s'y appliquent point, et en effet. :5
+queraient, — et ils ne s'y appliquent point, et en effet.
 ce n'est pas leur office, en fait ce n'est aucunement leur. 3 Le
 métier, — quand même ils s'y appliqueraient ilsne
-pourraient jamais en corriger eux-mêmes qu'un certain 2 2
+pourraient jamais en corriger eux-mêmes qu'un certain
 nombre, une certaine fraction, une certaine proportion,
 un certain pour cent. Et comme eux-mêmes ils retra
 
@@ -332,7 +332,7 @@ au contraire qui consiste à pouvoir commettre des fautes
 s* porte au contraire sur tout l'ensemble du‘travail. Elle
 fait donc à chaque fois fonctionner un pour cent ?
 
-d'ensemble, de cet ensemble, calculé sur tout cet É
+d'ensemble, de cet ensemble, calculé sur tout cet
 Je n'insisterais point tant sur cette analyse du travail
 # “industriel et sur cette théorie de la quantité de l'erreur
 ee dans le travail industriel, je n'insisterais pas tant sur
@@ -347,18 +347,18 @@ physiquement ‘absolues et totales. Par où je vois bien
 
 ra que j'ai eu tort d'entrer incidemment dans un aussi
 
-æ grave débat, que j'aurais mieux fait de me taire, et ÿ
+æ grave débat, que j'aurais mieux fait de me taire, et
 Pe qu'il.faut réserver toutes ces recherches, toutes ces
 
 5 études préparatoires pour la préparation de la thèse
 
 que je me suis permis d'annoncer.
 
-Les suppliants parallèles. — Dans le Matin daté du Ë
+Les suppliants parallèles. — Dans le Matin daté du
 mercredi 13 décembre 1905 et paraissant ce même
 jour, il a paru un entretien avec Gapon, plus ou moins 2 :
 authentique, et peut-être plus ou moins suspect, mais :
-qui présente avec une partie de ce que j'ai dit générale F
+qui présente avec une partie de ce que j'ai dit générale
 ment de la prétendue révolution russe et particulière
 ment de la situation de Gapone, et notamment de la
 situation de Gapone auprès des révolutionnaires, des … ee.
@@ -367,17 +367,17 @@ que je suis forcé de rappeler que les cahiers étant un
 périodique broché, généralement assez épais, le cahier
 qui tombe chez nos abonnés le samedi matin pour
 le lendemain dimanche est généralement fini d'écrire le ne.
-dimanche précédent, qu'il est généralement fini d'im- 0
+dimanche précédent, qu'il est généralement fini d'im-
 primer ou pour le moins donné bon à tirer le mardi,
-comme le portent nos indications de date, qu'il est œ
-généralement rendu chez le brocheur le mercredi matin, 210
+comme le portent nos indications de date, qu'il est
+généralement rendu chez le brocheur le mercredi matin,
 et qu'il en part généralement le jeudi soir pour ceux de <
 nos abonnés qui demeurent dans les pays les plus éloi- ‘4
 gnés. Ce qui revient à dire, une fois de plus, que nous
 sommes des cahiers de la quinzaine, et non pas des : à
 Au demeurant, il faut avouer que le cas du prêtre
-Gapone est très singulier. Mais qu'est-ce qui n'est pas D.
-singulier, pour nous Occidentaux, pour nous Français, 4
-dans tout ce qui vient non seulement du mouvement 7
+Gapone est très singulier. Mais qu'est-ce qui n'est pas
+singulier, pour nous Occidentaux, pour nous Français,
+dans tout ce qui vient non seulement du mouvement
 russe, de ce mouvement russe, mais généralement *
 de tout le caractère et de toute la vie de ce peuple.

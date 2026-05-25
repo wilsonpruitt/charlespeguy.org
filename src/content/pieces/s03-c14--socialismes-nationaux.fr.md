@@ -13,7 +13,7 @@ _ 8, rue de la Sorbonne, au rez-de-chaussée
 
 Le jour même où nos abonnés recevaient le douzième
 
-14 Juillet étaient suspendues au Théâtre de la Renaissance. Les recettes avaient baissé au commencement de la semaine. Gémier fit afficher aussitôt des
+Juillet étaient suspendues au Théâtre de la Renaissance. Les recettes avaient baissé au commencement de la semaine. Gémier fit afficher aussitôt des
 réduits. C'était vouloir créer la panique. Pourtant elle
 ne se produisit pas. Jusqu'à la soirée du dimanche
 inclus les représentations furent chaleureuses. La pièce
@@ -59,7 +59,7 @@ qu'on le peut, assister aux réunions, écouter les boni-
 | ments. Ce commerce est d'un enseignement formi_ dable.
 :. Quoi que l'on pense et quoi que l'on puisse penser du
 … devoir électoral, en fait il est impossible de nier que
-al l'exercice du suffrage universel en France est devenu, j
+al l'exercice du suffrage universel en France est devenu,
 … sauf de rares et d'honorables exceptions, un débordement non encore éprouvé, un débordement de vice à inoui. Exactement comme le nationalisme barbare,
 exactement comme l'alcoolisme, exactement comme
 l'antisémitisme barbare, exactement comme un certain
@@ -113,7 +113,7 @@ Nous mesurons ce que c'est que deux siècles de la vie
 d'un grand peuple dans l'histoire de l'humanité; du
 premier peuple vraiment, de celui qui a marché le premier et le plus avant dans l'institution de la démocratie.
 Nous mesurons d'autant la faillite, la banqueroute
-immense que nous avons faite. Et que le monde a faite M
+immense que nous avons faite. Et que le monde a faite
 avec nous, Car l'usage de la démocratie n'a pas donné À
 en Amérique, en Angleterre, des résultats moins lamen- fi
 tables que ceux qu'il a donnés en France. Et quand nous
@@ -246,7 +246,7 @@ un autre instinct secret, qui reste de la grandeur de
 notre première nature, qui leur fait connaître que le
 bonheur n'est en effet que dans le repos et non pas dans
 le tumulte; et de ces deux instincts contraires, il se
-forme en eux un projet confus, qui se cache à leur vue i
+forme en eux un projet confus, qui se cache à leur vue
 
 | dans le fond de leur âme, qui les porte à tendre au repos
 par l'agitation, et à se figurer toujours que la satisfaction qu'ils n'ont point ieur arrivera, si, en surmontant
@@ -316,7 +316,7 @@ abandonnés, parce que personne ne les empêche de songer à eux.
 son fils unique, qui a cette grande querelle qui le
 tourmente, d'où vient qu'à ce moment il n'est pas triste,
 et qu'on le voit si exempt de toutes ces pensées pénibles À
-et inquiétantes ? Il ne faut pas s'en étonner ; on vient de G
+et inquiétantes ? Il ne faut pas s'en étonner ; on vient de
 lui servir une balle, et il faut qu'il la rejette à son
 compagnon, il est occupé à la prendre à la chute du toit,
 pour gagner une chasse; comment voulez-vous qu'il
@@ -434,7 +434,7 @@ La nature nous rendant toujours malheureux en tous
 états, nos désirs nous figurent un état heureux, parce
 qu'ils joignent à l'état où nous sommes les plaisirs de
 l'état où nous ne sommes pas: et, quand nous arriverions
-à ces plaisirs, nous ne serions pas heureux pour ‘cela, î
+à ces plaisirs, nous ne serions pas heureux pour ‘cela,
 parce que nous aurions d'autres désirs conformes à ce
 
 Je lis dans le Mouvement Socialiste, numéro 79, du
@@ -448,21 +448,21 @@ L'armée et la flotte de la métropole coûtent par an environ
 la guerre d'un million de florins, et un des plus jeunes et
 plus « démocratiques », membres de la majorité, le docteur
 Talma, a, pour la première fois dans le parlement néerlandais, fait l'apologie du militarisme comme une chose
-bienfaitrice et chrétienne. j
+bienfaitrice et chrétienne.
 Entre autres, il a cité Jaurès, qui, dans son livre l'Action
-Socialiste a dit qu'il n'était pas vrai que l'Europe soit d
+Socialiste a dit qu'il n'était pas vrai que l'Europe soit
 ï écrasée sous les charges du militarisme ; que par contre
 « l'Europe a eu, sous la cuirasse, des années de prospé- va
 rité merveilleuse », et que « les Etats modernes pourront, à
-sans péril, porter d'énormes budgets de défense natio- ï
+sans péril, porter d'énormes budgets de défense natio-
 L'Action Socialiste n'est pas un livre de Jaurès.
 Quand j'eus fondé la librairie Georges Bellais, je h deémandai à Jaurès la permission de réunir en un volume de:
-de propagande le plus que je pourrais de ses articles S
-antérieurs. Avec sa très grande libéralité, non seule- ù
+de propagande le plus que je pourrais de ses articles
+antérieurs. Avec sa très grande libéralité, non seule-
 ment il nous permit de faire ce que nous voulions;
 mais pour le faire il nous laissa toute latitude. Il nous
 laissa faire le choix, l'agencement, la composition, les
-(1) L'Aciion Socialiste, page 334. i
+(1) L'Aciion Socialiste, page
 
 corrections sur épreuves. À peine ai-je besoin de dire
 qu'il ne toucha pas un sou dans l'opération. Moi non
@@ -476,7 +476,7 @@ séries suivantes. Les articles de journaux et de revues
 que Jaurès avait publiés sur l'action politique, sur la
 politique intérieure, sur le jeu des partis, sur les grèves
 et l'action syndicale, sur le socialisme en théorie et en à
-idée, sur l'action coopérative, méritaient qu'on les é
+idée, sur l'action coopérative, méritaient qu'on les
 
 Je ne pus réunir que la première série. Ce premier *
 
@@ -624,7 +624,7 @@ exactement réparti, reconnu les responsabilités. Je
 reproduis cet avant-propos :
 De jeunes amis m'ont demandé la permission de
 réunir, en un ou plusieurs volumes, un choix de
-mes articles et discours. Un moment, j'ai hésité. Je l
+mes articles et discours. Un moment, j'ai hésité. Je
 craignais qu'on ne vît là une sorte de préoccupation
 Littéraire peu convenable à un militant. Et puis,
 nous avons devant nous tant de travail, nous avons
@@ -656,7 +656,7 @@ _ combattre la légende qui fait de moi un centre-
 . gauche converti, mais simplement parce que c'est
 _ la vérité.
 
-1 Mais il est vrai aussi que j'ai adhéré à l'idée
+Mais il est vrai aussi que j'ai adhéré à l'idée
 
 socialiste et collectiviste avant d'adhérer au parti
 socialiste. Je m'imaginais que tous les républicains,
@@ -855,7 +855,7 @@ leur donner une liberté illimitée, presque partout les
 (1) A la fin de l'Ancien Régime on trouve en France, parmi les
 recettes municipales, l'afferme de la boulangerie, de la boucherie,
 du cabaret, de la fourniture de la glace (Brutails. — Notes sur l'économie rurale du Roussillon, pages 174-175).
-(2) D'après Lavoinne et Pontzen. — Les Chemins de fer en Amérique, tome II, page 492.
+(2) D'après Lavoinne et Pontzen. — Les Chemins de fer en Amérique, tome II, page
 
 _ États ont cependant interdit la perception de taxes
 _ déraisonnables : et cette législation a été reconnue
@@ -870,7 +870,7 @@ l'observation; « les organismes ne sont pas interchangeables comme les pièces 
 conviennent chacun à l'usage auquel ils sont destinés ».
 Il me semble que ce grand économiste n'a pas suflisam-
 |. ment signalé les causes spécifiques qui ont assuré le
-| Succès du trade-unionisme anglais. i
+| Succès du trade-unionisme anglais.
 BX.| En Angleterre, l'organisation du travail a été, jusqu'à
 une époque récente, soumise à des principes du Moyen_ Age. Il n'y a pas si longtemps que la loi désignait
 _ l'entrepreneur et l'ouvrier par les termes master and
@@ -879,8 +879,8 @@ anglais était vraiment asservi; il faut toujours penser à
 | cela quand on lit le Capital. Ce n'est point par un abus
 . métaphorique des mots que Marx compare le capitaliste
 À à un législateur privé, rédigeant un code qui (2) « n'est
-RG) Dubois. |) Les. Chemins! de fer aux États-Unis, pages 163,
-| 179. 181.
+RG) Dubois. |) Les. Chemins! de fer aux États-Unis, pages
+|
 4 (2) Capital, tome I, page 183, colonne 2. — Cette législation privée
 ÿ * fprivatgesetzlich, und eigenherrlich) manque de rationalité ; elle est
 . donc bien une caricature de l'ordre qui correspond à l'organisation
@@ -910,31 +910,31 @@ le salaire; depuis que le commerce est devenu libre, les À
 capitalistes s'efforcent d'accroître leurs profits, et ce,
 changement est interprété en partant de l'ancienne doc- À
 trine juridique du travail : quand le patron parvient à
-allonger la journée sans augmenter le salaire, il sem- M
+allonger la journée sans augmenter le salaire, il sem-
 blerait naturel de dire qu'il diminue le prix de l'heure ;
-(1) Marx se demande (page 113, colonne 1) si le fabricant d'acier, ù
+(1) Marx se demande (page 113, colonne 1) si le fabricant d'acier,
 Sanderson, croit posséder, en vertu de son outillage, un droit de à
-vingt-quatre heures sur ses ouvriers {Anweisung auf die Arbeit- t
-page 116, colonne 1 et colonne 2. ÿ.
+vingt-quatre heures sur ses ouvriers {Anweisung auf die Arbeit-
+page 116, colonne 1 et colonne
 
 à Marx, (1) à limitation des ouvriers anglais, dit que le
 _ patron profite du travail non payé (unbezahlte Arbeit,
 ‘1 unpaid labour). Les ruses que les entrepreneurs em-
  ploient pour allonger la journée normale sont assimilées
-4 A e « » constamment (2) à des usurpations et à des vols. La
+A e « » constamment (2) à des usurpations et à des vols. La
 1 grande charte du travailleur moderne est la loi qui
 À sépare (3) « le temps propre de l'ouvrier et celui de son
 K Les idées que les ouvriers anglais se font de leurs
 4 droits sont, en grande partie, basées sur la pratique du
 À long apprentissage qui a habitué les ouvriers qualifiés
-€ à se considérer comme séparés du reste des travail_ leurs:les hommes qui ne sont pas en règle — comme ils s
+€ à se considérer comme séparés du reste des travail_ leurs:les hommes qui ne sont pas en règle — comme ils
 … disent — n'ont pas qualité pour leur faire concurrence
 . louvrier qui ne paie pas ses cotisations régulièrement
 . à son Union, est un irrégulier contre lequel la persécu_ tion est permise ; le blackleg, celui qui vient prendre la TM
 place d'un gréviste, est un véritable malfaiteur.
 
 La notion du domicile légal constitue un deuxième
-> élément essentiel dans la formation de l'esprit anglais ; È
+> élément essentiel dans la formation de l'esprit anglais
 . les ouvriers attachent une certaine valeur juridique au
 . lieu où ils ont le droit de travailler ; il ÿ a quelques
 L'années, au Congrès de Cardiff, les trade-unionistes
@@ -967,7 +967,7 @@ existant dans le lieu de leur résidence, les ouvriers
 anglais se sont considérés comme ayant sur les machines une sorte de jus in re aliena et entre eux s'est
 développé un esprit de corps que l'on ne retrouve que
 très exceptionnellement ailleurs. Sans cette notion juridique je ne crois pas qu'il y ait de trade-unionisme
-possible; et c'est à la faiblesse qu'elle a chez nous, Ù
+possible; et c'est à la faiblesse qu'elle a chez nous,
 qu'il faut surtout attribuer l'instabilité du mouvement
 
 (1) J'ai signalé dans la Science sociale (novembre 1900, page 435) que
@@ -1106,7 +1106,7 @@ obligés de passer par la vie ouvrière, (1) que Le pays a
 un grand intérêt à rendre cette vie compatible avec la
 formation normale de l'intelligence,
 
-Dans ce pays où tout le monde veut participer au d
+Dans ce pays où tout le monde veut participer au
 mouvement progressif et où ce mouvement est appuyé
 sur des conditions économiques qui en assurent la
 durée, l'éducation est la constante préoccupation de
@@ -1161,7 +1161,7 @@ encore pu s'acclimater à la vie américaine; ils ont
 surtout dépensé leur énergie à entrer en conflit avec la …
 Fédération du Travail.
 
-Pour étudier ce qui est particulièrement français dans l
+Pour étudier ce qui est particulièrement français dans
 l'organisation ouvrière nous prendrons comme type les
 groupes dont le fonctionnement a motivé depuis long-
 
@@ -1175,7 +1175,7 @@ adhérents, des contrats collectifs, qui s'appliqueront à
 _ tout l'atelier, voilà des besognes qui rentrent dans ce
 qu'on peut appeler l'organisation du travail. Les syndicats, aux yeux des bureaux de l'Office du travail français, sont bien autre chose que des agences d'affaires
 réglant des questions d'intérêt; ce sont des agences
-daliruisme, qui débitent du sentiment (1): « par la k s
+daliruisme, qui débitent du sentiment (1): « par la
 générosité et la généralité de ses vues, le syndicat
 professionnel est en train de devenir la meilleure école
 de dévouement social ».
@@ -1187,10 +1187,10 @@ _ pareil nombre de terrassiers parisiens ont provoqué
 _ deux grandes grèves qui ont compris, la première, huit
 mille ouvriers et la seconde, quinze mille. Ce n'est pas
 _ sans raison que de pareils phénomènes sont rapprochés
-(par l'Oflice du travail lui-même) de ceux qu'on observe k
+(par l'Oflice du travail lui-même) de ceux qu'on observe
 : en matière électorale ; les masses suivent des groupes
 à peu nombreux unis autour de comités. D'après la docps trine officielle, Le syndicat est une coalition permanente,
-à (1) Office du travail. — Les associations professionnèlles ; tome I,
+à (1) Office du travail. — Les associations professionnèlles ; tome
 
 ce qui veut dire qu'il est une agence d'agitation, suscitant des difficultés incessantes au patron et épiant le
 moment favorable pour provoquer un conflit (quand le
@@ -1228,7 +1228,7 @@ presque tous les conflits les syndicats sentent leur
 impuissance et ils s'en remettent aux décisions de leurs
 adhérents; quelquefois même ils laissent la première
 place à des tomités improvisés et servent seulement de
-commissionnaires. Il est impossible de traiter des s
+commissionnaires. Il est impossible de traiter des
 affaires sérieusement par des procédés aussi extraordinaires. (1)
 
 On comprend facilement que tous les gouvernements
@@ -1262,11 +1262,11 @@ violence leur plaît infiniment et les programmes Mes
 plus radicaux ne leur font pas peur; comme leurs prédécesseurs, ils croient qu'il faut s'occuper d'affaires et
 ne pas trop se préoccuper de l'avenir. La démagogie
 autoritaire contemporaine comprend le rôle des syndicats comme l'avait compris l'Empire.
-3 La loi de 1884 n'accorda aux syndicats que des avantages illuscires: la grande faveur de la personnalité
+La loi de 1884 n'accorda aux syndicats que des avantages illuscires: la grande faveur de la personnalité
 civile ne sert pas à grand chose et on sait que beaucoup d'associations prospères s'en passent fort bien;
 on ne fit rien pour amener les syndicats à devenir des
 agences d'affaires corporatives. Les ouvriers croient
-que cette loi a eu pour objet de forcer les patrons à L
+que cette loi a eu pour objet de forcer les patrons à
 reconnaître les syndicats, c'est-à-dire à accepter leur À
 médiation pour les contestations : la décision arbitrale
 de M. Waldeck-Rousseau sur la grève du Creusot
@@ -1277,13 +1277,13 @@ plaider individuellement; (2) — réciproquement il ne
 peut donner aucune garantie à l'industriel. En réalité,
 ce contrat collectif n'est pas un contrat; il n'est qu'une
 promesse dont l'exécution n'est assurée par aucun Y
-moyen de droit; et la force du syndicat est souvent si l
-faible que c'est même à peine une promesse dans cer- î
+moyen de droit; et la force du syndicat est souvent si
+faible que c'est même à peine une promesse dans cer-
 @) « L'intermédiaire du syndicat auquel appartient l'une des par- À
 ties peut être utilement employé si toutes deux y consentent;/il ne
-peut être imposé. » (Office du travail. — Statistique des grèves et des l
+peut être imposé. » (Office du travail. — Statistique des grèves et des
 recours à la conciliation et l'arbitrage survenus pendant l'année 1899, à
-(2) Le Mouvement socialiste, 15 mars 1900, page 350. S
+(2) Le Mouvement socialiste, 15 mars 1900, page
 
 Le caractère démagogique de la loi de 1884 (x) apparaît surtout dans l'abolition de l'article 416 du Code
 pénal qui punissait « tous ouvriers, patrons ou
@@ -1331,7 +1331,7 @@ faut que les ouvriers arrivent à comprendre qu'il y a
 des raisons de droit devant lesquelles les sentiments
 doivent fléchir et que tout ce qui les gêne n'est point
 nécessairement bon à jeter au feu : de ce que souvent
-des syndicats ont été condamnés pour avoir fait des ï
+des syndicats ont été condamnés pour avoir fait des
 actes constituant des quasi-délits, devons-nous penser
 que le quasi-délit doit disparaître de nos Codes ou
 encore (1) devenir inapplicable aux syndicats? Il
@@ -1389,23 +1389,23 @@ de travail, contre lequel s'étaient insurgés les ouvriers
 de Calais (le Socialiste, 21 avril 1901); — au moment
 de l'arrivée du tsar il y a eu, à Dunkerque, une petite
 grève assez mystérieuse, qui a commencé et s'est
-terminée si bien à point que des gens du pays ont cru F
+terminée si bien à point que des gens du pays ont cru
 y reconnaître la main du gouvernement ; — enfin les
 menaces de grève générale que font les mineurs,
 rendent les plus grands services à M. WaldeckRousseau que les modérés n'osent renverser.
 Cette déviation de l'action ouvrière conduit les À
 travailleurs à penser qu'au lieu de discuter avec leurs
-patrons sur leurs intérêts économiques, il serait beau- l
+patrons sur leurs intérêts économiques, il serait beau-
 coup plus avantageux pour eux de s'adresser aux
 pouvoirs publics, en les invitant — sous menaces de ‘4
 troubles — à faire aboutir leurs réclamations. Cet état hi
 d'esprit est tout naturel dans les sociétés encore mal
-préparées à la vie publique; on avait cru qu'il disparaîtrait avec la pratique de l'organisation syndicale ; il N
+préparées à la vie publique; on avait cru qu'il disparaîtrait avec la pratique de l'organisation syndicale ; il
 n'en a rien été; les tendances politiques semblant
-même devenir tout à fait dominantes, l'avenir du l
+même devenir tout à fait dominantes, l'avenir du
 Devons-nous penser que le monde des travailleurs se
 mettra désormais à la remorque de démagogues qui lui À
-promeéttront de faire passer une partie de la richesse M
+promeéttront de faire passer une partie de la richesse
 des gras aux maigres? Le socialisme est-il destiné à À
 
 devenir (suivant une expression du vieil Engels) un
@@ -1456,11 +1456,11 @@ au prolétariat et à gravir ensuite le calvaire douloureux de l'exploitation ca
 contraire, d'y arriver par d'autres chemins et d'éviter
 la phase de la prolétarisation, en associant leurs
 efforts. » Et ailleurs, dans le même livre, M. Vandervelde disait encore à propos de la fondation de plusieurs !
-coopératives (3) : « Il n'est pas douteux que lirrésistible action du développement technique et capitaliste s
+coopératives (3) : « Il n'est pas douteux que lirrésistible action du développement technique et capitaliste
 de l'agriculture ne déterminera, dans un avenir pro-
 (1) Les théoriciens de la coopération et du syndicalisme énumèrent les variétés en s'arrêtant aux caractères les plus superficiels;
 j'ai essayé de donner un tableau fondé sur les vraies causes de différenciation. /Les divers types de sociétés coopératives. Science sociale, ‘
-(2) Destrée et Vandervelde. — Le socialisme en Belgique, page 429.
+(2) Destrée et Vandervelde. — Le socialisme en Belgique, page
 
 chain, des transformations intellectuelles et morales
 éminemment favorables au développement de l'idée
@@ -1484,8 +1484,8 @@ et ils seraient disposés à commanditer des laiteries leur
 fournissant du beurre à bon compte : la coopération
 rurale serait ainsi une annexe d'un magasin urbain;
 
-(1) Le Mouvement socialiste, 15 avril 1901, page 473.
-@) Le Mouvement socialiste, premier avril 1901, page 388 et page 393.
+(1) Le Mouvement socialiste, 15 avril 1901, page
+@) Le Mouvement socialiste, premier avril 1901, page 388 et page
 G@) Cf. les conclusions du mémoire consacré par M. Varlez à la
 
 impossible d'en méconnaître davantage le vrai caractère !
@@ -1591,7 +1591,7 @@ célèbre agronome S. Solari à inauguré son système
 d'assolement qui semble destiné à exercer une influence si considérable sur l'avenir de l'Italie. (1)
 
 () Sur le système Solari voir : {a Prévoyance sociale en Italie,
-page 272, et le livre du professeur F. Virgilii : Il problema agricolo e
+page 272, et le livre du professeur F. Virgilii : Il problema agricolo
 l'avvenire sociale. IL existe une trés importante littérature populaire
 destinée à vulgariser la méthode Solari; le clergé catholique s'est
 fait l'ardent propagateur de la nouvelle agriculture.
@@ -1658,7 +1658,7 @@ Le bateau allemand sur lequel je me trouve, le Tsintau,
 est arrivé dans le port de bonne heure. Mais les passagers
 doivent attendre, avant de descendre à terre, que la police
 russe ait examiné les passeports. Un des lieutenants du
-bord les a réunis pour les présenter à l'examen. Vers huit s
+bord les a réunis pour les présenter à l'examen. Vers huit
 heures s'approche une chaloupe surmontée du drapeau de
 la marine russe; nous voyons monter à bord un certain
 nombre d'uniformes : un « capitaine du port » (harbourmaster), des agents de police de divers grades. Nous
@@ -1732,7 +1732,7 @@ sentiments, peut-être hostiles, que m'inspire son régime
 politique. Je n'étais pas en France quand j'aurais pu y
 signer les pétitions faites en faveur des étudiants russes,
 victimes d'injustices révoltantes, ou du grand Tolstoi,
-excommunié par le Saint-Synode, ou de la Finlande, écrasée M
+excommunié par le Saint-Synode, ou de la Finlande, écrasée
 par le despotisme russe. Quand la diplomatie russe a
 empêché l'Europe de secourir les Arméniens, sûre de
 pouvoir plus aisément après tant de massacres russifier .
@@ -1745,7 +1745,7 @@ quelques mois, à un ami étudiant russe pour lui annoncer
 mon arrivée prochaine. Depuis, il y a eu de nouveaux
 troubles universitaires à Pétersbourg et à Moscou: on à
 dû arrêter, perquisitionner. Mon ami est une noble et
-généreuse nature : il a dû être arrêté, condamné peut-être; w
+généreuse nature : il a dû être arrêté, condamné peut-être;
 on a dù saisir chez lui ma lettre, et, dans cette lettre purement amicale, sans contenu politique, découvrir des sous-\
 entendus mystérieux et compromettants: Cest la seule,
 
@@ -1759,17 +1759,17 @@ par paqueis, rend le pont intenable. Les grands Coréens,
 qui déchargént des sacs de farine, grelottent dans leurs
 Chassé du pont par le mauvais temps, je passe la journée
 dans ma cabine. Pas gai, cet emprisonnement. Pas gaie non
-plus l'idée qu'il va falloir revenir en arrière, renoncer à un Ë
+plus l'idée qu'il va falloir revenir en arrière, renoncer à un
 |: voyage préparé longtemps à l'avance, à des études
 Dans ma valise, j'ai quelques livres : d'anciens Zolas,
 que je veux relire : Pot-Bouille, l'Assommoir; puis le
 dernier ouvrage d'Anatole France, acheté il y a quelques
 jours dans une librairie japonaise de Kobé. Je savoure
 avec délices Monsieur Bergeret à Paris. La prose d'Anatole
-France est étrangement consolatrice… Â
+France est étrangement consolatrice…
 Je me demande si on m'eût laissé introduire dans
 lEmpire les livres que je lis en ce moment. Les admirables
-pages socialistes de Monsieur Bergeret à Paris mériteraient j
+pages socialistes de Monsieur Bergeret à Paris mériteraient
 | l'honneur d'être jugées dangereuses par les douaniers du
 tsar. Les romans de Zola sont révolutionnaires aussi : que
 de pages les douaniers auraient à arracher, ou à noircir, à
@@ -1816,7 +1816,7 @@ en une promiscuité monstrueuse les pires criminels et les
 plus dangereux révolutionnaires, tout ce qu'il y a de plus
 infâme, et de plus généreux, dans la nation. Ces braves
 marins allemands parlent simplement, calmement, de ces
-choses atroces. Moi, je ne suis pas encore blasé, l''indignation me serre la gorge. î
+choses atroces. Moi, je ne suis pas encore blasé, l''indignation me serre la gorge.
 
 Toute la matinée, attente, singulièrement énervante,
 d'une décision définitive. À trois heures, le premier capitaine du port vientme rendre visite, en uniforme, l'épée au
@@ -1839,7 +1839,7 @@ troubles universitaires sont tout à fait finis maintenant
 l'empereur a gracié tout le monde, levé toutes les punitions,
 autorisé les étudiants à se réunir quand ils veulent... » —
 Les fonctionnaires russes ont une étrange faculté d'optimisme : ils ne voient dans la situation politique de leur
-pays que ce qu'ils veulent y voir; quand un gros crime C
+pays que ce qu'ils veulent y voir; quand un gros crime
 s'accomplit, ils savent fermer les yeux; quand s'impose un
 . acte d'indulgence inévitable, ils célèbrent la bonté du tsar.
 Demain, on m'embarquera sur un bateau russe partant
@@ -1919,7 +1919,7 @@ On cause de mon expulsion dans la salle à manger du
 Mercure, en buvant du thé au citron, autour d'un vaste
 n Samoyar, pendant que suivant les mouvements du navire
 
-oscille la petite lampe qui brûle devant l'icône sainte. Les Î
+oscille la petite lampe qui brûle devant l'icône sainte. Les
 officiers du bord s'amusent de mon aventure sans s'en
 étonner. Un Américain célèbre la libre Amérique.—Le soir,
 une dame s'approche de moi sur le pont et me demande si,

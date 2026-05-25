@@ -71,8 +71,6 @@ fuse notion rêvée de la vie ; j'écoute la voix de la
   — Laissez-moi ces feuilles tranquilles. Elles sont
 humides, vous allez vous enrhumer.
 
-                              10
-
   Obéi, je m'éloigne. Un vieux homme que j'ai connu
 me racontait jadis comment il prenait plaisir, dans son
 enfance, à charpenter de petits cercueils de bois ;
@@ -87,8 +85,6 @@ cer la mort de son père...
 dépôt d'un étrange et beau souvenir. Je me détourne.
   Nous tous qui vivons... — vivre, c'est bien aussi
 jouer à la Tombe.
-
-                              11
 
                           Par la poterne
 
@@ -110,8 +106,6 @@ Alfred... Il va succomber sous le nombre : Maurice alors
 se range brusquement de son parti. Par cette manœuvre,
 renouvelée de ceux des Saxons à Leipzig, il apporte
 un tel renfort que bientôt tons les deux, à longs coups
-
-                              12
 
 du couteaux de bois, à vifs coups de poing loin-tendus,
 se dégagent, puis fuient. Et toujours, mais cette fois
@@ -141,8 +135,6 @@ teaux du Peuple et des Altitudes sublimes de la
   S'éventé, il rentre au cou de la cloche, son grand
 poignard de bois à demi sorti de sa poche. — Quelle
 précision mathématique M. Fernand, mon collègue, pro-
-
-                              13
 
                   l'homme en proie aux enfants
 
@@ -178,8 +170,6 @@ faut bien que son activité bourdonne.
 du métier, je trouvais la force de regarder mes enfants
 du regard appuyé que nous devons aux foules, aux
 arbres et aux âmes ; du long regard qui m'a enseigné
-
-                              15
 
                   l'homme en proie aux enfants
 
@@ -232,8 +222,6 @@ tous ces exploits et de les écrire. Il me confie ceci, qu'il
   « Le lendemain de cet entretien, trois hommes étaient
 réunis chez le notaire. De ces trois hommes, nous en
 
-                              17
-
                   l'homme en proie aux enfants
 
 connaissons deux : l'un est le milliardaire, l'autre l'in-
@@ -285,8 +273,6 @@ triste où il n'y avait pas d'herbe. Il ne me semblait pas
 qu'il fit jour ni qu'il fit nuit.
   « Je me promenais avec mon frère, le frère de mes
 
-                              19
-
                   l'homme en proie aux enfants
 
 années d'enfance, ce frère auquel je dois dire que je ne
@@ -321,8 +307,6 @@ intelligent et nerveux qu'il est.
 avec humeur, en donnant avant de reprendre un coup
 de règle violent sur la table.
 
-                              20
-
   « J'entrai dans un village que je vis.
   « La première rue où j'entrai était déserte. J'entrai
 dans la seconde. Derrière l'angle qui faisaient les deux
@@ -352,8 +336,6 @@ Marcel le discuteur, Georges, Paul le paria et Théodo-
 dore, tous ! — m'ont la cruauté impudemment de
   — Vous êtes bien intelligents ! m'écriai-je. Pourquoi
 ne pas chercher le sens de ces visions ? Vous ne devinez
-
-                              21
 
                   l'homme en proie aux enfants
 
@@ -389,8 +371,6 @@ temps ?
   « J'ouvris la bouche pour répondre et je m'aperçus
 qu'il n'y avait personne autour de moi. »
 
-                              22
-
   On entendait la cloche. Ces enfants de mauvaise
 volonté sortirent, sans doute heureux d'échapper à mon
 commentaire. Mais moi, je n'échappai pas au leur.
@@ -422,8 +402,6 @@ palmées, il fait à la révérence ; — et déjà il déclame :
   — « L'homme n'est qu'un roseau, le plus faible de la
 nature, mais... »
   — Ça signifie quoi ?
-
-                              24
 
   Il ne peut s'arrêter :
   — ... « Mais c'est un roseau pensant. »
@@ -462,8 +440,6 @@ est une injustice. Craignant avec passion d'être injuste,
 je me gardais bien de témoigner à Robert cette amitié
 attendrie un peu dédaigneuse. Il lui suffit toutefois
 
-                              26
-
 d'un conseil sans doute plus instant, d'un coup
 d'œil ignoré de moi-même, pour la comprendre, pour
   Il y avait alors deux « années », il n'y en eut trois que
@@ -491,8 +467,6 @@ donnait de faire à ces enfants.
 mon instinct, il aurait plus souvent visité ma ruche.
 Mais il l'ignorait ; je ne réjouissais en liberté de voir
 blondir ce miel au parfum incomparable.
-
-                              27
 
                   l'homme en proie aux enfants
 
@@ -525,8 +499,6 @@ sait de mériter en mathématiques.
 sciences à votre âge ! D'ailleurs, que vous nous disiez,
 ce qui est, des lettres ou des sciences, ce sont des rensei-
 gnements indispensables pour n'importe quel métier ou
-
-                              28
 
 des exercices qui vous habitueront à réfléchir. Vous
 n'avez donc pas le droit de choisir. (Moi, qui ai si inso-
@@ -625,8 +597,6 @@ Et ces gosses rient !
 pas, pour le bon motif, qu'il s'intéresse à moi. Je confesse :
   — Non, j'étais toujours le dernier.
 
-                              32
-
   — Oh ! proteste-t-il, on nous a dit que vous étiez sorti
 le premier de tous !
   — Qui ça ? demandé-je avec surprise. Ce n'est pas
@@ -658,8 +628,6 @@ Swift, c'est prouver modestement qu'on est devenu plus
 raisonnable. » Si modeste vraiment ? Nul n'aurait le courage
 d'insulter son propre passé s'il ne pensait au futur
 bien de son présent. L'amour-propre est si subtil que de
-
-                              33
 
                   l'homme en proie aux enfants
 
@@ -719,8 +687,6 @@ rouge, un mouchoir violet à la main.
 surtout des fils d'ouvriers auxquels nous offrions
 l'aumône primaire supérieure se présentaient toujours
 
-                              35
-
                   l'homme en proie aux enfants
 
   De l'un, Albert, solide, violent, indiscipliné en classe
@@ -753,8 +719,6 @@ les hommes, quand nous devrions nous exercer à mettre
 à ne la pas remarquer. C'est jusqu'au fond vraiment
 que les enfants nous sont incompréhensibles : ils sont
   Paul s'éveilla un matin la face couverte d'une érup-
-
-                              36
 
 tion jaunâtre et rougeâtre, presque horrible à voir.
 Autour des lèvres spécialement, elle s'épaississait en un
@@ -805,8 +769,6 @@ continuais-je.
   Il me fallait bien apporter à ces niaises réponses à mes
 niaises interrogations. Je ne connaissais pas alors ce
 
-                              38
-
 mécanisme que Proudhon a si exactement appelé
 l'Intelligence des Signes. Aussi vite que l'étincelle le
 coup de briquet, un déclanchement verbal suivait dans
@@ -838,8 +800,6 @@ croître ; je lui criai de sortir.
 à coup que, ni bassement méchant, il ne pouvait être
 intelligent. Jongleur preste et stupide, il agitait les mots
 dans son cerveau comme des boules de loto jusqu'à ce
-
-                              39
 
                   l'homme en proie aux enfants
 
@@ -875,8 +835,6 @@ son courageux et loyal esprit ne lui attire point la ten-
 illégal et il se moquerait de moi ; mais ne lui obtien-
 drai-je pas l'estime ?
 
-                              41
-
                   l'homme en proie aux enfants
 
   Les enfants sont sans amour !
@@ -911,8 +869,6 @@ petits. Et ce sont les premières, et peut-être les seules
 affections solides, celles que bénit la Force. L'un fort
 qui est doux à un faible qui est humble, d'un faible qui
 
-                              42
-
 est rusé à un fort qui est brutal, ne règne pas ten-
 dresse, mais alliance, mais complicité.
   A cette lumière nouvelle, le chaos des jeux et des
@@ -942,8 +898,6 @@ leur sympathie animée par l'intelligence déviera dans la
 de Robert, s'il se promène avec lui toujours au long
 des colonnes du préau, s'il lui donne, beaucoup plus
 âgé, des conseils pour les devoirs ; si d'un œil penché
-
-                              43
 
                   l'homme en proie aux enfants
 
@@ -1011,8 +965,6 @@ nous séparâmes :
   — Cela ne m'étonne pas, Monsieur, que ces garnements
 aient voulu vous tâter. Ils ont pensé entre
 
-                              46
-
 eux : voilà un jeune maître, essayons-le donc un peu ;
 s'il se laisse faire, nous nous amuserons bien.
   « Il faut être juste, mais il faut être ferme. Ne perdez
@@ -1047,8 +999,6 @@ daient ma justice.
   Cependant, je méditais. La seconde passa. Quand je
 songeais à ces chers enfants futurs qu'on me confierait,
 
-                              48
-
 toujours je me les figurais roses, souriants, et avec une
 espèce de képi sur l'oreille ; pareils en somme, il faut
 bien que je l'avoue, au jeune garçon dont le portrait
@@ -1081,8 +1031,6 @@ d'expériment leurs corps de douze ans par les rues
 et les champs ; — supposé que les programmes pri-
 maires supérieurs satisfassent exactement à cette néces-
 sité ; — supposé que moi-même enfin, qui ai mission
-
-                              49
 
                   l'homme en proie aux enfants
 
@@ -1118,8 +1066,6 @@ et les champs ; — supposé que les programmes pri-
 maires supérieurs satisfassent exactement à cette néces-
 sité ; — supposé que moi-même enfin, qui ai mission
 
-                              50
-
 de les appliquer, je sache intéresser, j'aie une voix
 éveillée et éveillante, je ne repousse pas par une
 abstraite monotonie toute sympathie ; — alors mon
@@ -1150,8 +1096,6 @@ l'ennuies, en gosse, il sont bien qu'il se venge. — Tu en
 as fait tout autant à son âge. — On m'en a fait autant.
 — Mais ainsi tu justifies l'injuste, et tu vas t'éterniser. —
 Voilà une affaire à rouler des yeux féroces, un plumier
-
-                              51
 
                   l'homme en proie aux enfants
 
@@ -1191,8 +1135,6 @@ excellents. La niaiserie sournoise de l'escroquerie me
   Miracle bien connu de l'adaptation ! Je détestais
 l'émulation, je détestais la discipline. Les notes étaient
 
-                              53
-
                   l'homme en proie aux enfants
 
 néfastes à la modestie et à la sincérité ; les punitions,
@@ -1212,9 +1154,9 @@ vous. Il y en a qui m'ont trompé. Je vous ai répété cent
 fois que les menteurs me dégoûtent, que je ne peux pas
 les regarder en face...
   Silence, recueillement devant la force.
-  — Monsieur Maurice, continué-je, est trentième. Il a 2.
+  — Monsieur Maurice, continué-je, est trentième. Il a
 Je recopie ses notes du mois : il a 13, il a 18. C'est
-bizarre. Monsieur Pierre, son voisin, est dernier. Il a o.
+bizarre. Monsieur Pierre, son voisin, est dernier. Il a
 Ses notes sont 15, 13, 14. Je suppose que tout le monde
 comprend ce que cela signifie. Ces messieurs ont triché.
 Ils ont pensé que j'aurais confiance en eux, ils ont com-
@@ -1225,8 +1167,6 @@ hésite un quart de seconde, et puis il me répond de sa
 découvrant ma ignoble cynisme dans la peur de ce
 malabreit ; c'est trop fort ! Vous n'avez pas dit à Pierre
 de vous passer des fautes, hein ?...
-
-                              54
 
   Malgré ma grossièreté, les enfants n'ont pas osé rire.
 Tous entendent le souffle de Maurice répéter :
@@ -1259,8 +1199,6 @@ tous tous les six.
 attaché à la queue toutes les casseroles solennelles de
 la Justice. Guignol et Rhadamante, je saisis l'un de ces
 punis, et posant son action devant moi comme une
-
-                              55
 
                   l'homme en proie aux enfants
 
@@ -1297,8 +1235,6 @@ m'en restait à la mémoire et que je les notais au
 aussi. Pourvus de tous les certificats et de tous les bre-
 vets, ils ne savent d'abord ni lire ni écrire : ils ne com-
 
-                              57
-
                   l'homme en proie aux enfants
 
 prennent rien, ils ne proposent rien à comprendre.
@@ -1333,8 +1269,6 @@ sais pas d'observations, je ne me réclamais pas de
 renseignements. Entre nous, pas la moindre la tâches
 faites, leurs leçons sues : — je ne pouvais trouver autre
 
-                              58
-
 chose en eux que ces symboles. Ni souci d'écouter, ni
 ineptie, ni fierté, ni même mauvaise volonté... Je pas-
 sais des journées exactement sans les voir.
@@ -1366,8 +1300,6 @@ pas d'accidents ; car, à Paris, il y a, du danger à courir.
 Ne fréquente pas les mauvaises compagnies, et fréquente
 plutôt de bons amis, afin de te créer une bonne position.
   Qui donc parle ? Louis, ce nabot joyeux ; ou bien sa
-
-                              60
 
 mère vieillissante, veuve, et qui ne saurait proposer à
 ses enfants d'autre idéal que la domesticité ?
@@ -1432,8 +1364,6 @@ pendantes, et passage à un style emphatique, caractère
 général des œuvres de Saint-Simon.
   Ainsi, parce que j'ai dicté du terrible duc une page
 
-                              62
-
 puissante et confuse sur Marly, ce petit pédant se
 permet ces systématisations ? Je dois le dégoûter de la
 
@@ -1465,8 +1395,6 @@ vu que de la lâcheté.
   — Je puis l'avouer, écrit-il à l'un de ses amis, (et la
 lettre est une rédaction à corriger par moi), ma na-
 tenue avec le professeur de français n'est plus irrépro-
-
-                              63
 
                   l'homme en proie aux enfants
 
@@ -1548,8 +1476,6 @@ de la farcir avec toutes sortes de maximes.
   Ce brutal est sentimental, il aime la raison et l'honneur.
 Certains aveux me font imaginer qu'il est seul enfant
 
-                              67
-
                   l'homme en proie aux enfants
 
 d'une mère veuve qu'il chérit ; ses vêtements, son air, me
@@ -1585,8 +1511,6 @@ sa plume. C'est, si je ne me trompe, un cas de conseil
 de guerre. Je le punis, il s'écrit :
   — Alors je ferai pus un mot d'allemand !
 
-                              68
-
   Je le punis encore. En vain : il tient parole.
   J'admire l'efficace de ma pédagogie contre les garçons
 qui choisissent dans la manne. J'ai mission de leur
@@ -1616,8 +1540,6 @@ moquent de moi. Même s'ils ont raison. Surtout s'ils
 ont raison. Voici s'abattre la verge du licteur :
   — Robert, vous aurez deux heures.
   Il sourit, il ne dit rien : il trouve cela juste. Les
-
-                              69
 
                   l'homme en proie aux enfants
 
@@ -1661,8 +1583,6 @@ mot du Nord avait gagné l'Île-de-France. Robert se
 sauva avec un sanglot court. Alors je gronde :
   — Vous êtes une brute, Julien : Robert vient
 de m'avertir que sa sœur est morte.
-
-                              71
 
                   l'homme en proie aux enfants
 
@@ -1736,8 +1656,6 @@ et ahaner.
 sentent, ils le disent, ils exigeront demain pour lui de
 la protection et du respect. Avec la précision naïve de
 
-                              75
-
                   l'homme en proie aux enfants
 
 l'instinct, Henri et Léopold révèlent l'empoisonnement
@@ -1770,8 +1688,6 @@ tous les Français étaient sans instruction, tous les
 autres pays se tarderaient pas à s'allier entre eux pour
 nous combattre, et alors, étant sans instruction, nous
 
-                              76
-
 ne tarderions pas à être vaincus. » Et il gonfle ses
 petits poings sur ses creuses petites tempes. Son père,
 M. l'agent-voyer, calmera ce beau feu.
@@ -1802,8 +1718,6 @@ ne réussit pas dans ses affaires, on vient se verser dans
 l'instruction ; ce métier, quoique malsain, ne me déplaît
 pas. Au contraire, sans dire du mal du travail des
 champs, je préfère à celui-ci : car un instituteur, tout
-
-                              77
 
                   l'homme en proie aux enfants
 
@@ -1838,8 +1752,6 @@ gagner de l'argent. Avec l'instruction, je pourrai
 trouver une place de comptable ou une autre bonne ;
 tandis que toi, tu seras toujours malheureux,
 
-                              78
-
 et tu n'auras jamais une bonne place autre que celles
 ras pas dans le progrès. » Cette intention qu'a Victor
 de se lancer dans le progrès en devenant comptable, — non,
@@ -1869,8 +1781,6 @@ aux lavoirs et aux glanages trop longtemps avant sa
 naissance. Il se geint doucement : « Grâce à l'instruc-
 tion, on est heureux, on peut se trouver de bonnes
 places dans les bureaux. Au contraire, les gens ignorants
-
-                              79
 
                   l'homme en proie aux enfants
 
@@ -1906,8 +1816,6 @@ il n'est pas « poétique » ; il déshonore, il épuise, il ruine ;
 — ces enfants qui chaque jour voient leurs parents en
 souffrir, les entendent le maudire, et qui apprennent,
 comment ne chercheraient-ils pas à s'y dérober ?
-
-                              80
 
   Ils comprennent. On lire une formule plus âpre que
 celle-ci, gravée par la répétition familiale à la profon-
@@ -1969,8 +1877,6 @@ supérieure, vous apprendrez avec tristesse que je n'ai
 pas fait grand chose pendant cette année scolaire. Je
 ne sais même pas si je suis de force à passer en troi-
 
-                              82
-
 sième année si je reviens. J'aimerais bien mieux ne
 plus aller à l'École supérieure.
   « Malgré cela, j'ai acquis une idée que je croyais
@@ -2000,8 +1906,6 @@ vouloir ne pas communiquer cette composition fran-
 çaise à mes camarades, qui, sans nul doute, se moque-
 raient de moi : car telle est la moquerie du genre
 humain. Je vous en serai reconnaissant, car c'est vous
-
-                              83
 
 propres idées et non des idées inventées que j'exprime ici : et si je les écris, c'est pour que vous me disiez si j'ai raison ou tort. »
 
@@ -3146,15 +3050,15 @@ Le soleil se lève, voici l'oiseau d'or.
 Je crois qu'ils allaient sourire quand la cloche a sonné.
 Le soleil plane : moi comme vous, enfants, soumettons-nous humblement à sa force, dans l'étonnement sacré de ce qui croît en nous : ses deux ailes d'immense azur nous couvent.
 
-  XIX. — Destruction des personnalités ........... 67
-XXIII. — Monsieur Père et Madame Mère ........... 87
+  XIX. — Destruction des personnalités ...........
+XXIII. — Monsieur Père et Madame Mère ...........
 
 troisième cahier                    de la onzième série
 
-LIVRE DEUXIÈME. — Entrez dans la danse ! ........ 105
-    V. — Jeanne invisible et présente .......... 116
-  VII. — Paupières battantes devant la Beauté .. 122
-   XV. — Impudeur de l'Intelligence ............ 153
+LIVRE DEUXIÈME. — Entrez dans la danse ! ........
+    V. — Jeanne invisible et présente ..........
+  VII. — Paupières battantes devant la Beauté ..
+   XV. — Impudeur de l'Intelligence ............
 
 Nous avons donné le bon à tirer après corrections pour quatorze cents exemplaires de ce troisième cahier et pour vingt exemplaires sur whatman le mardi 2 novembre 1909.
 
@@ -3173,7 +3077,7 @@ PIERRE BAUDOUIN. — Marcel, — premier dialogue de la cité harmonieuse ......
 ROMAIN ROLLAND. — Aërt, — trois actes ........ ÉPUISÉ
 ROMAIN ROLLAND. — le Triomphe de la Raison, — trois actes ................................. ÉPUISÉ
 ROMAIN ROLLAND. — les Loups, — trois actes ... ÉPUISÉ
-JEAN JAURÈS. — Action Socialiste. — le Socialisme et l'Enseignement ; le Socialisme et les Peuples 3 50
+JEAN JAURÈS. — Action Socialiste. — le Socialisme et l'Enseignement ; le Socialisme et les Peuples
 
 Voir à l'intérieur en fin des autres cahiers les conditions et le prix de l'abonnement.
 

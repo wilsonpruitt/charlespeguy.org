@@ -32,10 +32,10 @@ Et dans le lieu de sa pensée, $
 Le Sec flottait sur la face des flots.
 Et toute herbe des champs, tout arbre de ramure
 Portait son fruit, sa fleur et sa verdure.
-Et les grands luminaires 4
+Et les grands luminaires
 Couraient au firmament. Et les étoiles claires
 Et tout poisson nageait par les chemins des mers,
-Et tout ailé volait par les sentiers de l'air, . 1
+Et tout ailé volait par les sentiers de l'air,
 Et tout rampant rampait par les voies de la terre,
 
 Et l'homme s'éveillait comme un autre univers,
@@ -116,8 +116,6 @@ Mais aux crèches d'or
 ME Et le berger dit à l'espace :
 
 1 « Comment serait-il Dieu, celui qui passe?
-
-| 26
 
 Agneau, chevreau, taureau, — si vous venez
 C'est donc qu'un pâtre obscurément
@@ -237,7 +235,7 @@ Ses boucs, ses bœufs et ses chameaux
 Portant des outres sur leurs dos,
 Avec ses femmes, ses servantes,
 
-les pères du monde 7
+les pères du monde
 Ses serviteurs et ses enfants, : à
 Ployant et déployant ses tentes,
 Comme il allait toucher aux plaines désirées,
@@ -247,10 +245,10 @@ La haine d'Ésaü guettait son arrivée.
 Quand il eut passé le creux du Iabboc,
 Loin des rumeurs du camp qui mouraïent une à une,
 Il adora Dieu, près du torrent sec, dans l'ombre sans lune,
-Courbé sur le roc. z
+Courbé sur le roc.
 Or comme il priait, une forme étrange
 Sortit de la nuit.
-Et cette forme était un ange j
+Et cette forme était un ange
 Noir, venant sur lui.
 Et l'ange à face nébuleuse,
 L'entourait, dans l'ombre trompeuse,
@@ -259,7 +257,7 @@ Tout à coup, l'ange étreignit l'homme, — poitrine à poitrine,
 Épaule contre épaule, — lui broyant les vertèbres, :
 
 De ses bras de ténèbres.
-ke Mais Jacob au sol avait pris racine É
+ke Mais Jacob au sol avait pris racine
 Comme un chêne d'Assour.
 Et l'homme à son tour à
 Étreignit l'ange, d'une étreinte divine,
@@ -409,10 +407,10 @@ Et vers leurs fronts enfouis sous les herbes du sol,
 Mes cheveux descendront dans le deuil au Shéol
 « Roi du Monde, Adonaï! est-ce là ta promesse?
 Or, comme il levait les yeux,
-Il vit au loin des chars nombreux ù
+Il vit au loin des chars nombreux
 Soulevant la poussière. .
 Et les chars s'approchèrent,
-Bleus, rouges et verts, ë
+Bleus, rouges et verts,
 Avec le tonnerre
 
 De leurs roues de bronze et d'argent clair,
@@ -429,7 +427,7 @@ Et ses fils l'entouraient, lui donnant
 Du pain de nabéca et du pain de froment,
 Et des gâteaux de lis
 Et du miel aux épices.
-Et lui les regardait, mais il ne mangeait point. ÿ
+Et lui les regardait, mais il ne mangeait point.
 Et ses fils lui montraient
 Des bagues, des cachets,
 Des colliers de sardoine
@@ -457,7 +455,7 @@ Plus grand que Pharaon sur la terre étrangère,
 losseph gouverne un peuple et le nourrit de pain! »
 Alors Iacob, se prosternant, baïsa le sol
 Fidèle en sa parole,
-Adonaï! Puisque tu m'as rendu losseph et Beniaminn, x
+Adonaï! Puisque tu m'as rendu losseph et Beniaminn,
 Mes cheveux descendront dans la joie au Shéol! »
 
 A u pays des sphinx et des obélisques,
@@ -518,7 +516,7 @@ Et sans la barque d'Osiris ?
 
 « Plaignons, plaignons ce mort en l'un et l'autre monde :
 
-Il n'aura point de guide aux ténèbres profondes, L
+Il n'aura point de guide aux ténèbres profondes,
 
 Il n'aura point de pain à manger dans la tombe ! » |
 
@@ -556,7 +554,7 @@ Afin de la descendre aux lugubres espaces,
 Ésaü, le frère d''Iacob, le chasseur de Séir,
 Hérissé de poils, ceinturé de cuir,
 Bondit sur la terrasse
-S'il vous fut cher, 5
+S'il vous fut cher,
 Pleurez sa chair! 3 :
 S'il fut sans blâme, ,
 Louez son âme!
@@ -653,7 +651,7 @@ Se prosternent sur l'eau
 A) « Nos fils ! Nos petits ! Nos petits, Élohim! 0 Le
 MAUR Hi _  Qu'avaient:ils fait? Qu'avaient:ilsfaità ceux de Mitsraim' à ke
 à Nosfils! Nos petits, Élohim ! Élohim! » * VAN
-| Au lit du Fleuve, sous la nuït, entre les rives plates, É
+| Au lit du Fleuve, sous la nuït, entre les rives plates,
 BU _ Il dévore, Apôpi, le Serpent des îlots. ; 7 ONE ALT
 to sa Les mères de Goshèn, au long des rives plates Lee
 AR de _ Cherchent, cherchent dans l'eau — | ju
@@ -666,24 +664,24 @@ Qui possède ma fille et dévore sa peau,
 Mon âme lui donné
 
 % la terre de promesse je
-Ma Terre très bonne e
+Ma Terre très bonne
 De Nékhäbit jusqu'à Boutô,
 Et le sceptre de jade et la double couronne (
 Du Pshennt, où le Lotus s'entrelace au Roseau! »
 _ Pour enchaîïner la Lèpre au teint de neige,
-4 Les murmureurs de sortilèges,
+Les murmureurs de sortilèges,
 Mélant l'huile au sang et le fiel au vin,
 Broyant les yeux d'aigle et les dents de chien,
 Jetant des baïsers et frappant du poing,
 - Et le chacal Anoubis,
 Sâtit la grande archère, Anhoukit l'étreigneuse,
-Et toutes les trancheuses, é
+Et toutes les trancheuses,
 Toutes les déchireuses, ;
 Et l'étoile Bonou
 Et le soleil Horou
 Et la lune Haouiou. #
 Mais ceux du gouffre clair et ceux du gouffre obscur
-N'avaient point exaucé leurs murmures; j
+N'avaient point exaucé leurs murmures;
 Et du talon jusqu'au cerveau,
 La Lèpre au teint de chaux
 Possédait Bithia et dévorait sa peau.
@@ -692,7 +690,7 @@ Voulut fuir la Lèpre au teint d'argent ;
 Mais lorsqu'au bord de l'eau
 Elle fut revenue, ;
 
-La Lèpre au teint de chaux É
+La Lèpre au teint de chaux
 N'était point disparue.
 Et Bithia s'en retournait avec ses deux suivantes,
 Au long des rives lentes,
@@ -715,7 +713,6 @@ __ Mais au loin le flot
 + Quand par la volonté d'une force étrangère,
 . Et du Fleuve bleu, qu'elle vit rougir,
 Des millions de mains enfantines sortirent;
-| 87
 
 la terre de promesse
 Et des enfants, par millions, des eaux rouges surgirent,
@@ -773,7 +770,7 @@ Et mon âme se cherche en mon corps transformé.
 la terre de promesse A |
 
 Maintenant, fils d'Ammon, rappelle ta promesse :
-Voici trouvé, flottant sur l'eau 4
+Voici trouvé, flottant sur l'eau
 Dans un berceau,
 Celui qui finit ma détresse. ;
 Accorde qu'il possède, aux jours de ta vieillesse, à
@@ -803,30 +800,30 @@ Mène vers le couchant l'(Œïil rouge du soleil.
 La reine Bithia, de la haute terrasse,
 Regarde les rayons qui rament dans l'espace,
 
-Et Moïse, autrefois sauvé des eaux par elle, ÿ
+Et Moïse, autrefois sauvé des eaux par elle,
 Ÿ Rêve à son côté, sans regard pour le ciel.
 Elle dit : « Comme il brille, le soleil Horou
-Û Qui descend aux prés noirs d'Iâlou! k
+Û Qui descend aux prés noirs d'Iâlou!
 Quel salut il jette aux pyramides
 ? Où ses fils, mes aïeux, dorment dans l'ombre humide!
 4 « Et comme la Rivière, en recevant son corps,
 Lui tisse dans les flots des bandelettes d'or! ;
 « Et comme la Cité, de tous ses obélisques
-À Tend des bras vers son Disque, 5
+À Tend des bras vers son Disque,
 Et lorsqu'il n'est plus là, le sent briller encor! |
 | « O Moïse, ô mon fils à l'âme singulière,
 | Pourquoi détourner ta paupière? |
 \ Ne vois-tu pas les sphinx, le fleuve et la lumière? »
 — « Je vois des Hébreux qu'on frappe, à coup de lanières. »
 à La barque Ouzaït, au fleuve du soir, ! !
-Conduit vers le Zénith l
+Conduit vers le Zénith
 L'Œil ouvert de la lune. |
 Pour veiller sa route au creux du ciel noir, +
 Les lampes de Nouïit k ;
 S'éclairent une à une. à
 ue Bithia dit : « Écoute,
-C'est la nuit des dieux. ! ‘ 4
-Fécondant l'eau sainte au limon joyeux, 4
+C'est la nuit des dieux. ! ‘
+Fécondant l'eau sainte au limon joyeux,
 
 Va tomber des cieux.
 « Déjà la vierge à l'œil de bistre,
@@ -957,7 +954,7 @@ Mais lorsque, déposant le cilice et le deuil,
 Tous y seront venus, — tu resteras au seuil! »
 Et l'homme dit, courbant la tête :
 « Je serai ton prophète,
-Je serai ta victime, 6
+Je serai ta victime,
 Et sans chercher pour moi la terre aux justes cimes,
 Je conduirai tes fils vers toi, de Mitsraïm. »
 
@@ -991,7 +988,7 @@ Et ses pieds la menèrent
 Vers des lieux de prières
 
 Où des hommes debout, prêts pour de longs chemins,
-Avec leurs sandales nouées, ù
+Avec leurs sandales nouées,
 Leurs robes, de cuir ceinturées,
 Leurs bâtons dans la main,
 Mangeaient l'agneau sur le feu clair
@@ -1022,10 +1019,10 @@ Dans les roseaux ;
 Sur ton berceau ; ;
 T'ai-je paré des deux vipères
 Et des colliers royaux,
-4 Pour que tu lèves sur ta mère
+Pour que tu lèves sur ta mère
 ù La baguette aux fléaux ?
 Le Fleuve en eaux sanglantes
-Et les grenouilles coassantes 4
+Et les grenouilles coassantes
 Sur l'épaule des dieux;
 | J'ai vu les fourmis fourmillantes À
 Et les blattes puantes,
@@ -1033,7 +1030,7 @@ Et la peste des bœufs |
 Et la grêle de feu, ‘
 se Et les sauterelles géantes, !
 Et l'ulcère aux lèvres béantes ;
-Rongeant tous les yeux. Û
+Rongeant tous les yeux.
 Enfante ton cerveau ;
 Dans cette ombre, pareille à l'ombre du tombeau? |
 « Que t'importe, si l'esclave est-ton frère ?
@@ -1083,7 +1080,7 @@ Se leva lentement sous la main de Moïse ; |
 Et de tout Mitsraïm une rumeur monta,
 Lorsqu'aux bords du ciel noir l'or du soleil pointa ;
 Car dans chaque village où venait un rayon,
-1 montrait un enfant mort, dans chaque maison. ÿ
+1 montrait un enfant mort, dans chaque maison.
 Et le Fleuve brillait. Et la plainte des mères
 Suivait au long des eaux les pas de la lumière. |
 Et dans la cour de granit
@@ -1128,7 +1125,7 @@ Tu recevras ma part, je recevrai la tienne.
 Ses chemins sont plus blancs que sa robe.
 
 ra Issu d'Abraham, il est le premier de ceux de Kédèm, à
-4 Et le pauvre l'aime, À 6
+Et le pauvre l'aime, À
 Devinant aux mains de sa charité,
 Qu'un peu du cœur d'Itsrac en son cœur est resté. !
 qu « Donne-moi les Hébreux,
@@ -1136,16 +1133,16 @@ Je te cède Tiob : si tu peux, !
 Prends son âme. » |
 Pour éprouver liob, massacra tous ses bœufs | A
 Et ses brebis sans nombre et ses chameaux nombreux.
-Ut « Élohim les donna, j
+Ut « Élohim les donna,
 Élohim les reprit : à
 Pour éprouver liob, fit se lever un vent |
 à À Le plus violent des vents dela terre, : |
 Déracinant, de ce vent souflant, à
-La maison de pierre l
+La maison de pierre
 Où les enfants d'liob, au son du kinnor, menaïent bonne chère.
 Et ses filles moururent, et ses fils, \
-Tous les dix. = 11
-« Élohim les donna, L
+Tous les dix. =
+« Élohim les donna,
 Élohim les reprend : À
 
 Alors le Ténébreux,
@@ -1178,8 +1175,8 @@ Et mettre contre moi tes fureurs en bataille, :
 Et jouer de mon gémissement, ;
 Comme la tempête avec le brin de paille? » ne
 Et Dieu dit : « Regarde! » Et voici
-Qu'Iiob, dans l'ordure couché, 4
-Vit de ses yeux par Élohim touchés, R
+Qu'Iiob, dans l'ordure couché,
+Vit de ses yeux par Élohim touchés,
 Û Une mer. Et la mer s'ouvrit.
 Et les flots, labourés par la force inconnue
 D'une invisible charrue,
@@ -1191,7 +1188,7 @@ Puis, au regard d'liob, dans le creux de l'abîme,
 Et la main de Moïse et la main d'Élohim
 Firent signe à la mer : |
 Et les fantassins
-Cuirassés de lin, 4
+Cuirassés de lin,
 Portant le casse tête ou la hache de pierre, |
 Et les cavaliers :
 
@@ -1212,7 +1209,7 @@ Et Miriam, la prophétesse,
 Et, surgi des sables profonds,
 Tout Israël, porté par l'esprit d'allégresse,
 Et le tambour sonore,
-Chantaient un chant pour le Dieu fort. Û
+Chantaient un chant pour le Dieu fort.
 Alors Dieu dit : « Écoute, liob, et connais ta souffrance.
 Ce qu'Adam n'a point fait au jour de sa naissance,
 Ni Abram, au jour de mon alliance ;
@@ -1259,7 +1256,7 @@ Et la voix d'Élohim semblait un hurlement. |
 Et Moïse franchit un rempart de vapeurs;
 Et la voix d'Elohim devint une rumeur.
 Et Moïse franchit une porte d'air pur;
-Et la voix d'Élohim ne fut plus qu'un murmure. R
+Et la voix d'Élohim ne fut plus qu'un murmure.
 Et le Voyant vit Dieu dans sa magnificence :
 Et la voix d'Élohim n'était plus qu'un silence.
 Alors les Ophanim, les Arélim
@@ -1287,7 +1284,7 @@ Dépouiller ou tuer ? ; |
 Vous vivez sans désir, sans péché, sans remords :
 Que feriez-vous de la Torah, vous plus forts
 Que la mort?
-Laissez-la, se souillant de plaisir et de peine, È
+Laissez-la, se souillant de plaisir et de peine,
 Éclairer nos amours et nos haïnes :
 Dieu la fit pour la nuit des faiblesses humaines. »
 
@@ -1306,7 +1303,7 @@ M Q san Moïse eut reçu la Loi de Vérité, 3 , 2500 En
 “ ee .. de l''Horeb par le feu visité FN
 un. Les: Tables de Saphir, de ses bras écartés NE EEE 1 où
 _ Etsur sa face une clarté. A 1 ‘hr à
-Ne . de comme il cxoyait, parmi les rafales, 11 10e
+Ne . de comme il cxoyait, parmi les rafales,
 
 la terre de promesse
 Une clameur de sang, de stupre et de cymbales
@@ -1354,9 +1351,9 @@ Toutes mes bénédictions
 « Non. Mais les aimant
 D'un amour plus grand
 
-\ la terre de promesse ï
-Que l'amour des femmes, i
-9 Je fus pour tes Hébreux,
+\ la terre de promesse
+Que l'amour des femmes,
+Je fus pour tes Hébreux,
 Comme Jacob, errant,
 nt Comme Itsrac, douloureux,
 Ant Tenté, comme Abraham.
@@ -1377,11 +1374,11 @@ Par le doigt tout puissant sculptés dans le saphir,
 . Comme des oiseaux captifs de la pierre
 Qu'une main viendrait secourir,
 Tout à coup libres, vers les espaces s'envolèrent. :
-134 1
+134
 
 Et ce fut en tout lieu ;
 Le silence de Dieu.
-Et quarante jours, et quarante nuits, i
+Et quarante jours, et quarante nuits,
 Pour ceux d'Israël faisant pénitence,
 Sans manger ni boire et le cœur détruit,
 Le prophète aussi garda le silence. )
@@ -1469,7 +1466,7 @@ De lui dire
 Par quels pouvoirs cachés,
 Ils empêchent la mort d'approcher. |
 | Mais la roche et le fleuve et le ciel répondirent : |
-« Nous aussi, sommes nés pour mourir. » ê
+« Nous aussi, sommes nés pour mourir. »
 Alors comme un enfant que la peur accompagne, |
 De la voix de sa plainte emplissant la montagne,
 L'homme de Dieu pria :
@@ -1478,7 +1475,7 @@ Quand je ne serai plus, qui donc les conduira? ;
 Parviendront-ils jamais aux lieux de ta demeure? |
 Sous la main de ton fils, ils profanaient:chaque heure, |
 Qui les gardera purs, si ton fils n'est plus là? |
-« Le nombre de mes jours est une nuit trop brève. É
+« Le nombre de mes jours est une nuit trop brève.
 Ne tue pas le dormeur au milieu de son rêve,
 Et désire, Adonaï, que mon œuvre s'achève,
 : Afin que ton nom vive et que vive ta Loi! »
@@ -1493,7 +1490,7 @@ L'espoir est paresseux, la croyance tardive,
 Et la main doute de l'Esprit! »
 « Seigneur, je crois en toi, mais je doute des hommes.
 Songe où je veux atteindre et regarde où nous sommes.
-Le semeur veille encor lorsque le grain müûrit. » 3
+Le semeur veille encor lorsque le grain müûrit. »
 « Quand tu vivrais cent mille années,
 Penses-tu voir mes gerbes moissonnées ?
 N'est-il pas d'autres blés pour mon peuple immortel
@@ -1509,7 +1506,6 @@ Et l'homme répondit :
 | « Cueille son âme. » Et l'ange dit à l'Eternel :
 « Il a touché le cœur de ton peuple farouche,
 Ton miracle en son poing, ta parole en sa bouche;
-| 147
 
 la terre de promesse : .
 Son œil a foudroyé le taureau d'or;
@@ -1529,7 +1525,7 @@ Le démon attendait depuis cent vingt années
 Que l'homme trois fois saint eût fini sa journée.
 Mais comme il s'approchait, le mortel au cœur fort
 Acceptant de mourir, écrivait sur le sable
-Alors — l'Ange de la Mort — eut peur de la Mort. 1
+Alors — l'Ange de la Mort — eut peur de la Mort.
 Et Dieu dit : |
 « L'Éternel ira cueillir son âme. »
 Au sommet du Nébo, la colonne de flamme
@@ -1545,9 +1541,9 @@ Le ciel dit : « Hosanna !
 les > À ; Ê ? LORIE lue *
 
 les pères du.monde 7... 41,19
-PeChoix d'Annitélr puis ri0e cute de 00
+PeChoix d'Annitélr puis ri0e cute de
 ; Reymaitre des SONPeS ee. 0 RON
-4 Pefleuve des'sanglots®: 144 amas ren rS
+Pefleuve des'sanglots®: 144 amas ren rS
 | Pe/buisson douloureux. 24 000 lon \
 
 | premier cahier de la quinzième série

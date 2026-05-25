@@ -10,7 +10,7 @@ wordCount: 2316
 US paraissant vingt fois par an
 — 8, rue de la Sorbonne, au rez-de-chaussée
 
-Nous prévoyons que le premier cahier de la sixième M
+Nous prévoyons que le premier cahier de la sixième
 série, paraissant le dimanche 2 loctobre prochain, sera |
 le catalogue analytique sommaire de nos cinq premières |
 
@@ -59,7 +59,7 @@ _ Ami, nos grands parents vécurent là très vieux. :
 … S'allie à l'odeur saine et franche de l'armoire
 — De famille, parfums de fruits, de linge frais,
 … Parfums nourris de vertu sobre et sans apprêts.
-: Cœurs simples, ils gardaient dans leur sagesse affable ë
+: Cœurs simples, ils gardaient dans leur sagesse affable
 Un doux air suranné de proverbe et de fable,
 
 h Et, volontiers parlant de leurs jeunes saisons, é ‘
@@ -86,7 +86,7 @@ O charme du passé qui s'évade le soir,
 Et rôde, et fait craquer les feuilles des allées!
 Un caillou sous des pas a roulé; l'arrosoir
 
-4 Le jet d'eau se réveille; une voix, qu'on dirait
+Le jet d'eau se réveille; une voix, qu'on dirait
 _ Du fond des temps venue, entonne une ariette,
 . Et dans le vieux bassin tout frissonnant s'émiette
 . L'image pâle de l'Amour qui s'y mirait. £
@@ -95,7 +95,7 @@ Ont saigné, rougissant l'herbe dure que broute
 L'âne veuf de Silène errant et détrôné,
 Si ton cœur, fastueux et misérable, est né
 …_  Poëte, apte à souffrir du mal visionnaire,
-| Viens, le dieu du logis est un dieu débonnaire, É
+| Viens, le dieu du logis est un dieu débonnaire,
 Assieds-toi sur le banc de mousse et ne crains plus.
 Jette à l'oubli les mauvais livres que tu lus,
 k Jette au soir embrasé le fagot de tes fautes.
@@ -104,7 +104,7 @@ k Jette au soir embrasé le fagot de tes fautes.
 …—_ Ont savouré la paix divine en cet endroit.
 | Heureux, ils ont connu les longues hyménées,
 ; Tendre alanguissement féminin des années,
-4 Caresse, au cœur, d'un vieux soleil de Saint-Martin!
+Caresse, au cœur, d'un vieux soleil de Saint-Martin!
 « Heureux, car ils ont pu, guéris de l'âcre envie,
 Sourire, par dessus l'épaule, vers la vie
 - Vécue, et qui n'est plus, au bord du ciel lointain,

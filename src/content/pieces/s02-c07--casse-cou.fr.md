@@ -36,7 +36,7 @@ remède aux maux utilement sans toucher aux causes
 réelles des maux. La méthode révolutionnaire consiste
 ici à constater que l'on ne porte remède aux maux utilement qu'en s'attaquant aux causes réelles des maux.
 
-Souvent il advient que c'est la méthode bourgeoise qui q
+Souvent il advient que c'est la méthode bourgeoise qui
 septième cahier de la deuxième série
 fait du tapage et la méthode révolutionnaire qui est la
 silencieuse. La méthode bourgeoise consiste à farder
@@ -195,7 +195,7 @@ Mais je reviens à la belle conception moniste du citoyen
 Vaillant, et je dis que cette unité profonde de toutes les
 forces, de tous les phénomènes, implique que d'une force
 l'autre, d'un phénomène à l'autre la réalité peut se mouvoir
-par des degrés continus. Il y a perpétuelle transformation, 6
+par des degrés continus. Il y a perpétuelle transformation,
 perpétuel effort, et sous les fausses apparences des formes
 figées, éternelle fluidité, incessante aspiration de la vie. De
 là, dans l'ordre social, la philosophie à la fois profondé-
@@ -348,7 +348,7 @@ d'anarchisme moraliste, de susciter, de conscience individuelle à conscience in
 vrai. Il faut forger encore, à l'usage du prolétariat, l'outil
 de gouvernement et de législation. Il se peut très bien,
 d'ailleurs, que le premier outil sorti de la forge soit élémen-
-taire et maladroit, souvent réfractaire à notre vouloir. En l
+taire et maladroit, souvent réfractaire à notre vouloir. En
 connaissez-vous, maintenant, un meilleur ?
 
 Je voudrais aussi rassurer un peu Lagardelle qui, dans Le
@@ -364,7 +364,7 @@ de loin, la possibilité de cet organisme.
 
 Lagardelle, par le docte intermédiaire d'une citation de
 Marx, nous accuse tranquillement de « crétinisme parlementaire ». Non, je me trompe ; nous n'y sommes pas tout
-à fait arrivés encore. Là aussi il y a évolution, et nous som- û
+à fait arrivés encore. Là aussi il y a évolution, et nous som-
 mes seulement en marche vers cet état fächeux. Ah! qu'il
 est donc cruel d'avoir doublé le cap de la quarantaine! Les
 hommes entre deux âges ont toutes les infortunes. Nos
@@ -500,7 +500,7 @@ quand il dit : Je suis athée, cela veut dire en gros qu'il
 a envie d'embêter les curés. Je ne vois pas quel avantage nous aurions, ni quel intérêt, à imiter les vieuxbourgeois dans ce qu'ils ont de grossier et d'inculte, à
 imiter les vieux-radicaux dans leurs infirmités mentales, ou morales.
 
-On n'a d'ailleurs assuré que le citoyen Vaillant n'en- Û
+On n'a d'ailleurs assuré que le citoyen Vaillant n'en-
 tendait pas son matérialisme et son athéisme au sens
 grossièrement vieux-bourgeois, mais en un sens philosophique. Ou plutôt en un sens pseudo-philosophique.
 C'est-à-dire non pas au sens où les entendrait un véritable philosophe, mais au sens où les retiendrait un bon
@@ -900,7 +900,7 @@ m'est extérieure. Quand Zévaès, demeurant exactement
 ï une autorité sur moi qui, du moins je l'espère, serai
 demeuré le même aussi aux mêmes égards, l'autorité
 ‘t) de Zévaès ne me sera pas moins extérieure.
-fs Nous touchons au point où le danger de votre invenee: 27
+fs Nous touchons au point où le danger de votre invenee:
 
 septième cahier de la deuxième série
 tion prend définitivement corps. À vos yeux l'heure
@@ -1058,7 +1058,7 @@ en passant par Hegel, Comte et Marx. Il était historien
 et connaissait mieux ces grands philosophes ou professionnels de la philosophie. Et il était avisé. Il connaissait mieux l'art et la philosophie et la vie même et sans
 doute il pensait qu'il faut, comme on dit, en prendre et
 en laisser. Vous n'en voulez pas laisser. Mais, qui trop
-embrasse, n'étreint pas. i
+embrasse, n'étreint pas.
 L'humanité n'est pas un capitaliste avare qui entasse
 et superpose, monceau à monceau, strates sur strates,
 les trésors accumulés d'un savoir mort. Cette conception
@@ -1406,7 +1406,7 @@ note est ce qu'il y a de plus cynique. C'est sur elle et
 sur son auteur que retombe le plus lourdement la lettre
 de Zola et l'irréprochable lettre du colonel Picquart. Je
 vous reproduis cette note
-Il conviendrait de l'aborder une bonne fois entre dreyfusards de lavant-veille, entre dreyfusards violents et intransigeants — dont je suis, — mais j'entends de l'aborder k
+Il conviendrait de l'aborder une bonne fois entre dreyfusards de lavant-veille, entre dreyfusards violents et intransigeants — dont je suis, — mais j'entends de l'aborder
 autrement que par des ululements ou des rodomontades,
 ou autrement aussi que par des silences et des abstentions.
 
@@ -1528,7 +1528,7 @@ raisons de parade derrière lesquelles l'intérêt de conservation, ayant encore
 simplement sa légitimité, abrite volontiers sa défense, et de
 choisir les formules honnêtes qui, revêtues de la généralité
 de la loi, assureront les fins poursuivies dans le cas présent,
-sans risquer pour l'avenir, d'en compromettre d'autres, éga- î
+sans risquer pour l'avenir, d'en compromettre d'autres, éga-
 lement chères et également fondées.
 
 Mais que, par amour de leurs fictions réalisées, et par

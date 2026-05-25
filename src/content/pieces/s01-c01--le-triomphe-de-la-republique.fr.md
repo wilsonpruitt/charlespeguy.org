@@ -170,7 +170,7 @@ pavoiser son balcon d'une foule de petits drapeaux inconnus. Discussions dans la
 signifiaient ces drapeaux ? ces pavillons ? Était-ce une
 bienvenue en langage maritime ? Une lettre de ce
 M. Pamard, adressée à monsieur Lucien Millevoye, et
-reproduite dans la Petite République du mercredi 29,
+reproduite dans la Petite République du mercredi
 nous apprend que « ces petits mouchoirs. m'étaient
 autres que les pavillons respectés de toutes les nations;
 et, au milieu d'eux, le nôtre flottait en bonne place ». La
@@ -287,7 +287,7 @@ un spectacle admirable que la marche, que la procession
 de cet homme au bras et à la voix infatigable, fort et
 durable comme un élément, fort comme un poteau,
 continuel comme un grand vent. Et ce qui parfaisait le
-spectacle était que l'homme et ses camarades chan- E
+spectacle était que l'homme et ses camarades chan-
 
 taient une chanson qui avait tout son sens. Le drapeau
 rouge qu'ils chantaient n'était pas seulement le symbole de la révolution sociale, rouge du sang de l'ouorier, c'était aussi leur superbe drapeau rouge, porté
@@ -306,7 +306,7 @@ verts, gardiens de squares et jardins. Tout à coup un
 la République! Nos prédécesseurs ont oublié Mercier.
 Nous-mêmes sommes saisis devant la République de
 Dalou et nous crions comme eux : Vive la République.
-Ce n'était pas vive la République amorphe et officielle, s
+Ce n'était pas vive la République amorphe et officielle,
 mais vive la République vivante, vive la République
 triomphante, vive la République parfaite, vive la République sociale, vive cette République de Dalou qui
 montait claire et dorée dans le ciel bleu clair, éclairée
@@ -318,7 +318,7 @@ nous, clair et seul par-dessus l'eau claire du bassin,
 nous n'avons pas vu les détails de ce monument, nous
 n'avons pas vu les détails de la place. Nous n'avons
 pas vu les deux anciennes colonnes du Trône, si libé-
-ralement attribuées par les journalistes à Charlemagne, j
+ralement attribuées par les journalistes à Charlemagne,
 à Philippe-Auguste, et à Saint-Louis. Nous avons vu le
 triomphe de la République et nous n'avons pas vu les
 moyens, les artisans de ce triomphe, les deux lions attelés, le forgeron, madame la justice etles petits enfants.
@@ -346,11 +346,11 @@ flexion, il eût été fou qu'il restât là pour tout ce que
 nous avions à lui dire. De la tribune on répond à nos
 Vive la Sociale! Beaucoup d'écharpes aux gens de la
 tribune. Ces citoyens n'en sont pas moins ardents. Un
-dernier regard au peuple innombrable qui suit et qui d
+dernier regard au peuple innombrable qui suit et qui
 tourne autour de ce bassin. C'est fini. Au coin quelqu'un
 me dit: « Ça a été violent ici au commencement, la
 police a enlevé un drapeau noir. » Cet incident passe
-inaperçu dans le perpétuel mouvement du peuple. d
+inaperçu dans le perpétuel mouvement du peuple.
 
 Je n'oublierai jamais ce qui fut le plus beau de la
 journée : la descente du faubourg Antoine. Le soir descendaïit, la nuit tombaït. Tout ignorants que nous
@@ -389,7 +389,7 @@ que nôus ayons parfait la Révolution sociale avant
 qu'un architecte de génie nous ait donné la maison du
 peuple nouveau, avant qu'un poète de génie nous ait
 
-donné le poème ou le chant de la révolution nouvelle, N
+donné le poème ou le chant de la révolution nouvelle,
 de la cité nouvelle. Ce ne sera pas la première fois qu'il
 
 en sera ainsi, que le flot de la vie universelle aura

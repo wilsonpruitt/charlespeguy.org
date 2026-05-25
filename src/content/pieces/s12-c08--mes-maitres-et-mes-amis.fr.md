@@ -8,24 +8,24 @@ isAvertissement: false
 wordCount: 39700
 ---
 _ Dans les vingt cahiers de leur cinquième série, année pe ©
-scolaire 1903-1904, nos cahiers ont publié : M.
+scolaire 1903-1904, nos cahiers ont publié
 V-1. — Henri DAGAN.— les massacres de Kichinef. 5 » :
-V-2. — Pauz Duruy.— la vie d'Évariste Galois .. 2 » 4
+V-2. — Pauz Duruy.— la vie d'Évariste Galois .. 2 »
 V-6. — Danrez HaLévy. — Histoire de quatre ans, =.
 V-7. — Henri Michel.— Notes sur la Hollande et sur L 3 er
 l'intimité. — Henri Lebeau, Jérôme et Jean Tharaud. — ‘4
 V-10. — Romain RoLLanD. — Jean-Christophe. — |
 "le matin... 2%, provactuel 30 |
-V-11. — M.M.MaAnGasARIAN.— Le monde sans Dieu 2 » 4
+V-11. — M.M.MaAnGasARIAN.— Le monde sans Dieu 2 »
 V-13.— GABRIEL TRARIEUX.— (les Vaincus.— Hypatie 3 » |
 V-15. — Émize Moseicy. — Jean des Brebis ou le 2 |
 Gore dela misère. nr eee du crier SHARE à |
 V-16. — le congrès de Dresde, — édition GASTON |
 V-18. — Louis MÉNARD. — Prologue d'une Révo- ati
-Voir en fin des autres cahiers les conditions et le F | 4
+Voir en fin des autres cahiers les conditions et le
 prix de l'abonnement. Fi
 # Nous mettons le présent cahier dans le commerce; à.
-septième cahier de la douzième série; un cahier vert 1:
+septième cahier de la douzième série; un cahier vert
 de 188 pages; in-18 grand jésus; nous le vendons à
 
 VI.— mes maîtres et mes am
@@ -58,37 +58,37 @@ L'austérité puritaine des mœurs calvinistes n'empé-
 mes maîtres et mes amis ÉS M: :
 chait nullement mes amis de plaisanter avec esprit, n11 4 ER
 de se divertir avec toute l'exubérance de leur âge. Leur " « enjouement et leur saine gaîté avaient cette heureuse
-franchise de gens qui n'ont rien à cacher. Les âmes k
+franchise de gens qui n'ont rien à cacher. Les âmes
 pures ressemblent à ces eaux transparentes qui laissent # ‘à
-voir le fond de cailloux brillants et nets sur lesquels 5
+voir le fond de cailloux brillants et nets sur lesquels
 elles glissent. . ACER
-Les sociétés de Belles-Lettres de Genève, de Lausanne 4
+Les sociétés de Belles-Lettres de Genève, de Lausanne
 et de Neuchâtel se réunissaient au moins une fois lan A
-dans une fête fraternelle. Souvent on désignait, pour c
+dans une fête fraternelle. Souvent on désignait, pour
 lieu de rendez-vous, l'une des riantes petites villes égre- EE
-nées comme des perles dans des nids de verdure tout k
-autour du lac Léman. Rolle, par exemple, fut souvent E
-choisie et, pendant deux ou trois jours, cette retraite, si i
+nées comme des perles dans des nids de verdure tout
+autour du lac Léman. Rolle, par exemple, fut souvent
+choisie et, pendant deux ou trois jours, cette retraite, si
 calme d'habitude, s'emplissait des danses, des chants, et
-des cris de nos bandes joyeuses. Une représentation lit- Ô
-téraire et musicale au bénéfice des pauvres était suivie î
-d'un grand bal, auquel prenaient part toutes les jeunes 5
-filles du pays, accompagnées de leurs mamans. (1) ê
-Il fallait voir Charles et Albert Darier, les deux plus M
+des cris de nos bandes joyeuses. Une représentation lit-
+téraire et musicale au bénéfice des pauvres était suivie
+d'un grand bal, auquel prenaient part toutes les jeunes
+filles du pays, accompagnées de leurs mamans. (1)
+Il fallait voir Charles et Albert Darier, les deux plus
 beaux garçons de la Société, le front couronné de nn
 mousse, diriger le cortège, à la façon des bacchanales ä
 antiques. On s'arrêtait sur la place publique pour exé- NU
-cuter le picoulet, danse bellétrienne qui a plus de rap- e
+cuter le picoulet, danse bellétrienne qui a plus de rap-
 port avec celles des sauvages qu'avec aucune autre
 (1) C'est pour une de ces fêtes que Marc Doret composa une ;
 chanson dont la vogue dure encore et dont le refrain était cent À
 fois repris en chœur dans un allegro plein d'entrain : ë à.
-Du petit blanc (bis), N
+Du petit blanc (bis),
 La ville de Rolle, Qu
 A du fameux petit blanc! fi
-12 5
+12
 
-4 Ce qui nous charmait plus encore, bien que d'une
+Ce qui nous charmait plus encore, bien que d'une
 | manière à demi inconsciente, c'était de sentir se conso4 lider dans ces fêtes les liens invisibles qui unissent des
 ‘ camarades occupés des mêmes études. Déjà avant de
 4 nous connaître personnellement, nous éprouvions les
@@ -123,32 +123,32 @@ constant effort vers le perfectionnement de soi-même et
 
 De « 1 des autres. Mes amis m'ont appris par leur exemple la
 
-1 13
+1
 
 mes maîtres el mes amis IS
 tolérance, la sympathie même pour ceux qui, par des ‘9e.
-chemins divers, marchent comme nous les yeux fixés  #ù M
+chemins divers, marchent comme nous les yeux fixés  #ù
 sur un idéal de bonté et de justice. Qu'on l'appelle Dieu LE ©
-ou Humanité, cet idéal reste le même pour tous les 2
-Sans avoir la prétention d'égaler de pareils modèles, 4
-je souhaite pourtant qu'on veuille bien m'appliquer un # 4
-peu le proverbe : « Dis-moi qui tu hantes, je te dirai 4
+ou Humanité, cet idéal reste le même pour tous les
+Sans avoir la prétention d'égaler de pareils modèles,
+je souhaite pourtant qu'on veuille bien m'appliquer un #
+peu le proverbe : « Dis-moi qui tu hantes, je te dirai
 qui tu es. » Ce que je puis affirmer, c'est que je me sens +.
 heureux, je m'épanouis, toutes les fois qu'il m'est donné k ‘4
 de respirer près de mes amis cette atmosphère de SAR ‘à
-probité saine et forte, de naturelle bienveillance et de 11
+probité saine et forte, de naturelle bienveillance et de
 Lorsque, en 1856, le roi de Prusse menaça de repren- D A!
 dre Neuchâtel, et que les royalistes de ce canton ten- de
 tèrent un coup de main, la Confédération suisse se sou- * de
 leva tout entière dans un magnifique élan de solidarité à à
 patriotique, prête à repousser le puissant envahisseur. 1.4
-A Genève, les étudiants de l'Académie constituèrent 4:
+A Genève, les étudiants de l'Académie constituèrent
 aussitôt un corps de volontaires, sous les ordres du ‘4
 général Klapka. La Société de Zofingue mit au concours 6 \
-un chant patriotique sur l'air du « Rufst du mein Vater- … « land », et ce fut le jeune bellétrien Henri Rœhrich, étu- L 1
-diant en philosophie, qui obtint le prix. Voici quelques s
-verside ce chant qui est devenu l'hymne national de la f
-Répétez nos accents |... 10
+un chant patriotique sur l'air du « Rufst du mein Vater- … « land », et ce fut le jeune bellétrien Henri Rœhrich, étu-
+diant en philosophie, qui obtint le prix. Voici quelques
+verside ce chant qui est devenu l'hymne national de la
+Répétez nos accents |...
 
 à À toi, patrie,
 à ; Le sang, la vie
@@ -174,7 +174,7 @@ tête bien construite, à la physionomie ouverte, au sourire :
 spirituel et quelque peu moqueur, à la parole facile, à
 = l'esprit délié et subtil. Dans nos discussions, sa tendance
 à la controverse se traduisait par certaïnes thèses para-
-| doxales, qu'il lançait hardiment et soutenait avec beau- 52
+| doxales, qu'il lançait hardiment et soutenait avec beau-
 coup de verve. Ses convictions religieuses n'ont jamais  e…
 ‘rien eu d'étroitement dogmatique. Je me trompe sans SL
 doute, mais j'ai souvent eu l'idée que, s'il eût été élevé
@@ -186,10 +186,10 @@ gravité de son esprit philosophique. Vs
 … Je ne te dirai pas que tu as été nommé membre hono- à
 raire de la Société de Belles-Lettres et qu'on t'a décerné le fa
 Ruban d'honneur ; Nicole doit t'avoir raconté tout cela en N an
-tannonçant son départ. Et moi je pars dans un mois. 5:
+tannonçant son départ. Et moi je pars dans un mois.
 Tout le monde part ici-bas, la vie n'est qu'une série de th
-départs, l'homme est un oiseau qui va de branche en F4
-branche, jusqu'à ce qu'il arrive à celle d'où le vent l'em- m4
+départs, l'homme est un oiseau qui va de branche en
+branche, jusqu'à ce qu'il arrive à celle d'où le vent l'em-
 (1) Une lettre récente de mon ami semble confirmer ma suppo- k: A
 « Assurément, j'ai toujours joui ou souffert d'une activité de Sn :*
 pensée propre à me faire voir partout les difficultés, les objections, LA
@@ -197,12 +197,12 @@ le pour et le contre. Vaincus sous une forme, les problèmes renais- # De :
 sent sous une autre. Je reste comme une place publique où les gd,
 problèmes viennent se promener quand il leur plaît. Heureuse- : dL.
 ment le soleil s'est levé si souvent pour moi après les ténèbres, a
-que je crois à ses retours futurs. La vérité que je tiens, me console E.
+que je crois à ses retours futurs. La vérité que je tiens, me console
 de celles qui me manquent. En voulant toujours défendre les Et :
 autres du scepticisme, j'y ai toujours échappé moi-même. Sur &°
 Véchelon dernier gravi, je vois au-dessous les brouillards où Me
-d'autres grimpeurs s'entretiennent, rient ou se lamentent. Au- 1
-dessus le brouillard reprend, mais je sais que l'échelle monte. 4
+d'autres grimpeurs s'entretiennent, rient ou se lamentent. Au-
+dessus le brouillard reprend, mais je sais que l'échelle monte.
 
 W porte vers l'Éternité. Fais-tu de ces réflexions tristes dans
 N cette grande ville, où tout distrait et dissipe la pensée ?
@@ -238,16 +238,16 @@ cela pour pouvoir serrer la main à mes amis d'études, pour
 À Sociétés d'étudiants. Nous y faisions un véritable et très utile
 4 apprentissage de la vie publique. ]
 
-| mes maîtres et mes amis LEE ‘#4 NS 1
+| mes maîtres et mes amis LEE ‘#4 NS
 rechanter avec eux le Gaudeamus, pour réciter avec eux
 Othello ou Britannicus, pour les aimer et en jouir dans le 20 :
 _ passé et laisser retentir à mon oreille ces vieux refrains
 d'un temps qui n'est plus. (1) 4 à
-Mais ne regrettons pas, mon cher ami, espérons, parce É
-que nous sommes des hommes, et que Dieu nous a créés 1
+Mais ne regrettons pas, mon cher ami, espérons, parce
+que nous sommes des hommes, et que Dieu nous a créés
 pour regarder en avant. Espérons, puisque Dieu est amour. M: |
 Ah! Milliet, mon cher ami, mon vieux camarade, que le we
-contraire te ramène toujours au contraire, l'imparfait au : 1
+contraire te ramène toujours au contraire, l'imparfait au
 parfait, le mal au bien, le passager à l'Éternel, le monde à
 Dieu, pour l'aimer et te donner à lui, et tu seras heureux,
 et tu vivras dans le temps et dans l'Éternité. :
@@ -257,18 +257,18 @@ Je suis entre l'enclume et le marteau; je viens de Cha- ar
 prépare ma thèse. La situation n'a rien, comme tu le vois,
 de particulièrement gai, mais c'est une raison de plus pour ë jai
 m'engager à l'écrire quelques mots et, quand tu réfléchiras nn “4
-que tout me manque ici, mes parents, mes amis, mes habi- Î F
-tudes et mes montagnes, (2) tu comprendras ma lettre et à 1
+que tout me manque ici, mes parents, mes amis, mes habi-
+tudes et mes montagnes, (2) tu comprendras ma lettre et à
 empresseras de me répondre. #4
-Oui, je suis à Strasbourg, une bête de ville, je t'assure, ; 1
-pittoresquement située dans une plaine sans horizon, mais 108
+Oui, je suis à Strasbourg, une bête de ville, je t'assure,
+pittoresquement située dans une plaine sans horizon, mais
 agréablement sillonnée de rivières dormantes et de canaux où +
-bourbeux. On dit que le pays fait l'homme, c'est possible, 52
-dans ce cas, je dois être devenu passablement plat, ou ça k
+bourbeux. On dit que le pays fait l'homme, c'est possible,
+dans ce cas, je dois être devenu passablement plat, ou ça
 ne tardera guère. Malheureusement, l'homme ne fait pas le re
-() Fort heureusement le vilain épisode est depuis longtemps ï
-oublié, tandis que le souvenir de nos douces années d'études et j
-d'amitié subsiste toujours vivace. 2
+() Fort heureusement le vilain épisode est depuis longtemps
+oublié, tandis que le souvenir de nos douces années d'études et
+d'amitié subsiste toujours vivace.
 (2) On sait combien les habitants des régions montagneuses
 restent attachés à leur pays. Re
 
@@ -321,33 +321,33 @@ ne mes maîtres et mes amis GITE He &
 cherche. (1) Il ne faut abuser ni de son corps, ni de son "
 esprit, ni de son cœur, sous peine de les étioler et de les du dr ur
 Tu vois que je prêche la distraction aujourd'hui, et c'est
-probablement parce que je n'en puis plus prendre. L'homme È
+probablement parce que je n'en puis plus prendre. L'homme
 a du penchant pour porter aux nues les biens qui lui
 Tu me demandais, mon cher Milliet, de te donner des .
 nouvelles de nos amis bellétriens. Je ne sais rien de dl
-Nicole, pas même son adresse. Doret a commencé sa N
-deuxième année de théologie. Rœhrich est pasteur à + h
-Stockholm, il touche un très beau traitement et jouit de 4
+Nicole, pas même son adresse. Doret a commencé sa
+deuxième année de théologie. Rœhrich est pasteur à +
+Stockholm, il touche un très beau traitement et jouit de
 quatre mois de congé pendant la saison d'été. Et moi je suis ae
 toujours ton ancien et affectionné co-bellétrien, un vieil : “
 ami, qui pense toujours avec plaisir à ces amusantes! LE
-soirées que tout concourait à rendre intéressantes et qui 14
+soirées que tout concourait à rendre intéressantes et qui
 sont déjà si loin de nous. — Écris-moi, ce sera une bonne ei
 .… J'ai visité la galerie de tableaux; tu sais combien il y É £ &
 a là de chefs-d'œuvre. J'y suis allé six ou sept fois. Je n'ai EF
 pas encore tout vu et tout ce que j'ai vu je ne l'ai pas ‘8
 compris. Les Madones (Holbein, Raphaël, Murillo, ete...) EX
-me laissent froid; ce qui m'a le plus ému c'est une Madone 0
+me laissent froid; ce qui m'a le plus ému c'est une Madone
 un saint Sébastien, un beau jeune homme nu et lié à un - ri
-arbre, qui meurt frappé au cœur, en tournant vers le ciel un 12
+arbre, qui meurt frappé au cœur, en tournant vers le ciel un
 visage où la douleur fait si visiblement place à l'extase,que  … :
 le spectateur se sent ému d'envie et de regret. De telles Do
 peintures me semblent faites plutôt pour les amateurs que AR
-pour les artistes. Il me semble que, si j'étais peintre et que . 1
-je visitasse cette galerie, je briserais en sortant mon che- ; 4
-valet et mes pinceaux. ÿ
-Je voudrais que tu fusses ici cependant pour disserter F
-avec moi sur tous ces tableaux et pour m'aider à les com- F
+pour les artistes. Il me semble que, si j'étais peintre et que
+je visitasse cette galerie, je briserais en sortant mon che-
+valet et mes pinceaux.
+Je voudrais que tu fusses ici cependant pour disserter
+avec moi sur tous ces tableaux et pour m'aider à les com-
 (1) On remarquera dans toutes ces lettres les effets du surme- e à
 nage intellectuel rendu nécessaire par les examens. , À :
 
@@ -370,7 +370,7 @@ Restreignons-nous donc, mais ne nous oublions pas.
 Donne-moi bientôt de tes nouvelles. Parle-moi de Nicole,
 et où qu'il soit, présente-lui mes amitiés.
 
-47 3
+47
 ; Encore un poète et un philosophe. Quelques. fragments des lettres de Marc Doret suffiront pour faire
 connaître cet esprit aimable et enjoué, ce cœur excellent. La douceur et la bienveillance inaltérable de
 lheureux père d'une nombreuse et belle famille, la
@@ -390,12 +390,12 @@ sens esthétique, 1° un orchestre dont je n'ai pas de mal à %
 dire, sauf qu'il abuse quelquefois du droit qu'ont les el
 orchestres de se faire entendre. 2° des constructions genre
 vieux-allemand, dont quelques-unes ne manquent pas de De a
-cachet, surtout grâce au grès rouge dont elles sont con- 5
+cachet, surtout grâce au grès rouge dont elles sont con-
 struites, et qui leur donne très facilement un aspect monu- pr
 mental. Mais que l'Allemand est pédant! Là où une tourelle LU
-suflirait et formerait le plus joli décor, il aceumule les 4
+suflirait et formerait le plus joli décor, il aceumule les
 pignons et les pointes et les poivrières et les créneaux,
-tout doit figurer : d'où des coins et des recoins, des parties L
+tout doit figurer : d'où des coins et des recoins, des parties
 qui avancent sur toutes les faces, d'où un manque de grâce Le
 par manque de simplicité. C'est comme l'orchestre, beau- 1 Éd
 coup de jolis motifs, mais trop. 3° Une nature douce, VUE.
@@ -405,23 +405,23 @@ mière par les angles de l'autre. 4 ci
 
 Un grand cirque fermé de collines boisées, bois de hêtres, FAR
 quelques-uns de sapins, mais rares, sur lesquels la lumière # ie
-du matin et le soleil rasant du soir produisent les pius È D:
+du matin et le soleil rasant du soir produisent les pius
 beaux effets. — Ce Sont des velours profonds, chauds, de EE:
-tons variés et toujours riches, avec les taches noires des à 4
+tons variés et toujours riches, avec les taches noires des à
 dessous et les stries des troncs blancs sur les verts; des sa
 amoncellements, des moutonnements de verts dorés, à la F À
 fois massifs et légers. La moitié nord du cirque est badoïse, |."
-l'autre est suisse. Entre les deux coule le Rhin « tranquille fe 4
-et fort », comme dit l'autre. — Pardon, je crois que Boileau : U, 4
-dit « tranquille et fier » — tant pis! j'aime mieux ma & 4
-variante. Une belle nappe d'eau qui s'écoule sans effort, É
-tantôt unie comme un lac, tantôt légèrement bouillonnante, 4 18
+l'autre est suisse. Entre les deux coule le Rhin « tranquille fe
+et fort », comme dit l'autre. — Pardon, je crois que Boileau
+dit « tranquille et fier » — tant pis! j'aime mieux ma &
+variante. Une belle nappe d'eau qui s'écoule sans effort,
+tantôt unie comme un lac, tantôt légèrement bouillonnante,
 quand le fond est rocailleux... et toujours chantante, comme »
-les pèlerins se rendant aux sanctuaires. À ! :4
+les pèlerins se rendant aux sanctuaires. À !
 
 C'est grand, c'est calme, c'est fort; on ne se lasse pas de S | #
 
-22 1
+22
 
 _ regarder passer et d'écouter chanter. El l'on fait toutes
 - sortes deréflexions conscientes ou inconscientes, que domine
@@ -447,7 +447,7 @@ d sentiment est tout au fond. On le laisse dans une demi-
 , jouissance contradictoire de l'absorption par la matière.
 s C'est comme un plaisir de dilettantisme matérialiste très
 E À C'est ce qu'on éprouve aussi devant le Rhin. Il faut en
-… être près, il faut en sentir le souffle; il vous entraine. Les é
+… être près, il faut en sentir le souffle; il vous entraine. Les
 -…. Allemands ont exprimé cela par des poésies idylliques qui
 le défigurent. Loreley est une caricature. Cest autre
 chose : c'est encore une absorption dans le monde matériel ;
@@ -471,30 +471,30 @@ camarade, et tu apprendras, je pense, avec plaisir, que sa
 matérialisation n'a jamais été que passagère. Il en est
 toujours revenu fort heureux de n'être ni une montagne,
 
-Les frères Darier sont restés au nombre de mes amis 5
+Les frères Darier sont restés au nombre de mes amis
 les plus chers. L'aîné, Charles, alla faire ses études
 d'architecte à l'École des Beaux-Arts de Paris, et Albert
 me précéda d'un an à l'atelier Gleyre. Grâce à lui je ne
 
-. fus enduit ni de bleu de Prusse, ni de vermillon, conformément à la spirituelle tradition qui se perpétue d'âge 41
+. fus enduit ni de bleu de Prusse, ni de vermillon, conformément à la spirituelle tradition qui se perpétue d'âge
 en âge chez nos méchants singes.
 
-Albert est né peintre; il manifesta dès son enfance de ñ
+Albert est né peintre; il manifesta dès son enfance de
 remarquables dispositions. Gleyre l'aimait beaucoup, » À
-parce qu'il devinait en lui un véritable artiste. Ces dons Î ï
+parce qu'il devinait en lui un véritable artiste. Ces dons
 naturels, aucune étude ne saurait les remplacer. Albert !
 
-a toujours eu l'œil et la main d'un maître. — C'est aussi Ê
+a toujours eu l'œil et la main d'un maître. — C'est aussi
 de leurs parents que les frères Darier avaient hérité, ;
 avec le goût et le talent artistiques, un autre don pré- À
 cieux et rare, une extrême bonté. à
 
 .… Je n'ai qu'à me féliciter d'être entré chez M. Gleyre et '
-j'espère que bientôt tu viendras grossir le nombre de ses Ï
+j'espère que bientôt tu viendras grossir le nombre de ses
 élèves. Notre digne patron est un homme sérieux, conscien-
 
 (r) Ces pages étaient déjà chez l'imprimeur quand la mort m'a :
-enlevé ce cher ami. { | 4
+enlevé ce cher ami. {
 
 di cieux, sévère dans sa critique et peu encourageant, mais
 À c'est, je crois, une qualité pour un professeur et, sur ce
@@ -511,7 +511,7 @@ dessin serré et consciencieux, mais il n'est point tyran4 nique et laisse chacu
 A actions. Voici quelques sujets de compositions qu'il nous a
 É F donnés : Le banquet de Platon. — Thémistocle : « Frappe
 & mais écoute. » — Joseph et madame Putiphar. — Ruth et
-3 Booz. J'ai fait le concours des places à l'École des BeauxArts, mais je n'ose espérer d'être reçu, car le nombre des
+Booz. J'ai fait le concours des places à l'École des BeauxArts, mais je n'ose espérer d'être reçu, car le nombre des
 concurrents est grand (300) et le nombre des acceptés n'est
 que'de 89. On dit que les recommandations ne sont pas \
 ] inutiles pour obtenir le succès. L'examen consiste en un
@@ -529,29 +529,29 @@ laimable railleur que nous connaissons.
 .… Tu me fais plusieurs questions sur la vie d'un rapin à
 Paris, je vais Le répondre : En été il n'y a modèle à l'atelier
 
-mes maîtres et mes amis ARE 2
+mes maîtres et mes amis ARE
 que de 7 heures à midi. Le travail à l'École a lieu de
 4 heures à 6 heures. Vers 11 heures nous prenons une +
 3 demi-heure pour déjeuner, les uns à l'atelier, les autres
 chez le marchand de vin du coin, où pour 13 sous nous
 faisons bombance. J'ai quelques bons amis que je te ferai
 connaître et en particulier mon compatriote Hirschy (de la +
-Chaux de Fonds), que tu apprécieras, je l'espère, c'est un 2
+Chaux de Fonds), que tu apprécieras, je l'espère, c'est un
 des bons travailleurs de l'atelier. Je me réjouis beaucoup, |
 cher ami, de te voir des nôtres. La rentrée est au mois de
 : septembre; si tu veux m'attendre, je serai là pour te
 patronner. Dans le cas où tu voudrais entrer de suite à
 Vatelier, voici les conditions pécuniaires : 30 francs pour la
-masse; trois mois payables à l'avance à 10 francs — 30,
-total, 60 francs. De plus, il est d'usage de payer une bienvenue que l'on boit à l'atelier, vin chaud, punch, bière, etc., 4
-tu recevras en entrant ton petit contingent de charges; J
+masse; trois mois payables à l'avance à 10 francs
+total, 60 francs. De plus, il est d'usage de payer une bienvenue que l'on boit à l'atelier, vin chaud, punch, bière, etc.,
+tu recevras en entrant ton petit contingent de charges;
 elles ne sont pas lourdes à porter ; avec un peu d'esprit et
 de complaisance, on s'en tire. Lorsqu'on te demandera de à
 chanter, n'hésite pas, ceux qui font les récalcitrants s'attirent de nombreuses brimades. Ne t'effarouche pas non plus
 du cynisme, il est le même dans tous les ateliers, c'est leur ‘
-seul vilain côté; on y fait de fameuses études de mœurs et ÿ
-de caractère, mais on finit par sy habituer. Malgré les É
-apparences, les ateliers ne laissent pas d'être une très F.
+seul vilain côté; on y fait de fameuses études de mœurs et
+de caractère, mais on finit par sy habituer. Malgré les
+apparences, les ateliers ne laissent pas d'être une très
 bonne école. Je me félicite chaque jour d'être entré chez |
 M. Gleyre et j'espère que toi aussi tu n'auras jamais à t'en |
 repentir. Plissonnier m'a chargé de te transmettre ses
@@ -593,29 +593,29 @@ d'une rare délicatesse de conscience, et racontent des
 luttes morales dont le haut exemple mérite d'être
 
 mes maîtres et mes amis SAT
-.. Comme beaucoup de jeunes gens très travailleurs, 4
+.. Comme beaucoup de jeunes gens très travailleurs,
 mon ami éprouva, à la suite de ses examens, les déplo- À
-rables effets physiques du surmenage intellectuel. « ) 4
+rables effets physiques du surmenage intellectuel. « )
 
 Voici un mois bientôt que tu m'as quitté. Je préparais
-alors mes examens, quand le mauvais sang, dont les sciences 5
+alors mes examens, quand le mauvais sang, dont les sciences
 m'approvisionnaient, se mit à sortir avec une énergie surprenante. Je ne laissai pas d'en être excessivement affaibli.
-Défendu à moi de toucher les livres. Enfin je meurs d'ennui È
-par ordonnance du médecin. C'est la bête qu'il faut soigner, V3
-c'est elle qui règne. Je suis une véritable machine mesurant 4
+Défendu à moi de toucher les livres. Enfin je meurs d'ennui
+par ordonnance du médecin. C'est la bête qu'il faut soigner,
+c'est elle qui règne. Je suis une véritable machine mesurant
 l'espace qui sépare les repas.
 
 Ta lettre m'a fait le plus grand plaisir, même aux endroïts +}
 où iu me dépeins ta triste position, car ils augmentent ;
-l'estime que j'avais pour toi. Une âme noble comme la tienne … 4
-doit souffrir de ce perpétuel contact avec de pareilles gens. L
-Que Dieu veuille, comme je l'en prie pour toi et pour moi, F
+l'estime que j'avais pour toi. Une âme noble comme la tienne …
+doit souffrir de ce perpétuel contact avec de pareilles gens.
+Que Dieu veuille, comme je l'en prie pour toi et pour moi,
 nous conserver toujours jeunes, toujours vivants, aimant ce
-qui est beau. Moi aussi j'ai à craindre le milieu où je me trou- “$L 20
+qui est beau. Moi aussi j'ai à craindre le milieu où je me trou- “$L
 verai bientôt si, selon toute probabilité, c'est en Russie que
 je dois m'engloutir. ;
 
-u Comment ferai-je loin de mon pays, de l'influence salutaire 1
+u Comment ferai-je loin de mon pays, de l'influence salutaire
 demande pas assez souvent. ;
 
 Ainsi que tu l'as éprouvé, je m'occupe de mon départ
@@ -627,7 +627,7 @@ Viendra aussi pour moi l'heure où je verrai fuir mon pays,
 les montagnesique je n'ai jamais quitiées… à
 
 Cher ami, j'ai trouvé, j'ai trouvé! Je pars à la fin de ce ;
-mois pour l'Allemagne. Tout est au-delà de mes plus auda- 104
+mois pour l'Allemagne. Tout est au-delà de mes plus auda-
 cieuses espérances. Mon élève n'est pas un de ces bambins LA
 
 *  desept ans auxquels on me proposait de remémorer l'alphabet, c'est un jeune homme de quinze ans, un compagnon
@@ -670,8 +670,8 @@ partir, je puis attendre chez moi, et si Madame maintient
 mes maîtres et mes amis % ‘4
 ses propositions, je répondrai d'emblée que je ne puis
 les accepter. » — Après cet excès de courage, désolé de $
-refuser pour ce misérable argent une place qui me convenait 4
-si bien, je! laissai mon théologien et la dame délibérer 2
+refuser pour ce misérable argent une place qui me convenait
+si bien, je! laissai mon théologien et la dame délibérer
 ensemble ét je ne compris plus du tout leur allemand. Enfin, A
 jé vois mon Monsieur tourner vers moi un visage rayonnant ‘4
 et la dame répond qu'elle acceptait mes conditions. Ma
@@ -679,13 +679,13 @@ fermeté' lui avait plu. Pense, pense un peu à ma surprise
 et à mon bonheur! La dame m'a plu infiniment; ses
 idées sont si élevées pour une personne de haute classe ;
 {car ce sont de grands personnages). Elle me disait que son $
-fils, sachant déjà qu'il serait riche et très en vue, regardait È
-comme ses inférieurs les pauvres et les simples citoyens : 114
+fils, sachant déjà qu'il serait riche et très en vue, regardait
+comme ses inférieurs les pauvres et les simples citoyens
 « Je désire beaucoup que l'instituteur combatte cette dispo- -#
-sition, » — Je crois que de ce côté-là, elle a bien trouvé son É
+sition, » — Je crois que de ce côté-là, elle a bien trouvé son
 homme. À
 
-Ta dernière lettre, je V'assure, a été une bien grande joie 4
+Ta dernière lettre, je V'assure, a été une bien grande joie
 pour moi,un vrai rayon de soleil. Je me représentais si bien à
 toute la scène : le sourire de la dame en voyant ta figure si À
 jeune, et ton embarras, et ton théologien se retournant si
@@ -694,12 +694,12 @@ j'admire. Je suivais toutes tes impressions. Va, j'étais aussi |
 heureux que toi, et quand je t'ai vu délivré de tes inquié- _
 tudes, moi aussi j'ai respiré et crié : enfin! — Un vieux ‘
 deux grandes joies dans ma vie : apprendre et enseigner, \
-enseigner surtout. » Il avait raison, c'est là une belle mission, un noble but. Une seule chose m'inquiète encore; c'est » 0
+enseigner surtout. » Il avait raison, c'est là une belle mission, un noble but. Une seule chose m'inquiète encore; c'est »
 ion élève lui-même. Parle-moi de lui, quand tu l'auras bien ;
-vu, fais-le moi connaître. Je suis sûr qu'il t'aimera, et alors 4
-tu pourras le diriger à ton gré. Tu lui feras aimer l'étude, e
+vu, fais-le moi connaître. Je suis sûr qu'il t'aimera, et alors
+tu pourras le diriger à ton gré. Tu lui feras aimer l'étude,
 tu élèveras ses idées... Je vois déjà accompli tout le bien que !
-tu vas faire, J
+tu vas faire,
 
 - J'aime beaucoup ton étonnement républicain de trouver
 des idées élevées chez de grands personnages. Il ne faut
@@ -754,22 +754,20 @@ venait se montrer une pauvre fille en haïllons, gauche et
 
 () En ce temps-là les bibliophiles trouvaient encore quelques
 
-| 31
-
 mes maîtres et mes amis CL ie
 rougissante, réduite par la faim à ce triste métier, Hier, elle "M
 est revenue en grande toilette, riant d'un rire effronté, .4:18)
-sachant déjà répondre à tout. Quinze jours avaient suffi À 4
+sachant déjà répondre à tout. Quinze jours avaient suffi À
 pour amener en elle cette transformation. D |
-Chez ces créatures qui inspirent toutes un égal dégoût, on . 4
-s'étonne de constater une sorte de hiérarchie dans le vice : 4
+Chez ces créatures qui inspirent toutes un égal dégoût, on
+s'étonne de constater une sorte de hiérarchie dans le vice
 une habituée de tel bal public croirait déroger si elle fré- +
 quentait celle qui danse dans tel autre bastringue. C'est la f\
 boue qui méprise le fumier. à
 Voilà le milieu dans lequel je suis forcé de passer ma vie. ï à
 Ce qui me désespère encore, c'est qu'avec un amour pas- (4
-sionné pour mon art, j'ai le sentiment bien profond de ma mé- 4
-diocrité. Je comprends assez les grands maîtres pour avoir le 4
+sionné pour mon art, j'ai le sentiment bien profond de ma mé-
+diocrité. Je comprends assez les grands maîtres pour avoir le
 désir de les suivre de loin, mais je ne fais que m'épuiser par,
 une tension continuelle. Et pourtant ce n'est point par
 ambition; la gloire ne me tente pas plus que toi. Le sort
@@ -779,23 +777,23 @@ indifférent, sans respect, dédaigneux, gouailleur même, en re
 face de cette toile sur laquelle l'artiste a pleuré, sur laquelle He
 ‘il a consumé sa vie, dans ces heures d'inspiration brûlante NN
 qui souvent l'ont tué. Le fou! Il a médité longtemps, il a #0
-travaillé, il a souffert... tout cela pour voir sa douleur : É
-. collée contre un mur et bafouée du premier venu. Je ne puis 3 e
-croire que le jugement de la postérité le touche. L'espoir *:) 0
+travaillé, il a souffert... tout cela pour voir sa douleur
+. collée contre un mur et bafouée du premier venu. Je ne puis
+croire que le jugement de la postérité le touche. L'espoir *:)
 qu'on finira peut-être un jour par lui rendre justice a dû vi
-être bien peu de chose auprès du témoignage de sa con- 4
+être bien peu de chose auprès du témoignage de sa con-
 science. Qu'importe aujourd'hui à Homère qu'on discute ses À
 œuvres et qu'on nie même son existence ? (x) HE
-cuper uniquement, comme je le fais, du développement de ï
+cuper uniquement, comme je le fais, du développement de
 mon esprit; heureux toi qui peux tout ensemble élever ton .
-âme et cultiver l'âme d'autrui ! 1
-Je t'en prie, ne m'abandonne pas dans mon affreux isole- i
+âme et cultiver l'âme d'autrui !
+Je t'en prie, ne m'abandonne pas dans mon affreux isole-
 ment. Je ne respire plus dans cette atmosphère souillée de ;
 vice. (2) Vois-tu, je le sens bien, j'ai laissé mon cœur à
 (1) Je croyais alors à un auteur unique des poèmes homériques. { jt
 (2) Cette impression me semble aujourd'hui très exagérée. ps
 
-1 Genève. C'est là que j'ai vécu ces douces années où j'étais
+Genève. C'est là que j'ai vécu ces douces années où j'étais
 
 là heureux et où j'avais si bien conscience de mon bonheur ;
 
@@ -850,39 +848,39 @@ pas inutile de montrer à quels sentiments délicats il Yi)
 souhaiter de voir plus souvent suivis. FS.
 Mon ami m'écrivait le 19 septembre 1863 :
 .… Cette place que j'avais obtenue et qui faisait mon si 1 à
-grand bonheur, cher ami, elle s'en est allée. ï 14
-J'étais revenu à Genève, enchanté de madame X... Mes D
+grand bonheur, cher ami, elle s'en est allée.
+J'étais revenu à Genève, enchanté de madame X... Mes
 parents voulaient savoir au juste les qualités de ma future à
 famille, et moi je trouvais toutes ces précautions inutiles, à
 
 - et leur disais : Ah! vous n'avez pas vu la dame! — Ah! si
 vous aviez vu la dame !
 
-‘ Sais-tu ce que ces recherches ont amené d'abord, et ce L
+‘ Sais-tu ce que ces recherches ont amené d'abord, et ce
 que toutes mes informations ont irréparablement confirmé?
 Monsieur X... est fermier de trois casinos célèbres. Telle
-est l'origine de sa grande fortune et des charités sans 4
+est l'origine de sa grande fortune et des charités sans
 nombre qu'il répand autour de lui, car nos correspondants de.
-rendent hommage à son excellent cœur. Ce que j'avais à 30
-faire, tu le sais aussi bien que je l'ai su. Sans hésiter un 3 4
-seul instant, j'ai composé mon refus. Je ne puis te dire ce # 4
+rendent hommage à son excellent cœur. Ce que j'avais à
+faire, tu le sais aussi bien que je l'ai su. Sans hésiter un
+seul instant, j'ai composé mon refus. Je ne puis te dire ce #
 que j'ai souffert. Plusieurs personnes comprenaient peu ma à
 délicatesse! Elles alléguaient une raison spécieuse. N'y Re
 avait-il pas là une noble tâche à remplir : un jeune homme, rY
 dangereusement exposé, à garantir des tentations ? Mais Nr '4
-le précepteur d'un enfant doit pouvoir lui dire: Voici qui 1
+le précepteur d'un enfant doit pouvoir lui dire: Voici qui
 est bien, voici qui est mal, sans jamais risquer de porter ;
-atteinte à son respect pour ses parents, et tu m'avoueras 1
-que cette liberté ne m'aurait pas été donnée. 3
+atteinte à son respect pour ses parents, et tu m'avoueras
+que cette liberté ne m'aurait pas été donnée.
 
-J'ai recommencé mes recherches. Une princesse russe m'a . Ù
+J'ai recommencé mes recherches. Une princesse russe m'a
 demandé; je suis allé la voir. Elle aussi a été étonnée de ma
 jeunesse, mais au lieu d'un franc et bon sourire, e'était la |
-défiance, le soupçon. Comme toutes les personnes qui se 4
-mettent au-dessus des simples honnêtes gens, elle avait s
+défiance, le soupçon. Comme toutes les personnes qui se
+mettent au-dessus des simples honnêtes gens, elle avait
 cette curiosité impérieuse, cette manière si déplaisante de + à
 pénétrer dans votre famille et votre vie. Les conditions ÿ #4
-pécuniaires sont très avantageuses, mais ce n'est pas pour 1: 10
+pécuniaires sont très avantageuses, mais ce n'est pas pour
 moi la grande affaire. Mon élève a dix ans et demi, c'est bien ce
 
 À enfant, bien idiot. Il se peut que j'accepte et que j'essaie
@@ -924,32 +922,32 @@ Me voici donc\ à trois cents lieues de mon beau pays, à |
 quatre cents des universités allemandes. Mais tout est pour
 le mieux : Je sens à ma fatigue d'esprit qu'aller tout de
 suite en Allemagne commencer de fortes études aurait été
-la ruine de ma santé. Mieux vaut passer d'abord quelque 4
-temps chez les Espagnols. Je m'y reposerai, et je prendrai 3
+la ruine de ma santé. Mieux vaut passer d'abord quelque
+temps chez les Espagnols. Je m'y reposerai, et je prendrai
 d'ici mon élan pour l'Allemagne. À
 Et puis la position élevée de la famille où je suis, me
-permettra de connaître une foule de choses que je n'aurais è
+permettra de connaître une foule de choses que je n'aurais
 jamais pu même entrevoir. J'observerai de près une classe ;
-de gens, la noblesse, qu'il est bon de connaître à qui aime 6
+de gens, la noblesse, qu'il est bon de connaître à qui aime
 l'histoire et la philosophie, puisque ce sont ces gens qui ont
 gouverné le monde pendant si longtemps, et qui sont encore
 les maîtres dans bien des pays. \
 Madrid où nous vivons est une grande ville insignifiante,
 | la moins espagnole et la moins originale de toutes. Il y a
-bien quelques ressources, université même, mais je ne possède pas encore assez l'espagnol pour fréquenter les cours, 4
+bien quelques ressources, université même, mais je ne possède pas encore assez l'espagnol pour fréquenter les cours,
 je puis du moins profiter de ceci — une des plus magnüfiques galeries du monde! Les Raphaël, les Murillo, les
-Vélasquez, composent presque toute la collection. Un seul . j
+Vélasquez, composent presque toute la collection. Un seul
 des tableaux qui se trouvent là ferait la gloire d'un autre
 musée. En contemplant, les larmes aux yeux, le Spasme
 de sainte Cécile, j'ai bien pensé à toi, aux jouissances que
 tu aurais, aux délicieux moments que j'ai passés devant
-tes belles gravures. Que ces moments de jeunesse et de 4
+tes belles gravures. Que ces moments de jeunesse et de
 beauté sont loin! Je suis à présent plongé dans cette À
 affreuse vie pratique. Où sont ces longues soirées où nous
 composions, où nous faisions des critiques littéraires et ‘4
 historiques, sur Louis XI « précurseur de la Révolution ‘
 française », où nous fabriquions des passages de vieux -
-chroniqueurs, en mettant de la naïveté dans notre ortho- 1
+chroniqueurs, en mettant de la naïveté dans notre ortho-
 graphe? Et ces lectures d'Homère, à tout moment interrompues par un silence d'admiration, ou bien encore par £
 \ des commentaires très éloignés du texte, et qui nous rame- TR
 
@@ -982,7 +980,7 @@ l'effet; quelques-unes de ses vierges ont de petites manières,
 mais dans ses chefs-d'œuvyre, lorsqu'il est inspiré, il montre
 une grâce, une pureté et une hardiesse admirables. Et
 quelle couleur! Le Musée possède une peinture de ce maître
-qui m'a surtout frappé et à laquelle je pensais en parlant j
+qui m'a surtout frappé et à laquelle je pensais en parlant
 de pureté, de hardiesse et de grâce. C'est un vieux moine
 agenouillé qui a une vision : La Vierge descend du ciel
 avec l'Enfant Jésus; elle montre au religieux le sein nu qui
@@ -992,8 +990,8 @@ a nourri le Fils de Dieu.
 mes maîtres et mes amis SR à
 portraits équestres de princes et de grands personnages -
 espagnols; Philippe IV et Charles II enfant ont été peints !
-par lui plusieurs fois. Tu sais que ces rois étaient de pauvres É
-sires, laids et bêtes. Eh bien, l'admirable peintre a suù leur r
+par lui plusieurs fois. Tu sais que ces rois étaient de pauvres
+sires, laids et bêtes. Eh bien, l'admirable peintre a suù leur
 arracher le peu d'âme et d'idée qu'ils avaient; de sorte que
 leurs figures, tout en étant, dit-on, très ressemblantes, ont
 de l'expression et de la beauté. Dans une collection de nains
@@ -1007,13 +1005,13 @@ Malgré cela je me suis bien longtemps arrêté au Spasme
 de Sainte Cécile, celui des Raphaëls que je comprends le
 mieux. Le Christ est à genoux sous sa croix; il tend le bras
 gauche vers la terre, comme pour soutenir son corps; ce
-bras, cette main étendus expriment une douleur, un acca- 4
+bras, cette main étendus expriment une douleur, un acca-
 blement immenses. La tête couronnée d'épines et sanglante
 se tourne avec effort du côté des femmes qui Font accompagné. Sur cette figure, que la douleur physique contracte,
 on lit la pensée du Christ dans toute sa divinité : à ce
 moment affreux, Jésus ne pense pas à lui, son âme ne
 souffre pas pour lui, il ne pleure pas sur lui, il ne plaint
-que ces pauvres femmes qui vont être enveloppées dans la C
+que ces pauvres femmes qui vont être enveloppées dans la
 vengeance de Dieu; il souffre des châtiments que ses meurtriers vont s'attirer : « Filles de Jérusalem, ne pleurez point
 ; sur moi, mais pleurez sur vous-mêmes et sur vos enfants. »
 Et sainte Cécile, comme elle comprend l'amour infini du
@@ -1070,16 +1068,16 @@ une série de galeries voûtées, et je me dirige vers l'église
 du monastère.
 
 mes maîtres et mes amis AE EU
-| C'est alors que je revins peu à peu de mon désappointement. Ces grandes voûtes de granit massif, nues ougarnies F
-de sévères peintures4le batailles, préparent l'effet grandiose s
+| C'est alors que je revins peu à peu de mon désappointement. Ces grandes voûtes de granit massif, nues ougarnies
+de sévères peintures4le batailles, préparent l'effet grandiose
 que le temple devait me produire pour toujours. Non, de ma + A
-vie je n'oublierai cette magnificence. De massifs piliers j
+vie je n'oublierai cette magnificence. De massifs piliers
 de granit s'élevant avec une puissance écrasante; au centre
 une coupole gigantesque, partout la simplicité, la gra- ;
 vité, la grandeur. Le maître-autel était voilé de noir; je
 vis seulement à sa droite et à sa gauche un groupe royal,
 représentant je ne sais quels souverains d'Espagne, assistant avec leur famille au service divin. Rien ne saurait dire
-ce qu'expriment ces statues. Il y avait là beaucoup de ñ
+ce qu'expriment ces statues. Il y avait là beaucoup de
 monde venu au pèlerinage. Ces hommes et ces femmes A
 semblaient ridiculement petits dans cette grandeur; leurs .
 mouvements, leurs admirations, leur fourmillement profanaient tant de gravité. Seules les hautes statues de rois
@@ -1097,7 +1095,7 @@ il ressemble à tous les cimetières espagnols, c'est une salle
 ronde et voûütée, dont les parois sont garnies de niches en |
 étages. Dans chacune de ces niches est un cercueil de
 pierre: La plupart des cercueils portent des noms de rois
-en lettres noires. Charles-Quint, Philippe II, et tous les sou- È
+en lettres noires. Charles-Quint, Philippe II, et tous les sou-
 verains d'Espagne, sont placés d'après l'ordre de leurs
 peut déjà voir et toucher la place où elle sera. C'est pour
 cela quelle n'aime pas l'Escurial et qu'elle y séjourne le
@@ -1155,13 +1153,13 @@ quand je suis revenu de l'Escurial, l'imagination remplie de ;
 tristesse et de grandeur, j'ai jeté pêle-mêle sur le papier ces .
 impressions que je t'envoie, car c'est là le seul moment de
 joie vraiment poétique, de grand bonheur que j'aie passé
-Mes deux enfants aussi me donnent toute la joie qu'ils 1
+Mes deux enfants aussi me donnent toute la joie qu'ils
 peuvent; je n'ai jamais vu d'enfants aussi arriérés, ni conçu
 tâche aussi diflicile que leur éducation, mais je n'ai jamais
 , eu non plus d'élèves aussi bons, aussi aimants.
 .… L'espagnol que j'étudie me sera utile dans ma carrière
 philologique. Je lis Don Quichotte et l'Histoire de Toreno (1)
-qui a bien son mérite... Mai:, mon cher, toute cette littérature 1
+qui a bien son mérite... Mai:, mon cher, toute cette littérature
 qu'est-elle auprès de notre Homère, auprès de nos Grecs ?(2) {
 — Quelle admirable étude du cœur humain ! dira-t-on.
 Aujourd'hui tout est science, livres de science, manuels
@@ -1171,11 +1169,11 @@ espagnol, de me lever sous prétexte de chercher un mot
 dans un dictionnaire, et de prendre à la place ou mon
 Homère ou mon Xénophon. Ah! si nous étions nés en
 Grèce, si j'avais été à la bataille de Marathon ! Si j'avais vu
-les tragédies de Sophocle ! Mais non, je m'appelle Nicoie, je 1
+les tragédies de Sophocle ! Mais non, je m'appelle Nicoie, je
 porte un chapeau noir, un frac les dimanches, et j'enseigne
-le système décimal à deux bambins tondus à la malcontent. 4
+le système décimal à deux bambins tondus à la malcontent.
 
-.. À peine de retour à Genève, je me suis lancé dans la Ÿ
+.. À peine de retour à Genève, je me suis lancé dans la
 politique. J'étais de ce cortège d'électeurs qui, — tu en as
 N (1) Toreno, né en 1786, mort en 1843, défendit son pays contre les
 Français en 1808; député aux Cortès en 1811, il proposa de supprimer les ordres monastiques et l'Inquisition. Exilé à plusieurs
@@ -1233,9 +1231,9 @@ admirer ces montagnes, ces eaux bleues, ce printemps, beau
 comme nous n'en verrons plus. Nous fùmes chassés de là
 par une vieille femme, personnification du temps, personne
 revêche que j'avais envie d'insulter. Nous sautâmes par- :
-dessus une grille. Oh oui, c'est bien vieux cette plainte que f
+dessus une grille. Oh oui, c'est bien vieux cette plainte que
 l'on répète sur le temps qui s'en va, mais c'est cruellement ‘4
-vrai. Il m'arrive même, quand je pense au bonheur éternel 4
+vrai. Il m'arrive même, quand je pense au bonheur éternel
 qui nous attend, de me demander si ces jours passés nous
 seront rendus. Sans eux, j'ai peine à concevoir le bonheur. :
 Si tu savais, cher ami, quel rayon de joie et de poésie
@@ -1284,7 +1282,7 @@ j'espère que nous ferons le chant II.
 
 à Autriche, à Ischl, où. mes nouveaux élèves m''attendent.
 
-1 De là, la grande locomotive du Destin me conduira jusqu'à
+De là, la grande locomotive du Destin me conduira jusqu'à
 
 Au moment de m'éloigner tellement et pour bien iongtemps peut-être, tu comprends si je désire te voir et lavoir.
 Viens donc, cher ami, le plus tôt possible, si tu veux que
@@ -1298,8 +1296,8 @@ d'Ischl. J'admirai à loisir les marbres d'Egine, la belle
 collection de vases grecs, les chefs-d'œuvre de la Pinacothèque et de la Glyptothèque.
 
 mes maîtres et mes amis PA)
-.… J'ai dans une jolie chambre ceux de mes Grecs, f
-Romains et Espagnols dont je n'ai pu décidément pas me h
+.… J'ai dans une jolie chambre ceux de mes Grecs,
+Romains et Espagnols dont je n'ai pu décidément pas me
 séparer; et pourtant il me semble, quand je les fais causer, À
 qu'ils ne sont plus les mêmes. Il n'y a que le vieil Homère,
 trop vieux pour jamais changer, qui me fait toujours le |
@@ -1314,9 +1312,9 @@ cette scène, ne trouves-tu pas que l'âme s'agrandit, que le
 sentiment de l'existence éternelle des esprits vous vient
 ! avec une force irrésistible, et que dans de pareils moments
 on fait bon marché de tous les doutes?
-Et pourtant dans Hector, dans Andromaque se faisant 1
+Et pourtant dans Hector, dans Andromaque se faisant
 leurs adieux, il y a une douleur sans, espérance. \
-Mon ami pose excellemment le grand problème. F.
+Mon ami pose excellemment le grand problème.
 Même en dehors de la perpétuité de la race, les pensées |
 se transmettent de génération en génération; l'esprit
 circule à travers le temps, comme à travers l'espace.
@@ -1356,7 +1354,7 @@ Non, moi aussi j'ai cru que j'étais blasé, mais je crois
 \ que la seule chose qui puisse blaser un jeune homme, c'est
 la connaissance pratique du mal.
 
-7 Ainsi j'ai déjà vu, de mes propres yeux vu, d'horribles
+Ainsi j'ai déjà vu, de mes propres yeux vu, d'horribles
 choses, mais tout cela ne m'a pas fait plus d'impression
 qu'un rêve ridicule, et je me trouve aussi naïf que
 lorsque je ne voulais pas X... à la Société de BellesLettres, parce qu'il allait très souvent au café, sans demander la permission à son oncle.
@@ -1364,8 +1362,8 @@ lorsque je ne voulais pas X... à la Société de BellesLettres, parce qu'il all
 Me voici de retour dans mes quartiers d'hiver, à cinq
 cents lieues de Paris et sans aucune espérance probable d'y
 revenir avant longtemps. Tout le monde autour de moi est
-allé à l'Exposition, ou se dépêche d'y courir ; tout le monde é
-en parle avec ravissement, et moi seul je reste en Russie... è
+allé à l'Exposition, ou se dépêche d'y courir ; tout le monde
+en parle avec ravissement, et moi seul je reste en Russie...
 Nous sommes bien loin du temps où nos familles étaient
 toutes les deux au complet et séparées l'une de l'autre
 par la seule largeur du lac. Il y a des moments où je me
@@ -1378,17 +1376,17 @@ portefeuille où j'entasse depuis sept ans toutes sortes de
 choses, et que j'ai entamé de tous les côtés à la fois, sans
 regarder si c'était par en haut ou par en bas. Il y a là des
 comptes, des notes de linge, des maximes et des pensées
-remarquables, souvenir du temps où nous en faisions collection, des mots à chercher dans le dictionnaire, des ÿ
+remarquables, souvenir du temps où nous en faisions collection, des mots à chercher dans le dictionnaire, des
 adresses, un horaire du Collège de France et de la Sorbonne,
 enfin rien ne s'y trouve pas. Voilà qu'en tournant le :
-cinquième feuillet, je lis l'inscription suivante : h
+cinquième feuillet, je lis l'inscription suivante
 11. » Et tout notre joli voyage s'est retracé, si net, si
 détaillé devant mes yeux que je me suis trouvé transplanté
 bien loin de cet affreux village de Smela où la scène se
 passait. Te rappelles-tu notre course effrénée à trayers
-Munich, et notre transport d'admiration en sortant du Î
+Munich, et notre transport d'admiration en sortant du
 fameux tunnel avant Lausanne? Les voyages que je fais à
-présent ne ressemblent guère à celui-là; le beau pays et le Ÿ
+présent ne ressemblent guère à celui-là; le beau pays et le
 cher ami ne sont plus là, et je ne suis plus le même.
 J'aurais besoin d'aller un peu à Paris, sans quoi je serai
 bientôt aussi usé que mon portefeuille.
@@ -1446,7 +1444,7 @@ fragments des philosophes grecs.
 
 Le cours de M. Alfred Maury sur les origines et les migrations des races qui ont peuplé l'Europe est fait avec une
 grande clarté. Il parvient à distinguer ce que l'on sait de ce “a
-que l'on ignore, il fait le triage dans les hypothèses et les x
+que l'on ignore, il fait le triage dans les hypothèses et les
 met chacune à son rang. Ses leçons sur les Etrusques m'ont À
 vivement intéressé. Je les comparais à la vaste érudition |
 confuse de M. Longchamp, à ce monceau formidable de
@@ -1457,7 +1455,7 @@ Je lis le manuel d'archéologie d'Otfried Muller. Voilà du
 moins le monument admirable d'une science qui se posséde.
 Malheureusement je le lis dans une traduction, la plus
 mauvaise qu'on puisse voir. Le traître qui l'a écrite ne
-savait ni l'allemand, ni le français, ni le grec, ni l'archéo- 4
+savait ni l'allemand, ni le français, ni le grec, ni l'archéo-
 
 Je ne t'ai parlé que de l'emploi de mes moments perdus. ”
 C'est seulement entre deux coups de pinceau que j'attrape
@@ -1479,7 +1477,7 @@ de leur jeunesse. Accablées sous le poids de leur propre
 
 histoire, elles ont perdu toute liberté d'allure, et n'ont
 plus la force de digérer leur érudition. — Heureusement
-un rayon de soleil suffit pour dissiper ces vapeurs mélancoliques. 1
+un rayon de soleil suffit pour dissiper ces vapeurs mélancoliques.
 
 Je ne voudrais pas te quitter sans te dire un mot d'une
 représentation de Don Juan au Français. Cela est beau
@@ -1498,7 +1496,7 @@ cela si fortement marqué à son empreinte personnelle!
 Quelle merveille! Il faudra qu'un jour ou lautre nous
 
 sa lerve T e l'Anti
-quité et d
+quité et
 
 Comme mes amis Nicole, Doret, Balavoine et Rœhrich, Léonard Lugardon (1801-1884) était: un Genevois
 de la vieille roche. Ces nobles âmes ont la pureté des
@@ -1527,13 +1525,13 @@ précis, et demandent à une étude d'après nature d'être
 une copie scientifiquement fidèle.
 
 D'autres, et au premier rang les novateurs améri- :
-cains, préfèrent au raisonnement l'intuition et le senti- L
+cains, préfèrent au raisonnement l'intuition et le senti-
 ment individuel, avec ses lacunes, ses exagérations, et ! à
 même ses erreurs, qu'ils acceptent résolument. Un À
 grand artiste, il est vrai, n'a pas à nous représenter les .
 choses telles qu'elles sont, — ce qui d'ailleurs est impossible, — mais telles qu'elles lui apparaissent à telle
 heure du jour, en telle saison de l'année, à lui, qui se
-état de santé. On le voit, nous sommes loin de la 4
+état de santé. On le voit, nous sommes loin de la
 recherche du Beau absolu. ;
 
 Mais le respect de l'individualité de l'élève doit-il
@@ -1542,7 +1540,7 @@ ne le pensait pas. Un débutant commet des fautes; il
 faut les lui signaler; il faut lui apprendre à voir, à
 observer attentivement et méthodiquement la vérité. IL .
 ne conseillait pas de commencer par prendre des
-mesures, travail machinal qui n'exerce pas le coup s
+mesures, travail machinal qui n'exerce pas le coup
 d'œil, qui refroidit l'impression et tend à la remplacer. ;
 Il vaut mieux contempler longuement le modèle, s'en
 imprégner, jusqu'à ce que son reflet laisse une trace
@@ -1591,8 +1589,8 @@ quelque temps à une observation précise, à une étude
 naïve de la vérité. Les plus belles œuvres des grands
 idéalistes sont à base de réalisme.
 
-0 4 13 4
-mes maîtres et mes amis 5
+0
+mes maîtres et mes amis
 
 Afin de donner à ses élèves une certaine sûreté de
 main, et pour les habituer à réfléchir avant de tracer
@@ -1603,7 +1601,7 @@ noir ou à la sanguine, sans esquisse préalable au
 
 Lugardon retouchait peu nos dessins, il préférait
 tracer en marge quelques traits qui, mieux que des ;
-paroles, expliquaient ses observations. J'ai gardé plus 4
+paroles, expliquaient ses observations. J'ai gardé plus
 d'une étude médiocre, pour conserver pieusement ces
 corrections du maître, croquis étonnamment expressifs,
 pleins de vie, d'ardeur passionnée, d'une admirable
@@ -1677,10 +1675,10 @@ mes maîtres et mes amis “our Fe
 
 Une bonne méthode devrait avoir assez de souplesse |!
 pour varier selon les tempéraments individuels. On \
-peut remarquer que chaque artiste commence par ce ù
+peut remarquer que chaque artiste commence par ce
 qui lui semble le plus important. L'ébauche d'un coloriste ne ressemble en rien à celle d'un dessinateur, ni à
 celle d'un luministe, et les œuvres terminées conservent
-la trace de ce début. Elle révèle, en la soulignant, la sensation de chaque artiste dans ce qu'elle à de primesautier et ses préoccupations dominantes. La variété dans È
+la trace de ce début. Elle révèle, en la soulignant, la sensation de chaque artiste dans ce qu'elle à de primesautier et ses préoccupations dominantes. La variété dans
 l'ordre des recherches est ainsi une importante caracté-
 ristique de chaque école d'art. Si, bien souvent, les
 maîtres sont encore plus intéressants dans leurs croquis
@@ -1785,7 +1783,7 @@ N'oubliez jamais que pour réussir dans l'art, il faut
 prendre la porte étroite. Le chemin large, brillant, facile,
 conduit à la perdition.
 
-On me prête pour me distraire de mes longues journées È
+On me prête pour me distraire de mes longues journées
 la jolie collection du Musée Napoléon de Filliol, 10 volumes
 avec de charmantes gravures, la plupart très finement
 exécutées. Les souvenirs que la vue de ces ouvrages a
@@ -1808,7 +1806,7 @@ une des chapelles de l'église Notre-Dame de Lorette.
 
 .. mes maîtres et mes amis
 le choix de vos études. Voyez quelquefois M. Perrin,
-vous conseillera. ï
+vous conseillera.
 
 Adieu, mon cher élève, rappelez-vous quelquefois votre
 vieux professeur et croyez à son amitié constante.
@@ -1820,7 +1818,7 @@ photographiés, on me les a tous pris. J'écris à M. Carrier,
 envoyer un. M. Carrier, quoique un bon ami, a des idées
 tout autres que les nôtres en peinture, ainsi prenez garde
 : si vous le voyez.
-Mon cher Monsieur Milliet, 1
+Mon cher Monsieur Milliet,
 
 Voilà bien longtemps qu'une bonne et affectueuse lettre ‘4
 attend une réponse. Mon silence vous aura expliqué le
@@ -1830,7 +1828,7 @@ J'ai lu avec bien de l'intérêt tout ce que vous me dites sur
 l'état des arts, sur les mesures militaires en honneur ac- .
 tuellement. Il est bien heureux que M. Ingres soit encore
 là ; ça arrête toujours les fougueux. Les réputations comme
-la sienne commandent le respect. L
+la sienne commandent le respect.
 
 Je viens de lire un ouvrage qui a été pour moi un sujet
 continuel de joie. (1) Je vous recommande de le lire le plus
@@ -1868,7 +1866,7 @@ Encore quelques réflexions de mon maître :
 
 La beauté, disait M. Lugardon, est répandue à profusion dans la nature. Chaque homme, chaque objet ayant
 son caractère particulier, a aussi sa beauté propre. Il
-n'y a point de genre inférieur en peinture : paysages, 3
+n'y a point de genre inférieur en peinture : paysages,
 marines, animaux, natures mortes, tout a son genre de
 
 ; Mais pour découvrir cette beauté, il ne sera pas inu-
@@ -1889,11 +1887,10 @@ choses le même niveau, rabaissant tout ce qu'il y a de
 noble et d'élevé dans l'être. À travers son miroir, la
 
 ,
-| 4
 
 La beaut and prof
 | sion dans la bjet aya BE
-Mais pour d ne sera pas int Ë
+Mais pour d ne sera pas int
 avec respect t 1 rez à COIN A
 prendre que, dans pas exprimé
 seulement ce q mis l'essence
@@ -1922,13 +1919,13 @@ faut puiser les éléments qui la composent. Mais vous
 ne copierez pas au hasard, n'importe quoi, sous pré-
 texte que tout est beau dans la nature. Il y a du beau
 dans tout, mais vous ne reproduirez jamais cette beauté,
-si vous ne l'avez pas comprise et sentie. L'art n'est pas Ë
+si vous ne l'avez pas comprise et sentie. L'art n'est pas
 création; il est choix.
 
 Cette beauté, lorsque vous l'avez reconnue dans la
 nature, votré mémoire la conserve, la met à part, et lui
 fait subir le travail de l'imagination. Assimilée par le
-génie, elle se combine avec d'autres éléments qui la com- x
+génie, elle se combine avec d'autres éléments qui la com-
 plètent., et c'est seulement lorsqu'elle à été ainsi modifiée
 par l'élaboration de toutes les facultés d'une âme individuelle, qu'elle se trouve marquée du cachet d'une personnalité. Cette beauté est devenue l'idéal d'un peintre.
 
@@ -1975,10 +1972,10 @@ Louis XIII (d'après Philippe de Champagne), et un tableau .
 de bataille : La Prise de la dunette de Saint-Laurent,
 épisode du siège d'Anvers.
 
-Lugardon a fait de très belles copies. Le musée de S
+Lugardon a fait de très belles copies. Le musée de
 Genève possède Le Triomphe de la Vertu, d'après le pastel
 du Corrège au Louvre, et M. Étienne Duval une réduction
-de l'Antiope. ÿ
+de l'Antiope.
 
 l:3 1 der tiens
 Gleyre. — L'École des Beaux-Arts. — Taine. — M. Heuzey.—
@@ -2014,7 +2011,7 @@ et personnelles de la nature. Cela prouve qu'il y a plu- à
 sieurs façons de bien peindre. Gleyre le savait, tandis ;
 que beaucoup de nos jeunes tachistes et pointillistes
 semblent l'ignorer. |
-Ses tableaux n'échappèrent pas toujours complète- 4
+Ses tableaux n'échappèrent pas toujours complète-
 ment à l'influence regrettable des doctrines qui avaient |
 été en honneur dans l'école de David. En cherchant |
 bien, on y retrouve même quelques traces de ces préjugés artistiques qui s'étalent si désagréablement dans
@@ -2027,7 +2024,7 @@ valaient encore mieux que ses tableaux. |
 Les sujets d'esquisses qu'il nous proposait étaient
 choisis de préférence parmi ceux que la peinture peut À
 exprimer mieux que la littérature. |
-(:) Ses Bacchantes du Musée de Madrid ne diffèrent guère les 5
+(:) Ses Bacchantes du Musée de Madrid ne diffèrent guère les
 unes des autres que par la couleur des cheveux ; pas une n'a un \
 nez long ou court, pas une n'est grande ou petite, pas une grasse {
 . où maigre, et leurs mouvements sont un peu trop sagement |
@@ -2038,7 +2035,7 @@ nez long ou court, pas une n'est grande ou petite, pas une grasse {
 jh … j'ajoutais : « Pour un dessinateur, comme pour un
 } sculpteur, la forme c'est le fond. » — Ces théories
 MS n'empêchaient pas l'auteur des Jllusions perdues de ,
-cacher souvent dans ses peintures quelque idée allégo- L
+cacher souvent dans ses peintures quelque idée allégo-
 L … rique-ou quelque symbole plein de poésie.
 _  Mélancolique, découragé et blasé, Gleyre avait trop
 " étudié les grands maîtres pour n'être pas devenu un
@@ -2065,10 +2062,10 @@ exemple, profitent au contraire de toute occasion pour
 
 mes maîtres et mes amis. LE ‘4
 Gleyre fut longtemps membre du jury du Salon où
-son opinion jouissait d'une grande autorité, parce que 4
+son opinion jouissait d'une grande autorité, parce que
 son impartialité n'était jamais faussée par la camara- à
-derie ni par les recommandations. Son compatriote le 1
-critique d'art Charles Clément devait une partie de sa ù
+derie ni par les recommandations. Son compatriote le
+critique d'art Charles Clément devait une partie de sa
 célébrité à la sûreté de goût de son ami et à sa compé- ]
 tence exceptionnelle. Chaque année, les artistes expo- fl
 sants attendaient, non sans inquiétude, les jugements
@@ -2151,21 +2148,21 @@ l facile de deviner ce qu'ils ont voulu dire, et un peu de
 leurs copies émues avec la nature elle-même qu'elles
 reproduisent si fidèlement. Le réalisme des grands
 artistes m'a toujours beaucoup frappé. ;
-Plus tard, à Rome, je me plaisais souvent à observer " k
-les types des passants, et à constater leurs ressem- M
+Plus tard, à Rome, je me plaisais souvent à observer "
+les types des passants, et à constater leurs ressem-
 blances incontestables avec les personnages dont les
 maîtres d'autrefois ont peint ou sculpté les portraits. Un
-vieux mendiant qui me demandait l'aumône, avait I
+vieux mendiant qui me demandait l'aumône, avait
 gardé sur son visage bien construit la majesté des à
 anciens consuls. Ici, un marchand de poissons semblait à
 Plus d'une fois la Fornarina ou la Psyché de Raphaël
 sont venues poser dans mon atelier; et le soir dans mes
 promenades solitaires, j'apercevais parfois, assises dans
-l'ombre mystérieuse de quelque portique, ces femmes L
-tudes lasses et profondément attristées, sublimes dans É
+l'ombre mystérieuse de quelque portique, ces femmes
+tudes lasses et profondément attristées, sublimes dans
 leur familiarité, qui poursuivent leur rêve douloureux
 dans les pendentifs de la Chapelle Sixtine. — Si les \
-transformistes ne se trompent pas, ils exagèrent peut- L
+transformistes ne se trompent pas, ils exagèrent peut-
 être un peu; les hommes du moins ne semblent pas À
 avoir beaucoup changé. Depuis de longs siècles, ils ont
 conservé les mêmes traits, les mêmes passions, les
@@ -2211,22 +2208,22 @@ effet sa pudeur.
 é mes maîtres et mes amis HU
 
 M. Heuzey a contribué d'une manière bien plus eff-  "
-cace à la formation du goût public en France, en recti- J
+cace à la formation du goût public en France, en recti-
 fiant les fausses conceptions qu'on se faisait avant lui
 de l'antiquité. pre
 
 Ayant terminé depuis peu son séjour à l'École à
 d'Athènes, il nous revenait, joyeux du riche buiin qu'il E à
-rapportait de sa mission en Macédoine. Le gouverne- | 1
+rapportait de sa mission en Macédoine. Le gouverne-
 ment impérial, vexé peut-être par l'opposition des acadé- 4 |
-miciens, avait brutalement chassé de l'École des Beaux- É
+miciens, avait brutalement chassé de l'École des Beaux-
 Arts les membres de l'Institut, et par réaction, une
 cabale politique avait sifflé le nouveau professeur,
 Viollet-le-Duc, malgré son talent supérieur. Les étudiants étaient alors dans un moment d'effervescence .
-et de turbulente folie. Avant chaque leçon, les trépi- 1
+et de turbulente folie. Avant chaque leçon, les trépi-
 gnements et les cris d'animaux alternaient avec les |
 cantiques, c'était un vacarme épouvantable que les
-gardiens restaient impuissants à faire cesser. Cepen- j
+gardiens restaient impuissants à faire cesser. Cepen-
 dant, à peine M. Heuzey était-il entré dans la salle,
 qu'un religieux silence se faisait instantanément. On
 eût entendu voler une mouche, quand le jeune et
@@ -2241,7 +2238,7 @@ gante pureté du style attique.
 
 Les nombreux élèves qui ont profité de l'enseigne-
 
-. ment de M. Heuzey lui gardent une vive reconnaissance. j
+. ment de M. Heuzey lui gardent une vive reconnaissance.
 Chaque année c'est un vrai régal pour les artistes et
 ! _ pour les connaisseurs d'assister aux séances qu'il consacre à l'étude pratique des costumes anciens, assyriens,
 égyptiens, romains et surtout des costumes grecs, qu'il
@@ -2272,30 +2269,30 @@ A côté des savantes leçons d'archéologie, plus d'un
 611420
 
 mes maîtres et mes amis 15 VANAEROEES
-aurait besoin de demander aussi à M. Heuzey quelques … 3) É
+aurait besoin de demander aussi à M. Heuzey quelques … 3)
 leçons de goût. Nos plus illustres acteurs braiïllent RU
-comme de vrais barbares; ils sont loin de la sobriété 4
+comme de vrais barbares; ils sont loin de la sobriété
 grecque, soit dans leurs gestes dégingandés, soit dans
 leur façon mélodramatique de déclamer. ‘RE
 M. Heuzey parle toujours des chefs-d'œuvre comme JA
 un homme qui les comprend et qui les aime. Il inspire ii
 à ceux qui l'écoutent cet enthousiasme respectueux, il
-sans lequel l'étude de l'art antique ne serait qu'une 1
+sans lequel l'étude de l'art antique ne serait qu'une
 vaine science d'archéologues, d'une utilité assez mince "A
 f pour un peintre ou pour un sculpteur. ce \
-La plupart des jeunes artistes professent un dédain, 4
+La plupart des jeunes artistes professent un dédain,
 méprisant pour le style dit classique, qu'ils appellent le
 style pompier, et ils n'ont pas tort. On a proposé trop
 longtemps à leur admiration de pseudo-chefs-d''œuvre.
 Les médiocres reproductions, exécutées par de vulgaires
-praticiens au temps de la décadence romaine, ne 4
+praticiens au temps de la décadence romaine, ne
 méritent aucunement leur réputation traditionnelle. =
 Mais l'art grec des belles époques est tout autre chose: À
 Je ne crois pas qu'il y ait aujourd'hui un seul sculpteur
 de talent, qui ne reconnaisse l'incomparable supériorité
 | de cet art grec, non seulement sur les meilleures produc-  :
 tions de la sculpture contemporaine, mais sur celles de
-tous les pays et de tous les tæmps. 1
+tous les pays et de tous les tæmps.
 
 Je suis personnellement très ‘reconnaissant à
 M. Heuzey de m'avoir fait connaître et admirer les peintures des vases grecs. À défaut des tableaux et des
@@ -2313,7 +2310,7 @@ dont la perfection surpassait tout ce que le génie
 …_ humain a jamais créé. Puis, chaque jour, au gymnase
 4 ou à la palestre, ils voyaient s'ébattre un peuple de
 fe jeunes gens beaux comme des dieux. ,
-ë Les collections de vases grecs venaient d'être instal- s
+ë Les collections de vases grecs venaient d'être instal-
 | lées au Louvre par M. de Nieuwerkerke, avec un )
 … grand luxe. Un gardien trop zélé voulut m'interdire de
 ra dessiner dans ces salles toutes neuves; je protestai, et |,
@@ -2332,39 +2329,39 @@ il est question seulement d'un petit croquis que je voudrais
 L' en toute simplicité d'âme devant un des plus beaux vases
 
 mes maîtres et mes amis FRS
-grecs de la collection, je travaillais avec ardeur, je puis 4
+grecs de la collection, je travaillais avec ardeur, je puis
 même dire avec enthousiasme, quand, par haïne sans doute À
-de la Poésie, la Prose m'apparut, sous la figure d'un gardien L
-orné de son plumeau. Il fallut plier bagage et quitter la place. 4
+de la Poésie, la Prose m'apparut, sous la figure d'un gardien
+orné de son plumeau. Il fallut plier bagage et quitter la place.
 « Voyez-vous, me dit le gardien en me mettant poliment à ne
-la porte, c'est qu'ici tout est neuf, tout est beau, aussi il est ï
-défendu aux artistes d'y travailler. Après-midi (c'est-à-dire 4
+la porte, c'est qu'ici tout est neuf, tout est beau, aussi il est
+défendu aux artistes d'y travailler. Après-midi (c'est-à-dire
 quand il n'y a plus ni silence, ni repos, ni liberté), vous
 pourrez venir avec le public admirer les beaux vernis des |:
-boiseries et vous asseoirsur les banquettes de velours ; quant 41
+boiseries et vous asseoirsur les banquettes de velours ; quant
 à ces vieux pots cassés, personne ne s'est jamais avisé de %
 regarder ça. Vous pouvez cependant faire un croquis en
 courant, si vous y tenez. » — Bien, dis-je, et je remportai
-piteusement mon chevalet, mon tabouret et ma toile cirée. A: F
+piteusement mon chevalet, mon tabouret et ma toile cirée. A:
 midi je revins. Le gardien me fit reproche sur la grandeur
 de mon carton, et, pour avoir la paix, je fus forcé de lui
 demander quel était le nombre de centimètres réglemen- ,
 taire pour un croquis. J'étais dans les règles; je taillaiïs, il À
 est vrai, mon crayon par terre, mais j'étais debout et fati- À
 gué; le gardien était content. RAS
-Je viens donc, Monsieur le Directeur, vous demander la d
+Je viens donc, Monsieur le Directeur, vous demander la
 permission de m'asseoir.Je regrette vivement de vous déranger pour si peu de chose, mais je me verrai pourtant forcé
 d'avoir de nouveau recours à vous, si je désire faire quelques |
 pas pour entrer dans la salle voisine, au musée égyptien, &
-par exemple; il importe, en effet, que le gouvernement soit N
+par exemple; il importe, en effet, que le gouvernement soit
 exactement informé de toutes les évolutions de mon tabouret. ‘|
 Songez-y, Monsieur, je vous en prie, combien d'artistes ;
-reculent devant toutes les formalités à remplir, le temps à ù
+reculent devant toutes les formalités à remplir, le temps à
 perdre, les ennuis à essuyer. Personne n'aime à demander
 comme une faveur le simple droit de travailler. ;
 J'ose espérer, Monsieur le Directeur, que vous accueillerez
-favorablement ma demande et qu'avec votre permission, je k
-ne verrai plus mettre honteusement à la porte votre très Ë
+favorablement ma demande et qu'avec votre permission, je
+ne verrai plus mettre honteusement à la porte votre très
 Elève de M. Gleyre et de l'Ecole Impériale
 et Spéciale des Beaux-Arts.
 
@@ -2402,18 +2399,18 @@ Jamais le trajet de Paris à Genève ne m'a paru moins long.
 J'avais pour compagnon de route un jeune abbé, précepteur des enfants de M. de Nicolaï. Nous avons discuté théologie, morale, littérature, philosophie, métaphysique, etc.
 J'étais étonné de voir combien, avec de l'instruction et de
 
-mes maîtres et mes amis MA 12
+mes maîtres et mes amis MA
 l'intelligence, on peut conserver des idées étroites et fausses, RE
 * quand on vit dans un certain milieu. Les événements poli- NE
 tiques n'arrivent qu'à travers la Gazette de France; les A À
 ouvrages nouveaux sont détournés de leur sens, interpré- 2 À
 tés et réfutés dans des comptes rendus tendancieux et peu |
 fidèles. — M. de Nicolaï fait construire une chapelle magni nn
-fique, toute couverte d'or et de peintures. Un des sujets 2
+fique, toute couverte d'or et de peintures. Un des sujets
 choisis par le peintre, à la grande indignation du curé, ‘4
 | c'est Adam et Eve. Cela nous a amenés à parler de la nudité ‘à
-dans la peinture religieuse, de l'usage qu'en ont fait les 4
-Grecs et les grands maîtres de la Renaissance. La seule 0
+dans la peinture religieuse, de l'usage qu'en ont fait les
+Grecs et les grands maîtres de la Renaissance. La seule
 bonne raison qu'on puisse donner à l'usage antihygiénique A:
 de nos vêtements fermés, c'est la laideur de nos races A
 barbares, étiolées par des siècles de spiritualisme ascétique. il
@@ -2422,12 +2419,12 @@ De Mâcon à Genève, je me suis encore trouvé auprès …
 d'un prélat. Décidément les curés sont en voyage. Celui-ci :
 a été condisciple de Flandrin et parle d'art en connaisseur. ! à
 Je me tromperais fort s'il n'était pas quelque prédicateur :
-en renom : idées larges, esprit, érudition, se moquant de 4
-linfaillibilité du pape, connaissant la liste des maîtresses R.
+en renom : idées larges, esprit, érudition, se moquant de
+linfaillibilité du pape, connaissant la liste des maîtresses
 de l'empereur, faisant des citations de Voltaire. J'étais He,
-tout étonné, et mon étonnement naïf l'amusait beaucoup. 1
+tout étonné, et mon étonnement naïf l'amusait beaucoup.
 À Genève, je suis allé deux fois à la Permanente (exposi- at
-tion) voir le tableau de Gleyre, Minerve et les Grâces. i
+tion) voir le tableau de Gleyre, Minerve et les Grâces.
 Malicieusement peut-être, mon maître n'a envoyé ni titre
 ni explication, et les Genevois se perdent en conjectures.
 Personne n'y comprend rien, mais tous admirent de confiance, avec enthousiasme, c'est une vraie fureur. (1)
@@ -2435,15 +2432,15 @@ Minerve a ramassé la double flûte de Marsyas et, les joues
 gonflées, se donne beaucoup de peine pour en tirer un son
 harmonieux. Les Grâces se moquent de ses vains efforts et
 de sa grimace. Gleyre a voulu dire, je crois, que la Sagesse !
-et la Raison n'ont pas grand'chose à voir dans les choses k
+et la Raison n'ont pas grand'chose à voir dans les choses
 (1) L'année dernière, l'exposition de son Hercule aux pieds
 d''Omphale a rapporté quatre mille francs, somme énorme pour
-une ville alors petite. ï
+une ville alors petite.
 
 RES de Florence, 8 août 1866.
 Le . Que vous dirai-je du Simplon? Rochers, cascades,
 24! fleurs qui s'épanouissent à côté de la neige, précipices,
-À torrents, tout cela est splendide, mais ces aspects des mon- 4
+À torrents, tout cela est splendide, mais ces aspects des mon-
 D tagnes vous sont familiers. — Vient ensuite la délicieuse
 * vallée de Domo d'Ossola, toute italienne déjà par ses cul-
 
@@ -2456,7 +2453,7 @@ fe tures, ses maisons, ses costumes, et surtout par le beau
 
 À prenait des airs de chlamyde.
 
-44 J'ai passé la nuit à Arona. Le lac Majeur peut rivaliser
+J'ai passé la nuit à Arona. Le lac Majeur peut rivaliser
 F avec le Léman. À Milan, je ne me suis pas arrêté pour cette :
 a fois, c'est une ville toute parisienne et, n'étaient les jolies
 
@@ -2484,24 +2481,24 @@ et tu comprendras que cette place laisse une impression
 
 mes maîtres et mes amis ARE
 Madame Milliet à, son fils À
-.… Tu ne t'es pas arrêté à Arona et au lac Majeur ! Quand } | 4
-nous ferons ce voyage ensemble, nous y passerons quelques 11
-jours. Car, tu sais, je commence une tirelire, pour un voyage 2
+.… Tu ne t'es pas arrêté à Arona et au lac Majeur ! Quand }
+nous ferons ce voyage ensemble, nous y passerons quelques
+jours. Car, tu sais, je commence une tirelire, pour un voyage
 par le Saint-Gothard et retour par le Simplon, avec une ‘4
-pointe sur Venise. 1
+pointe sur Venise.
 La Colonie est en hausse pour le moment, nous avons %
 plus de demandes que de places. Il semble que cet endroit me
-ait un charme particulier qui attire les originaux et les D
-femmes de lettres. D
+ait un charme particulier qui attire les originaux et les
+femmes de lettres.
 Lettres de Paul M. à sa sœur Louise ‘
 .… Écoute ma leçon : Au quinzième siècle, l'architecture
 gothique était devenue flamboyante et les grandes lignes
 des monuments disparaissaient sous la surcharge d'une
-ornementation exubérante. Brunelleschi fut le principal 4
-initiateur du retour à la simplicité et à la raison, de cette 4
-merveilleuse et triomphante évolution de l'art qu'on nomme 4
-la Renaissance classique. Au contact de l'antiquité retrou- s1
-vée, la rudesse brutale des vieux Toscans du Moyen-Age 4
+ornementation exubérante. Brunelleschi fut le principal
+initiateur du retour à la simplicité et à la raison, de cette
+merveilleuse et triomphante évolution de l'art qu'on nomme
+la Renaissance classique. Au contact de l'antiquité retrou-
+vée, la rudesse brutale des vieux Toscans du Moyen-Age
 commençait à s'adoucir. C'est un moment admirable que
 celui où s'unissent des qualités qui semblaient s'exclure :
 L'art montre déjà une mâle vigueur, sûre d'elle-même, une
@@ -2509,7 +2506,7 @@ audace pleine de fougue, une fierté virile, tout en conservant encore le charme
 de l'enfance.
 Les palais florentins sont un fidèle reflet de ces contrastes :
 Regarde leur base solidement assise sur de rudes bossages
-qui ressemblent à des rocs entassés, et tu auras l'idée 3
+qui ressemblent à des rocs entassés, et tu auras l'idée
 de demeures inhospitalières, fermées comme des prisons,
 de forteresses qui défient les assauts. Mais, lève les yeux
 vers le premier étage, le piano nobile : d'élégantes fenêtres
@@ -2557,31 +2554,31 @@ d'or, dans une lettre chargée?
 
 Je me défie des critiques d'art et de leurs belles phrases.
 
-à mes maîtres et mes amis ETS ÈS 3
+à mes maîtres et mes amis ETS ÈS
 Te souvient-il d'avoir lu dans la Revue des Deux Mondes, À 14]
 le Voyage de Taine. Tu y trouveras une superbe tirade
 à propos d'un portrait qu'il intitule : La Religieuse de 4)
-Léonard de Vinci. J'ai admiré comme toi ce style étince- 16
-lant, si finement ciselé, qui parvient presque à décrire E
-l'indescriptible. Il y était question « de l'incarnat des É
-lèvres qui, sur l'immobile figure blanche, semble une 1
-fleur de pourpre éclose sur un sépulcre ». Est-ce assez joli ? 1
+Léonard de Vinci. J'ai admiré comme toi ce style étince-
+lant, si finement ciselé, qui parvient presque à décrire
+l'indescriptible. Il y était question « de l'incarnat des
+lèvres qui, sur l'immobile figure blanche, semble une
+fleur de pourpre éclose sur un sépulcre ». Est-ce assez joli ?
 Eh bien, il s'agit assurément d'un très beau portrait,
-mais je n'ai vu ni lèvres rouges, ni figure blanche, ni 1
-religieuse, et je ne reconnais en rien la peinture de 1
-Léonard, je n'y retrouve ni son type préféré, ni son sourire 1
+mais je n'ai vu ni lèvres rouges, ni figure blanche, ni
+religieuse, et je ne reconnais en rien la peinture de
+Léonard, je n'y retrouve ni son type préféré, ni son sourire
 mystérieux, ni son modelé plus mystérieux encore. à
 
 Je ne me suis pas encore mis à peindre. Pour faire une
 copie, je devrais renoncer à voir autre chose, je préfère
-pour cette fois faire des croquis. Ici les maîtres dessina- ï
+pour cette fois faire des croquis. Ici les maîtres dessina-
 
 ; teurs dominent, je subis leur influence et j'en suis bien
 aise. Les impressions m'arrivent lentement, j'ai besoin d'une js
 longue contemplation, mais mon enthousiasme n'est pas
 un feu de paille; je suis plutôt un morceau d'amadou,
 l'admiration gagne de proche en proche et j'y passe tout
-entier. Si tu veux une autre comparaison, au milieu de ces 1
+entier. Si tu veux une autre comparaison, au milieu de ces
 peintures où le génie coule à flots, ma pauvre cervelle me
 fait l'effet d'une éponge : tout d'abord elle remonte sur l'eau
 
@@ -2632,15 +2629,15 @@ idéale qui nous transporte hors du monde réel. Leurs
 
 mes maîtres et mes amis Saut
 bles miracles, mais ils y croient, et ils ont raison d'y croire, Leo
-puisqu'ils les ont vus. Si les apôtres avaient été peintres, ils 74
+puisqu'ils les ont vus. Si les apôtres avaient été peintres, ils
 auraient peint ainsi. &4
 Le vocabulaire des épithètes admiratives est vite fe :
 ” merveilleux, il me faudrait beaucoup mieux que tout :
 cela. Tu vois bien qu'on ne peut pas décrire une À
-œuvre d'art. Cependant, comme je ne me pique pas d'être É
+œuvre d'art. Cependant, comme je ne me pique pas d'être
 logique, je te dirai quelques mots du Mariage de la À
-Vierge, par Fra Angelico, un de mes maîtres préférés; 1
-c'est de la pensée si clairement exprimée qu'on oublie la î
+Vierge, par Fra Angelico, un de mes maîtres préférés;
+c'est de la pensée si clairement exprimée qu'on oublie la
 Au centre du tableau, le prêtre, vu de face, entre Marie ;
 et Joseph, prend leurs mains pour les unir. Sans tourner la
 tête, il ne peut s'empêcher de jeter un regard de côté vers
@@ -2712,7 +2709,7 @@ païen, d'un peu sensuel, bien qu'elle soit infiniment délicate
 dans sa naïve pureté ?
 
 mes maîtres et mes amis ni on
-Paul M. à son père - 4
+Paul M. à son père
 .… N'allez pas croire que j'admire également tous les pri- dr
 mitifs. On l'a souvent remarqué, les plus belles périodes de si
 l'art, soit en Grèce, soit en Italie, ont été précédées d'une (
@@ -2722,16 +2719,16 @@ floraison littéraire de nos grands classiques. '
 L'École de Sienne fournit de nombreux exemples de cette RE
 i recherche qui n'est pas exempte d'affectation : Un peintre |
 du quatorzième siècle, Simone Martini, a retracé la scène
-mystique de l'Annonciation dans un curieux tableau qu'il a 4
+mystique de l'Annonciation dans un curieux tableau qu'il a
 peint en collaboration avec Lippo Memmi.
 Assise sur un siège richement décoré de marqueteries, la
-Vierge longue et mince tient d'une main un livre à demi ÿ
+Vierge longue et mince tient d'une main un livre à demi
 fermé. De l'autre main et d'un geste effarouché, elle ramène
 sur son sein, comme pour se cacher, un pli d'un grand
-manteau bleu indigo. Timide et frissonnante, elle s'est è
+manteau bleu indigo. Timide et frissonnante, elle s'est
 d'abord détournée, comme pour fuir l'apparition céleste, et
 J pourtant déjà sa tête se retourne et s'incline languissamment sur son épaule, qui se soulève avec une sorte de
-minauderie. La moue, qui reste encore au coin de sa petite 1
+minauderie. La moue, qui reste encore au coin de sa petite
 bouche, semble démentie par le tendre regard de ses longs
 yeux en amande, qui enveloppent et caressent d'une douceur
 pàâmée le bel ange agenouillé devant elle. — Celui-ci est,
@@ -2862,13 +2859,13 @@ M. Gonin possède une maison de campagne près de Flo-
 è rence. Vendredi l'on y faisait les vendanges, toute la colonie
 
 banquiers et les épicier
-J'aivu chez M. Gonin q ques dessins d'Invre Ë
-de délicieux portraits A ait Î
-F F n'avait j
+J'aivu chez M. Gonin q ques dessins d'Invre
+de délicieux portraits A ait
+F F n'avait
 
 mes maîtres et mes amis, EN MONO
-suisse était là. J'étais invité et j'ai vu cueillir les dernières 3
-grappes. Un grand chariot peint en rouge dans le goùt N
+suisse était là. J'étais invité et j'ai vu cueillir les dernières
+grappes. Un grand chariot peint en rouge dans le goùt
 étrusque était traîné par des bœufs blancs, au poil ras, ;
 qui semblaient être de marbre. Des hommes hälés, qui À
 semblaient de bronze, les conduisaient, et ces robustes
@@ -2884,7 +2881,7 @@ et d'une souplesse admirables, sa couleur est claire, légère,
 transparente, harmonieuse, comme un Véronèse qui aurait
 pàli. Arrangements imprévus des groupes, gestes naturels,
 expressions vivantes, science sans pédanterie, élévation
-native et noblesse du style mêlée de familiarité, j''admire L
+native et noblesse du style mêlée de familiarité, j''admire
 tout cela, et par-dessus tout une grâce jeune, un charme qui
 vous pénètre.
 : Si j'allais voir toutes les personnes pour lesquelles tu
@@ -2943,7 +2940,7 @@ descendent, tournent sur elles-mêmes, se perdent dans de
 mystérieuses profondeurs. Sombres palais, avec leurs
 étroites fenêtres grillées, leurs énormes anneaux de fer et +
 leurs tours crénelées; seul le premier étage s'éclaire d'élé-
-tout rappelle les haïnes des partis et leurs luttes sanglantes. 2
+tout rappelle les haïnes des partis et leurs luttes sanglantes.
 — La place est en amphithéâtre et couronnée par un
 immense demi-cercle de palais. Au bas, une fontaine en
 marbre blanc, avec les admirables bas-reliefs de Jacopo
@@ -3017,21 +3014,21 @@ la maturité de son talent, s'incliner devant la supériorité d'un
 mes maîtres et mes amis 1100
 
 La grand'mère est vieille, très vieille, brisée par l'âge et ps
-par la douleur; cependant, avec une infinie tendresse, ses h
+par la douleur; cependant, avec une infinie tendresse, ses
 mains tremblantes serrent doucement contre sa poitrine le ns
 nouveau-né. Pauvre petit être rose, étonné, il n'a qu'un à
 souffle de vie, mais il voudrait vivre. Une larme silencieuse
-coule sur les joues ridées de l'aïeule, et rien n'est plus È
+coule sur les joues ridées de l'aïeule, et rien n'est plus
 touchant que cette faiblesse se dévouant tout entière au .
 secours d'une autre faiblesse. La vieille s'oublie elle-même, !
-elle oublie sa fille morte; une seule pensée lui reste, un k
-désir passionné : conserver la flamme de vie, transmise au k
+elle oublie sa fille morte; une seule pensée lui reste, un
+désir passionné : conserver la flamme de vie, transmise au
 rejeton chéri. — Y parviendras-tu, pauvre vieille? Que an
 peut l'aumône d'un passant? Qui donnera à ton enfant le ‘#4
 lait et le pain? ,
 
 J'étais pris de colère contre la société marâtre, injuste, à
-impitoyable. Pour vivre, hélas, il ne suffit pas de vouloir ï
+impitoyable. Pour vivre, hélas, il ne suffit pas de vouloir
 et d'aimer.
 
 Louise M. à son frère
@@ -3095,7 +3092,7 @@ et à bientôt. )
 
 .
 Enfance. — Préludes. — Conseils sur la direction des
-4 Salles d'asile. — Pensées. — La Société de l'Aubépine.
+Salles d'asile. — Pensées. — La Société de l'Aubépine.
 | Dès leur arrivée à Paris, mes parents avaient été
 heureux de renouer connaissance avec madame Pape
 qu'ils avaient connue au Mans, et qui était restée en
@@ -3124,7 +3121,7 @@ Quatre mois avant la naissance de Marie, son père,
 maréchal des logis de gendarmerie, périt dans des
 circonstances tragiques. Nous citerons quelques lignes
 du récit que madame Pape a donné de cet événement
-d'après les souvenirs de sa mère : k
+d'après les souvenirs de sa mère
 
 Le 21 mai, mon père rentre à quatre heures du matin et .
 se jette tout habillé sur son lit. A cinq heures, on le réveille
@@ -3233,9 +3230,9 @@ Laisse enfin ton travail ; laisse que je embrasse !
 Je ne sais quoi me pèse et m'attriste aujourd'hui,
 : Viens, j'ai peur de la vie! O mère quel ennui !
 
-4 Tantôt j'ai vu partir mes petites compagnes….
+Tantôt j'ai vu partir mes petites compagnes….
 1 . Joyeuses en passant elles m'ont appelée :
-4 Accours, m'ont-elles dit...
+Accours, m'ont-elles dit...
 Et moi, les yeux en pleurs, le cœur tout gros d'envie,
 Je n'ai pu leur répondre, et je me suis enfuie.
 "Ceux qui ont souffert ne peuvent pas sans indignation voir souffrir un innocent. Un jour Marie se promenait sur les vieux remparts de La Flèche, quand elle
@@ -3302,8 +3299,8 @@ Protéger de mes mains une chère vieillesse,
 Et puis, dépôt sacré commis à ma tendresse,
 Un cœur souffrant à réjouir.
 
-1 Les plus illustres écrivains du temps, Lamartine et
-< bien d'autres, envoyèrent à mademoiselle Carpantier j
+Les plus illustres écrivains du temps, Lamartine et
+< bien d'autres, envoyèrent à mademoiselle Carpantier
 | leurs félicitations. Ces lettres qui font toutes le même
 | éloge, sont étonnamment variées. Nous choisirons seulement quelques passages qui nous semblent caracté-
 riser le tempérament de chaque auteur :
@@ -3342,7 +3339,7 @@ tard) — c'est ce qu'on dit à toutes les débutantes. Mais
 mes maîtres et mes amis FE
 si vous me demandez conseil, je vous engagerai à
 à attendre encore... Travaillez, et ne coupez pas votre blé
-en herbe, quand vous pouvez avoir une si belle moisson: Ÿ
+en herbe, quand vous pouvez avoir une si belle moisson:
 Croyez toujours à mon tendre intérêt. |
 
 Chateaubriand aigri et désabusé conservait pourtant |
@@ -3451,7 +3448,7 @@ E- mains que bénissent les petits enfants, vos mains si
 . d devenir clémentes pour mieux corriger. Je crois, en
 ÿ effet, que c'est le secret du ciel (1).
 
-1 J'espère que mon amitié n'en est plus un pour vous.
+J'espère que mon amitié n'en est plus un pour vous.
 dé Après son mariage, madame Pape reçut de Victor
 E Hugo la lettre suivante :
 
@@ -3509,7 +3506,7 @@ l'Eglise.
 RT _ l'enseignement, grâce à l'initiative généreuse et hardie
 pe d'un homme de cœur qui fut un célèbre historien et un
 1 grand ministre de l'Instruction publique (de 1863 à 1869),
-14 Victor Duruy. Le célèbre rapport dans lequel il demanEr daïit la gratuité et l'obligation de l'enseignement pri1 maire (1) fut l'origine d'une véritable révolution. On
+Victor Duruy. Le célèbre rapport dans lequel il demanEr daïit la gratuité et l'obligation de l'enseignement pri1 maire (1) fut l'origine d'une véritable révolution. On
 n'osa pas réaliser immédiatement tous les vœux du
 ministre, mais les idées vraies ont une vie durable, et
 Duruy obtint quelques réformes importantes : l'histoire
@@ -3537,7 +3534,7 @@ Vêtement. — La Locomotion. — Le Bâtiment.
 (2) Publiés par Delagrave.
 
 mes maîtres et mes amis Ti
-Ce n'est pas, il est vrai, à madame Pape que revient 1.
+Ce n'est pas, il est vrai, à madame Pape que revient
 l'honneur d'avoir organisé la première Salle d'asile, (1)
 mais plus que personne en France, elle a contribué à
 faire passer dans la pratique des idées justes qui, avant
@@ -3621,15 +3618,13 @@ sifflet, le maître battant la mesure avec un livre en bois, les
 
 e deux régiments de petites filles et de petits garçons se
 
-| 123
-
 % mes maîtres et mes amis AGE gs Aa.
-mettent à marcher en marquant le pas et en chantant Sur M
+mettent à marcher en marquant le pas et en chantant Sur
 Nous nous mettons en marche, gra ‘320 ki
 Mironton, ton, ton, mirontaine ; $ PS &
 | Nous nous mettons en marche, ‘#;L0ESR
 Pour aller travailler; £ k (r8 \
-Pour ne pas s'ennuyer. FN ÿ
+Pour ne pas s'ennuyer. FN
 À Le maître donne-t-il un coup de sifflet, tout s'arrête,
 marche et chant. C'est un silence parfait, vous entendriez nn
 une mouche voler. — Quand la mesure reprend, la marche |
@@ -3642,8 +3637,8 @@ avec le chant, avec le pas régulier, avec le mouvement re
 cadencé, avec un emploi, encore si faible et si confus
 cependant, du mode mesuré. À
 
-Je ne puis donner ici que quelques courts spécimens E
-des Pensées de madame Pape. Ces pensées, elle les 7
+Je ne puis donner ici que quelques courts spécimens
+des Pensées de madame Pape. Ces pensées, elle les
 avait trouvées dans son cœur et, grâce à son ardeuà
 
 ; prêcher la vérité, elles prenaient dans sa bouche un
@@ -3651,12 +3646,12 @@ accent personnel qui leur donnait une autorité plus !
 
 — La Bonté est la lumière par excellence. Si l'in- |
 struction n'avait pas pour résultat de nous rendre plus fr:
-religieux, plus moraux, meilleurs enfin, elle ne serait 3
-qu'un vain plaisir, une curiosité dispendieuse. S
+religieux, plus moraux, meilleurs enfin, elle ne serait
+qu'un vain plaisir, une curiosité dispendieuse.
 
-— Il n'est pas un enfant qui ne se laisse prendre à 4
+— Il n'est pas un enfant qui ne se laisse prendre à
 
-124 2
+124
 
 … ‘l'affection qu'on lui témoigne. Aimez chacun de ceux
 1 _… qui sont confiés à vos soins.
@@ -3701,17 +3696,17 @@ ligne droite, c'est la rigueur. L'une représente le fours
 y struction et d'éducation.
 
 mes maîtres et mes amis MODE
-de la vie pratique, toute de nécessités, de rapports avec 0
+de la vie pratique, toute de nécessités, de rapports avec
 nos proches, nos semblables ; vie pleine de ménagements ;
-pour autrui, de concessions réciproques, de sacrifices Æ
+pour autrui, de concessions réciproques, de sacrifices
 mutuels. L'autre représente la vie théorique, l'idéal,
-l'idée hardie, indépendante, absolue. (x) 1
+l'idée hardie, indépendante, absolue. (x)
 
 Dans un charmant récit intitulé : Les portes et fené- bé
 tres de notre maison, madame Pape étudie les cinq sens; à
 ainsi la science pénètre, habilement dissimulée dans ces pe
 
-Tout ce que nous apprenons avec le secours de nos 4
+Tout ce que nous apprenons avec le secours de nos
 yeux est incalculable. Nous pouvons quelquefois nous
 tromper et voir mal, mais tout ce que nous avons bien
 vu, nous le savons bien. S'il y a des choses ignorées dans
@@ -3746,7 +3741,7 @@ ps Drulin) aux gorges d'Apremont. C'est un désordre
 ; ses pieds est insupportable, et distrait l'esprit qui ne
 . voudrait que contempler. Pourtant il ne faut pas marcher sur les vipères. Brigitte et nos jeunes Suédoises
 Fa ont failli mettre le pied sur une, tout près de chez nous.
-4 Ainsi les nécessités de la vie enchaînent à la terre les
+Ainsi les nécessités de la vie enchaînent à la terre les
 # âmes désireuses de s'élever en haut.)
 ( — Il y a des cailloux qui, roulés et entrechoqués dans
 b les flots de la mer, ont perdu leurs pointes, leurs aspé-
@@ -3766,9 +3761,9 @@ Deux exceptions pourtant : la première naît des nécessités de
 | Valimentation, la seconde de l'obligation où sont les hommes de
 détruire les animaux nuisibles.
 
-| mes maîtres et mes amis |. 40m
+| mes maîtres et mes amis |.
 
-comme tous ceux qui la visitaient, émerveillé des 14
+comme tous ceux qui la visitaient, émerveillé des
 
 C'est que, à sa méthode excellente, elle ajoutait ce ui?
 charme personnel que rien ne saurait remplacer. La AU
@@ -3803,7 +3798,7 @@ signes mobiles, et mademoiselle Gleyre, la nièce du ;
 maître peintre dont j'étais l'élève. | à)
 
 La physionomie de madame Pape exprimait l'intelli- À
-gence, la douceur et la bonté,. bien que la bouche n
+gence, la douceur et la bonté,. bien que la bouche
 
 D _ ferme marquât l'énergie d'une volonté forte. C'était
 jt __ en effet une nature passionnée pour le bien et qui
@@ -3814,7 +3809,7 @@ es que l'enthousiasme illuminait souvent de son éclair.
 #4 jee Le grand cœur de madame Pape avait un tel rayonnement qu'elle attirait de nombreux protégés,
 À élargissant ainsi le cercle de sa famille. C'étaient
 | d'abord les trois orphelins laissés par son frère, puis
-4 Léon C..., fils d'une de ses collaboratrices. Tout jeune
+Léon C..., fils d'une de ses collaboratrices. Tout jeune
 L encore, ce fils adoptif de madame Pape s'engagea
 Li comme moi dans le Génie auxiliaire, et prit part auprès
 À de M. Delbrouck à la défense de Paris. Plus tard,
@@ -3839,8 +3834,8 @@ mes maîtres et mes amis Re
 
 Chère dame et amie. Je vous écris de mon lit d'où je ne AT
 sors que quelques heures par jour. Je ne puis encore aller KT
-auprès de vous à la Colonie, c'est une fatalité ! Mes filles . 24
-sont aussi désolées que moi. Demain aura lieu à la Sorbonne 7
+auprès de vous à la Colonie, c'est une fatalité ! Mes filles
+sont aussi désolées que moi. Demain aura lieu à la Sorbonne
 une séance bien attrayante : celle de la distribution des Fr
 prix de la Société pour lInstruction élémentaire; cette ‘2
 séance sera présidée par Jules Favre qui parlera trois A
@@ -3863,7 +3858,7 @@ Elle avait pourtant de nombreux et puissants amis :
 Étienne Geoffroy Saint-Hilaire, le philosophe Adolphe :
 Garnier, madame la maréchale de Mac-Mahon, enfin
 
-Victor Duruy, l'ancien ministre. On s'étonne que de ÿ
+Victor Duruy, l'ancien ministre. On s'étonne que de
 telles autorités n'aient pas suffi pour la protéger contre
 les insinuations calomnieuses. :
 Mais les Jésuites ne lui pardonnaient pas ses opinions |
@@ -3907,8 +3902,8 @@ et réactionnaires. Cependant, sur les représentations de maître
 (3) Madame Pape mourut le 31 juillet 1878.
 
 mes maîtres et mes anus ( en BA
-cette criante injustice, manifestèrent à la fois l'admira- 4
-tion, la reconnaissance des anciennes élèves et l'indi … 4
+cette criante injustice, manifestèrent à la fois l'admira-
+tion, la reconnaissance des anciennes élèves et l'indi …
 gnation des honnêtes gens. Les témoignages de sympa- #4
 thie arrivaient en foule à la victime du clergé. Les 3 |
 articles des journaux et les démarches personnelles des WE
@@ -3932,7 +3927,7 @@ C1 désireux de réparer dans la mesure du possible.
 Je me suis chargée de vous demander si vous accepteriez
 fe une position d'Inspectrice que l'on ferait aussi belle que
 possible. J'espère que vous ne me refuserez pas de contri14 buer à réparer une injustice,
-0 Agréez, madame, tous mes compliments les plus dis-
+Agréez, madame, tous mes compliments les plus dis-
 ‘ Maréchale ne MAc-ManoN
 Réponse de madame Pape
 Madame la Maréchale,
@@ -3988,7 +3983,7 @@ F administration que j'ai été remplacée. Je ne puis croire que
 ; se justifier par une telle calomnie. D'où qu'elle vienne
 | cependant j'ai à cœur de la voir démentie, et ce n'est pas
 10 en acceptant mon amoindrissement que je parviendrais à
-110 Croyez, madame la Maréchale, que j'apprécie vos généreux
+Croyez, madame la Maréchale, que j'apprécie vos généreux
 \4 efforts comme ils le méritent et que je voudrais pouvoir |
 MR. accepter quoi que ce fût qui me vint par vous, mais
 A 14 lPhonneur d'une vie comme la mienne a ses exigences.

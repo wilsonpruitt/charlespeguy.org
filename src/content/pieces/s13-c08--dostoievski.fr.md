@@ -19,14 +19,14 @@ La tragédie d'Electre, 1 volume grand in-18, 1905. Ar
 
 Le portrait d'Ibsen, 1 volume grand in-18, 1908. -
 
-; | Tols où vivant, 1 volume grand in-18, 1911. F
+; | Tols où vivant, 1 volume grand in-18, 1911.
 
 | Voie L'homme, 1 volume grand in-8, de 450 pages, 1905. '
 
 " mage: de la grandeur, 1 volume grand in-8, de 221 pages, 1901.
 
 Bouclier du Zodiaque, 1 volume grand in-8, de 151 pages, 1907. \
-Lais et Sônes, 1 volume grand in-16, 1909. k
+Lais et Sônes, 1 volume grand in-16, 1909.
 ne CALMANN-LÉVY, éditeur : ;
 L livre de l'émeraude, 1 volume in-18, 1901.
 4 36 .
@@ -132,14 +132,14 @@ _ guerre contre les Turcs, aux étudiants, aux juges.
 Il a pour lui le peuple et les lettrés.
 
 MA 0 LUFn 1880) 1ldonne les Frères Karamazov. FA
-1 Il meurt le 28 janvier 1881. On lui fatds
+Il meurt le 28 janvier 1881. On lui fatds
 +2 funérailles à la Victor Hugo. Quarante-deux
 HR *députations suivent le convoi, et représententtoutes
 ta _ les classes de la société. Le cortège s'étend sur la
 LR _ longueur d'une lieue. JUS ER
 Fe +2 Quinze ans plus tard, Tolstoi condamnant tous
 4 les livres et les siens mêmes, n'excepte dans l'art
-moderne que les œuvres de Dostoïevski. LE 4
+moderne que les œuvres de Dostoïevski. LE
 
 À Jusqu'ici, je n'ai point nommé Dostoïevski.
 4 _ Je n'ai jamais laissé voir le visage de Fédor
@@ -150,8 +150,8 @@ moderne que les œuvres de Dostoïevski. LE 4
 2 et toute la souffrance qu'elle implique, il me
 à faudrait comparer la somme à ce que je connais
 L de plus fort et de plus ardent, sinon de plus
-4 Voici l'heure.
-6 Cette nuit, j'ai ou l'arbre de ma peine sortir
+Voici l'heure.
+Cette nuit, j'ai ou l'arbre de ma peine sortir
 — de mon cœur; et, couché sur, le dos, les yeux
 — dans les étoiles d'hiver, chétif, lié à la mère,
 et tel que je serai dans le ventre éternel, renoué
@@ -160,10 +160,10 @@ et tel que je serai dans le ventre éternel, renoué
 
 douloureuse; et je suivais du regard mon arbre |
 É dans toute sa croissance, depuis les racines du |
-sein noir jusqu'aux glands des planètes et à 1
+sein noir jusqu'aux glands des planètes et à
 ces capitules de lumière, qu'on dit aussi naïvement asters. Der
 J'étais là, comme une écaille à l'écorce de la |
-vie et de la terre. 4
+vie et de la terre.
 Et pourtant, dans cette stupeur profonde, ;
 mon âme pleine d'amour était la sève même |
 - de l'arbre. Et j'ai parcouru toute la colonne de |
@@ -213,7 +213,7 @@ ss _ campagne. Ses parents avaient un petit bien, à trente
 _ lieues de Moscou près de Toula, voisins de Tolstoi,
 %i après tout, dans ce pays immense. Toute sa vie, il a
 & rèvé des champs, et il n'a vécu que dans les villes.
-4 A l'hôpital Marie, c'était déjà la gêne. Une famille
+A l'hôpital Marie, c'était déjà la gêne. Une famille
 _ nombreuse, et plusieurs serfs domestiques, se pressaient
 É dans un espace étroit : à dix ou douze, ils avaient deux
 chambres et une cuisine. On vivait là pauvrement, mais
@@ -224,18 +224,18 @@ humble et maladive, toujours prête à l'oraison : tous
 les deux, d'une foi que ne trouble aucun soupçon de ;
 doute. C'est l'antique esprit de la plaine, entre Europe
 et Asie, les mœurs anciennes, la simplicité familière et |
-la douceur d'Orient, avec la règle scrupuleuse des chré- 4
+la douceur d'Orient, avec la règle scrupuleuse des chré-
 tiens. L'austérité n'a rien, ici, de la roideur propre aux ;
 puritains d'Angleterre ou aux piétistes du Nord. Ils sont $
-moins durs, ces vieux Russes, qu'ils ne sont résignés. É
-De violents éclats traversent leur silence. Ils ont cette L
-faculté d'émotion, qui est si générale en Orient. Ils Î
-peuvent ne jamais rire; mais ils pleurent; ils savent 3
+moins durs, ces vieux Russes, qu'ils ne sont résignés.
+De violents éclats traversent leur silence. Ils ont cette
+faculté d'émotion, qui est si générale en Orient. Ils
+peuvent ne jamais rire; mais ils pleurent; ils savent
 pleurer, et n'en rougissent pas. ;
 Le père de Dostoïevski était de cette petite noblesse |
-qui sert dans les rangs infimes de l'armée et de l'État. 4
+qui sert dans les rangs infimes de l'armée et de l'État.
 Elle a joué, là-bas, le rôle de la bourgeoïsie en France. :
-Ces nobles sans fortune “et de rang médiocre sont Ë
+Ces nobles sans fortune “et de rang médiocre sont
 artilleurs dans l'armée, ou médecins, ou professeurs à |
 la ville, ingénieurs, chimistes, Comme ils n'ont rien que »
 le maigre salaire d'un métier ou d'un grade sans #
@@ -243,29 +243,29 @@ prestige, ils épousent les filles des marchands. Telle
 était la mère de Dostoïevski, docile, totalement soumise à son mari, la servante chrétienne de la famille,
 partagée entre le ménage, les couches, la prière et le ‘à
 soin des enfants. |
-Les sœurs plus jeunes, un peu à l'écart, les deux fils J
+Les sœurs plus jeunes, un peu à l'écart, les deux fils
 aînés, Fédor et son frère Michel, toujours ensemble,
 liés comme le pouce et l'index, sont voués aux mêmes %
 études, et, jusqu'à vingt-quatre ou vingt-cinq ans, ne
-se quittent pas. l
-Le jeune Dostoïevski est élevé dans l'intimité pro18 k
+se quittent pas.
+Le jeune Dostoïevski est élevé dans l'intimité pro18
 
 Te Fe fonde de la famille, où le lien religieux fait un nœud si
 _ solide à tous les autres. Il est sensible à l'excès. Sombre
-De ettendre, pensif et violent, d'humeur parfois exubérante, a4
+De ettendre, pensif et violent, d'humeur parfois exubérante,
 _ le plus souvent taciturne, en tout il est extrême. Comme EE
-Pie tous ceux qui sentent avec passion, il se donne peu et 3
-se concentre en lui-même, incapable de se prêter et ne Û
+Pie tous ceux qui sentent avec passion, il se donne peu et
+se concentre en lui-même, incapable de se prêter et ne
  porvant se donner que totalement. Affamé d'affection, |
 a ae ‘il ne se lie pourtant pas. D'ailleurs, il semble avoir tou- ;
-_ jours été d'une santé chétive. Sinon malades, ils sont ÿ
-Le _ tous de corps inquiet, dans la famille. 5
-4 Il ne nie pas qu'il n'ait eu un amour-propre sans
-E _ limites. Son caractère maladif, sa complexion chagrine k
+_ jours été d'une santé chétive. Sinon malades, ils sont
+Le _ tous de corps inquiet, dans la famille.
+Il ne nie pas qu'il n'ait eu un amour-propre sans
+E _ limites. Son caractère maladif, sa complexion chagrine
 De ne lui permettent pas de se plaire en société. Cepen- :
 4 à _ dant, il aspire à l'amitié, en tous temps et de toutes ses à”
-| #4 . Il n'a jamais été de loisir. Les peines moindres ne le f
-__  quittentque pour faire place aux plus grandes douleurs. 4
+| #4 . Il n'a jamais été de loisir. Les peines moindres ne le
+__  quittentque pour faire place aux plus grandes douleurs.
 D _ La maladie le hante sans relâche; elle est toujours su
 LE. ses talons. Quand lui-même n'est pas malade, la mala
 mA, die est encore dans la maison : elle lui tient sa mère,
@@ -273,9 +273,9 @@ mA, die est encore dans la maison : elle lui tient sa mère,
 EST soucis n'ont pas cessé de croître. Lx,
 44 ; Dostoïevski est malheureux dans toutes ses affections. +
 + Je m'étonne de lui trouver moins d'orgueil que d'amour- £
-d FR propre. Tout l'orgueil est pour sa nation. Quant à 1
+d FR propre. Tout l'orgueil est pour sa nation. Quant à
 - l'amour-propre, il n'est point en lui de vanité, ni le $
-_ signe qu'il se préfère à autrui; mais, comme il ne 4
+_ signe qu'il se préfère à autrui; mais, comme il ne
 | connaît point le contentement de soi, il craint le juge
 +0 .. ment des autres : il redoute en eux la fausse note; il ( » pressent l'erreur à son endroit; il devance l'injustice
 _ qui l'afllige. Sa défiance est toujours dans l'ordre du » sentiment : enfin, il veut qu'on l'aime ! Le risque de À
@@ -315,7 +315,7 @@ solide à tous les autres. Il est sensible à l'excès. Sombre .
 ettendre, pensif et violent, d'humeur parfois exubérante,
 le plus souvent taciturne, en tout il est extrême. Comme
 tous ceux qui sentent avec passion, il se donne peu et
-sé concentre en lui-même, incapable d prêter et ne L
+sé concentre en lui-même, incapable d prêter et ne
 pouvant se donner que totalement. Affamé d'affection,
 il ne se lie pourtant pas. D'ailleurs, il semble avoir tou :
 Il ne nie pas qu'il n'ait eu un amour-propre sans
@@ -347,7 +347,7 @@ simplicité, dans la mise la plus simple; mais il ne sait
 pas porter l'habit; il n'est pas à l'aise dans les vêtements que la coutume impose, ou la mode : il y est
 déguisé. IL y a des hommes qui transparaissent, quoi
 qu'ils fassent, à travers tous les usages du monde : ils
-offrent le scandale de la nudité. Les usages ne sont 4
+offrent le scandale de la nudité. Les usages ne sont
 faits que pour donner une enveloppe commune à l'animal commun. Tel héros de salon n'est lui-même qne
 dans l'habit de tout le monde. Mais Dostoïevski ne peut
 vêtir l'habit de tout le monde sans paraître porter une
@@ -368,7 +368,7 @@ souffre de la solitude, il souffre de soi-même et des
 | autres ; « Pétersbourg et ma vie m'ont paru affreux,
 : déserts », dit-il un jour ; et il conclut : « Si ma vie avait
 dû s'arrêter en cet instant, je serais mort avec joie. » Il
-ne fait presque jamais ce qu'il veut, et telle est la maladie mortelle pour tout homme qui a une volonté, et une ù
+ne fait presque jamais ce qu'il veut, et telle est la maladie mortelle pour tout homme qui a une volonté, et une
 | œuvre qu'il rêve d'accomplir. Est-ce la mauvaise fortune qui le rend malade”? Est-ce la maladie qui entrave
 sa fortune ? Dostoïevski est toujours empêché. Dès les
 vingt ans, la maladie et la misère se partagent cette
@@ -391,45 +391,45 @@ deux extrémités de la douleur matérielle et de la
 douleur morale, il se débat dans une lutte perpétuelle.
 Au début comme à la fin, il gémit : « Que m'importe
 la gloire, quand je travaille pour mon pain ? »
-On dit parfois que la misère est bonne aux grandes é
+On dit parfois que la misère est bonne aux grandes
 ; âmes. Il paraît qu'elle les fortifie. C'est l'idée de ceux |
 qui n'ont jamais passé par cette damnation et cet enseve- -
 _lissement. Ils ne savent pas tout ce que la misère a tué |
 dans un homme : les forces qu'il a mises à gratter la
 terre pour en tirer son pain sont volées aux belles
 œuvres qu'il eût faites, s'il avait été de loisir. Le mal À
-qu'il s'est donné pour tenir bon, les veilles, la colère, 3
+qu'il s'est donné pour tenir bon, les veilles, la colère,
 les angoisses qui épuisent, que d'heures, que d'années
 perdues ! La misère fortifie ? Oui, sans doute, quelquefois, et à quel prix? On ne reste debout que sur le
 cadavre de la joie. Et la misère tue aussi. Tel a tou- à
 jours été malade, pour mourir avant le temps, qui, bien |
-portant, eût multiplié les chefs-d'œuvre; et d'abord, il È
+portant, eût multiplié les chefs-d'œuvre; et d'abord, il
 eût vécu. On oublie trop le plus bel et le plus sûr avan- .
 tage, qui est, premièrement, de vivre.
 La correspondance de Dostoïevski est un monument
-4 à la misère du génie, un long cri de désespoir. Lettres ÿ
+4 à la misère du génie, un long cri de désespoir. Lettres
 lamentables, en vérité : car on y entend l'éternelle .
 lamentation d'un éternel mendiant. A vingt ans ou à %
 , quarante, et à cinquante comme à trente, c'est le même :
 gémissement. Il pleure famine. Il appelle au secours. Il Él
 n'a plus de vêtements, il ne sait où trouver de quoi {
-payer son terme. « Il s'agit de payer toutes mes dettes j
+payer son terme. « Il s'agit de payer toutes mes dettes
 
 avec mon prochain roman. Si l'affaire ne réussit pas, il |
-_ est possible que je me pende. » (1) Un quart de siècle 2
-|. ensuite, ayant femme et enfant, il crie : « Il m'a fallu J
+_ est possible que je me pende. » (1) Un quart de siècle
+|. ensuite, ayant femme et enfant, il crie : « Il m'a fallu
 _ engager mes pantalons pour me procurer deux thalers. |
-à à . Elle, ma femme, qui nourrit son enfant, elle va engager 208
+à à . Elle, ma femme, qui nourrit son enfant, elle va engager
 EU ellé-même sa dernière jupe d'hiver, en laine ! Et pourLà tant, voilà deux jours qu'il neige ici. » (2)
 _ La dette a été son Tartare : il n'en est jamais sorti.
 € | Après Crime et Châtiment, déjà célèbre, il a dû fuir la |
 a 5 Russie pour se soustraire à la prison. Il a erré six ans
 É: à l'étranger, sous le fouet de la dette. Exil, pour un :
-ES TR homme comme Dostoïevski, peut-être plus dur que son k
-_ temps de bagne en Sibérie. 4
+ES TR homme comme Dostoïevski, peut-être plus dur que son
+_ temps de bagne en Sibérie.
 \ SA _ Ce sont les dettes qui lui arrachent les aveux pitoya- ‘
 bles dont ses lettres sont pleines. Elles le pressent; elles c à
-_ l'épouvantent; il ne fait pas un mouvement qu'il n'en L
+_ l'épouvantent; il ne fait pas un mouvement qu'il n'en
 - sente la gêne aux entournures, pas un geste qui ne les °N
  envenime. La dette est toujours là, pour l'empêcher de
 —… satisfaire aux plus humbles besoins qui le tiraillent. &
@@ -440,8 +440,8 @@ convulsions. « Je vous supplie ! Pour l'amour du ciel! AE
  ” Au nom du Christ! Pour l'amour de Dieu ! » Il y a des
 … lettres où ce cri du mendiant revient jusqu'à neuf
 fois. (3) A tout instant, il se prosterne, alterré parla
-ÿ, peine : « Je suis au désespoir. Je suis perdu. » On 2
-[ “ÿ tremble de sa propre impatience ; on a les nerfs tendus 2
+ÿ, peine : « Je suis au désespoir. Je suis perdu. » On
+[ “ÿ tremble de sa propre impatience ; on a les nerfs tendus
 …._ (1) Lettre du 24 mars 1845, Correspondance de Dostoiecski, traduite Le. PA
 _ (3) Lettres de juillet 1856. te
 
@@ -471,7 +471,7 @@ toute ma vie j'ai continuellement été dans le besoin, à
 présent plus que jamais. » (2)
 
 Voilà bien le cri de toute une vie. Voilà Dostoïevski
-entre la maladie, la misère et le deuil, pendant trente ans. L
+entre la maladie, la misère et le deuil, pendant trente ans.
 Il lui faut toucher au tombeau pour avoir enfin quelque
 relâche. Les cinq dernières années, où il rencontre
 la gloire et une sorte d'aisance, sont la place au soleil,
@@ -486,7 +486,7 @@ _ la paume, tient l'homme aux épaules et le pousse dans
 _ d'homme ramené au cocon, mais d'une profondeur
 ‘4 Ni Tolstoi, ni Tourguenev, ni les autres fameux
 Russes n'ont connu le sort du pauvre et du malade. Je
-à ne parle pas de l'homme humilié : car Dostoïevski, s'il Ë
+à ne parle pas de l'homme humilié : car Dostoïevski, s'il
 ) a dévoré les colères et la rage de l'artiste méconnu, n'a
 É jamais été sensible à la honte du bagne. Un bagne
 . politique, à la russe, est un lieu plein d'honneur. Et
@@ -525,16 +525,16 @@ socs qui servent, tranchants, au labour de la beauté |
 cachée, et que seul le déchirement du sein devait rendre |
 
 Voilà comme en Dostoïevski s'opère la révélation de |
-tout un monde. Tel il est, telle la Russie. De toute L
+tout un monde. Tel il est, telle la Russie. De toute
 nécessité, il lui fallait être condamné à mort et qu'il
-allât au bagne avec elle. Dostoïevski a créé pour nous r
+allât au bagne avec elle. Dostoïevski a créé pour nous
 la Russie mystique, la Russie cruelle et chrétienne, le ;
-peuple de la mission, entre l'Europe et l'Asie, qui porte 3
+peuple de la mission, entre l'Europe et l'Asie, qui porte
 à l'ennui du crépuscule occidental le feu et l'âme divine
 de l'Orient. Quel roi, quel politique ou quel conquérant ;
 a plus grandement agi pour sa race ? C'est dans Dostoïevski, enfin, que la Russie, cessant d'être cosaque, *
 
-se manifeste une réserve pour l'avenir, une ressource r
+se manifeste une réserve pour l'avenir, une ressource
 pour le genre humain.
 
 — Nerveux et saccadé, il y avait de l'inquiétude en tous
@@ -579,7 +579,7 @@ de vieille ardoise, assez reculés dans l'orbite meurtrie,
 ils sont étroitement bridés du haut, et cousus par la
 
 Ils sont pleins de tristesse voilée, où perce une pointe
-de feu, le grain noir de la prunelle, qui tantôt s'éteint E
+de feu, le grain noir de la prunelle, qui tantôt s'éteint
 dans la rêverie, tantôt luit en vrille. Sous les sourcils
 froncés, quel regard admirable! Présent, et à l'affût,
 mais non pas de ce que voit le monde : il cherche la
@@ -592,7 +592,7 @@ est toujours présente. Dostoïevski est le grand cœur,
 que je trouve sain malgré tout, parce que la grandeur,
 selon moi, est la seule santé.
 
-Regard d'un terrible sérieux, et presque dur, tant il ï
+Regard d'un terrible sérieux, et presque dur, tant il
 surveille, sombre, le moment de bondir sur sa proie.
 
 Mais une immense tristesse y réside. Une tristesse
@@ -602,10 +602,10 @@ qui fait voler tous les copeaux de la conscience, et qui
 
 entasse la sciure pour boire le sang répandu. Voilà
 l'homme de douleur, s'il en fut un. Et il est bon, même
-_ s'il est injuste : ses lèvres le disent, excellentes, 4
+_ s'il est injuste : ses lèvres le disent, excellentes,
 _ épaisses, obstinées et généreuses. La contrariété lui :
 > _tordait la bouche, d'un mauvais sourire ; et la satisfac- !
-; tion du cœur y ramenait une gravité nourrie d'inno- 2
+; tion du cœur y ramenait une gravité nourrie d'inno-
 “4 dr: La douleur est derrière tous les traits de cet homme. :
 Pour saisissant qu'il soit, son aspect me séduit moins
 . # par ce qu'il montre de l'homme, que par ce qu'il en
@@ -624,19 +624,19 @@ _ fantôme de la face. Chaque trait est une ligne qu'il faut :
 - … suivre, pour passer de la chair jusqu'à l'âme, et pour “
  s'enfoncer dans le secret ou dans les repaires de
 ' l'homme intérieur. :
-4 La sensibilité d'un tel homme est sublime. |
-_ Ce que Stendhal est à l'intelligence pure, et à la l
+La sensibilité d'un tel homme est sublime. |
+_ Ce que Stendhal est à l'intelligence pure, et à la
 ; . mécanique de l'automate, Dostoïevski l'est à l'ordre et ;
 Pa \ la fatalité des sentiments. “
 
-3 Stendhal atteint au fond des passions par l'analyse de 1
+Stendhal atteint au fond des passions par l'analyse de
 leurs effets, et des actes. Dostoïevski touche au plus ;
-secret des esprits par l'analyse des sentiments et des 4
-impressions qui les déterminent. Dostoïevski est le 4
-prodige de l'analyse sentimentale: et ilest le plus grand 1
+secret des esprits par l'analyse des sentiments et des
+impressions qui les déterminent. Dostoïevski est le
+prodige de l'analyse sentimentale: et ilest le plus grand
 inventeur que l'on sache en cet ordre. Avec des moyens |
-opposés, ils ont la même puissance; mais de Dostoïevski 1
-à Stendhal, il y a la même différence qu'entre la 3
+opposés, ils ont la même puissance; mais de Dostoïevski
+à Stendhal, il y a la même différence qu'entre la
 : géométrie de Pascal et l'analyse de Lagrange. Pascal |
 voulait résoudre tout problème par la considération
 visible des figures. Ainsi Stendhal : tout comprendre. .
@@ -645,23 +645,23 @@ nombre par la détermination de l'élément intérieur, et
 ; par le fin discernement du symbole. Ainsi Dostoïevski : ;
 tout pénétrer.
 Stendhal et Dostoïevski sont dans les passions; et .
-rien ne les intéresse, rien ne les retient que d'y être. k.
-L Stendhal les montre, comme un sculpteur qui modèle Ë
+rien ne les intéresse, rien ne les retient que d'y être.
+L Stendhal les montre, comme un sculpteur qui modèle
 ses formes. Dostoïevski les -anime, et vit en elles comme ;
-un autre Pygmalion. Stendhal tient tous les fils du 1
-drame, et il s'en amuse quelques fois. Dostoïevski ne L:
-À joue même pas le drame des passions : il est sur la L
+un autre Pygmalion. Stendhal tient tous les fils du
+drame, et il s'en amuse quelques fois. Dostoïevski ne
+À joue même pas le drame des passions : il est sur la
 croix avec elles. > :
-Entre les plus intenses, homme insatiable de sentir È
+Entre les plus intenses, homme insatiable de sentir
 l'homme vivant. Dostoïevski, sensible à toute vie, et
-aux bêtes, d'un cœur si juste, malgré tout revient 1
+aux bêtes, d'un cœur si juste, malgré tout revient
 toujours à l'homme. C'est le fond de l'homme qui
 l'occupe d'un souci constant. Tout est en fonction de :
-_ l'homme pour lui; et même toute la nature. F
-C'est en vertu de ce sentiment insondable, du moins k
-< je l'éprouve ainsi, que Dostoïevski, ayant découvert la 4
+_ l'homme pour lui; et même toute la nature.
+C'est en vertu de ce sentiment insondable, du moins
+< je l'éprouve ainsi, que Dostoïevski, ayant découvert la
 croix et Jésus-Christ, n'a jamais pu voir la vie que sur
-30 4
+30
 
 a croix et en Jésus-Christ. Étant au bagne, une femme
 pieuse, qui visitait les prisons, lui fit don de l'Évangile.
@@ -672,7 +672,7 @@ tout temps, beaucoup lu la Bible; mais il n'avait pas
 -_ L'art de Dostoïevski est une peinture directe de
 1 l'intuition. Voilà pourquoi tout, chez lui, étant si vrai,
 … semble du rêve. Il faut y consentir, pour bien l'entendre; |
-2 e cet accord ne se fait pas du premier coup, ni même É
+2 e cet accord ne se fait pas du premier coup, ni même
 
 # le montre pas encore dans ses œuvres, il pressent quelle
 4 .… sorte de génie il y fera plus tard paraitre.
@@ -686,23 +686,23 @@ J É Son éducation, après tout, fut très littéraire. De bonne |
 h. Souchard. Dans la pauvre maison de son père, Dos-
 : - toïevski a pris le goût de la lecture. Il l'avait, comme on
 - doit l'avoir : à la passion. Sa plus dure privation, au
-x _bagne, fut de ne pas lire. Étudiant ou banni, dans sa k
+x _bagne, fut de ne pas lire. Étudiant ou banni, dans sa
 4 prison, en Sibérie, de mansarde en mansarde, il a toujours des livres avec lui: la Bible, Shakspeare, Schiller,
 … Racine, Dante, Pouchkine. Quand il ne demande pas
 
 de l'argent à ses amis, il implore qu'on lui envoie des
 Il est très nourri d'œuvres françaises. Elles lui ont
-tenu lieu de l'antique. Le français est son grec et son e
+tenu lieu de l'antique. Le français est son grec et son
 latin. Il avale tout, d'un égal appétit, Voltaire et Balzac, ;
-: Eugène Sue et Racine. Jeune homme, sa lecture est 4
+: Eugène Sue et Racine. Jeune homme, sa lecture est
 immense. Quant aux Russes, il n'en ignore rien. Toute
-sa vie, il est curieux de ses émules ; il est avide de tout F
+sa vie, il est curieux de ses émules ; il est avide de tout
 ce qu'ils publient : il réclame sans cesse les romans de À
-Tourguénev, de Gontcharov et de Tolstoï; il suit les 4
-/ auteurs de tout ordre, et même les critiques. Seuls, à 3
-ses yeux, Pouchkine et Gogol ont du génie ; à Tolstoi, 4
+Tourguénev, de Gontcharov et de Tolstoï; il suit les
+/ auteurs de tout ordre, et même les critiques. Seuls, à
+ses yeux, Pouchkine et Gogol ont du génie ; à Tolstoi,
 il le refuse. D'ailleurs, l'exemple de Gogol, mort fou, le !
-On fait souvent de Dostoïevski une espèce de barbare inculte, qui ne doit rien qu'à lui-même. Rien m'est J
+On fait souvent de Dostoïevski une espèce de barbare inculte, qui ne doit rien qu'à lui-même. Rien m'est
 si faux. Idée bonne aux maîtres d'école et aux sergents
 de lettres : ils y flattent leur propre barbarie, pour la ;
 tirer du rang. Et, pour qu'on soit sensible à leur origi- +
@@ -710,7 +710,7 @@ nalité, ils trouvent du barbare en toute âme originale.
 Le barbare ne sait même pas parler : il bégaye. Dos- |
 g toïevski est un homme de longue culture, tant par la race
 que par l'éducation. Il n'a jamais été en friche. Ce fils LE:
-de la petite noblesse a reçu la nourriture noble. Il ne s'est E
+de la petite noblesse a reçu la nourriture noble. Il ne s'est
 pas mis, sur le tard, à apprendre. Loin de là, on la
 instruit dès le berceau. Pauvre ou non, c'est ce qui
 distingue la petite noblesse des bourgeois et des marchands russes. Le père Dostoïevski n'est pas seulement
@@ -754,19 +754,19 @@ _ On s'en fait une trop belle idée. Il voudrait, ce cœur
 passionné, qu'on vécût pour lui seul, je le crains: car il
 serait capable de vivre pour ceux qu'il préfère. |
 Il a le respect et l'amour de son art. |
-Au comble du chagrin, livré seul à lui-même, pourvu x
+Au comble du chagrin, livré seul à lui-même, pourvu
 ; qu'il ne souffre que de soi, il va loin. Est-il ainsi, ou :
-l'imaginé-je ? Dans son amour de l'art, aussi, il connaît î
-les extrémités: la maladie, qui opprime l'âme; et le i
+l'imaginé-je ? Dans son amour de l'art, aussi, il connaît
+les extrémités: la maladie, qui opprime l'âme; et le
 refus de rien faire pour le public contre son propre à
-génie. Aur yeux de l'artiste, le public est un mal néces- L
-saire: il faut le vaincre, et rien de plus. 4
+génie. Aur yeux de l'artiste, le public est un mal néces-
+saire: il faut le vaincre, et rien de plus.
 Il adore l'état de création. Mais écrire le tue. Car il à
 est aux gages du besoin; il a beau tenir bon, et pro- Fe:
-tester qu'il n'écrira pas sur commande, il vit de sa Û
+tester qu'il n'écrira pas sur commande, il vit de sa
 plume ; il est serf des engagements qu'il doit prendre. Le
 De là, qu'il est le moins égal des grands écrivains : il #
-donne un chef-d'œuvre après un roman confus ; et le F.
+donne un chef-d'œuvre après un roman confus ; et le
 chef-d'œuvre est suivi d'un livre médiocre. (1) {
 
 IL semble bâiller d'ennui, lui-même, en certaines de
@@ -774,11 +774,11 @@ IL semble bâiller d'ennui, lui-même, en certaines de
 ses œuvres. Elles sont d'une longueur, d'une recherche,
 d'une subtilité insupportables. Elles sentent la folie. #
 L'analyse y fait penser au délire, au scrupule, et le !
-détail intérieur à la manie de l'infiniment petit. L'inco- Æ
+détail intérieur à la manie de l'infiniment petit. L'inco-
 
 (:) Après Crime et Châtiment, le Joueur, 1866 et 1867 ; l'Éternel .
 
-| 36 1
+|
 
 _  hérence de Dostoïevski est piteuse, quand il ne trouve
 pas son ordre. Elle ricane, elle grimace. Quel sourire
@@ -803,7 +803,7 @@ x intérieure. Ici, la vie des faits est bien l'image, sur les
 intérieure, au grand. feu du foyer invisible. Ainsi, les
 : chefs-d'œuvre de Dostoïevski sont plongés dans le rêve;
 è <@ ét ils ont seuls le caractère du rêve, comme ceux de
-…… Shakspeare, et parfois d'Ibsen. C
+…… Shakspeare, et parfois d'Ibsen.
 « L'ordre d'une œuvre comme Crime et Châtiment est
 —…. inoui. J'en ferai quelque jour l'analyse. Je me contente
 - de dire que ce drame admirable se passe tout entier,
@@ -814,7 +814,7 @@ sentiments, des visions et des pensées créées par l'imagination du héros, et
 n'enferment qu'un très petit nombre d'heures; mais
 chaque instant de ces heures est totalement épuisé de
 son essence pensive et de son action, de ses échos et |
-de ses contre-coups. Une telle œuvre, quand on la saisie, semble la merveille longtemps souhaitée par l'esprit: 3
+de ses contre-coups. Une telle œuvre, quand on la saisie, semble la merveille longtemps souhaitée par l'esprit:
 l'art est enfin le rêve de la vie, qui elle-même est un
 
 Dostoïevski est riche en mots inoubliables, qui montent des abîmes. Ce sont des paroles sans faste et sans
@@ -827,22 +827,22 @@ va mourir avant d'avoir eu vingt ans, le prince Muich-
 
 :  kine, ouvrant la porte, dit : « Passez le premier, et
 pardonnez-nous notre bonheur. » (1) — « Pourquoi
-avez-vous tout détruit en vous? crie la jeune fille passionnée au prince innocent; pourquoi n'avez-vous pas è r
+avez-vous tout détruit en vous? crie la jeune fille passionnée au prince innocent; pourquoi n'avez-vous pas
 d'orgueil? » (2) — Et lui, de dire, insensible à toutes js
 vanités et à sa perte même : « Qu'est-ce que ma peine $
-et mon mal, si je suis en état d'être heureux ? » (3) x 4
+et mon mal, si je suis en état d'être heureux ? » (3)
 
-_ Raskolnikov assassin à la sainte prostituée : « Toi i
+_ Raskolnikov assassin à la sainte prostituée : « Toi
 aussi, tu t'es mise au-dessus de la règle : tu as détruit :
 une vie, la tienne : cela revient au même. » (4) — Et LE
-encore : « J'ai voulu oser : j'ai tué. Et c'est moi que j'ai Ÿ
+encore : « J'ai voulu oser : j'ai tué. Et c'est moi que j'ai
 
 4 tué. » (1) — Ou ces traits dignes de l'oraison : « Le
 | Christ est avec les bêtes avant d'être avec nous. » (2) —
 _ « Si le juge était juste, peut-être le criminel ne serait
 pas coupable. » (3) :
 _ Dostoïevski a la conscience de Pétersbourg.
-Le A Il est l'âme de ces hivers polaires, où le jour est une 4
+Le A Il est l'âme de ces hivers polaires, où le jour est une
 agonie de la nuit; et de ces étés, où la nuit est encore
 le jour, un crépuscule songeur, pensif et adorable
 _ comme le regard d'une amante insensée. Y
@@ -853,8 +853,8 @@ funèbres hypocrites baisent aux lèvres des rebelles
 4 le de son fumier l'innocence subtile; où la luxure est un |
 _ raisin à pépins de remords, et où les vierges ont une
 _ odeur qui tente le péché.
-_ Dans l'œuvre de Dostoïevski, il y a une société com- K
-| F . plète, à savoir une société religieuse. Car tous les porte- k
+_ Dans l'œuvre de Dostoïevski, il y a une société com-
+| F . plète, à savoir une société religieuse. Car tous les porte-
 _  totems de la terre n'y feront rien, et leur étymologie
 moins encore : pour l'homme, la religion, quelle qu'elle ;
 - soit, c'est le lien. Dostoïevski ne rompt pas le faisceau. |
@@ -863,32 +863,32 @@ artisan au maître d'hommes altier. Chez lui, non pas des
 | rangs et des titres, la hiérarchie est de la vertu vivante {
 _  €t des caractères. Il a ses voleurs et ses boues, ses
 
-assassins pareils à des conquérants, ses lâches,'ses vils 174
+assassins pareils à des conquérants, ses lâches,'ses vils
 | coquins et ses bouffons énormes, comme ïil a ses ;
-princes, ses vierges, ses saintes héroïques et ses saints. 2
-” Il est riche de toute élite et de toute plèbe. La condition L
+princes, ses vierges, ses saintes héroïques et ses saints.
+” Il est riche de toute élite et de toute plèbe. La condition
 sociale n'y est presque pour rien. Que ce génie m'est à
-intime! Que ce sens de la valeur me touche! 4
-$ C'est le monde de la conscience profonde. Les pas- 4
-sions y paraissent frénétiques, parce qu'elles résistent e
+intime! Que ce sens de la valeur me touche!
+$ C'est le monde de la conscience profonde. Les pas-
+sions y paraissent frénétiques, parce qu'elles résistent
 à être nues ; convulsives, parce qu'elles sont peu à peu À
-: _ dépouillées de tout ce qui les habille. Dostoïevski sait É.
+: _ dépouillées de tout ce qui les habille. Dostoïevski sait
 bien que la simplicité n'est pas dans les objets; mais à
-seulement dans l'œil qui les examine. La vie la plus 4
+seulement dans l'œil qui les examine. La vie la plus
 simple est en soi un prodige de complexe. La simplicité #
-n'est que le sommeil de l'apparence. 4
+n'est que le sommeil de l'apparence.
 Un monde, où les sentiments sont portés au dernier ‘2
-degré de l'acuité et de l'ardeur, semble l'enfer de la À 4
+degré de l'acuité et de l'ardeur, semble l'enfer de la À
 souffrance et le paradis des fous. Là, où toutestintense, à
-tout est excès. La règle ordinaire est abolie. L'ordre 4
+tout est excès. La règle ordinaire est abolie. L'ordre
 commun est l'ordre moyen. Et le moyen est l'espace du À
-\ La mesure, telle quelle, est un élément de la vie ordi- ‘© « paire. La mesure, en art, paraît la vérité, comme la 4
+\ La mesure, telle quelle, est un élément de la vie ordi- ‘© « paire. La mesure, en art, paraît la vérité, comme la
 moyenne des statistiques. La mesure varie avec es "4
 grandeurs que l'on compare. Elle n'est pas la même À
 pour les hôtes de l'Olympe et pour les captifs de l'Érèbe; à
-ni surtout pour ceux-là et pour les petites âmes de k.
+ni surtout pour ceux-là et pour les petites âmes de
 | métier, dont la conscience vit en boutique. Ames de
-métier, elles font nombre, comme les fourmis. Elles M
+métier, elles font nombre, comme les fourmis. Elles
 : nourrissent les moyennes. Mais, à le bien prendre, la
 #2 moyenne est fausse comme toute statistique morale.
 Car, chiffres et mesure ne révèlent que le monde de la #
@@ -919,14 +919,14 @@ De . de l'analyse, pareils aux plus hautes montagnes dela
 + Merre, en ce qu'ils bordent, comme elles, le rivage des
 « plus grandes profondeurs. Sommets qui ne cachent pas
 deux ou trois autres cimes, entre lesquelles Dostoïevski.
-RE Nulle puissance plus proche de la vie. Les grands s
+RE Nulle puissance plus proche de la vie. Les grands
 ré eurs sont les grands vivants. Où ils semblent s'éloiLi. $ |
 
 gaer le plus de la vie, ils y touchent encore de plus près
 que les autres.
 Tout est intérieur. Ce n'est même pas la pensée qui
 crée le monde, en le figurant. C'est l'émotion qui suscite
-toute vie, en la rendant sensible au cœur. Le monde E
+toute vie, en la rendant sensible au cœur. Le monde
 n'est même plus l'image d'un esprit. L'univers est la
 création de l'intuition. s ,
 L'émotion créatrice est la seule et véritable connaissance. Comme elle naît à soi-même, elle fait naître les
@@ -943,14 +943,14 @@ par ce qu'ils furent en vérité, ils sont. |
 Je dirai plus, pour être compris de ceux qui sont déjà
 de l'ère nouvelle, et pour ne l'être pas des autres. Ce
 qui était le propre de la musique, jusqu'ici, sans le veuloir même, nous le faisons passer, selon les moyens de ;
-la pensée, et du langage, dans la poésie. Ils croiront F
-qu'il s'agit d'harmonie imitative, de timbres et de son- H
-naiïlles dans les mots, d'allitérations et d'autres fadaises ; È
-toutes habiletés de métier, qui doivent toujours s'effacer j
+la pensée, et du langage, dans la poésie. Ils croiront
+qu'il s'agit d'harmonie imitative, de timbres et de son-
+naiïlles dans les mots, d'allitérations et d'autres fadaises
+toutes habiletés de métier, qui doivent toujours s'effacer
 de l'art, quand elles y entrent ; et qui ne cessent d'être à
-vaines qu'à la condition de n'en pas être vain. C'est F
+vaines qu'à la condition de n'en pas être vain. C'est
 une autre musique et moins vulgaire que je pense, dont &
-l'harmonie matérielle n'est que l'enveloppe. Plonger k
+l'harmonie matérielle n'est que l'enveloppe. Plonger
 
 ru utes les idées dans l'amour, et en donner l'émotion,
 … non plus la notion telle quelle, voilà la musique que je |
@@ -968,7 +968,7 @@ y °° qu'il recèle, de la magie enfin qui y est incluse, pour
 10 7. ,
 …. Son art ne vient pas de son mal. Mais il y a de son \
 _ mal dans son art. Et puisque ce mal sacré n'a point ;
-… tué l'art dans le malade, l'artiste s'en aide pour étendre 1
+… tué l'art dans le malade, l'artiste s'en aide pour étendre
 … son art. De mille épileptiques, il en est un seul qui ne !
 soit pas imbécile; mais celui-là a des lueurs que la ;
 + santé ne connaît pas. C'est le miracle de l'esprit, qu'il
@@ -982,13 +982,13 @@ La et même dans le patient, que ces' chiens de savants
 k he la mélancolie comme à une passion; tombant du rire
 à …_  Strident, et d'ailleurs le plus rare, à la plus noire rêve-
 —… rie; l'homme le moins sain, si la santé est cet état à
-…—._ … d'heureux équilibre où, ni le corps ne se plaint à l'âme, 9
+…—._ … d'heureux équilibre où, ni le corps ne se plaint à l'âme,
 — ni l'âme ne se plaint de tout le mal que le corps peut
 — faire à l'esprit : Dostoïevski, tout de même, n'a été
 | atteint d'épilepsie qu'en prison et au bagne. Il avait
 trente ans, alors, et trente années durant, qu'il lui
-ÊF estait à vivre, il s'est courbé sous la main dure qui 71
-4 JAterre. Étaitce la véritable épilepsie, ou quelqu'une re
+ÊF estait à vivre, il s'est courbé sous la main dure qui
+JAterre. Étaitce la véritable épilepsie, ou quelqu'une re
 à des formes nerveuses qui limitent? En tout cas,les
 
 accès n'étaient point rares : il en a eu jusques à trois
@@ -1011,11 +1011,11 @@ et même dans une divine possession d'autrui.
 Aura quaedam frigida, un composé de sensations et
 de mouvement. Une haleine mystérieuse se met à ourdir ;
 une toile, qui sépare l'âme de tout ce qui l'entoure, sans |
-_ pourtant l'en priver : un tissu complexe de passion et 3
+_ pourtant l'en priver : un tissu complexe de passion et
 de possession, un abîime pour le sens propre, une
-Si l'on veut à tout prix que ce soit un mal, je l'appelle :21
+Si l'on veut à tout prix que ce soit un mal, je l'appelle
 la maladie du trépied. C'est l'état des voyants, la con- Fs
-dition même de la présence mystique. Car, ne croyez f
+dition même de la présence mystique. Car, ne croyez
 pas que cet oubli de l'étendue soit une absence, ni que A
 les objets disparaissent parce qu'ils ne comptent plus $
 un à un. Mais, au contraire, tout y prend sa juste place, :
@@ -1055,22 +1055,22 @@ _ vie, toutes les pensées et tous les actes. La profondeur
 est sans repentance comme elle est sans pardon, Qui a .
 
 senti une présence éternelle, ne veut rien connaître De
-qu'en fonction de l'éternité. Et, tel il y aspire, tel il 4
-ë s'obstine à rêver, si on lui dit qu'il rêve. E
-Je compare la marche de l'épileptique vers la crise, 4
-au mouvement de Dostoïevski vers la profondeur. - 4
-4 Jamais sa pénsée ne bégaie, quoiqu'il semble : elle .
+qu'en fonction de l'éternité. Et, tel il y aspire, tel il
+ë s'obstine à rêver, si on lui dit qu'il rêve.
+Je compare la marche de l'épileptique vers la crise,
+au mouvement de Dostoïevski vers la profondeur.
+Jamais sa pénsée ne bégaie, quoiqu'il semble : elle .
 7 dénombre, elle palpe l'infiniment petit; atome après
-atome, elle essaie l'analyse, comme les antennes de F.
-‘ke l'insecte explorent le pollen grain à grain. On croirait 4
+atome, elle essaie l'analyse, comme les antennes de
+‘ke l'insecte explorent le pollen grain à grain. On croirait
 qu'il hésite, parce qu'il va et vient, et qu'il titube dans _
 ù le labyrinthe; mais il ne perd jamais de vue le carac-. :
 * tère : il en est ivre, plutôt; il en saisit, il en goûte, il À
-_ en pompe tous les aspects, et les dégorge. 21
+_ en pompe tous les aspects, et les dégorge.
 Il faut qu'il débrouille le nœud des sensations et des
-_ mouvements obscurs, qui font le corps du sentiment 0
+_ mouvements obscurs, qui font le corps du sentiment
 ; dans les ténèbres. Il cherche tous les fils, un à un; il =
-| les tient, à la fin; mais toujours, il va de l'un à l'autre, E
+| les tient, à la fin; mais toujours, il va de l'un à l'autre,
 en se dirigeant vers le bulbe de la racine. Un infaillible Ée
 instinct lui sert de guide. A
 Sa ligne paraît incertaine et lente : c'est la courbe
@@ -1078,16 +1078,16 @@ vivante, faite de petites droites en nombre infini. C'est
 pourquoi Dostoïevski ne conte point : raconter, c'est de
 ; - tout de même déduire. Le dialogue seul, ou le colloque, (4
 | ; peut rendre tous les moments, les incidents et les …
-_ inflexions de la courbe intérieure. Les grandes œuvres E
-: de Dostoïevski se font elles-mêmes dans notre esprit, 4
-A _ à mesure que nous les incarnons à notre rêve. Elles 4
-2 naissent de toutes les touches et de toutes les nuances E
+_ inflexions de la courbe intérieure. Les grandes œuvres
+: de Dostoïevski se font elles-mêmes dans notre esprit,
+A _ à mesure que nous les incarnons à notre rêve. Elles
+2 naissent de toutes les touches et de toutes les nuances
 qu'elles peignent en nous. On ne comprend Dostoïevski,
 
 chacun qu'à raison de sa propre vie intérieure. Jamais
 , poète ne donna moins à l'entendement seul et à la
 — simple notion. Ses chefs-d'œuvre sont des moments,
-pr que le dialogue épuise, en épuisant totalement les c
+pr que le dialogue épuise, en épuisant totalement les
 caractères : moments choisis, d'ailleurs, où toute une
 — vie fait masse, à peine reliés les uns aux autres par un
 _ brin de récit.
@@ -1101,7 +1101,7 @@ de la forêt. L'insomnie y erre avec ces bonds lassés qui
 “la jettent, parfois, dans les trous d'un sommeil acca_b nt. Là se forme le rêve, où le moi, de plus en plus”
 _ aigu, recule de plus en plus dans l'ombre, pour soi_ même. Alors, ce moi souffrant est comme le point |
 — d'ardeur sacrifiée, le sommet qui projette tout le cône ;
-L _ de la vision ; et l'univers entier de l'émotion entre dans È
+L _ de la vision ; et l'univers entier de l'émotion entre dans
 … … Jes secteurs de la lumière. Pour bien lire Dostoïevski, |
 encore : la passion fait ainsi, qui, dès la première vue,
 « pressent dans l'objet aimé tout ce qu'elle en ignore; et
@@ -1128,8 +1128,8 @@ De la sorte, le cœur est rétabli dans sa prérogative.
 
 Ii a le privilège du prince, que sa déchéance même ne
 
-La véritable connaissance fonde le monde de la charité, et elle seule. On ne saurait rien connaître à moins k
-d'aimer. Et ce n'est pas connaître que de savoir et 5
+La véritable connaissance fonde le monde de la charité, et elle seule. On ne saurait rien connaître à moins
+d'aimer. Et ce n'est pas connaître que de savoir et
 
 La vie entière est cette femme voilée, que l'homme
 < cherche, dont il fait son épouse, et cognovit eam,
@@ -1140,7 +1140,7 @@ dégoût. Voilà l'homme voué à la connaissance : il est
 d'abord cadavre à soi-même. Sa chair éclate en rebellion, et se dissocie d'avec lui : elle se fait discorde.
 Elle bave, elle se vide, elle vomit; elle s'étrangle, elle
 se souille; elle veut fuir l'esclavage qu'elle pressent. +
-Elle ne veut pas se perdre dans le voyage des ténèbres 4
+Elle ne veut pas se perdre dans le voyage des ténèbres
 ardentes. Et, parce qu'elle résiste, elle est abandonnée.
 
 O terreur! Elle est laissée là, comme une guenille
@@ -1148,7 +1148,7 @@ O terreur! Elle est laissée là, comme une guenille
 vile, par l'âme au seuil de la connaissance. Elle est là,
 _ comme une peau de rat, crevé de la peste, dans une
 _ rue de Chine; et la foule est autour, le peuple des
-__ hommes ou le peuple des vers. d
+__ hommes ou le peuple des vers.
 . Et quand la chair retrouve l'esprit, qu'il daigne
 % rentrer en elle, et la combler de sa présence — 6 Dieu,
 Fe je te recouvre! — la serve conscience hésite : elle va
@@ -1191,14 +1191,14 @@ seulement à l'amour de lartiste pour son Dieu et pour
 cœur nourrit, sans toujours les nommer, dans un :
 espace de mystère. Et souvent, le secret de l'homme .
 n'est pas dans ce qu'illivre de soi à l'objet de son amour, ;
-mais beaucoup plus en tout ce qu'il réserve, en ce qu'il ê
+mais beaucoup plus en tout ce qu'il réserve, en ce qu'il
 _ _. dissimule, qu'il ne laisse jamais voir et ne confie à
 De livre en livre, Dostoïevski fait un ménage bizarre
 avec les femmes. Quelles noces tristes et ardentes que
-les siennes! Je cherche en lui la clé de ses chefs. « d'œuvre. Sa vie n'a pas osé tout ce que ses œuvres M
+les siennes! Je cherche en lui la clé de ses chefs. « d'œuvre. Sa vie n'a pas osé tout ce que ses œuvres
 GR. accomplissent. Ses œuvres n'ont plus d'obscurité,
 quand on les éclaire de sa vie. ;
-5 Il avait fait un mariage étrange, en Sibérie, avec M
+Il avait fait un mariage étrange, en Sibérie, avec
 la veuve d'un médecin, une femme malheureuse et déjà
 | un peu vieillie : mariage comme on en voit dans ses
 romans, noces de la compassion et du délire, un
@@ -1244,24 +1244,24 @@ il a expié un péché que je sens, que je vois, et que je
 ne veux pas dire.
 
 Plus tard, à peine veuf de cette veuve, il prend pour
-femme une jeune fille. Il a la passion des jeunes filles, Ë
+femme une jeune fille. Il a la passion des jeunes filles,
 et nul n'a su jusqu'où. Il est de ceux pour qui l'innocence et la prime jeunesse sont la fleur dans la fleur, la
 mandarine dans l'orange, et l'amour de l'amour.
 
 Le prince Muichkine est, en amour, Dostoïevski luimême. Il aspire à la volupté la plus fine des femmes, à
-ce sourire entre chair et cœur, qui est le charme des 8
+ce sourire entre chair et cœur, qui est le charme des
 jeunes filles; il songe aussi, avec elles, aux douceurs $
-des amants, si des enfants pouvaient l'être, s'ils è
+des amants, si des enfants pouvaient l'être, s'ils
 pouvaient donner des caresses délicieuses, ou si les Ée
 
-Je considère avec terreur la vie d'une femme avec un Ê
+Je considère avec terreur la vie d'une femme avec un
 tel homme, et la vie d'un tel homme avec toute femme, .
-quelle qu'elle fût. Il ne peut lui céder que son ombre ê
+quelle qu'elle fût. Il ne peut lui céder que son ombre
 charnelle, avec toutes les misères qui y sont appendnes, à
 comme autant de membres blessés à travers des
-haïllons. Pour le reste, il garde un éternel silence. Il ne 9
-le rompt que pour se ruer en transports de peine et de k
-passion. Peine ou passion, elles ne comprennent guère 3
+haïllons. Pour le reste, il garde un éternel silence. Il ne
+le rompt que pour se ruer en transports de peine et de
+passion. Peine ou passion, elles ne comprennent guère
 que celle qui les concerne.
 
 De tels hommes, leur joie est toujours muette, tant
@@ -1283,7 +1283,7 @@ _ il faut qu'elle y ait foi, l'eût-elle perdue pour elle-même.
 _ ne peut pas oublier l'enseignement unique de son
 …_ œuvre : que la foi dans la vie, coûte que coûte, est
 …— mère inépuisable de toute beauté.
-% ei: Il est dur d'être femme. Mieux la vaut être pourtant, D
+% ei: Il est dur d'être femme. Mieux la vaut être pourtant,
 - qu'une de ces grosses prostituées qui font des livres,
 —_ entre Paris et Nice, avec leur haine de l'homme, en se
 -  Jéchant elles-mêmes dans un miroir. Et parce qu'elles
@@ -1303,7 +1303,7 @@ chair, tantôt plus douces que le lait nourricier dans la |
 bouche, mais toujours toutes folles : folles d'égoïisme, |
 ou folles de se donner, folles de tuer l'homme, ou folles
 de s'immoler à lui. .
-Il connaît leur passion unique, cette attente éternelle É
+Il connaît leur passion unique, cette attente éternelle
 où elles s'agitent : elles sont là, toujours la même Êve
 endormie, qui attend que le doigt de son Dieu lui ;
 communique l'étincelle, et l'appelle à la vie.
@@ -1312,16 +1312,16 @@ pour elles! Elles peuvent donner la vie, mais non
 l'avoir! Il faut leur souffler le feu, qui est toute la vie ‘
 de l'âme; il ne faut jamais laisser tomber cette flamme $
 immortelle et fragile. Et comme il est fatal qu'onne
-. la puisse pas toujours nourrir pour elles, il faut qu'elles 1
-lamentent la duperie du don total qu'elles ont voulu 4
-faire d'elles-mêmes à l'homme et à l'amour. Î
+. la puisse pas toujours nourrir pour elles, il faut qu'elles
+lamentent la duperie du don total qu'elles ont voulu
+faire d'elles-mêmes à l'homme et à l'amour.
 ‘ IL a donc soupçonné leur ardeur cruelle, ces rancunes
 glacées qui menacent le foyer de la tendresse et du à
 désir. Il a laissé comme une ébauche de cette âme :
 sensuelle, de ces pudeurs perverses, de cette luxure
 ES innocente et virginale, qui tremblent dans le sentiment
-des jeunes filles, et que les fureurs de la femme È
-coupable attisent comme un inextinguible regret. i
+des jeunes filles, et que les fureurs de la femme
+coupable attisent comme un inextinguible regret.
 É Tout est passif en elles. Leur sacrifice a parfois la
 violence d'un appel égoïste à la violence qu'elles
 | repoussent. Elles mettent, à être prises, une espèce de
@@ -1338,7 +1338,7 @@ _ pulpe est avide.
 _ plus, qu'il est plus Dostoïevski. Plus d'un homme, et ‘
 . plus d'une femme.
 À L Tous ces hommes, en lui, et toutes ces femmes, sont,
-…_ chacun totalement soi-même ; et pour un temps, säns g:
+…_ chacun totalement soi-même ; et pour un temps, säns
 “lien aux autres. Le moi se multiplie de la sorte.
 n L'homme, qui a reçu ce don fatal, porte naturellement
 dans la vie et dans ses œuvres les formes du rêve.
@@ -1347,7 +1347,7 @@ fi Dostoïevski, si divers et si un, conçoit l'amour avec
 . ou trois ou plusieurs hommes pour toute femme qu'il
 % aime. Soit qu'il la désire en sa chair, soit qu'il voue en
 —… elle ur culte à quelque rare idole ou à la vierge. Profu- .
-… sion de l'amour, partage qui répond à un besoin puis- D
+… sion de l'amour, partage qui répond à un besoin puis-
 … sant et mystérieux. Il lui faut l'âme, avec la chair;
 & avec la joie, il lui faut les larmes. Et dans l'ardeur de
 Re: la femme en fruit, il lui faut aussi la jeunesse, la fleur
@@ -1371,7 +1371,7 @@ la forme virginale, cette essence d'ardeur, si puissante
 et si subtile, qu'une goutte répandue en parfume tout
 autre amour, et se révèle jusque dans l'amour le plus
 infâme, jamais Dostoïevski n'y résiste. D'ailleurs, la
-jeune fille n'est qu'en nous. 1
+jeune fille n'est qu'en nous.
 
 Selon moi, il cherche la vierge en toute femme; il ne
 peut aimer qu'elle. Cette prédilection l'emporte; elle le
@@ -1394,7 +1394,7 @@ amante. Siegfried est presque le fils de sa bien-aimée,et
 _ un baiser filial aux lèvres de Parsifal pantelant.
 __ On me dirait de Dostoïevski qu'il a fait ménage avec £
 — une petite fille, je n'en aurais point de surprise. Et j'en
-_ suis sûr, si laissant ici le plan des faits visibles, j'en- s
+_ suis sûr, si laissant ici le plan des faits visibles, j'en-
 | tr'ouvre les annales de l'homme secret. :
 . Ne croyez pas qu'on soit plus sensuel, à mesure
 - qu'on est plus passionné. Il peut arriver que la fureur
@@ -1405,11 +1405,11 @@ idéale. Rien ne transpire de ses ivresses ; et l'ardeur
 - souvent, que l'artiste, surtout dans l'art des caractères, |
 _ sinon une imagination amoureuse des formes, jusqu'à :
 _ l'oubli de toute règle?
-4 Dostoïevski est bigame, pour le moins. Je ne parle
+Dostoïevski est bigame, pour le moins. Je ne parle
 _ que des intentions. La passion rencontre rarement
 . son objet; encore moins trouve-t-on les deux ou trois
-_ femmes qu'on désire dans la même. : 4
-* La pitié pour la femme qu'on aime moins qu'on n'est É
+_ femmes qu'on désire dans la même.
+* La pitié pour la femme qu'on aime moins qu'on n'est
 . aimé est une terrible passion. Elle mène, parfois, à la
 | . mort plus sûrement que l'autre. Ainsi, l'ardeur du sacri- -
 … fice de soi passe infiniment l'ardeur que l'on met à
@@ -1425,30 +1425,30 @@ Dopsoir ténébreux de l'/diot, les deux hommes, le mari
 et l'amant, la victime et le bourreau, que lon voit . }
 veiller la même femme, qui fut double et qui est morte,
 3 victime elle aussi et bourelle? A la fin, la joie qu'on :
-exige et le salut qu'on dispense se confondent dans 4
+exige et le salut qu'on dispense se confondent dans
 l'insondable peine. |
 ! Quelle est donc cette recherche de la douleur, dans À
 le sentiment qui promet le plus de félicité à l'homme, .
-selon la nature? N'en est-ce pas, plutôt, la fatalité dans È
+selon la nature? N'en est-ce pas, plutôt, la fatalité dans
 la conscience ? Plus on y pense, plus il semble que .
-l'homme et la femme ne sont pas faits pour la vie L
-commune. La passion, plus ou moins longue, n'est point L
-un état de durée. La passion, comme le drame, vit de F
-combat et se dénoue par la mort. F
+l'homme et la femme ne sont pas faits pour la vie
+commune. La passion, plus ou moins longue, n'est point
+un état de durée. La passion, comme le drame, vit de
+combat et se dénoue par la mort.
 Pourtant, l'homme et la femme, plus ils s'aiment, plus
-il leur est fatal de vivre ensemble et confondus. An M
-génie de l'espèce, qui ne s'inquiète que du moment, se 4
+il leur est fatal de vivre ensemble et confondus. An
+génie de l'espèce, qui ne s'inquiète que du moment, se
 + substitue le génie de la tendresse, qui prétend accorder .
 les éléments contraires, et faire un état durable dun
-état passager. Une telle violence à la nature ne va pas ÿ
+état passager. Une telle violence à la nature ne va pas
 sans douleur. Et je dis qu'elle est nécessaire. L'amour
-humain se distingue, par là, de l'amour naturel aux Æ
-autres créatures, et même à la plupart des hommes, si 3
+humain se distingue, par là, de l'amour naturel aux
+autres créatures, et même à la plupart des hommes, si
 “ l'on en juge à tant de misérables couples.
-Pour qu'un homme et une femme se puissent souffrir, 3
-il faut qu'ils souffrent l'un de l'autre. C'est la loi. Je M
+Pour qu'un homme et une femme se puissent souffrir,
+il faut qu'ils souffrent l'un de l'autre. C'est la loi. Je
 ; parle de l'homme accompli en conscience. \
-4 L'accord ne vient que du sacrifice. Celui qui aime le
+L'accord ne vient que du sacrifice. Celui qui aime le
 plus, souffre le plus. A l'ordinaire, la femme reçoit la \
 4 part douloureuse; et souvent, elle choisit d'en jouer le …
 rôie. Mais le meilleur homme ne le lui laisse pas.
@@ -1457,22 +1457,22 @@ _ En amour, le cœur est trop avili, s'il ne souffre. La
 _ souffrance seule nous rétablit dans notre dignité ne
 _ d'homme. Quel est l'amant profond qu'Amour n'abaisse à
 _ pas au pardon des pires offenses? Il faut grandement a
-_ souffrir de la femme, pour rester digne de soi dans 2
+_ souffrir de la femme, pour rester digne de soi dans
 . l'amour qu'on lui consent, et même dans l'amour qu'elle “
 | nous accorde. Se
 Et ce n'est pas assez des natures qui s'opposent, dans
 _ l'homme et dans la femme. Quand les cœurs sont com- ,
  plices, c'est le destin qui ne l'est pas. La misère, la ur
 _ maladie, le deuil, tout ce qui menace chaque homme -
-1 sous un masque fatal, dans l'amour se démasque, et, h
+1 sous un masque fatal, dans l'amour se démasque, et,
 entre amants, pour l'un prend visage de l'autre. à
-> L'amour est ce qui nous sépare le plus des Anciens. 14
+> L'amour est ce qui nous sépare le plus des Anciens.
 £ _ Notre passion n'est si ardente et si pleine, que pour à
 # faire en nous l'union des deux mondes : le cœur chré-
 … tien habite la chair païenne ; et la chair païenne hante
 le cœur chrétien. "
-. C'est notre amour qui nous démontre que nous ne É
-_ diviserons pas un monde en nous de l'autre, sans nous k
+. C'est notre amour qui nous démontre que nous ne
+_ diviserons pas un monde en nous de l'autre, sans nous
 _ réduire de la totalité.
 - Le mystère de l'amour est celui de la douleur même.
 É Je ne crois que les amours souffrantes. La douleur n'est
@@ -1500,21 +1500,21 @@ nouvelle. La grandeur seule en fera la joie. Car, où est
 c'est avoir joie, à quelque prix que ce soit. Ni la gran-
 
 - deur, ni la beauté ne sont valables sans souffrance.
-Ainsi l'homme ne va plus sans une tristesse intérieure, 1
+Ainsi l'homme ne va plus sans une tristesse intérieure,
 qui donne du prix à tout ce qu'il sent comme la rosée
 des larmes à un merveilleux visage.
 
 âge qu'il n'a plus, ni d'abolir en lui aucune des puis- +
 sances que le passé y a mises, et qui lui étaient néces- |
-saires, puisqu'il se les est données. La douleur est une 1
+saires, puisqu'il se les est données. La douleur est une
 
-; . Au lieu de rien détruire, il faut tout accomplir en j
+; . Au lieu de rien détruire, il faut tout accomplir en
 nous, et y tout achever. à
 
 La passion chrétienne, s'il fallait la justifier, je dirais *
 
 qu'elle a créé l'amour, par le prix infini que la douleur
-5 y attache: L'art est un excès du même ordre, si on le J
+5 y attache: L'art est un excès du même ordre, si on le
 compare au jeu. L'amour n'est qu'uné flamme jeune, À
 ne qui brille et qui se consume, chez les Anciens. Notre ]
 ÿ amour est un feu qui dure, et qui exige de durer, un
@@ -1526,25 +1526,25 @@ des Anciens n'est que l'enveloppe du nôtre: aux sens
 
 -_ Passions du fond caché, lames de fond : le plus
 “. souvent, elles dorment; mais il arrive, soulevées, |
-… qu'elles emportent les rives de la paix commune. L
+… qu'elles emportent les rives de la paix commune.
 ‘À Vous ne savez pas jusqu'où peut aller l'amour de la
 : vie dans les êtres profonds, nés pour la souffrance, et
-qu'elle y attache. Il les porte à tous les excès, que vous j
+qu'elle y attache. Il les porte à tous les excès, que vous
 … appelez des crimes, selon votre droit. Ni les Juifs
  charnels, ni les Yankees ne pourront jamais l'entendre :
 .. ils sont trop asservis à leurs idoles : les Juifs, dans leur
 esclavage des biens terrestres, et selon leur inclination
 — à en jouir commodément; les Yankees, dans leur brutal
 … vaine et de vaine morale. Donner sa vie, et même
-…— prendre la vie des autres, sans en peser exactement la l
+…— prendre la vie des autres, sans en peser exactement la
 … valeur aux poids de la raison, de l'agrément et du
 — succès, voilà l'honneur mystique. Dostoïevski, qui a
 toutes les sortes d'honneur, hormis celui de vanité, sent
 l'honneur mystique au même degré qu'un saint apôtre.
-5 … L'amour de l'amour fera, d'un homme à la Dostoïevski, 4
+5 … L'amour de l'amour fera, d'un homme à la Dostoïevski,
 — Je bourreau d'une femme et le jouet d'une autre. Mais,
 E- pour toutes les deux, il n'aura que des caresses dans
-. l'âme, et toutes de son sang. 1
+. l'âme, et toutes de son sang.
 
 La passion de l'innocence le poussera, peut-être, à
 - vivre en amant avec une petite fille. Non pour la
@@ -1574,11 +1574,11 @@ la plénitude.
 
 Un artiste créateur voudrait presque participer, de
 moment en moment, à la création universelle. C'est
-pourquoi il se déteste, en vain, lui-même à linfini : il Ë
+pourquoi il se déteste, en vain, lui-même à linfini : il
 ne se méprise pas. Il peut, au contraire, mépriser $
-beaucoup les autres : et sans jamais les détester, Ë
-pourtant. Il est, en lui, une ardeur éternelle pour le è
-noyau du fruit. Tous les crimes pourront hanter son ï
+beaucoup les autres : et sans jamais les détester,
+pourtant. Il est, en lui, une ardeur éternelle pour le
+noyau du fruit. Tous les crimes pourront hanter son
 âme : elle ne saurait rien perdre de sa pure volonté, :
 qui est de ne pas nuire, ni de sa primitive convoitise,
 
@@ -1603,14 +1603,14 @@ _ de la vie, comme au-dessous des océans, pourvu qu'on :
 
 _ de la terre; et toutes les mers ne sont qu'une robe de
 __ rosée sur l'écorce. |
-n Dostoïevski ne réprouve que la méchanceté sans ÿ
+n Dostoïevski ne réprouve que la méchanceté sans
 - amour. Le désir lui est sacré, pour peu qu'il porte
 
 ._ flamme : le désir même impur. Pour lui, il n'y a rien de
 _ médiocre en soi : parce qu'en lui, même les forfaits de |
 Ja chair, tout est cœur et âme, ou, du moins, en recèle.
 
-4 Rien n'est vil, à ses yeux, sur la terre, que les peuples +
+Rien n'est vil, à ses yeux, sur la terre, que les peuples +
 _ et les hommes sans âme. Verser dans tous les péchés,
 
 28 au besoin, pour être capable de les tous expier, les eût-
@@ -1631,9 +1631,9 @@ _ même, ou être puni. La vie, perdue dans la faute, se de
 retrouve dans l'expiation. Le crime égare le cœur, et
 m'a peut-être pas d'autre horreur que cet égarement. ;
 Dostoïevski a souvent paru méchant homme, et il a ]
-‘ passé pour envieux. Un être trop aigu semble toujours î
+‘ passé pour envieux. Un être trop aigu semble toujours
 méchant. La force blesse. Le regard qui pénètre les
-cœurs est un poignard pour eux : on lui en veut de la ï
+cœurs est un poignard pour eux : on lui en veut de la
 piqûre, fût-il de la pointe la plus fine, et quand il .
 l'émousserait dans l'effusion des plus tendres larmes.
 Les hommes refusent d'être devinés. Encore moins |
@@ -1641,18 +1641,18 @@ acceptent-ils qu'on les révèle à eux-mêmes. On ne les |
 dépouille pas sans leur faire violence; et ils gémissent ;
 de se reconnaître. Dostoïevski ne ménage rien. Le
 : mensonge, qui est au fond de la nature humaine, $
-l'irrite jusqu'à la rage. Il est celui qui se mesure avec f
-tout vainqueur selon le monde, quel qu'il soit; et il le i
+l'irrite jusqu'à la rage. Il est celui qui se mesure avec
+tout vainqueur selon le monde, quel qu'il soit; et il le
 frappe, il l'aiterre, il l'écorche vif. IL condamne tous +
-ceux qui osent porter condamnation sur la créature. Il 1
-ne juge que les juges. : 4
-Fait pour la solitude, ou pour tout un peuple, mais ÿ
+ceux qui osent porter condamnation sur la créature. Il
+ne juge que les juges.
+Fait pour la solitude, ou pour tout un peuple, mais
 non pour se plier au goût de quelques-uns, qu'il veuille :
 : plaire ou qu'il veuille blesser, il ne se contient jamais. .
 Ses pleurs sont aussi prompts, que son éclat de rire >
-bref et toujours étonné. C'est lui que j'entends dans le E
-salon des Epantchine, quand le Prince Innocent, dévoré 1
-de sympathie, effraie tous ses amis, exaspère sa fiancée, 1
+bref et toujours étonné. C'est lui que j'entends dans le
+salon des Epantchine, quand le Prince Innocent, dévoré
+de sympathie, effraie tous ses amis, exaspère sa fiancée,
 et court avec une telle allégresse à sa mort sociale.
 Il pouvait être exquis ou cynique, par un désir égal
 _ d'être soi-même, de plaire à qui lui plaisait, et de
@@ -1703,7 +1703,7 @@ Voilà comment tout finit, chez Dostoïevski, par la |
 condamnation des Juifs. Au lieu d'être Juifs en Russie, |
 que ne sont-ils Russes en Judaïe? Mais ils ne seraient
 plus. Entre Dostoïevski et les Juifs, il y a la même
-querelle qu'entre l'Ancien et le Nouveau Testament. Le J
+querelle qu'entre l'Ancien et le Nouveau Testament. Le
 
 _ second abroge l'autre, puisqu'il l'accomplit. Le mort
 enté sur le vivant corrompt le vivant.
@@ -1712,14 +1712,14 @@ Enfin, Dostoïevski est joueur. Et d'autant plus, qu'il
 perd toujours.
 
 Pourquoi joue-t-il? Dans l'homme malheureux, qui |
-est deux fois passionné, le jeu prend toute sa force. On F
-joue pour jouer, et l'on joue pour gagner. É
+est deux fois passionné, le jeu prend toute sa force. On
+joue pour jouer, et l'on joue pour gagner.
 
 J'ai souvent dit que la loterie, ou le coup de dés, me à
-semble le plus honnête moyen de faire fortune. Pour ë
-ceux, il a de soi, qui n'ont point le génie à faire 4
+semble le plus honnête moyen de faire fortune. Pour
+ceux, il a de soi, qui n'ont point le génie à faire
 fortune. Et il est vrai qu'ils ne la font pas. La morale %
-est donc satisfaite. 4
+est donc satisfaite.
 
 Ceux qui ne croient pas au sort n'ont jamais regardé $
 la vie. Le hasard est le nom public de la fatalité. Le jeu !
@@ -1740,14 +1740,14 @@ $ Dostoïevski, inquiet en tout, devait avoir l'âme au
 
 payer toutes ses dettes et sortir de la gêne. Persuadé |
 
-. que le gain est toujours possible, pourvu que le destin x
+. que le gain est toujours possible, pourvu que le destin
 
 4 y consente : il ne faut qu'un instant d'oubli, après tout; |
 il suffit que la male fortune regarde ailleurs, un clin
 _ d'œil, et l'on gagne. Bien pensé, et d'autant mieux que
 
 _ la sueur d'effroi fait encore la part de la mauvaise
-4 Celui qui perd toujours n'a pas de raison pour ne
+Celui qui perd toujours n'a pas de raison pour ne
 __ pas toujours tenter l'aventure. L'orgueil le veut ainsi, |
 …. et le sens du juste. Dans le joueur d'un certain ordre,
 
@@ -1763,76 +1763,76 @@ mais il joue encore pour forcer le bonheur qui le fuit.
 
 . Le jeu est une interrogation de la fortune. Et plus elle
 
-_ refuse de répondre, plus on l'interroge. 1
+_ refuse de répondre, plus on l'interroge.
 
-Si je gagnais toujours, je voudrais jouer pour perdre. ù
-Comme il est plus ordinaire de toujours perdre, on joue 1
-pour gagner, ce soir ou demain, ou la semaine pro- s
+Si je gagnais toujours, je voudrais jouer pour perdre.
+Comme il est plus ordinaire de toujours perdre, on joue
+pour gagner, ce soir ou demain, ou la semaine pro-
 chaïne, ou quelque jour, enfin. Je gage, en jouant, que
 
-. . . . 7 4
+. . .
 Qu'il manque de dignité avec noblesse! Qu'il s'élève *
 bien au-dessus des usages ! Comme il en tient justement compte, en n'en tenant pas compte, en faisant fi ;
 de ce qu'on attend de lui! Quel profond honneur le ;
-dispense de satisfaire à l'honneur selon le monde, cette ù
+dispense de satisfaire à l'honneur selon le monde, cette
 suite infinie de petites bassesses, que recouvre un
-masque d'impudence banale, peint aux couleurs d'une ÿ
-politesse propre à tout usage! (1) t
-L'honneur, dans la société moderne, n'est qu'une 5
+masque d'impudence banale, peint aux couleurs d'une
+politesse propre à tout usage! (1)
+L'honneur, dans la société moderne, n'est qu'une
 façade d'argent sur un palais où il n'y a plus rien, ni ;
-salles, ni meubles, ni chambre des époux : l'incendie a ï
-passé par là, et la maison est vide même du secret ï
-nuptial. Dostoïevski n'a point de part à cet honneur ÿ
-des salons et des capitales. F
+salles, ni meubles, ni chambre des époux : l'incendie a
+passé par là, et la maison est vide même du secret
+nuptial. Dostoïevski n'a point de part à cet honneur
+des salons et des capitales.
 (1) Triomphe de cet honneur chez les Anglo-Saxons. Là, pour £
 ‘un homme, la gloire est de vivre en masque. Ils se rendent
-maîtres de toutes leurs émotions, disent-ils. Mais, la plupart, F
-ils n'en ont pas. Et celles qu'ils ont, ils les montrent fort bien : 4
+maîtres de toutes leurs émotions, disent-ils. Mais, la plupart,
+ils n'en ont pas. Et celles qu'ils ont, ils les montrent fort bien
 le mépris des autres, la dureté des cœurs, la hargne brutale de
-l'esprit puritain, la haine des mœurs libres; et cette terre pro- k
-mise des gentilshommes étale ses grappes d'ivrognes : parce 1
+l'esprit puritain, la haine des mœurs libres; et cette terre pro-
+mise des gentilshommes étale ses grappes d'ivrognes : parce
 qu'en effet elle en a. !
-Ils se lavent avec soin, chaque jour, des pieds à la tête; et, 4
+Ils se lavent avec soin, chaque jour, des pieds à la tête; et,
 Bible en main, ils méprisent atrocement les pauvres. Ils ont tous
 le même savon; ils sont bien vêtus, à la même mode. Pas une À
 tache sur les habits; pas un grain de poussière à la maison. À
-Mais du foin dans la tête, et du galet sous le sein gauche. Ils x
+Mais du foin dans la tête, et du galet sous le sein gauche. Ils
 : . disent toujours la vérité; mais tout leur être ment, dès ce ventre
 +4 de leur mère, qu'il est défendu de nommer.
-50 3
+50
 
 Rex _ Dostoïevski ne se cache pas pour pleurer. Il ne rougit ge
 _ pas de mendier. Il ne donne pas tant de valeur à Ne.
-_ l'argent. Il n'a pas tant de respect pour l'or, ni pour { É
+_ l'argent. Il n'a pas tant de respect pour l'or, ni pour {
 … celui qu'il n'a pas, ni pour celui des autres. Il ne cède LS
-_ rien de son Dieu; il ne trahit jamais ce que son Dieu 54
-3 _ exige de lui; et voilà le véritable honneur. La Yancaille 4
-_ a peut-être le sien, après tout : le dollar et le baïn froid. 20
+_ rien de son Dieu; il ne trahit jamais ce que son Dieu
+3 _ exige de lui; et voilà le véritable honneur. La Yancaille
+_ a peut-être le sien, après tout : le dollar et le baïn froid.
 __ Mais plutôt, Dostoïevski subit l'avanie que la turque ÿ à
-3% fortune fait sans cesse à la misère. Sa constance est , ü
+3% fortune fait sans cesse à la misère. Sa constance est
 . héroïque : pour servir son Dieu, il est le plus humble (hi
 - des hommes. Il consent à prier, à solliciter, à recevoir #
-… l'aumône. Comme il ne se dérobe à aucune charge, 4
-- il ne recule devant aucune humiliation. Lui, qui avait 3
+… l'aumône. Comme il ne se dérobe à aucune charge,
+- il ne recule devant aucune humiliation. Lui, qui avait
 tant d'orgueil, et beaucoup d'amour-propre, cette peau de
-_ enflammée de l'orgueil malade, il se met à genoux, en 1
+_ enflammée de l'orgueil malade, il se met à genoux, en
 chemise, autant de fois qu'il faut. Il supplie, il baise la F..
-_ main qui donne. Et pourtant, donner à un tel homme, , 1
-. cest toujours lui donner le fouet. Il le reçoit avec 1
+_ main qui donne. Et pourtant, donner à un tel homme,
+. cest toujours lui donner le fouet. Il le reçoit avec
 _ douceur; il accepte toute sorte de bienfaits sanglants. LE
-…_ Il faudrait être bien bas pour le lui reprocher. Il a E
+…_ Il faudrait être bien bas pour le lui reprocher. Il a
 . l'amour de la perfection: telle est la main qui le Le
 - courbe. Travaillé par tant de maux, il sacrifie sa ‘4
 dignité selon le monde à sa mission selon l'esprit.Ilne
 serait pas le plus russe des Russes, s'il ne croyait à sa %
 … mission. Plus il accepte, moins il reçoit pour lui. I] -
 “ s'inquiète d'être toujours en retard avec ses éditeurs; "48
-ma s il n'a pas honte d'être toujours en dette avec R
+ma s il n'a pas honte d'être toujours en dette avec
 _ ses amis. Et s'il en souffre, il y trouve une occasion de
 _ servir encore. à
 h C'est qu'il n'arrive jamais à se satisfaire. Celui qu'on à
 pren d pour un Barbare, aime la perfection comme un 720%
-Ne: iste de France ou d'Athènes. Il se laisse abaisser 4
+Ne: iste de France ou d'Athènes. Il se laisse abaisser
 
 .
 aux yeux de tout le monde; mais il ne saurait trahir
@@ -1842,10 +1842,10 @@ Par là, il me rappelle Wagner, une fois de plus. Et
 certes, en des arts si opposés, d'une matière si diverse
 et d'une forme si contraire, Wagner et Dostoïevski se
 touchent de plus près que pas deux autres. L'analyse
-de Wagner et celle de Dostoïevski procèdent du même J
+de Wagner et celle de Dostoïevski procèdent du même
 fond. Les mêmes mouvements intérieurs, qui se
 combinent, s'enlacent, se nouent et se dénouent, la
-même volonté du cœur, ici et là, enveloppent un 4
+même volonté du cœur, ici et là, enveloppent un
 sentiment unique. Elles vivent d'émotion, et, en deux
 ordres différents, elles tendent à produire une émotion
 
@@ -1864,7 +1864,7 @@ Elle vient de l'amour, comme le reste. Ils s'aiment, ces {
 bouffons ! ils s'aiment à fond, comme des monstres ou
 des enfants. Et ils aiment la vie, comme des saints.
 
-On peut donc les aimer, jusque dans le mépris qu'ils « inspirent. À la vérité, Dostoïevski est un des croyants h
+On peut donc les aimer, jusque dans le mépris qu'ils « inspirent. À la vérité, Dostoïevski est un des croyants
 magnifiques à la beauté de ce monde, qui seraient ;
 
 Pr capables de guérir les esprits fins de tout mépris, si
@@ -1904,7 +1904,7 @@ d ladov en chaque père de famille, pour peu qu'il eût à
 vivre dans les conditions où ceux-là ont vécu. Ils ne
 sont pas dans la mort, ni impitoyablement condamnés,
 comme les deux secrétaires perpétuels de Flaubert,
-automates de l'universelle dérision. i
+automates de l'universelle dérision.
 
 Il est contre l'Occident, dans la mesure où l'on s'arme |
 à de l'Oècident contre la Russie. |
@@ -1912,7 +1912,7 @@ Jamais Dostoïevski n'a pu donner de gages à quelque |
 parti que ce fût, pas même au sien : celui de la terre et \
 des vivants. La volonté de nier lui est toujours étrangère. Il affirme en niant. La haïne n'est pas en lui. Il
 n'est même pas antisémite. Il est contre les Juifs au |
-même titre qu'il combat tous ceux qui nient le Christ 4
+même titre qu'il combat tous ceux qui nient le Christ
 et la Russie. ;
 Comme il est libre, en dédaignant toute liberté poli- |
 tique ! Il sait que la liberté n'est pas dans le vote. Car, |
@@ -1946,26 +1946,26 @@ davantage, sans doute : c'est pour mieux entendre les
 profonds murmures de la vie, dans l'ombre où les .
 images se définissent, les objets si l'on veut. Le rythme
 est la première figure; et, au sein des ténèbres, c'est
-de la mélodie que naïssent les formes, prodige obscur. 2
+de la mélodie que naïssent les formes, prodige obscur.
 Telle est la raison pourquoi le Russe ne vaut rien, !
 s'il n'aime. Il ne critique pas : il nie. 1l ne doute pas : à
-il détruit. Il n'est pas athée : il est prêtre du néant. ÿ
-duit qui vaille. Toutes ses grandes œuvres sont de l'âge 1
+il détruit. Il n'est pas athée : il est prêtre du néant.
+duit qui vaille. Toutes ses grandes œuvres sont de l'âge
 plein, entre quarante et soixante ans, où il est mort. :
 Les autres Russes sont plus précoces : Pouchkine, Ler- |
 montov et Gogol ont peu vécu, mais d'une vie ardente.
 Téodor Mikaïlovitch n'était pas de ces jeunes gens.
 
-+ S La Russie ne s'est reconnue en Dostoïevski, que peu L
-14 _ nation, l'homme qui pense, le cœur qui bat pour toute x
++ S La Russie ne s'est reconnue en Dostoïevski, que peu
+14 _ nation, l'homme qui pense, le cœur qui bat pour toute
 _ Ja race; mais il ne le fut que cinq ou six ans avant de à
-…_ mourir. Il lui fallut toucher à cette extrémité encore, g
-pour prendre le rang auguste que Tolstoi lui-même n'a K
+…_ mourir. Il lui fallut toucher à cette extrémité encore,
+pour prendre le rang auguste que Tolstoi lui-même n'a
 _ pas obtenu. Pendant près d'un demi-siècle, Tolstoï a
-pu passer pour le plus grand artiste de son pays. Mais F
-pendant quelques saisons, Dostoïevski a été l'homme 7
-- de la Russie, celui qui aime et qui haït, qui pense, qui 44
-“veut et qui parle pour tous, l'aîné vénérable de la maï- É
+pu passer pour le plus grand artiste de son pays. Mais
+pendant quelques saisons, Dostoïevski a été l'homme
+- de la Russie, celui qui aime et qui haït, qui pense, qui
+“veut et qui parle pour tous, l'aîné vénérable de la maï-
 _ son, le guide entre tous les frères. |
 # Il est l'homme de la douleur : est-ce là son seul titre? ;
 … On aurait bien tort de le croire. J'ai compris la douleur à
@@ -1980,29 +1980,29 @@ _ Pour en venir à ce règne douloureux, il fallait que =.
 …— prit pour un rebelle, lui qui l'était si peu, qu'on le
 —. condamnât à mort, et qu'il croupit au bagne.
 À Personne ne doit plus à ses souffrances que Dos- a
-… toïevski. Personne ne doit plus à ses erreurs. En É
+… toïevski. Personne ne doit plus à ses erreurs. En
 — personne, la faute ne fut plus féconde. Là, il s'est fait
 “ cette vue incomparable du revers qu'il applique aux
-“ sentiments des hommes. Il lit les deux côtés de la L
+“ sentiments des hommes. Il lit les deux côtés de la
 É < page, et la face visible ne Ini est qu'un moyen de mieux
 _ connaître l'autre. ect
 
 : L'erreur d'une grande âme n'est jamais que dans ;
-l'action : la volonté ni le cœur n'errent point, étant É
-toujours fidèles à la grandeur qui les anime. On ne se 4
+l'action : la volonté ni le cœur n'errent point, étant
+toujours fidèles à la grandeur qui les anime. On ne se
 trompe que sur la route à suivre. Quand on revient sur
-ses pas, on possède tout l'horizon et toutes les per- Î
-spectives, qu'on n'eût peut-être jamais bien vus sans É
-cette erreur-là. Elle est la racine commune de la peine 4
-L'œuvre qui fit la fortune de Dostoïevski jeune 4
+ses pas, on possède tout l'horizon et toutes les per-
+spectives, qu'on n'eût peut-être jamais bien vus sans
+cette erreur-là. Elle est la racine commune de la peine
+L'œuvre qui fit la fortune de Dostoïevski jeune
 homme, (1) et celles qui vinrent ensuite jusqu'à la ;
 - catastrophe du bagne, me semblent d'une invention
 médiocre et d'un très faible prix. Elles sentent la .
 crasse sentimentale des galetas. Elles sont geignardes #
 et larmoyantes. Le peu de gaîté qu'elles ont grimace. #£
-Elles annonçaient le Gogol des mansardes, s'il peut y 4
+Elles annonçaient le Gogol des mansardes, s'il peut y
 avoir un Gogol moins la force et le style. Le trait est
-forcé, le dessin sans beauté, les ombres épaisses. Elles 4
+forcé, le dessin sans beauté, les ombres épaisses. Elles
 ressemblent aux tableaux d'un peintre oublié, Tassaert,
 qui pleurnichait lourdement dans les taudis, de grabat :
 en grabat. Subtiles enfin, mais sans profondeur. Or, la
@@ -2011,8 +2011,8 @@ qu'elle implique; seule, la profondeur de l'analyse :
 suppose l'extrême complexité et la justifie. Ce double
 don, qui devait porter Dostoïevski à une hauteur où
 personne ne le dépasse, ne se fait sentir dans les
-premières œuvres que par l'embarras de l'action et la 4
-contorsion des caractères. f
+premières œuvres que par l'embarras de l'action et la
+contorsion des caractères.
 : Au début comme à la fin, Dostoïevski ne peint que
 (1) Les Pauvres Gens, 1846 ; Le Double, Les Nuits blanches, etc., ;
 
@@ -2022,7 +2022,7 @@ toujours trop verte ou trop avancée; elle a ses adolescents pourris et de vieil
 4 que l'enfance. Souvent là-bas, les jeunes femmes
 …—_._ portent un cœur de cadavre, plein de vermine et de
 4 cendres, sous une chair en fleur. La Russie vit dans
-5 l'excès : en tout, jusqu'ici, elle ignore l'entre deux. d
+5 l'excès : en tout, jusqu'ici, elle ignore l'entre deux.
 …_ … Dostoïevski lui-même et ses livres sont au centre de
 — ce monde inconnu. Lui et ses livres sont les grandes
 —_. œuvres de l'âge mûr. C'est l'homme dans toute sa
@@ -2045,7 +2045,7 @@ et de la race slave. Toutes les erreurs de fait n'empé-
 nous incarne. Elle n'est pas seulement en lui; mais
 il nous la révèle, il achève tout ce qu'on en voit
 — dans Pouchkine et dans Gogol, dans Tourguénev et
-4 Il faut qu'il y ait un peuple russe dans les langes. Il :
+Il faut qu'il y ait un peuple russe dans les langes. Il :
 
 faut que ces esclaves politiques soient admirables de à
 liberté morale. Il faut que ces brutes, dans l'enfer de
@@ -2053,12 +2053,12 @@ l'ivrognerie et des massacres, soient tout de même
 riches d'une conscience qui n'a plus d'égale en Europe.
 Il faut que ce peuple, capable de tout parfois, comme
 les enfants cruels, et qui dort, le reste du temps, dans
-une affreuse impuissance, il faut pourtant qu'il soit le F
+une affreuse impuissance, il faut pourtant qu'il soit le
 seul peuple d'Europe qui ait encore un Dieu.
 
 La Russie, même folle, même lâche, même noyée
 dans le sang et dans l'eau-de-vie sans parfum, la
-Russie ne vit pas pour l'argent, ni pour la haine, ni 3
+Russie ne vit pas pour l'argent, ni pour la haine, ni
 pour la balance du commerce, ni pour les triomphes
 
 $ ignominieux de la violence. La Russie vit pour rendre
@@ -2068,31 +2068,31 @@ même au milieu des boucheries et des vomissements
 où la jette son hystérie.
 
 Dostoïevski était né pour la douleur, et pour s'élever {
-dans la douleur, au-dessus de tout l'égoisme et de e
-toute la misère morale, où la douleur enferme généra- ÿ
-lement les natures médiocres. Ç
+dans la douleur, au-dessus de tout l'égoisme et de
+toute la misère morale, où la douleur enferme généra-
+lement les natures médiocres.
 
 Il lui fallait la maladie, les tortures du cœur,
 l'angoisse de l'esprit, la présence de la mort pour <
-conquérir ce que j'appelle l'appétit et la santé d'une x
-vie universelle. Un peu plus, c'eût été trop : il faut 4
+conquérir ce que j'appelle l'appétit et la santé d'une
+vie universelle. Un peu plus, c'eût été trop : il faut
 pouvoir respirer, pour vivre. Mais un peu moins, il fût à
 resté, comme tant d'autres, à mi-chemin de l'ascension ?
-sainte et terrible. Ce n'est pas à un moindre prix que è
-l'on prend à soi toute souffrance et tout supplice. On 4
+sainte et terrible. Ce n'est pas à un moindre prix que
+l'on prend à soi toute souffrance et tout supplice. On
 ne gravit sûrement la montagne que sur des échelons :
 
-80 4
+80
 
 _ 3 _ Surtout, il lui fallait le bagne et l'enfer des crimes, (1) Fe,
-pour se purger à fond d'un amour-propre qui fut 3
+pour se purger à fond d'un amour-propre qui fut
 toujours féroce, et d'une naturelle jalousie. Mais bien
-AS plus encore, ceite damnation devait lui révéler les E
+AS plus encore, ceite damnation devait lui révéler les
 …_ grands fonds de l'âäme humaine, où nul n'est descendu
 B plus avant, Shakspeare et Wagner exceptés. Là, il
 - connut que le crime a ses vertus, et qu'il peut être
-_ plein de la vertu même; que la qualité d'homme ne L
-se prescrit jamais; que le cœur présente tout grief et t
+_ plein de la vertu même; que la qualité d'homme ne
+se prescrit jamais; que le cœur présente tout grief et
 …__ toute excuse; que la sécheresse de l'âme est le seul
 …. péché, si même il en est un; que la faute est partout,
 4 _ qu'elle a toujours une dispense, qu'elle obtient remise, à
@@ -2100,25 +2100,25 @@ se prescrit jamais; que le cœur présente tout grief et t
 - france vaut le consentement, quand la rebelle le refuse; À
 | 418 que l'amour est le salut de tous et de chacun; que la
 … rédemption est le prix du sang; que le châtiment, &
-È s horrible en cenx qui osent châtier, est nécessaire à 4
+È s horrible en cenx qui osent châtier, est nécessaire à
 4 tout coupable, pour rassurer en lui l'orgueil de son ‘]
 Fr destin et la dignité de l'homme : Car toute vie, avant n..
-4 _ d'être à son terme de beauté, toute vie est une expia- 1
+4 _ d'être à son terme de beauté, toute vie est une expia-
 À tion que l'amour nous propose, et qui doit être expiée. à
-Voilà où Dostoïevski a saisi l'âme de son peuple, et f
-- de tous les peuples, et de ceux même qui l'ont tuée. Il 4
+Voilà où Dostoïevski a saisi l'âme de son peuple, et
+- de tous les peuples, et de ceux même qui l'ont tuée. Il
 - a pesé que les premiers selon le rang sont souvent les
-…— derniers selon la vie; et les derniers selon le monde, les 4
-* premiers suivant l'âme cachée du monde. Là, il apprit É
+…— derniers selon la vie; et les derniers selon le monde, les
+* premiers suivant l'âme cachée du monde. Là, il apprit
 _ À se mettre au-dessus de toute apparence. Là, il s'est
 ei fait à vivre en profondeur : car toute l'œuvre de
 L' _ Dostoïevski est une vie dans la profondeur et dans la
 (1) Et moi aussi, j'ai mon enfer, le bagne des auteurs, des t#
-.… critiques et des faux arlistes, où je purge, dans un coin d'ombre, È
+.… critiques et des faux arlistes, où je purge, dans un coin d'ombre,
 
 vérité secrète, qui est l'unique vérité, sans doute. Là, il
 s'est établi inébranlablement au-dessus de tous les
-_ préjugés; et ceux de la raison n'ont pas tenu devant 7
+_ préjugés; et ceux de la raison n'ont pas tenu devant
 lui plus que ceux de la morale et de la politique.
 Le grand Dostoïevski a montré, le premier, que la ‘À
 fin de la vie est la vie même. Mais il a été plus loin : il
@@ -2126,24 +2126,24 @@ a connu, profondément, que la vie elle-même est une
 forme vide sans le cœur qui l'anime, et ainsi que
 l'amour est la fin de cette fin unique. Qu'est-ce donc,
 sinon que l'homme est fait pour' se toujours passer
-soi-même? L'homme n'est point une figure achevée, 4
+soi-même? L'homme n'est point une figure achevée,
 mais un élan à la forme parfaite, un essai continuel -#
 à l'homme. Je trouve cette vertu héroïque dans |
 Dostoïevski, et cette grandeur intérieure. *
-L'intuition est une vue du cœur dans les ténèbres. La L:
--_ nuit extérieure s'illumine de l'éclair jaillijdu dedans. k.
+L'intuition est une vue du cœur dans les ténèbres. La
+-_ nuit extérieure s'illumine de l'éclair jaillijdu dedans.
 C'est là que rien ne se formule, et tout s'éclaire : là où #
-la vie prend forme, où les mobiles se condensent, où k
+la vie prend forme, où les mobiles se condensent, où
 se détermine l'action. +
-L'intuition est bien le luminaire de la profondeur. E
+L'intuition est bien le luminaire de la profondeur.
 Elle est la conscience amoureuse de ce qui est, au fond À
-de ce qui paraît être. Elle est ce qui demeure en ce qui L
+de ce qui paraît être. Elle est ce qui demeure en ce qui
 devient, et qu'elle porte. Elle est vraiment l'instinct de “4
-la connaissance, et son amour. 1
+la connaissance, et son amour.
 En Dostoïevski, je finis par tout référer à l'intuition. ;
-Dostoïevski a conscience de son intuition, et tel est son É
+Dostoïevski a conscience de son intuition, et tel est son
 miracle. Il faut le lire en musicien. ‘4
-La chasteté n'est que le signe le plus visible des 4
+La chasteté n'est que le signe le plus visible des
 
 4 âmes pures, La pureté suprême est l'innocence de la
 _ bonté : l'horreur de faire le mal. Dostoïevski n'hésite
@@ -2178,7 +2178,7 @@ proprement pitié du mal : à moins que le châtiment
 
 L'amour véritable est là, où celui qui aime s'oublie #
 soi-même et se confond entièrement dans l'objet aimé. %
-Larmes de la compassion, vous faites une honte éternelle 1
+Larmes de la compassion, vous faites une honte éternelle
 aux baisers sans pitié.
 
 Le plus haut point de la vertu est toujours de se
@@ -2191,28 +2191,28 @@ qu'il faut pour leur donner la vie et les sauver. :
 
 Voilà le magnifique courage de la vision, que seuls
 les Kusses ont eu avec nos Français. Ils ne font pas
-un pauvre choix dans les passions humaines : ils les j
+un pauvre choix dans les passions humaines : ils les
 considèrent toutes. Ils ne feignent point de croire que
-les amants n'ont point de lèvres. La profondeur du E
+les amants n'ont point de lèvres. La profondeur du
 sentiment russe, et la puissance de l'esprit français : a
 les deux ailes à l'essor de la nouvelle connaissance. <
 
 Il n'est pas de profondeur sans un rêve fervent de #
-l'éternel. La profondeur est sous-jacente au sentiment, è
-et non à l'intelligence. La profondeur est le privilège È
+l'éternel. La profondeur est sous-jacente au sentiment,
+et non à l'intelligence. La profondeur est le privilège
 de l'âme religieuse, et de cette âme seulement. Il n'y a #
-pas de vérité religieuse. Mais le sentiment religieux a Ÿ
-sa connaissance. Quelle intelligence forte ne cherche Ë
+pas de vérité religieuse. Mais le sentiment religieux a
+sa connaissance. Quelle intelligence forte ne cherche
 pas une relation de soi à l'univers? Mais ce n'est rien LS
-d'en avoir l'idée : elle n'est qu'un chiffre. Il faut en L.
-avoir le sentiment. Et telle est l'âme religieuse. Après F
+d'en avoir l'idée : elle n'est qu'un chiffre. Il faut en
+avoir le sentiment. Et telle est l'âme religieuse. Après
 bien des routes et des chutes cruelles, l'âme religieuse À
 se fixe dans l'amour : là est son lieu, et sa conquête;
 son repos, s'il en existait un. Dostoïevski n'a pas man- Fo
 
 # e qué la couronne promise à l'amour errant. Il est entré
 au port de la recherche idéale. + :
-LE La réalité! font-ils; la réalité! Hé, oui! Nous savons, F
+LE La réalité! font-ils; la réalité! Hé, oui! Nous savons,
 k & nous aussi, qu'il n'y a point d'arbre sans le sol qui le +
 # porte, sans fumier ou sans terre. Mais s'il ne quittait PR
 74 jamais le sol, s'il n'était pas ce qui s'évade du fumier |
@@ -2224,55 +2224,55 @@ A Les grands Français ont toute la force dans l'esprit.
 x. Car, ils l'eurent, ceux qui ont dressé les cathédrales
 34 ph sous le ciel. Le grand Flaubert m'y fait penser, ce prince
 #4 de néant. Il est sec, et il sème les cendres. De là, les
-_ sables et les salins cuisants de son œuvre : toutes les - » lignes sont belles, et l'on ‘y respire à peine, dans un 14
+_ sables et les salins cuisants de son œuvre : toutes les - » lignes sont belles, et l'on ‘y respire à peine, dans un
 - vent d'éternel ennui. Flaubert est un génie mortuaire.
 …_ vie. Et tout ce qu'il en a, d'ailleurs, il l'étouffe : il tâche
 ; à être sans amour, comme le monde de son intelligence;
 . et il y réussit.
-“à L'amour de Dieu, ou la charité que je veux dire, quel ï
+“à L'amour de Dieu, ou la charité que je veux dire, quel
 l nom qu'on y donne, implique toutes les autres amours,
 —_ C'est l'amour de Dieu que Dostoïevski respire. Et le
 __ peuple russe avec lui. On doit avoir foi au peuple russe,
-_ sur la foi de Dostoïevski. J
+_ sur la foi de Dostoïevski.
 Dostoïevski, victime des puissances, parle pour les
 3 puissances : la tyrannie, la police, l'église, les riches.
 __ A ses yeux, tout le mal qu'elles peuvent faire, est :
 __ compensé, de bien loin, par l'action qu'elles ont sur
 _ lAme humaine : elles en provoquent l'excellence, en y
-L  prodiguant la douleur. S'il finit par les défendre, ces ù
+L  prodiguant la douleur. S'il finit par les défendre, ces
 
 : puissances mortelles, jy vois un triomphe de l'affirmation. Dostoïevski connaît son peuple par soi-même. “7
-Toute révolte de la race déchaîne son instinct d'aveugle Ë
-‘ destruction et d'anéantissement. Le joug, qui lui fléchit E.
-la tête jusqu'à terre, la garde étroitement de l'anarchie. j
+Toute révolte de la race déchaîne son instinct d'aveugle
+‘ destruction et d'anéantissement. Le joug, qui lui fléchit
+la tête jusqu'à terre, la garde étroitement de l'anarchie.
 . La tête russe nie. Sa liberté tourne aussitôt en négation a:
-affreuse. La race des Russes obéit et souffre avec Ë
-| excellence. Elle se rebelle et se fait justice avec infa- 1
+affreuse. La race des Russes obéit et souffre avec
+| excellence. Elle se rebelle et se fait justice avec infa-
 mie. Cette race ne peut aller à la perfection que parles -
-voies de la douleur. En un mot, elle ne veut choisir ÿ
-qu'entre la foi mystique et le néant, entre l'amour de Î
-Dieu et la haine de la vie. 1
+voies de la douleur. En un mot, elle ne veut choisir
+qu'entre la foi mystique et le néant, entre l'amour de
+Dieu et la haine de la vie.
 
 Dostoïevski, maître en toutes passions, et tenant
-toutes les clés de l'abîme, ferme les portes du néant. n.
+toutes les clés de l'abîme, ferme les portes du néant.
 Tenté de toutes négations, il ne détruit rien et il #
 affirme. En Dostoïevski, j'admire un Nietzsche racheté. }
 Je ne crois pas aux Prométhées qui perdent la tête à
-sur le rocher. Mon Prométhée fait peur à Jupiter même, É
+sur le rocher. Mon Prométhée fait peur à Jupiter même,
 qui s'imagine de l'avoir bien cloué. Je ne ferai pas
 crédit à des dieux, qui finissent à quatre pattes, dans $
 un asile. Et si la foudre me frappe, dussé-je tenir bon +
-contre elle, le ciel me soit témoin que je ne me serai B
-pas varié. F
-Tout ce qui est mort et négation dans les philo- E:
-sophes, Dostoïevski l'a surpassé; mais telle est sa 4
+contre elle, le ciel me soit témoin que je ne me serai
+pas varié.
+Tout ce qui est mort et négation dans les philo-
+sophes, Dostoïevski l'a surpassé; mais telle est sa
 _. grandeur, qu'il monte d'un degré encore. Il porte à la +
-rédemption l'accablement de nos fatalités. Si je l'ai 4
-peint comme il est, je ne sais; mais jamais, il me 2
+rédemption l'accablement de nos fatalités. Si je l'ai
+peint comme il est, je ne sais; mais jamais, il me
 semble, on ne mesura mieux la distance qui séparela
-2 10
+2
 
-_ mortelle théorie de l'œuvre vivante, et le penseur sans 4
+_ mortelle théorie de l'œuvre vivante, et le penseur sans
 _ amour du véritable artiste.
 __ Encore un pas.
 ne _ Je dirai de Nietzsche et des Anciens qu'ils peuvent
@@ -2301,11 +2301,11 @@ tous, dans le temps : il a prévenu toutes les insolences
 -_ Toute philosophie, d'ailleurs, qui n'est pas un simple
 jeu de la logique, prend forme dans une œuvre d'art.
 - Il faut sortir de la cage à l'écureuil. Une pensée vivante
-Î sur la vie n'a pas d'autre expression qu'un chef1 É
+Î sur la vie n'a pas d'autre expression qu'un chef1
 
 . d'œuvre. Les livres de Nietzsche sont des essais au
 R chef-d'œuvre; mais cet Apollon est toujours dans la ;
-cage; il fait le dieu, en vrai Phébus d'Université, à É
+cage; il fait le dieu, en vrai Phébus d'Université, à
 bésicles d'or ; tout de même, son char est une chaire, à
 et son Pégase une rosse allemande harnachée de
 
@@ -2325,17 +2325,17 @@ le monde de l'amour ses vieilles idoles de pierre, son
 Bacchus, son Apollon et son trépied. Il nous faut de
 nouveaux dieux pour posséder la vie. Mais les dieux
 morts ne ressuscitent pas. Wagner savait que Parsifal
-est vivant; et si, pour l'offrir au monde, il fallait M
+est vivant; et si, pour l'offrir au monde, il fallait
 tourner le dos à un professeur d'orgie logique, il
 tournait le dos à Nietzsche. £
 
 Dostoïevski en eût fait autant, avec le même droit. #
 Dostoïevski est l'homme de la vie, mais non pas seu
 lement dans les livres. Parce qu'il est l'homme de la +
-vie, son monde est le monde de la force, uniquement. f
+vie, son monde est le monde de la force, uniquement.
 Encore les Anciens sont-ils les maîtres de l'action, ‘%
 tandis que Nietzsche est insupportablement l'homme
-du cabinet et des livres. Par lui-même, il ne sait rien 4
+du cabinet et des livres. Par lui-même, il ne sait rien
 de la vie, rien de l'actiou, rien des passions; et ii donne £
 
 Ë des lois aux passions et à la vie. Je ne m'étonne pas
@@ -2345,7 +2345,7 @@ _ femmes sourdes qui tranchent de la bonne ou de la
 ; _ de l'être, sont, la plupart, des esprits nés disciples.
 RQ Que Nietzsche tienne donc lieu des Anciens et de la
 5 vie héroïque aux gens qui ne savent pas lire. Et s'ils
-_ n'ont pas compris les Grecs, ni les ftaliens du Moyen L
+_ n'ont pas compris les Grecs, ni les ftaliens du Moyen
 _ Age, ni Pascal, ni Stendhal, ni la Révolution, qu'ils
 lisent Nietzsche, lequel leur fait, de toute cette granF deur,un manuel avec toute la commodité grossière que
 ce format comporte. *
@@ -2358,35 +2358,35 @@ h Raskolnikov et tous les jeunes héros de Dostoïevski
 _ cette demi-connaissance. Il ne veut pas qu'ils se tiennent à cet étage grossier de l'énergie. Il les porte à
 _ l'étage supérieur, qui est le palier proprement humain |
 _ de la charité. Quant au surhumain, c'est un bon mot
-L pour les amateurs d'éloquence. A mes oreilles, il a le Û
+L pour les amateurs d'éloquence. A mes oreilles, il a le
 son répugnant de l'emphase. Il n'y a rien de plus
-_ humain que d'être homme. L'homme est rare sur le Ÿ
+_ humain que d'être homme. L'homme est rare sur le
 _ marché de Jupiter. Et rien de surhumain n'a de sens
-_ qu'à la mesure de l'homme. Sois pleinement homme, si F
+_ qu'à la mesure de l'homme. Sois pleinement homme, si
 _ tu veux passer l'homme. Telle est la grande, l'unique
 _  L'intuition est le lieu de toutes les intelligences.
 
-Il n'est rien dans Nietzsche, qui ne soit dans Dos- 3
-toïevski. Mais tandis que tout est négation, dans è
+Il n'est rien dans Nietzsche, qui ne soit dans Dos-
+toïevski. Mais tandis que tout est négation, dans
 Nietzsche, même ce qu'il affirme, — et lui, d'abord, le &
-malheureux, — toutes les négations, que la douleur de 3
-vivre arrache à Dostoïevski, se résolvent dans une L
-affirmation invincible : de la douleur, l'amour conclut, 4
-volonté ou de l'orgueil, ce oui glacé qui est le soleil ÿ
+malheureux, — toutes les négations, que la douleur de
+vivre arrache à Dostoïevski, se résolvent dans une
+affirmation invincible : de la douleur, l'amour conclut,
+volonté ou de l'orgueil, ce oui glacé qui est le soleil
 polaire des stoïques ; mais l'amour qui, en portant la £-
-vie, l'affirme. i
-Un tel arbre donne les fruits de toute douceur. J'en F
--_ ai ployé les branches, et je les veux réunir dans la É
+vie, l'affirme.
+Un tel arbre donne les fruits de toute douceur. J'en
+-_ ai ployé les branches, et je les veux réunir dans la
 rosée qui les trempe depuis l'offrande de l'aube jus- |
 | qu'au sacrifice du crépuscule, et même dans l'ardeur de %
 Dostoïevski pleure avec délices, et ses amis pleurent ] ;
 bien souvent comme lui. Je dirai, pour moi aussi, le &
-mystère des larmes. Dostoïevski connaît la merveilleuse É
+mystère des larmes. Dostoïevski connaît la merveilleuse
 humilité des bonnes larmes. Et certes, il est en elle un ,
 | Larmes de la tendresse, pluie qui espère et qui renou- ,
 velle la forêt humaine, vous êtes la source ouverte aux
-cœurs pleins d'amour. Et partout où l'on frappe ce tendre rocher, l'ondée s'épanche ; et elle n'est jamais tarie, j
-cette eau amoureuse. Quel orgueil vient de plus haut? 3
+cœurs pleins d'amour. Et partout où l'on frappe ce tendre rocher, l'ondée s'épanche ; et elle n'est jamais tarie,
+cette eau amoureuse. Quel orgueil vient de plus haut?
 Or, elle ne fond pas sur les feuilles : elle se donne etles
 pénètre. Et parce qu'elle se penche versla prairie,onla
 
@@ -2408,7 +2408,7 @@ h Ton cœur déborde. IL te quitte. Il va à toute cette
 ; Ainsi tes pleurs ont la joie, toute celle que tu attends,
 F en celle que tu donnes. Ils ont la joie excessive de toimême qui te quittes. Ce n'est pas que tu te regrettes :
 … c'est que tu te délivres. Jusqu'à ce baiser pleurant, quel
-abime tu te fus à toi-même, et quel désert aux dunes È
+abime tu te fus à toi-même, et quel désert aux dunes
 — de souffrance universelle, infinie, perpétuellement
 L renouvelée, égale comme le vide. Et souffrir pour rien,
 il n'est pas d'autre damnation. L'enfer est la souffrance
@@ -2416,103 +2416,103 @@ dans le vide. Couché contre la terre, tu es le mort béni
 — de la mort volontaire, qui est toute vie: en te quittant,
 tu ressuscites. Ce départ sans retour est le véritable
 - Ce n'est pas cet amour de tête, qui crie: Vivre!
-Vivre! avec la bouche affreuse d'un mort. C'est la mélo4 os J
+Vivre! avec la bouche affreuse d'un mort. C'est la mélo4 os
 
 die du cœur qui se retrouve, et qui répond à toute la à
 nature : me voici! me voici! Il chante la vie, il en est £
 l'éternelle modulation jusque dans la mort : parce qu'il Fe
 l'a, parce qu'il la porte, parce qu'il la donne. Et que :
-donneraït-on, réellement, qu'on ne prit de soi et sur k
-soi? Quel don ferai-je, si je ne me dépouille? Voilà ñ
+donneraït-on, réellement, qu'on ne prit de soi et sur
+soi? Quel don ferai-je, si je ne me dépouille? Voilà
 l'orgueil de l'amour, et son humilité sublime.
 En vérité, l'orgueil qui se vante et qui s'estime, l'orgueil de l'esprit qui se compare est une espèce d'humilité un peu basse, à mon sens. Qui se compare,
-s'abaisse. Ainsi l'orgueil de l'esprit. È
+s'abaisse. Ainsi l'orgueil de l'esprit.
 Mais l'amour qui s'humilie dans les dons innombra- « bles qu'il sait faire, dans toutes les merveilles qu'il |
-suffit à créer, en s'oubliant soi-même, en s'y mettant ë
+suffit à créer, en s'oubliant soi-même, en s'y mettant
 jusques à s'effacer, ce prodige d'humilité est une grandeur céleste. Et tout l'orgueil des esprits n'égalera
 jamais, à un infini près, cette humilité divine.
 Celui qui se donne sans mesure, celui-là possède.
 Celui-là qui est tout humble au cœur de toute vie,
 celui-là crée son objet; et il ne se soucie pas de
-connaître sa gloire. La superbe est sèche. L'orgueil de M
-l'esprit ne discerne que soi : comme un mort qui se ë
-tâte dans le sépulcre. Ë
-L'amour adore dans les larmes. Tel est le son de Ë
+connaître sa gloire. La superbe est sèche. L'orgueil de
+l'esprit ne discerne que soi : comme un mort qui se
+tâte dans le sépulcre.
+L'amour adore dans les larmes. Tel est le son de
 Dostoïevski. Voilà cette voix rauque et si douce, l'éner- a
-gie de cette âme infatigable, et ses brûlantes langueurs, F:
+gie de cette âme infatigable, et ses brûlantes langueurs,
 ses abandons si tendres. Infatigable à souffrir et à vou- |
 loir laver l'or des souffrances, pour en séparer le trésor
-de la joie : à la constance de cet orpailleur, à celle-ci, M
-O saintes, bonnes larmes, routes de l'eflusion, sentes M
+de la joie : à la constance de cet orpailleur, à celle-ci,
+O saintes, bonnes larmes, routes de l'eflusion, sentes
 profondes de la tendresse, c'est vous, très douces lar- +
 
-_ mes, qui parlez seules d'amour, et de cet amour qui ÿ
+_ mes, qui parlez seules d'amour, et de cet amour qui
 _ fait vivre en créant. Et dans dass cg même des
 _ amants, ce sont les plus pures et les plus chaudes -
 . larmes du sang qui parlent pour la vie, qui la com- :
-_  muniquent et la transmettent, venant de si loin! Et s
-| souvent ils ne comprennent pas la parole qu'ils s
+_  muniquent et la transmettent, venant de si loin! Et
+| souvent ils ne comprennent pas la parole qu'ils
 | prononcent, et ils en sont ennoblis, même quand ils :
 _ l'avilissent.
 < L'amant baise sa bien-aimée et pleure son sang en
 _ elle, comme l'homme enivré de Dieu baise la terre |
 - avec de grandes larmes. La terre reçoit ces pleurs ; et
 > l'amante en garde avec jalousie l'offrande pécheresse 1)
-. ou la libation sans péché. f
+. ou la libation sans péché.
 _ Si l'esprit s'abaisse, ici, ou si la chair est exaltée, qui |
 - le mesurera ? Servir avec amour est toujours un triomE- phe. L'humilité de la femme et de la terre doit s'offrir be
 _ en exemple à tout service. Et je veux bien que la vie
-…_ trouve son compte à l'humiliation de l'homme. Je ne i
-_ parle jamais que pour la vie; et je ne vois de 1
-bel orgueil qu'en tout ce qui l'augmente et la rehausse. 4
-_ Amour de la vie, c'est mal dit encore. La vie n'est 4
+…_ trouve son compte à l'humiliation de l'homme. Je ne
+_ parle jamais que pour la vie; et je ne vois de
+bel orgueil qu'en tout ce qui l'augmente et la rehausse.
+_ Amour de la vie, c'est mal dit encore. La vie n'est
 _ pas si grande ni si forte que l'amour. Elle en attend la :
 _ parfaite beauté, dont notre désir s'est fait une pro- ;
 messe. Plus que l'amour de la vie, la vie d'amour : tel |
 est le fond de Dostoïevski. A l'amour, de faire naître et -
 _de sauver la vie. Les meilleurs ne vivent que pour :
-servir ce dessein. Et le plus pur amour est le plus 5
-_ © Fédor Mikhaïlovitch, si ardent, si aigu et si hum- d
-ble, vous êtes profond et vrai entre les grands. Vous 1
+servir ce dessein. Et le plus pur amour est le plus
+_ © Fédor Mikhaïlovitch, si ardent, si aigu et si hum-
+ble, vous êtes profond et vrai entre les grands. Vous
 
 .
-allez au delà de tous autres, sans doute. Car enfin, où 4
+allez au delà de tous autres, sans doute. Car enfin, où
 j'en suis venu, il n'est de vérité que dans la profonHET deur. Pour prendre toute notre hauteur, il nous est
-nécessaire de mouiller dans les abîmes. Tout est de k
-Voilà donc le point où la haine n'est plus rien qu'une É
-racine torse entre toutes les autres ; et si elle a la forme 1
+nécessaire de mouiller dans les abîmes. Tout est de
+Voilà donc le point où la haine n'est plus rien qu'une
+racine torse entre toutes les autres ; et si elle a la forme
 du serpent ou du ver, ce n'est point pour faire horreur,
 ce n'est pas pour qu'on l'écrase, mais pour se confondre avec les veines nourricières. Voici le point où « tout est idéal, à force d'être vrai; où le rêve de l'âme
 absorbe toute la matière, comme une matrice seconde,
 ‘mais de résurrection. Ici, la pensée est acte; le fait est
 idée; ici, l'acte et l'idée sont tout amour. Tout trempe %
-dans la compassion de la vie pour elle-même, et dans É
+dans la compassion de la vie pour elle-même, et dans
 la certitude du salut, que le cœur exige d'un amour
-Où tout est amour, tout est vie! Par delà le néant s
+Où tout est amour, tout est vie! Par delà le néant
 de tous les objets éphémères, c'est là-dessus enfinque
-notre foi ou notre espoir se fonde. Dostoïevski, sijene « me trompe, et moi-même à mon rang, nous sommes F
-lantidote de la tyrannie rationnelle, des philosophes, et 4
+notre foi ou notre espoir se fonde. Dostoïevski, sijene « me trompe, et moi-même à mon rang, nous sommes
+lantidote de la tyrannie rationnelle, des philosophes, et
 de tout poison inhumain : Dostoïevski, le cœur le
 : plus profond, la plus grande conscience du monde
 
-1088 0
+1088
 
-2 Jusqu'ici, je n'ai point nommé Dostoïevski 13 %
+Jusqu'ici, je n'ai point nommé Dostoïevski 13 %
 D. $. — Il a toujours répugné aux sciences........ 33 Le
 D - $. — Il a le respect et l'amour de son art...  3%6
-NUS $. — Dostoïevski est d'un prodigieux désordre, 39
+NUS $. — Dostoïevski est d'un prodigieux désordre,
 70 $. — Dostoïevski est riche en mots inoubliables 38 &
-& $. — Dostoïevski a la conscience de Pétersbourg 39
+& $. — Dostoïevski a la conscience de Pétersbourg
 Er. $. — Le monde de la profonde conscience ..... 41 #
 2 $. — Nulle puissance plus proche de la vie.... 41 Fa
-4% $. — Je compare la marche de l'épileptique.... 48
+4% $. — Je compare la marche de l'épileptique....
 
 huitième cahier de la treizième série +
 $. — Quelle est donc cette recherche de la :
-$. — La force du style emporte tout............ 67
+$. — La force du style emporte tout............
 $. — Qu'il manque de dignité avec noblesse! .. 70 à
-$. — Les arbres ne sont pas de la même essence 72 N
+$. — Les arbres ne sont pas de la même essence
 == Il'est contre l'Occident!" 1114 74 :
-$. — L'intuition est une vue du cœur dans les ë
-$. — Dostoïevski maître en toutes passions... 86 3
-Si Encore-up pas: ni... 2.20 Rene 87 ë
+$. — L'intuition est une vue du cœur dans les
+$. — Dostoïevski maître en toutes passions...
+Si Encore-up pas: ni... 2.20 Rene

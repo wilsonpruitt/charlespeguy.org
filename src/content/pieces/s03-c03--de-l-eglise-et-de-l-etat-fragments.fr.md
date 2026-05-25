@@ -31,7 +31,7 @@ risque d'y périr, les diverses U. P. jouent leur rôle;
 4 qu'au moment où il a fallu maintenir les principes de justice et de liberté individuelle, les intellectuels sont sortis de leur « tour d'ivoire », et l'on
 4 a conçu de grandes espérances de leur participation
 
-5 à la vie publique: il ne faudrait pas que les U. P.
+5 à la vie publique: il ne faudrait pas que les
 È” devinssent des tours nouvelles où des hommes de
 
 ‘4 la classe ouvrière s'enfermeraient avec des intellec-
@@ -56,7 +56,7 @@ A affirmer en plusieurs occasions leur force extérieure
 
 ‘1 vement de sympathie vers les étudiants russes..….).
 
-4 Pour agir ainsi extérieurement, elles ont à envi- à sager quels liens les uniront entre elles, quels liens
+Pour agir ainsi extérieurement, elles ont à envi- à sager quels liens les uniront entre elles, quels liens
 
 Rt les uniront aux autres institutions ouvrières.
 
@@ -102,7 +102,7 @@ Quant aux liens qui pourront et devront exister
 1 ear nous ne possédons que peu de données expéÿ rimentales; il ne nous suflit pas de savoir que
 plusieurs Bourses du Travail ont fondé des U. P.,
 
-; | et qu'une Coopérative loge une U. P.
+; | et qu'une Coopérative loge une
 À Et sur quoi il importe avant tout d'insister
 aujourd'hui, c'est sur ceci que parce que l''U. P. est
 _ l'institution la plus récente et la plus faible
@@ -127,22 +127,22 @@ Ve || Guieys$ë me pardonnera d'employer à ce témoignage
 personnel quelques morceaux d'un cahier'qui lui reve- Re.
 _ naittout entier, d'une couverture que je voulais attribuer
 critiqué très durement dans ces cahiers mêmes, Je “3
-recommencerai aussitôt qu'on pourra le faire honné-- : K:
+recommencerai aussitôt qu'on pourra le faire honné--
 …._ tement. Je suis l'adversaire le plus résolu*de son minis- EE.
 Fe: _ térialisme et d'un certain parlementarisme qu'ils ont.
-_ Mais il ne s'agit pas de cela. É:
+_ Mais il ne s'agit pas de cela.
 D s'agit d'un guet-apens vulgaire et d'un ‘assassinat
 _ concerté. On dit dans les salles de rédaction, mauvais re
 - lieux, et on répète qu'on le tient cette fois, qu'on
 “ lattendait là, qu'on va lui casser les reins, qu'il faut ‘202
-… n'entende plus parler de lui. Et devant les gueulements LS F.
+… n'entende plus parler de lui. Et devant les gueulements LS
 de tous les chiens de toutes les meutes certains amis
-É se taisent, attendent, écoutent la voix de la sagesse. è
+É se taisent, attendent, écoutent la voix de la sagesse.
 — Qu'il me soit donc permis de renouveler formellement
 “ à Jaurès l'assurance de mon ancienne amitié. Elle vaut
-—… ce qu'elle vaut. Elle n'est pas l'amitié d'un puissant e:
+—… ce qu'elle vaut. Elle n'est pas l'amitié d'un puissant
 …. de ce monde. Elle est rugueuse. Maïs elle est gardée ;.
-… contre certaines amnésies. L'homme qui s'est littéralement épuisé le corps et la force dans la grande grève Ë
+… contre certaines amnésies. L'homme qui s'est littéralement épuisé le corps et la force dans la grande grève
 + _de Carmaux, l'homme qui s'est épuisé dans l'affaire à
 © D reyfus mérite qu'on le combatte loyalement. Et tout
 … homme a droit qu'on le combatte loyalement. « +.
@@ -250,7 +250,7 @@ $ … présenter. Si nous causons des dommages, il faut
 _ que nous puissions être poursuivis et qu'on puisse
 faire exécuter les jugements. La question est de
 —_ savoir si, en fait, nos représentants donnent toute
-— garantie aux gens qui peuvent avoir à plaider contre q
+— garantie aux gens qui peuvent avoir à plaider contre
 
 24 nous. (1) Nous sommes exposés à étre quelquefois
 44 trompés par nos hommes de confiance ; mais nous
@@ -267,8 +267,8 @@ ne des siècles pour tâcher de faire cultiver la cam11 pagne romaine. On pensai
 “408 chées au sol cultiveraient mieux que des corpo-
 “8 rations, qui avaient tous les vices des latifundistes
 vivant loin de la terre et ne s'y intéressant pas.
-11 L'expérience a prouvé que l'on ne s'était pas
-744 On trouvait qu'il était absurde, en un temps où
+L'expérience a prouvé que l'on ne s'était pas
+On trouvait qu'il était absurde, en un temps où
 à RE (1) Il est à noter que la loi de 1884 sur les syndicats profesNES sionnels n'a pas beaucoup tenu compte de cette considération, car À
 le syndicat peut disparaître sans qu'on ait de recours contre ses a
 Ten) (2) Sabatier. :'Église et le travail manuel, pages 144-205. Les papes
@@ -411,7 +411,7 @@ k . moderne a eu pour but de séparer, autant que pos- ti
 D sible, l'administration et la justice, afin que les
 Re habitudes d'esprit que prend l'administrateur ne
 ‘0 viennent pas vicier l'esprit du juge. Sous l'Ancien
-4 Fà Régime, il y avait eu souvent confusion entre ces
+Fà Régime, il y avait eu souvent confusion entre ces
 4 deux offices, et nos pères avaient été vivement frapXI pés par des abus qu'ils voulurent faire disparaître.
 d 2 Dans ia justice, la discussion s'engageant entre des
 4 personnes abstraites qui fondent leurs prétentions
@@ -422,20 +422,20 @@ h | Les formalités du droit civil ont acquis une telle
 110 _ importance que pour assurer des garanties aux
 accusés, on n'a pas trouvé de meilleur moyen que
 711 _ de copier, en matière criminelle, la procédure
-4 Contre ce procédé, les criminologistes contem_ porains ont élevé beaucoup d'objections: illeurest
+Contre ce procédé, les criminologistes contem_ porains ont élevé beaucoup d'objections: illeurest
 ‘à 44 n facile, évidemment, de montrer que le procès civil
 h : 112 et le procès criminel ne se ressemblent en aucune
 ‘RS _ façon; maïs tout le monde le sait aussi bien qu'eux;
-un: _ilne s'agit pas du fond du procès, mais des moyens h
+un: _ilne s'agit pas du fond du procès, mais des moyens
 to is _ que l'on peut employer pourgarantir l'accusé contre
 l'autorité qui le poursuit. Suivant les criminolo
 gistes, il aurait fallu remettre l'accusé à des experts
 : 53e _ chargés d'examiner quelles sont les mesures les
-rs plus efficaces à prendre pour le mettre hors d'état ) 5 û
-_ de nuire, ou même pour le ramener dans le bon + T4
+rs plus efficaces à prendre pour le mettre hors d'état )
+_ de nuire, ou même pour le ramener dans le bon +
 Fa chemin ; — par analogie avec ce qui se passe pour
 _ lesaliénés, les experts auraient pu garder leurswjet
-_ aussi longtemps qu'ils l'auraient jugé utile. Ces 154
+_ aussi longtemps qu'ils l'auraient jugé utile. Ces
 _ grands progrès de la science nous auraient rame- ARR
 _ nés tout simplement aux conceptions ecclésiastiques
 î et à l'arbitraire de la pénitence. L'accusé n'auraiteu
@@ -463,7 +463,7 @@ entre les amis de l'accusé; ainsi quand un fait était déjà considéré
 238 mesures prises par le gouvernement révolution-
 ‘3 dl naire on retrouve ici l'influence de l'esprit d'Ancien
 E. 4 Régime si puissant chez Robespierre.
-730 L'Église —comme les modernes criminologistes —
+L'Église —comme les modernes criminologistes —
 4 ne comprend pas que l'accusé puisse prétendre se
 mesurer, à armes égales, avec l'autorité, qui repré110 sente l'intérêt général. Ses tribunaux sont des conTa seils administratifs qui cherchent à prendre des
 
@@ -485,15 +485,15 @@ RUE %. de conscience.
 (Eos Le testament est, pour l'Église, un acte qui na
 74 aucune raison économique ; il a pour objet des
 :04) _ œuvres satisfactoires destinées à permettre la puri54
-fication de l'âme du moribond. (1) Tandis que, pour 1e
+fication de l'âme du moribond. (1) Tandis que, pour
 u Le Play, le testament se justifie par les besoins du
 ‘à domaine paternel, qu'aux convenances de l'exploi- (0 Le à
 ë _ tation on doit sacrifier les intérêts des enfants, qu'on RUE
-- cherche à éviter de charger l'œuvre de dettes trop SE e
+- cherche à éviter de charger l'œuvre de dettes trop SE
 fi lourdes, — pour l'Église le testament aboutit à te es
 imposer au domaine des charges et à dépouiller les
 _ héritiers au profit des clercs. Il est la manifestation
-des remords qui troublent la conscience du père ; F
+des remords qui troublent la conscience du père
 4 l'Église, chargée de réconcilier les pécheurs et pos- N FN
 1 sédant des rites capables de leur éviter des souf
 _ frances dans l'autre vie, rattache le testament à ses
@@ -504,7 +504,7 @@ _ disciplines du sacrement de pénitence; elle seule
 éviter le Purgatoire. En jugeant les testaments, elle
 _ prenait la défense du malheureux absent contre des ,
 *: Fe héritiers avides ; elle faisait œuvre de protection et FA
-de charité — en même temps qu'elle augmentait ses ‘4 Ê
+de charité — en même temps qu'elle augmentait ses ‘4
 4 * Le mariage a des fins très multiples; mais ce qui 44 ‘4
 est surtout important, ce qui a justifié, d'après le
 A catéchisme romain, la dignité de sacrement qu'on EUA:
@@ -584,17 +584,17 @@ LR l'administration, supprime à peu près totalement le
 D droit : pour employer le langage des philosophes
 _ grecs, l'Église substitue le régime des décrets au
 …. régime des lois. (1)
-72 Le droit ecclésiastique est un droit tout à fait ana-
+Le droit ecclésiastique est un droit tout à fait ana-
 ‘4 logue à la partie du droit pénal qui s'occupe des
 __ crimes politiques; les condamnations prononcées
 _ pour délit politique n'ont jamais été assimilées aux
 _ condamnations ordinaires. Le type le plus parfait
-de cette législation se trouve dans la loi du 22 prai_ rial an IL, que j'ai déjà citée : « La règle des juge_ ments est la conscience des jurés éclairés par d
-l'amour de la patrie; leur but, le triomphe de la j
+de cette législation se trouve dans la loi du 22 prai_ rial an IL, que j'ai déjà citée : « La règle des juge_ ments est la conscience des jurés éclairés par
+l'amour de la patrie; leur but, le triomphe de la
 NT _ République et la ruine de ses ennemis » (article 8).
 souveraineté des lois. Si donc la démocratie est une des deux
 JA Fa espèces principales de gouvernement, l'État où tout se fait à coup
-_ de décrets populaires n'est pas une démocratie, » {Politique, o
+_ de décrets populaires n'est pas une démocratie, » {Politique,
 _ livre VI, chapitre 1v, 7) de
 
 En changeant patrie et République en Église, on
@@ -671,7 +671,7 @@ conclusions sans preuves; il faudrait établir, par
 k soit dans les recherches scientifiques. Taine, qui
 est d'ordinaire si désireux d'apporter des preuves
 ‘ à l'appui de ses moindres affirmations, se contente
-1 ici d'un raisonnement. Sa psychologie intellectuaŸ (1) Taine. Le régime moderne, tome II, page 142.
+1 ici d'un raisonnement. Sa psychologie intellectuaŸ (1) Taine. Le régime moderne, tome II, page
 
 HG liste et quasi-mathématique ne Jui perme tait pas de
 SA comprendre qu'il n'y eût pas un parallélisme absolu
@@ -683,7 +683,7 @@ es dans l'homme qui les accepte toutes les deux ; toute
 D ‘1 contradiction qui apparaît comme grave, évidente
 ‘3 et puissante à un esprit éclairé, doit revêtir les
 4 mêmes caractères pour tout esprit éclairé; ce que
-4 Taine juge troublant, doit troubler les catholiques.
+Taine juge troublant, doit troubler les catholiques.
 L'expérience ne nous montre pas que les savants
 catholiques actuels soient gênés plus sérieusement
 par la théologie traditionnelle que les savants
@@ -734,11 +734,11 @@ Bien loin que les conflits de la science et de la foi
 4 ” beaucoup plus graves autrefois qu'aujourd'hui: il
 F0 faudrait se demander si les conflits anciens ne
 ‘4 furent pas des luttes entre deux conceptions scienW _ tifiques plutôt que de vraies questions religieuses
-13 A les dénonciations des théologiens servaient souvent
+A les dénonciations des théologiens servaient souvent
 É ns $: _ à satisfaire bien des haïnes, comme nous l'a montré
-4 M. Lea dans son Histoire de l'Inquisition.
+M. Lea dans son Histoire de l'Inquisition.
 148 _ Les théologiens qui condamnèrent Galilée
-08 H croyaient que les nouvelles théories astronomiques
+H croyaient que les nouvelles théories astronomiques
 ‘À pourraient troubler les âmes, parce qu'on avait
 __ toujours expliqué l'Écriture en se servant de la
 Un. _ théorie de Ptolémée; ils raisonnaient à peu près
@@ -747,11 +747,11 @@ NU comme Taine ; mais l'expérience a montré que les
 ea | pas qu'on puisse tirer parti, dans cette question, de
 we _ la conduite de Descartes, qui garda en manuscrit
 \ 2 son traité de la Lumière après la condamnation de
-25 Galilée : les collèges de Jésuites étaient alors à peu
+Galilée : les collèges de Jésuites étaient alors à peu
 Vs près les seuls qui fussent destinés à faire des lettrés
 5 à en France; Descartes s'efforçait de créer une
 at philosophie à l'usage des gens du monde ; il devait
-Pa _ donc désirer se concilier la faveur des directeurs l
+Pa _ donc désirer se concilier la faveur des directeurs
 
 des seuls établissements qui pouvaient accepter sa
 
@@ -859,11 +859,11 @@ me x anticléricales semblèrent inintelligibles et souye-
 les faire renaître. !
 
 Ce ne sont pas des conflits idéologiques qui ont
-engendré les luttes politiques, maïs ce sont celles-ci t
+engendré les luttes politiques, maïs ce sont celles-ci
 qui ont amené des polémistes à attaquer les idées
 des catholiques et à les présenter comme dangereuses pour la civilisation moderne. Examinons à
 donc les aspects sous lesquels l'Église se présente
-dans le domaine politique; il est clair que la nature Ÿ
+dans le domaine politique; il est clair que la nature
 de l'Église ne peut être formulée d'une manière À
 abstraite: il faut, pour la déterminer, préciser le
 genre de questions que l'on prétend aborder; la
@@ -914,7 +914,7 @@ tendances de ses facultés créatrices ; rendre l'esprit [A
 indépendant de la police, voilà une des œuvres les
 plus importantes de la législation dans les démocraties modernes. Rien ne nous semble plus bouffon À
 que l'idée d'avoir un art officiel et cependant l'art a
-bien plus d'attaches avec l'économie que n'en a la s
+bien plus d'attaches avec l'économie que n'en a la
 
 Les théoriciens ecclésiastiques soutiennent que
 l'Église devrait jouir, dans un pays démocratique,
@@ -1031,7 +1031,7 @@ ainsi les causes tirées de la peur deviennent moins
 importantes dans la genèse religieuse.
 J'estime, pour ma part, que le christianisme ne
 4 périra pas; la faculté mystique est chose très réelle
-(1) Ribot. Psychologie des sentiments, page 302.
+(1) Ribot. Psychologie des sentiments, page
 
 5 dans l'homme, et l'expérience nous montre qu'elle
 ne diminue pas d'intensité au travers des âges ; elle
@@ -1041,8 +1041,8 @@ scientifique. Je crois, avec Taïne, (1) qu'au premier
 siècle de notre ère, cette faculté mystique, dirigée
 par des causes intellectuelles complexes, a fait une
 création tout à fait originale; elle a découvert ce
-Ÿ que le christianisme a nommé le royaume de Dieu ; È
-par là un élément nouveau — bon ou mauvais sui- Ë
+Ÿ que le christianisme a nommé le royaume de Dieu
+par là un élément nouveau — bon ou mauvais sui-
 #4 vant les appréciations subjectives de chacun — a
 été introduit dans la civilisation occidentale et s'est
 incorporé avec elle. L'esprit humain crée et ajoute
@@ -1052,14 +1052,14 @@ F fois acquis. (2) Pourquoi donc le christianisme
 ‘. ré ferait-il exception à la règle ? S'il avait succédé, par
 ns L évolution, à une autre religion, il serait possible de
 ne penser qu'il pourrait, à son tour, céder la place à
-“À ke une nouvelle ; mais cela n'est pas vrai ; il a été une ê
+“À ke une nouvelle ; mais cela n'est pas vrai ; il a été une
 # * découverte, une vraie création ; Labriola a raison £
 Lx de dire qu'il ne sera pas remplacé ; mais pourquoi
 ET périrait-il ? Je ne puis parvenir à le comprendre.
 Ne Il y aurait ici à se demander si les destinées du
 y in christianisme sont identifiables avec celles du
 +40 (2) Cf. Labriola. Essais sur la conception matérialiste de l'histoire,
-1 F 32 î catholicisme; mais il est certain qu'à l'heure j
+F 32 î catholicisme; mais il est certain qu'à l'heure
 _ actuelle il y a une certaine concentration des
 croyants autour du pontificat et que les communautés protestantes semblent plutôt perdre que
 gagner. Quoi qu'il en soit, peu de gens croient,
@@ -1068,7 +1068,7 @@ gagner. Quoi qu'il en soit, peu de gens croient,
 En France, les gouvernements suivent, depuis
 Napoléon, une même politique et ne veulent reconL naître dans l'Église que le pontife romain. Napoléon
 re était un homme très peu religieux ; il se préoccu-
-“. pait donc fort peu du dogme; il vit qu'il avait en j
+“. pait donc fort peu du dogme; il vit qu'il avait en
 3 face de lui une autorité souveraine avec laquelle on
 pouvait traiter et par l'intermédiaire de laquelle on
 pouvait imposer une constitution ecclésiastique aux
@@ -1099,14 +1099,14 @@ tant plus disposées à fournir de l'argent pour les
 persécuté ; le recrutement des ordres religieux n'a .
 pas été jusqu'ici gèné par la politique adoptée par
 les ministères les plus nettement adversaires de
-l'Église. Le pontificat n'est pas lésé dans ses intérêts L:
+l'Église. Le pontificat n'est pas lésé dans ses intérêts
 ‘| propres, et il obtient, en compensation de ses
 1 _ complaisances, une protection tous les jours plus
 ?4 ; étendue et plus efficace pour ses missionnaires.
 ÿ France est devenue, de nos jours, le bras séculier
 4 dont l'Église se sert pour se défendre dans le monde
 _ entier; il n'est même pas bien sûr qu'à certains
-moments — et même quand notre gouvernement È
+moments — et même quand notre gouvernement
 passait pour radical — on n'ait pas fait entendre au
 Er ra Pape des paroles d'encouragement, (1) capables de à
 4, (1) C'est du moins une opinion généralement répandue en Jialie. Il
@@ -1142,7 +1142,7 @@ _ définitions, l'expression de la volonté générale qui À
 Dr fait des lois conformes à la raison et ils croyaient
 qu'il était réellement semblable à cette image; ils en e faisaient un être possédant des qualités empruntées
 à la psychologie individuelle ; il y a encore même
-des philosophes parlant de conscience sociale, de Ï
+des philosophes parlant de conscience sociale, de
 |__ pensée sociale, etc.
 Ce qu'il y a de vrai dans cette fantasmagorie di,
 __ philosophique c'est que certaines ‘ressemblances
@@ -1178,19 +1178,19 @@ Les lois dépendent du peuple, mais d'une manière
 —. trèsindirecte, tandis qu'elles sont une cause directe
 4 de génération pour les idées populaires. ‘2
 Les constitutions libérales n'ont pas tant pour
-| _ but de permettre l'accomplissement des volontés l
+| _ but de permettre l'accomplissement des volontés
 4 populaires que de créer des obstacles aux volontés
-“des partis, de manière à assurer une certaine conti- A1
+“des partis, de manière à assurer une certaine conti-
 ‘1 nuité dans la législation. Le régime parlementaire
 3 est pratiquement parvenu, beaucoup mieux que
 _ n'auraient pu le faire toutes les constitutions les
 # (1) Sur la grande différence qui existe entre l'opinion d'un Parle- de
-es ment et la moyenne des opinions des citoyens, consulter : Kautsky, : i
+es ment et la moyenne des opinions des citoyens, consulter : Kautsky,
 "à Parlementarisme et Socialisme, page 155 et page 173. — A l'heure
 - actuelle, les Parlements donnent des résultats plus favorables aux
 _ idées libérales que ne donnerait le gouvernement direct par le
 peuple. è plus savantes, à produire cette limitation de l'arbitraire ; mais pour qu'il fonctionne convenablement, il faut que les mœurs se prêtent à cette tendance à
-vers la modération et qu'elles ajoutent beaucoup à f:
+vers la modération et qu'elles ajoutent beaucoup à
 l'efficacité des règles. Chaque parti doit agiren À
 pensant que les lois qu'il pourrait faire contre ses
 adversaires retomberont sur lui quand il sera dans
@@ -1241,7 +1241,7 @@ F Les institutions de guerre, fondées sur les tradi- h, _ tions de l'armée et 
 J — par beaucoup de médiations — des instincts popu- laires à la doctrine des juristes ; il y a un processus
 complet d'intellectualisation. Ici, au contraire, nous sommes en présence de tendances très élémentaires,
 assez voisines de celles des primitifs et dominées
-par des superstitions. Tandis que la classe des h
+par des superstitions. Tandis que la classe des
 juristes représente ce qu'il y a de plus intellectuel À
 dans l'état pensant, la classe militaire représente ce
 On sait que les opinions dans lesquelles domine
@@ -1259,7 +1259,7 @@ aux frontières du Rhin et le dogme polonais; et
 maintenant, nous avons le dogme russe. On peut
 faire les mêmes observations à propos de la politique anglaise ; Gladstone, qui avait passé sa vie à
 déclamer sur la liberté des peuples, a fait occuper
-l'Egypte ; son opposition aux idées de conquête s'est é
+l'Egypte ; son opposition aux idées de conquête s'est
 | (1) Entre les deux camps se trouvent les administrations publiques,
 qui fonctionnent beaucoup par routine, mais qui cherchent à se
 donner le plus d'ampleur et d'indépendance possible, Leur rôle est
@@ -1282,13 +1282,13 @@ _ nette en France; mais elle existe partout, d'une
 _ toutes les monarchies constitutionnelles, le roise
 __ considère commeayant le droit d'exerceruneaction
 _ personnelle sur les affaires de la guerre et de la ‘20
-74 Si l'Église recherche, chez nous, avec tant d'obs- e À
+Si l'Église recherche, chez nous, avec tant d'obs- e À
 12 , tination, à s'attacher la classe militaire, ce n'est pas (3
 _ Seulement — comme on le lui a reproché souvent —
 
 parc qu'elle cherche -à trouver un appui dans
 l'armée contre le peuple, mais c'est bien plutôt parce
-| quelletient à entretenir un courant de politique Ë
+| quelletient à entretenir un courant de politique
 _ extérieure conforme aux intérêts catholiques. Ses efforts portent sur la marine plus encore que sur
 à l'armée de terre, parce que la marine met continuel_ lement la force du pays en contact avec des adver__ saires du catholicisme.
 
@@ -1314,19 +1314,19 @@ secondaire et assez provisoire, que nous devons
 progresser par échelons, tâtonner continuellement
 sans avoir de but bien déterminé, dirigés par un
 
-RS désir —ardent, mais vague — vers ce qui semble être » 5e
+RS désir —ardent, mais vague — vers ce qui semble être »
 mieux. Le caractère vraiment neuf de la législation à
 ë moderne résulte de ce que le législateur se croit ‘
 # _ tenu de donner satisfaction à cette aspiration; on a
 É pourrait dire, en imitant les formules révolution- ‘
 
-Ps naires, que le premier de tous nos droits est le À Ÿ
+Ps naires, que le premier de tous nos droits est le À
 
 Ë droit au progrès par la liberté. La politique ss à. _modèle sur l'économie et cherche à réaliser ce pro
 4 é grès par des procédés qui rappellent, à bien des À
 
 4 égards, la poursuite du progrès dans la production capitaliste.
-È L'Église considère les choses tout autrement; à i
+È L'Église considère les choses tout autrement; à
 
 | 1 ses yeux, ü n'y a pas de droit contre le droit; toute
 ss sa politique se résume dans cette formule célèbre;
@@ -1348,7 +1348,7 @@ se font un vocabulaire très restreint tiré des œuvres de Marx; leurs
 4 écrits sont de vraies mosaïques.
 
 En sa qualité de corporation, soumise au pontife
-infaillible et chargée de surveiller la foi et les F1
+infaillible et chargée de surveiller la foi et les
 mœurs de chacun, l'Église ne saurait être un parti
 pouvant tâtonner: elle sait la vérité; elle ne peut !
 admettre le provisoire chez elle et répugne à des À
@@ -1375,7 +1375,7 @@ _ les prélats romains ont un amour-propre enfantin. ft
 Dans notre siècle, des catholiques zélés ont compris que les vieilles méthodes avaient fait leur
 temps et que le centre du pouvoir est aujourd'hui
 dans les Parlements; ils se sont donc faits les À
-diplomates officieux de l'Église, traitant avec les s
+diplomates officieux de l'Église, traitant avec les
 partis ou avec les gouvernements. En France, les À
 deux diplomaties fonctionnent concurremment et
 les députés catholiques se sont plaints, plus d'une FA
@@ -1397,7 +1397,7 @@ de faire de l'anticléricalisme en France et du cléricalisme en Orient, lorsque
 pour être facilement entamé.
 
 aurait un fort parti clérical luttant contre les partis
-républicains. La politique catholique actuelle î
+républicains. La politique catholique actuelle
 réussit grâce à l'emploi de mille petits moyens et
 parce qu'elle se dissimule presque toujours, n'apparaissant à découvert qu'en temps de crise.
 … Taine croyait (1) que la haine du paysan pour
@@ -1406,7 +1406,7 @@ partie, de son aversion pour les gros bourgeois
 et les nobles, qui sont les alliés actuels du clergé;
 je crois qu'il se trompe et qu'il faudrait plutôt dire
 au contraire que les conservateurs en France se sont
-perdus, pour toujours, en acceptant la protection du i
+perdus, pour toujours, en acceptant la protection du
 clergé. Gambetta savait bien ce qu'il faisait en
 dénonçant Mac-Mahon comme l'homme des curés. il
 Inversement il me semble que le pontificat s'efforcera en France de gagner des partisans parmi
@@ -1418,18 +1418,18 @@ En Italie le pontificat se trouve dans une situa-
 est difficile aux cléricaux de ne pas froisser les
 sentiments patriotiques d'un pays récemment
 1 unifié. À l'origine il a conseillé aux catholiques
-4 l'abstention dans les élections politiques; il avait l
+4 l'abstention dans les élections politiques; il avait
 l'espoir de gêner le gouvernement; aujourd'hui il À
 
 ER maintient cel te tactique, par nécessité, bien qu'elle
 ne gêne pas du tout la marche des affaires de
 ne l'État. Les catholiques prennent part aux élections 4408
-D administratives, ont des représentants dans les de 140
+D administratives, ont des représentants dans les de
 Co assemblées communales et provinciales; mais un.
-parti catholique à la Chambre pourrait compro- 210
+parti catholique à la Chambre pourrait compro-
 30 mettre gravement la papauté. Il semble, d'ailleurs,
 que dans une grande partie de l'Italie les catho_ liques respectent fort peu les recommandations PRE
-4 pontificales et qu'ils votent; mais ils s'arrangent ne ù
+4 pontificales et qu'ils votent; mais ils s'arrangent ne
 avec les candidats au mieux de leurs intérêts
 - locaux et ils évitent d'avoir des députés à eux.)
 _ pur; mais cela tient à ce que l'État moderne n'a ‘1
@@ -1445,7 +1445,7 @@ _ qu'ils peuvent; il y a des marchandages plus ou
 1 _ moins cyniques, mais pas de vrais compromis à
 4 comme dans un régime parlementaire réel. Chaque
 ‘3 fois qu'il s'agit de voter une loi militaire, le
-5 16 juin et premier juillet 1900. k
+5 16 juin et premier juillet 1900.
 gouvernement négocie avec les partis; généralement le vote de la loi dépend des catholiques,
 et ceux-ci exigent qu'on rapporte quelques-unes des mesures prises jadis contre l'Église.
 
@@ -1459,7 +1459,7 @@ Le Parlement allemand étant une sorte de
 congrès où des plénipotentiaires viennent discuter entre eux, pour obtenir le plus possible en faveur de leurs mandants, la conduite des cléricaux ne soulève pas une trop grande réprobation. Il n'en sera plus de même quand les partis auront acquis l'idée que tous doivent participer à une œuvre commune; cette idée n'est pas facile à faire entrer dans les esprits ; les socialistes et les progressistes
 
 F ne se montrent pas moins inaptes au régime à moderne que leurs adversaires; ils combattent ë CA pour l'amour des principes, sans se soucier beaude coup des conséquences de leurs votes. (1) Le jour
-où le parti socialiste arriverait à devenir un parti ê
+où le parti socialiste arriverait à devenir un parti
 52 oraiment politique, poursuivant la participation
 Ÿ au pouvoir parlementaire, la vie de l'Allemagne
 K serait transformée de fond en comble.
@@ -1469,7 +1469,7 @@ k () I1 serait impossible, par exemple, de comprendre en France
 
 _ Une grande difficulté pratique pour la formation
 _ d'un parti clérical en France résultera désormais
-_ de la nouvelle législation sur les congrégations; le D.
+_ de la nouvelle législation sur les congrégations; le
 _ contrôle que l'État est en train d'organiser surleu ik
 _ fortune et leur gestion ne pourra manquer dese
 à développer; il aura pour effet d'empêcher qu'une
@@ -1479,7 +1479,7 @@ __ politique. Il semble que la papauté ait tacitement
 hi accepté ce contrôle et compris qu'il y avait pour LE
 - elle un certain danger à laisser se développerun
 … état d'esprit trop militant dans le clergé français. “4
-4 Toute l'histoire des rapports de l'Église et de
+Toute l'histoire des rapports de l'Église et de
 Le l'État en France est dominée par les souvenirs
 
 _ de la Révolution; jamais l'Église n'a fait son deuil ‘1
@@ -1489,9 +1489,9 @@ _ de la Révolution; jamais l'Église n'a fait son deuil ‘1
 _ en acquérir. Napoléon n'avait pas restauré le culte
 que déjà il se plaignait d'un nouvel esprit qui (4)
 - animait l'Église et qu'il n'avait pas prévu. (1) « On wi,
-_ élève les nouveaux prêtres dans une doctrine L,
+_ élève les nouveaux prêtres dans une doctrine
 …. sombre, fanatique; il n'y a rien de gallican dans le
-__ nouveau clergé. » Le clergé se discipline; l'esprit ni k (1) Taine, Op. cit., page 63. ; f.
+__ nouveau clergé. » Le clergé se discipline; l'esprit ni k (1) Taine, Op. cit., page
 
 de solidarité augmente en lui; les anciens intérêts
 mondains s'effacent devant les grands intérêts de
@@ -1509,10 +1509,10 @@ En 1815 le clergé crut le moment venu de
 ee souvenirs de la Révolution étaient si vivaces,
 ee l'armée était si opposée aux curés et les proprié- s"
 W taires de biens nationaux si effrayés, que l'audace
-R _ de l'Église devait soulever le pays contre le î
+R _ de l'Église devait soulever le pays contre le
 A gouvernement qui la protégeait. Sous le règne de
 Louis-Philippe, les cléricaux adoptent une nouvelle
-nt (1) Le cardinal Manning avait pris, dans sa jeunesse, pour devise : Ë
+nt (1) Le cardinal Manning avait pris, dans sa jeunesse, pour devise
 SRE Aut Caesar, aut nihil. L'anglicanisme ne pouvait, évidemment,
 ke ! satisfaire un tel affamé de pouvoir.
 tactique; ils ne parlent plus que de défendre les ‘
@@ -1579,8 +1579,8 @@ l'antisémitisme était né depuis quelques années
 mais son succès avait été médiocre avant la fondaà tion de la Libre Parole (x); les cléricaux hésitaient,
 dans beaucoup de villes, à se mêler à ce mouvement
 qui leur paraissait dangereux à cause de ses allures
-Les discussions soulevées par les socialistes au È
-N () Dans un livre publié en 1896, M. Chirac revendique ses Ÿ
+Les discussions soulevées par les socialistes au
+N () Dans un livre publié en 1896, M. Chirac revendique ses
 droits à l'invention de l'antisémitisme : « Les colères avaient entassé ?
 la première charge à fond contre la juiverie que fut en 1876 ma
 Haute banque et les révolutions, sur ma collaboration à l'Antisémitique en 1882; ce précurseur de la Libre Parole, où avec ce pauvre
@@ -1627,27 +1627,27 @@ l'écart, à peu près complètement; on lui avait même
 _ plusieurs fois reproché de ne pas avoir donné son
 appui à une œuvre si nationale; mais quelques
 6 agents d'affaires israélites avaient été mêlés aux à
-4 M. Drumont, une affaire juive. Les légendes conci centrent toujours les crimes et les hauts faits sur
+M. Drumont, une affaire juive. Les légendes conci centrent toujours les crimes et les hauts faits sur
 un petit nombre de personnages représentatifs : cl
-ï Arton, Hertz, Reinach devinrent les héros du ê
+ï Arton, Hertz, Reinach devinrent les héros du
 Panama dans la légende arrangée par M. Drumont.
-10 Les conservateurs s'aperçurent alors que l'anti6
+Les conservateurs s'aperçurent alors que l'anti6
 En sé mitisme pouvait avoir du bon, car il permettait ne
 de rejeter sur un groupe infime de gens — à noms FR !
 Hi étrangers pour la plupart — toutes les colères. Ils “
 avaient, presque tous, gardé rancune aux Juifs
 _ de la laïcisation, parce que dans toute la France
-k les Juifs avaient été d'ardents partisans des lois 477
+k les Juifs avaient été d'ardents partisans des lois
 À scolaires. Cependant ils n'acceptèrent nettement
 e l'appui des antisémites que le jour où ils virent le 5 #4
-À grand parti que M. Drumont avait su tirer du 0e
+À grand parti que M. Drumont avait su tirer du
 i procès Dreyfus : il devint clair alors que les clé- VS
-23 ricaux et les conservateurs pourraient entraîner les 124
+23 ricaux et les conservateurs pourraient entraîner les
 esprits en faisant usage de l'argument patriotique. 0)
 Je crois que l'Église n'a pas commis de plus Ne.
 -_ grande faute, depuis l'expédition de Rome, que î ge
 ‘4 d'avoir pris parti contre la revision du procès
-4 Dreyfus. L'agitation qui se produisit en France ù
+Dreyfus. L'agitation qui se produisit en France
 ÿ _ interrompit le travail souterrain de la diplomatie 4}
 - pontificale; il y eut un emballement général parmi à
 4 les cléricaux, qui suivirent les plus ardents d'entre
@@ -1676,17 +1676,17 @@ L'affaire Dreyfus n'aurait pu aboutir que si on
 avait admis que l'armée fût soumise au libre
 contrôle des citoyens; or, cela paraissait inadmis- ?
 J sible aux militaires habitués à se considérer comme
-k formant une classe isolée, faite pour la lutte contre ï
-1 le dehors et vivant en dehors du régime parlemen- l
+k formant une classe isolée, faite pour la lutte contre
+1 le dehors et vivant en dehors du régime parlemen-
 4 d'hommes politiques qui avaient longtemps prêché à
-A le respect de l'armée. Les radicaux hésitaient p:
+A le respect de l'armée. Les radicaux hésitaient
 ne beaucoup à prendre la défense d'un officier riche,
-Ë parce qu'ils avaient peur d'être accusés de corruption, eux qui avaient si souvent dénoncé la corrup- È
+Ë parce qu'ils avaient peur d'être accusés de corruption, eux qui avaient si souvent dénoncé la corrup-
 € tion des opportunistes. Il leur paraissait extrêmeÀ ment dangereux de s'engager dans une affaire
 ‘ confuse, qui devait toujours rester mystérieuse et qui renfermait des aventures romanesques, alors
 É. _ que, dans les souvenirs populaires, la guerre de
-1870 m'avait été qu'une suite de trahisons plus 5. M è
-7 extraordinaires les unes que les autres. Ils étaient 410
+1870 m'avait été qu'une suite de trahisons plus
+7 extraordinaires les unes que les autres. Ils étaient
 bien plus en contact avec les électeurs provinciaux OR
 : 208 que les gambettistes, devenus parisiens; ils con- Lu:
 naissaient toutes les préventions contre lesquelles
@@ -1703,15 +1703,15 @@ k: _ moderne. (x) Mais si cette manière de comprendre “10
 ‘à les affaires de France est fausse, il est certain que
 E toutes les luttes qui se produisent chez nous inté- des
 ressent tous les esprits libéraux : il n'y a pas de QE
-pays, en effet, où les forces réactionnaires soient 214
-_ aussi puissantes que dans le nôtre; quand elles sont ÿ
+pays, en effet, où les forces réactionnaires soient
+_ aussi puissantes que dans le nôtre; quand elles sont
 _ vaincues, tous les partis de résistance sont décou- ‘4
 ragés et tous les partis avancés sont animés d'une
 F ardeur nouvelle. C'est ce qui explique pourquoi on |
 L: () Il y eut à l'étranger des gens qui s'intéressèrent à l'affaire
 Ê Dreyfus tout en étant fort réactionnaires; ce fait est remarquable
 en Hollande; il s'explique, sans doute, par des relations existant ‘(00
-A entre les pasteurs protestants de Hollande et de France. ; k
+A entre les pasteurs protestants de Hollande et de France.
 a cru souvent que les révolutions éclatent en
 Europe à l'imitation des mouvements parisiens. (1)
 Depuis quelques années le cléricalisme poursuivait
@@ -1724,7 +1724,7 @@ pas voir que la loi des congrégations a été conçue
 comme une revanche contre les antisémites et les
 catholiques. La lecture des journaux qui avaient
 soutenu la revision montre avec quelle passion les
-vaincus attendaient les représailles; la facilité avec j
+vaincus attendaient les représailles; la facilité avec
 laquelle le Sénat vota une loi qui renferme tant
 de dispositions exceptionnelles surprit tout le
 monde et serait inexplicable si on ne savait combien
@@ -1735,8 +1735,8 @@ l'Église, en vue de persécuter les catholiques; il y
 a eu seulement une mesure de revanche — assez
 modeste d'ailleurs — venant après la plus formidable campagne que les cléricaux aient menée
 depuis les réactions qui suivirent 1848.
-: (1) En 1847, Marx croyait que la révolution éclaterait d'abord en l
-Allemagne /Manifeste communiste, page 73). Dans l'Allemagne en û
+: (1) En 1847, Marx croyait que la révolution éclaterait d'abord en
+Allemagne /Manifeste communiste, page 73). Dans l'Allemagne en
 : 1848 (traduction Rémy, page 45), il dit que la révolution prussienne
 était certaine, et (page 63) que le caractère inattendu que prit le À
 mouvement parisien changea tout le cours des événements en
@@ -1764,7 +1764,7 @@ Si l'Église se trompe sur les causes des conflits
 modernes, il ne faut pas croire qu'il n'y ait pas
 quelque part de vérité dans ses illusions; car il n'y
 a pas d'illusions de ce genre qui ne renferment une
-(1) Ribet. Ea mystique divine distinguée de ses contrefacons e
+(1) Ribet. Ea mystique divine distinguée de ses contrefacons
 L diaboliques et de ses analogies humaines, tome III, page 390. —
 À Lorsque Joseph de Maistre accusait la Révolution d'être satanique,
 il n'entendait pas employer une figure de rhétorique, il parlait au
@@ -1787,7 +1787,7 @@ seulement de faire des chrétiens fervents: il s'agit
 de développer des conditions capables d'amener
 les élèves à combattre pour l'Église : lés collèges
 ecclésiastiques ne sont donc plus du tout ce qu'ils
-étaient il y a un siècle; ce sont des succursales des l
+étaient il y a un siècle; ce sont des succursales des
 comités politiques, et on pourrait dire que ce sont
 des organes de journalisme parlé. C'est la presse
 cléricale qui conduit le mouvement depuis plus de”
@@ -1836,7 +1836,7 @@ une si ardente campagne contre l'enseignement
 Contre l'Église s'est constitué, sous l'influence de
 la presse anticléricale, un parti politico-scolastique,
 qui prétend représenter l'Université, ou plutôt la
-défendre, — car personne n'oserait prétendre que Ë
+défendre, — car personne n'oserait prétendre que
 ce parti ait la majorité parmi les professeurs. (1) À
 | . Ce parti poursuit la domination des esprits et
 s'inspire trop souvent des idées étroites du dixhuitième siècle; il peut donc être considéré, dans
@@ -1849,7 +1849,7 @@ Beaucoup de nos professeurs se soft mis en tête
 beaucoup plus encore auraient adhéré s'ils n'avaient craint de
 compromettre leur situation. ‘à
 
-Ma que leur profession serait chose assez méprisable A0
+Ma que leur profession serait chose assez méprisable
 s'ils n'avaient charge d'âmes, s'ils n'étaient destinés
 _ à former les hommes de l'avenir, si leur pédagogie Fe:
 à 1} ne devait avoir pour effet de produire une société Le
@@ -1860,7 +1860,7 @@ Les résultats obtenus par l'action de ce parti HE
 à politico-scolastique ne semblent pas être fort encou- ‘ji
 . rageants; une polémique très vive s'est engagée, :
 ki _ l'année dernière, pour savoir si l'Université forme
-- des républicains et quelles sont les causes qui 50 g.
+- des républicains et quelles sont les causes qui
 -_ rendent stériles les efforts de tant d'apôtres. (1) I1 y
 a un point qui me semble acquis : en un temps
 n assez lointain, alors qu'on n'avait pas un si grand
@@ -1873,13 +1873,13 @@ librement, peut-être plus librement qu'aujourd'hui ; . HE
 Les méthodes nouvelles semblent avoir produit, 1110
 presque toujours, d'assez mauvais résultats ; on a
 voulu mettre beaucoup plus en évidence l'action du
-F professeur sur les élèves et, quel que soit le mérite s
+F professeur sur les élèves et, quel que soit le mérite
 (1) Voir dans la Revue politique et parlementaire les articles de
 
 5 des maîtres actuels, il est difficile de croire qu'ils
 vaillent Cicéron et Sénèque, qui avaient été les
 directeurs de la pensée de nos pères aux temps de
-M grande liberté intellectuelle. L'apostolat scolastique 1:
+M grande liberté intellectuelle. L'apostolat scolastique
 donne des résultats très mauvais pour la formation .
 de l'esprit dans les écoles cléricales, qui sont .
 empoisonnées de fainéantise, de snobisme et de
@@ -1896,17 +1896,17 @@ doive toujours se produire ; si vraiment l'Université
 ne forme pas des républicains ou n'en forme qu'une
 assez minime proportion, peut-être devons-nous à
 redouter que les prochaines révolutions ne soient
-‘à guère pénétrées d'esprit libéral. Le parti politico- Ë
+‘à guère pénétrées d'esprit libéral. Le parti politico-
 scolastique, qui combat l'Église, a exactement le
 même esprit que celle ci ; il voudrait faire marcher À
 ve le monde à son gré. IL a toutes les ambitions des à
 FA anciens saint-simoniens qui prétendaient tout conse stituer sous la forme hiérarchique.
 É | La bataille que se livrent le parti clérical et ce hr
-4 parti politico-scolastique n'a pas un très grand f:
+4 parti politico-scolastique n'a pas un très grand
 
 _ intérêt direct pour la démocratie; quel que fût le
 es vainqueur, le peuple trouverait des maîtres impi- rt
-Re Ce quinous apparaît comme étant la plus haute j
+Re Ce quinous apparaît comme étant la plus haute
 4 mission de l'État, c'est de défendre la liberté de
 k penser, aussi bien contre la caste des prêtres que «
 4 contre la caste des professeurs-journalistes. L'État
@@ -1917,7 +1917,7 @@ pas ; il faut que les institutions la produisent spon-
 “4 tanément. Le mouvement démocratique moderne a
 “ une base économique, facile à reconnaître ; (1) il
 est fondé sur la concurrence très développée des
-be métiers : tout notre droit est imbu de l'idée d'une Ë V4
+be métiers : tout notre droit est imbu de l'idée d'une
 concurrence illimitée ; presque toutes nos pensées
 4 en portent la marque. Or, de nos jours, cette ;
 n concurrence est menacée : par la constitution de À !
@@ -1939,8 +1939,8 @@ Fe discipline est difficile à imposer à une population qui se livre au commerc
 que de supprimer dans l'enseignement tout ce qui
 tend à augmenter la force du pouvoir central. Marx
 avait bien raison quand, en 1855, (1) il signalait
-l'opportunité de créer, avec l'aide purement finan- D:
-cière du Trésor public, des écoles soustraites à la 1h
+l'opportunité de créer, avec l'aide purement finan-
+cière du Trésor public, des écoles soustraites à la
 fois aux influences de l'État et de l'Église. Je crois
 que cette opinion est une des plus importantes que
 l'on trouve dans ses écrits ; nous voyons par là qu'il
@@ -1950,9 +1950,9 @@ Bernstein a montré (2) que dès 1871 Marx avait
 adopté des conceptions politiques imbues de fédéralisme : (3) ces conceptions sont d'autant plus
 intéressantes qu'en 1848 il avait été, comme tous
 les révolutionnaires allemands et sous l'influence
-des souvenirs de 1793, très opposé aux idées fédéee ralistes. Si l'on veut lutter contre l'esprit de j
+des souvenirs de 1793, très opposé aux idées fédéee ralistes. Si l'on veut lutter contre l'esprit de
 domination, il n'y a rien de plus urgent que de
-_ © réformer l'enseignement suivant les vues contenues d
+_ © réformer l'enseignement suivant les vues contenues
 j dans la lettre sur le programme de Gotha.
 À: Les socialistes votent, en quelquesorte d'instinct, hi
 toutes les mesures anticléricales que propose le
@@ -1968,7 +1968,7 @@ EL 2 xnpe, depuis que l'on a tant disserté sur ce que
 _ personnes se sont demandé si les socialistes étaient #4
 _ bien logiques en suivant d'instinct ce courant, qui ee
 _ ne semble pas déterminé par leurs principes. LASER
-2 Il faut avouer, très franchement, que la doctrine :
+Il faut avouer, très franchement, que la doctrine :
 _ de Marx sur la lutte des classes est restée encore
 a fort obscure ; il n'est pas toujours sûr que les ra
 ‘70 formules par lesquelles il a exprimé son opinion ne
@@ -1977,14 +1977,14 @@ _ aient été parfaitement comprises. Pour ma part,
 ti j'avoue que je ne comprends pas les explications
 _ que les officiels allemands donnent de la doctrine SA
 du maître ; je crois que je ne suis pas leseuläne
-pas comprendre. Fa r
+pas comprendre. Fa
 _ Et d'abord est-il vrai que les partis soient sim_ plement le décalque des classes économiques ? Marx QE
 _ s'exprime très souvent comme s'il en était ainsi; PA
 4 mais on relèverait facilement dans ses écrits des NE
 contradictions, si on admettait qu'il ait vraiment
 _ identifié les partis et les classes. Kautsky lui-même
 _ siècle, la différenciation économique existant entre
-_ whigs et tories allait toujours en décroissant et que % ï
+_ whigs et tories allait toujours en décroissant et que %
 à _ (@Kautsky. Parlementarisme et socialisme, page 130. |
 finalement elle devint inutile à considérer pour dis- .
 tinguer les partis. Il semble que le progrès de l'économie capitaliste ait pour effet de produire un plus
@@ -2000,11 +2000,11 @@ défendre le Droit et la Vérité. Les anciennes factions démagogiques étaient
 division de la Cité en riches et en pauvres; elles
 amenèrent la ruine de tous les pays où elles se pro- ‘
 duisirent; jusqu'ici les États modernes ont marché,
-d'une manière plus ou moins chancelante, dans une î
+d'une manière plus ou moins chancelante, dans une
 voie que tous regardent comme progressive ; les
-socialistes comptent bien faire réaliser au monde Ÿ
+socialistes comptent bien faire réaliser au monde
 des progrès plus décisifs que ceux du passé ; on ne À
-saurait donc les confondre avec des démagogues, Ÿ
+saurait donc les confondre avec des démagogues,
 È uniquement occupés de satisfaire les désirs matériels des masses.
 Le socialisme renferme des éléments spirituels et À
 
@@ -2019,7 +2019,7 @@ _ à l'opposition des classes sa perfection; mais sila
 n _ démocratie est ainsi, dans une certaine mesure, le À di sa
 Ê” contraire du socialisme, elle est aussi un aliment de
 Du: _ son progrès, car c'est grâce à elle que l'éducation
-_ populaire peut se faire de la manière la plus com- 114
+_ populaire peut se faire de la manière la plus com-
 _ plète. La contradiction entre démocratie et socia_ lisme porte surtout sur l'économie ; leur accord, sur ca si
 Da ‘ le côté spirituel de la vie sociale. "4
 
@@ -2029,17 +2029,17 @@ _ des classes; ceciest tout à fait naturel d'après ce (FR
 
 _ qui vient d'être dit : les démocrates luttent pour (4
 _ faire disparaître des tyrannies, pour combattre les
-_ états qui prétendent gouverner — soit en raison du 108
+_ états qui prétendent gouverner — soit en raison du
 talent, soiten raison de leurs professions—;ilscher- je
 L. _chent à développer l'esprit de liberté et à augmen_ ter les garanties juridiques données aux hommes;
 leur attitude les éloigne des considérations écono-
 
 _ miques. Les socialistes ont aussi à lutter contre les AM
 
-_ mêmes ennemis que les démocrates et ils partiD #3 (1) Marx. La lutte des classes, page 231.
+_ mêmes ennemis que les démocrates et ils partiD #3 (1) Marx. La lutte des classes, page
 cipent à toutes les luttes pour la liberté, comme
 s'ils étaient, ainsi que les démocrates, affranchis du
-sentiment spécifique de classe. É:
+sentiment spécifique de classe.
 La lutte contre le militarisme est la plus difficile
 à mener de toutes celles que l'on peut engager
 contre la domination; elle reste, le plus souvent,
@@ -2052,17 +2052,17 @@ Chine? Chose plus singulière encore : il existe
 une littérature considérable sur le régime des corps à
 disciplinaires ; mais aucun homme politique ne sent
 l'utilité de prendre en main la réforme de ces abus;
-l'opinion publique ne s'en préoccupe guère, les h
+l'opinion publique ne s'en préoccupe guère, les
 hommes politiques les ignorent officiellement.
-Pour qu'on puisse agir efficacement contre le Î
-3 militarisme, il faut qu'il se présente des circonstances vraiment extraordinaires : l'affaire Dreyfus j
+Pour qu'on puisse agir efficacement contre le
+3 militarisme, il faut qu'il se présente des circonstances vraiment extraordinaires : l'affaire Dreyfus
 se trouvait dans ce cas; mais on ne trouve pas
 :: toujours deux circonstances pareilles dans un siècle. À
-des hommes appartenant à toutes les classes de la Ÿ
+des hommes appartenant à toutes les classes de la
 société et à des partis très opposés s'étaient réunis
 4 en vue de poursuivre une œuvre qui pouvait produire de très grands résultats pratiques et démocratiques. Les socialistes qui ont cru que le dogme de
 
-_ Jalutte de classe s'opposait à leur participation à ce ï:
+_ Jalutte de classe s'opposait à leur participation à ce
 5 _ grand combat se sont montrés plus scrupuleux sur de
 leurs principes que n'avaient été les rois de France: po,
 ceux-ci, malgré leur dévotion, s'allièrent bien Là
@@ -2074,17 +2074,17 @@ celles-là ; il faut qu'il y ait un amalgame dans les À
 partis, de telle sorte que cette lutte ne puisse pas ;
 prendre l'allure d'un mouvement antipatriotique; \
 “ ‘en France, l'idée patriotique est si fortement liée : se
-Fr aux souvenirs démocratiques de la Révolution que l
+Fr aux souvenirs démocratiques de la Révolution que
 les campagnes les mieux menées échouent dès qu'on ‘1
 É peut leur opposer une campagne pour la défense f 1)
-L Vouloir attaquer le militarisme avec les seules î
+L Vouloir attaquer le militarisme avec les seules
 4 forces du socialisme, c'est marcher à un échec certain "
 et rendre le socialisme impopulaire. Dans l'affaire
 Dreyfus, il n'y avait aucune question d'ordre juri4 dico-économique en jeu; et par suite que venait fl
 4 faire là le précepte de la lutte de classes? Quelques
 e auteurs, mal informés des principes du socialisme
 1 moderne, ont trouvé ce bel argument que Dreyfus ‘
-était riche et que les malheurs d'un riche ne devaient è
+était riche et que les malheurs d'un riche ne devaient
 pas intéresser les pauvres; et ils ajoutaient que
 beaucoup de pauvres diables étaient martyrisés
 3 dans les ateliers de travaux publics. Et après?
@@ -2112,8 +2112,8 @@ Nos Cahiers sont édités par des souscriptions men_ suelles régulières et par
 _ naires; la souscription ne confère aucune autorité sur
 La rédaction ni sur l'administration : ces fonctions demeurent libres.
 
-AT des abonnements de souscription à cent francs; e
-TER des abonnements ordinaires à vingt francs; è
+AT des abonnements de souscription à cent francs;
+TER des abonnements ordinaires à vingt francs;
 “Ée et des abonnements de propagande à huit francs.
 
 à Il va sans dire qu'il n'y a pas une seule différence

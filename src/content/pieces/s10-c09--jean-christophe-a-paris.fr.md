@@ -30,7 +30,7 @@ Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, 
 sommaire, 1900-1904, de nos cinq premières séries.
 
 Ce catalogue a été justement établi pour donner,
-autant qu'il se pouvait, une image en bref, un raccourci, L
+autant qu'il se pouvait, une image en bref, un raccourci,
 
 une idée, abrégée, mais complète, de nos éditions anté-
 _  rieures et de nos cinq premières séries ; tout y est classé

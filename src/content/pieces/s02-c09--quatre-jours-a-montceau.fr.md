@@ -204,7 +204,7 @@ ouvriers, qui accomplissent des travaux de même
 nature, subissent, avec ce mode de paiement, de fortes
 différences de salaires. Les mineurs, ouvriers du fond, or
 travaillant à la tâche, et, par conséquent, payés à la
-quantité, ne souffrent pas de ce système; mais les l
+quantité, ne souffrent pas de ce système; mais les
 ouvriers du jour, sur certains puits, se trouvent moins
 payés que leurs camarades accomplissant les mêmes
 besognes sur d'autres puits d'un meiïlleur rendement.
@@ -291,7 +291,7 @@ Montceau et des environs, vous convie à une
 qui aura lieu le lundi 24 décembre (veille de Noël), salle
 Pézerat, à huit heures du soir.
 
-1° Conférence par un élu du parti; k
+1° Conférence par un élu du parti;
 
 Punch monstre offert à tous les possesseurs d'une carte
 (des cantiques socialistes seront chantés par plusieurs membres de la Jeunesse Socialiste pendant que brülera le punch
@@ -305,10 +305,10 @@ collecteurs du groupe de la Jeunesse socialiste, chez les
 ! Le groupe de la Jeunesse Socialiste
 de Montceau-les-Mines
 
-Derrière la maison occupée par le Syndicat est in- i
+Derrière la maison occupée par le Syndicat est in-
 stallée la cuisine de la première section dans la ‘cour ci
-donnant sur la rue de la Cantine. A côté de la porte k:
-de planches vermoulues surmontée d'un grand drapeau d
+donnant sur la rue de la Cantine. A côté de la porte
+de planches vermoulues surmontée d'un grand drapeau
 rouge, une longue bande de toile rouge a été pendue
 la crête du mur. Sur la bande rouge, un écriteau blanc
 portant en grosses lettres l'inscription:
@@ -328,7 +328,7 @@ encadrée d'un filet rouge : Ni
 
 partir du 14 février, les syndiqués auront seuls droit “
 à la soupe populaire.
-Il leur sera distribué avec la soupe 100 grammes de viande k
+Il leur sera distribué avec la soupe 100 grammes de viande
 par personne et par repas.
 
 Toute la famille comprise.
@@ -438,19 +438,19 @@ autres tendent le dos et filent vivement.
 La grande occupation du gréviste, c'est demanifester.
 La manifestation, c'est le défilé dans tout le pays; en
 colonne par quatre et par sections, avec fanfares de
-trompettes, musiques, tambours et clairons, drapeaux 4 l
+trompettes, musiques, tambours et clairons, drapeaux
 rouges ou tricolores; c'est aussi l'assemblée sur la place ;
 de Grève, sous le balcon de la mairie. C'est donc, en
 somme, une sorte de revue à laquelle les hommes ne se
 rendent que soigneusement rasés et fort proprement
 vêtus. IL est très fréquent d'entendre le matin, dans les
 groupes ou dans les cuisines : « Allons, viens-tu prendre
-soir, faut que j'aille me faire raser. » k
+soir, faut que j'aille me faire raser. »
 Pour ces manœuvres, les cuisiniers revêtent la grande
 tenue de service. La plupart portent le costume clas-
 sique des marmitons de bonne maison, bonnet-tampon,
 courte veste et pantalon d'une blancheur immaculée;
-dans quelques sections seulement, la coiffure est une l
+dans quelques sections seulement, la coiffure est une
 calotte de toile blanche en forme de pot à fleur renversé de
 avec un gros pompon rouge comme en ont les marins.
 Quelques vieux barbus ajoutent à leur costume un
@@ -651,7 +651,7 @@ tira, il y a une quinzaine, des coups de revolver sur un
 des adjoints), ont chacun un revolver en poche. Or il
 n'est pas douteux pour lui que cette journée est une
 journée d'essai. Il parle : « Bien sûr qu'il faut désirer la
-Révolution; mais si nous voulons faire la Révolution, Ë
+Révolution; mais si nous voulons faire la Révolution,
 nous ne voulons pas de sanglantes bagarres : pour
 faire de la besogne révolutionnaire, il n'est besoin
 ni d'emballement ni d'exaspération. Aujourd'hui est
@@ -675,14 +675,14 @@ portés chacun, sans drap, sur les épaules de quatre
 mineurs, précédés de deux drapeaux noirs sans inscription, accompagnés de toutes les sociétés avec fan- La
 fares, tambours et clairons, et tous les drapeaux rouges.
 Il y eut au cimetière quelques discours d'adieux, puis ‘4
-une quête fut faite sur place au profit des deux familles; F
+une quête fut faite sur place au profit des deux familles;
 elle produisit une cinquantaine de francs, et chacun
 s'en fut chez soi commentant les événements de la
 journée, que l'on s'accordait à regarder comme n'étant
 pas définitive.
 Le lendemain lundi, quatre réunions furent tenues
 la salle Pézerat par les adhérents au Syndicat rouge
-seuls les syndiqués porteurs de leur livret ouvrier y f
+seuls les syndiqués porteurs de leur livret ouvrier y
 furent admis. La question du drapeau noir et les
 principes libertaires furent discutés, et il fut décidé
 que l'on résisterait ouvertement aux menées anarchistes, que tout le monde considérait comme devant
@@ -721,10 +721,10 @@ sacristie, et trouva même le moyen, à ce propos, de
 à citer saint Paul; il plaignit ses auditrices et les flatta
 
 sous toutes les formes; il fut très applaudi. Guesde fit
-ensuite le tableau de la cité future, celle où l'on travail- = e
+ensuite le tableau de la cité future, celle où l'on travail- =
 lera de trois à quatre heures, et même peut-être une
 heure à peine par jour, et où tout le reste du temps on
-pourra se livrer aux joies de la nature; « eh bien, 4 4
+pourra se livrer aux joies de la nature; « eh bien,
 pour arriver à ce résultat, mais vous avez tout ce qu'il
 vous faut dans la main! le bulletin de vote! avec le
 bulletin de vote et un peu de patience vous arriverez à +.
@@ -734,13 +734,13 @@ qu'il craignait qu'on ne l'eût peut-être pas tout à fait
 compris ; qu'il avait voulu dire qu'on devrait se servir
 le plus longtemps possible du bulletin de vote et des
 moyens légaux, mais que le jour où il n'y aurait plus Si
-qu'un petit coup d'épaule à donner pour entrer dans la x
+qu'un petit coup d'épaule à donner pour entrer dans la
 nouvelle légalité, il ne faudrait pas hésiter à le donner.
 En somme accueil assez froid. Maxence aussi vint
 dire son mot, raïllant ceux qu'il appelle les chevaliers
 de l'apéritif et du digestif, toujours prêts à souffler la Ds
 tourmente et à fomenter le désordre, mais trouvant « toujours le moyen de disparaître lorsqu'il s'agit de
-récolter. Enfin, sur la demande de Chalmandrier, Bou- N.
+récolter. Enfin, sur la demande de Chalmandrier, Bou-
 veri, qui présidait, entonna l'Internationale qu'il ne Me
 savait d'ailleurs pas, et qui lui fut soufflée mot par
 mot par Maxence et les autres, assis derrière lui; cela
@@ -800,7 +800,7 @@ disent : il parle bien.
 Maxence est donc très populaire. On appelle Maxence
 tous les nouveau-nés. Il y a, dit-on, maintenant trois
 balcon, s'y appuie d'une main, et de l'autre se découvre,
-saluant la foule. Comme il neige, on lui crie : « Cha- è
+saluant la foule. Comme il neige, on lui crie : « Cha-
 peau, Maxence, mettez votre chapeau! » Maxence sourit
 d'un vaste sourire. La foule rit enchantée. Maxence met
 son chapeau. Et il parle. « Citoyennes, citoyens. Ce n'est

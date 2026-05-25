@@ -32,7 +32,7 @@ aujourd'hui au port de Tanagra. Je ne saurais donc “2
 m'arrêter longtemps et je maudis même la nuit qui ci
 étend sur mes membres le doux sommeil. ra
 A Tanagra, désires-tu prendre passage sur quelque “
-Sur quelque nef rapide, qui, frétée pour un port g
+Sur quelque nef rapide, qui, frétée pour un port
 d'Égypte ou de Libye, m'emportéra, poussée parun
 vent favorable, et fendra les flots en se guidant sur
 les étoiles.
@@ -40,8 +40,8 @@ Je soupçonne, étranger, par la hâte où tu me
 parais être, ou bien que tu poursuis quelque dessein
 très noble et difficile, ou bien que, chassé pour ur
 meurtre de ta patrie, tu fuis le ressentiment d'un
-ennemi puissant. Mais, si tu veux te confier à moi, 4
-sache que le fils de Cadmus saura te couvrir contre x
+ennemi puissant. Mais, si tu veux te confier à moi,
+sache que le fils de Cadmus saura te couvrir contre
 toute vengeance, ou te faciliter le plus lointain
 voyage; si tu veux garder ton secret, dis-moi ton
 nom, au moins, ou celui de ton père, ou quelque
@@ -96,9 +96,9 @@ chez le grand.
 
 Je suis habitué à parler et agir en LORS LE
 d'un dieu et de race royale, tu devrais penser tt
-dire comme moi. 210 re e
+dire comme moi. 210 re
 Rois ou dieux, que je ne suive jamais lesexemples
-de mes ancêtres! AS 00
+de mes ancêtres! AS
 Quel est le dieu à qui tu dois le jour? Ru
 Le plus puissant et le plus criminel de tous, j'ai ‘4
 Et comment partagea-t-il le lit de ta mère? 11:71
@@ -118,7 +118,7 @@ Un nain difforme, habitant d'une hercynienne
 forêt, qui m'éleva et m'enseigna tous les exercices
 
 de la force et tous les arts de la connaissance. La
-crainte seule, il ne put me l'enseigner. * 3
+crainte seule, il ne put me l'enseigner.
 Est-ce sous nos climats que tu vécus une telle jeu
 
 Non, mais bien loin vers l'Ourse, où vivent les
@@ -156,7 +156,7 @@ tuer, s'ils le veulent, la Méduse qui les opprime. Bu.
 Dans Ekhthrantre gisait un trésor. Quel bien y
 pris-tu ?
 Cette épée. Peux-tu lire les caractères gravés sur
-la lame, hiérodoule du Passé. F0
+la lame, hiérodoule du Passé.
 Ces mots, écrits en une langue si ancienne que
 peut-être elle n'a jamais existé, disent : Prends-moi. ‘à
 Comprends-tu mieux ce qui est empreint sur l'autre
@@ -219,18 +219,18 @@ viens-toi du Prévoyant, qui donna la flamme aux
 dévoré par le chien aiïlé de Zeus, l'aigle vorace, …
 jusqu'au jour où mon épigone viendra le délivrer! Là
 Souviens-toi du Chananéen sagace, inventeur de
-l'alphabet, qui rampe, changé en serpent, et qui, 4
+l'alphabet, qui rampe, changé en serpent, et qui,
 maudit partout, erre à travers le monde, parce que, L'
 lampadophore heureux, il sut transmettre la sagesse
 antique! Héritier de Cadmus, tremble pour toi- ht.
-même! Et maintenant, adieu! Loin encore est Ta- À s
+même! Et maintenant, adieu! Loin encore est Ta- À
 nagra, plus loin la Libye où Andromède m'attend. ‘1
 
 ton retour, passe par Thèbes, à mon hôte. he.
 
 Je reviendrai à Thèbes, sage fils d'Échion. mn
 Tu m'as dit sous quel nom te connaissent les
-peuples de l'Ourse; dis-moi quel est ton nom dans b.
+peuples de l'Ourse; dis-moi quel est ton nom dans
 le pays akhaïen. ne
 
 Je suis le fils de Danaé, Persée! Au revoir, Pen-
@@ -250,7 +250,7 @@ tout sexe.
 
 Où rejoignis-tu cette cohue ? MAMA Er -
 Sur la route, au sortir de la porte Elektra.
-Où Bacchus vous mena-t-il ? d 10 î
+Où Bacchus vous mena-t-il ?
 Sur le Cithéron?
 Sur le Cithéron. 1 CCR
 
@@ -283,8 +283,8 @@ Il a dit aussi : Ve jugez pas les autres et vous ne
 serez pas jugés. J'ai tout noté sur mes tablettes.
 Mais c'est une doctrine d'assassin qui recherche
 l'impunité! Cet homme-là a un meurtre sur la con-
-De plus il révèle les mystères. ô
-Crime digne de mort. Répète-moi encore quelquesuns de ses enseignements. :1s
+De plus il révèle les mystères.
+Crime digne de mort. Répète-moi encore quelquesuns de ses enseignements.
 Il pousse ouvertement à la division dans les
 familles; il dit : Je ne suis pas venu apporter la
 paix dans Thèbes; je suis venu apporter, non la ‘10
@@ -341,7 +341,7 @@ Il est grand, maigre, pâle, avec des traits doux et.
 presque féminins ; sa barbe est blonde ; en public il Ke “$
 penche toujours un peu la tête et prend un air pensif: on prétend que pendant les Bacchanales il est. ni
 tout autre. : Dr
-Que fites-vous après tous ces discours ? * 2e
+Que fites-vous après tous ces discours ?
 
 Les disciples de Bacchus passèrent la nuit surla
 Ils ne célébrèrent pas les Bacchanales ce soir-là?
@@ -494,28 +494,28 @@ rielle, elle te donna en échange un regard tout divin
 
 sur les choses du présent et de l'avenir. Or voici
 qu'un grand danger menace la race de Cadmus. Un ne
-bâtard issu de cette race, fruit de la faute de Sémélé, È
+bâtard issu de cette race, fruit de la faute de Sémélé,
 revient de la Lydie, où il s'est fait passer pour dieu.
 Il ramène avec lui une tourbe de prostituées et de pe
 gens sans aveu qui vivent dans le désordre et
 l'ivresse, dévastent les pays où ils passert etence
 moment, campés devant la porte Elektra, menacent $
 Thèbes elle-même. Ce Bacchus, ou Iacchus, dit jé
-Sabazius, dit Bromius, portant enfin plus de roms x
+Sabazius, dit Bromius, portant enfin plus de roms
 que n'en porte d'ordinaire un honnête homme,
 prêche une morale qui serait subversive de toute
 société. Je vais donc profiter de son impudente
 audace, sortir avec quelques soldats et détruire ces ‘4
 misérables. Mais avant de commencer cette expédi-
-tion, à noble Tirésias, je veux être sûr des Thébains, 4
+tion, à noble Tirésias, je veux être sûr des Thébains,
 et je compte sur toi pour les maintenir dans le
 devoir, dans le respect de leur roi et dans le culte
 des anciens dieux.
 J'approuve tes intentions, Penthée. Mais ne réflé-
-chis-tu pas que si tu convaines Bacchus d'imposture, k.
+chis-tu pas que si tu convaines Bacchus d'imposture,
 tu flétris le sang de ton aïeul Cadmus ? Lors même
 que ce jeune homme ne serait pas dieu, tu devrais
-encore aflirmer qu'il l'est et, par un honnête men- ÿ
+encore aflirmer qu'il l'est et, par un honnête men-
 songe, assurer à Sémélé la gloire d'avoir enfantéun
 dieu et sauver l'honneur de ta maison.
 Certes le respect dû à la famille royale est chose
@@ -525,7 +525,7 @@ p De plus, la prédication de Bacchus aura un heu-
 reux effet sur la religion. Les cultes des anciens
 dieux ne sont plus aujourd'hui que de vaines for-
 malités; il faut de temps en temps un élan nouveau,
-_un prophète plus jeune qui secoue la poussière d'indifférence attachée aux cultes traditionnels. i
+_un prophète plus jeune qui secoue la poussière d'indifférence attachée aux cultes traditionnels.
 l Et que fais-tu dans tout cela du pouvoir royal?
 La religion est l'alliée naturelle du pouvoir.
 Comme l'homme est l'allié naturel du cheval.
@@ -539,7 +539,7 @@ culte de Bacchus.
 D'abord il se ferait à Thèbes un grand pèlerinage,
 une affluence de peuple apportant leurs présents,
 dont ils paieraient la dîime aux péages, aux portes,
-aux hôtelleries. La ville gagnerait en renom ; enfin, Â
+aux hôtelleries. La ville gagnerait en renom ; enfin,
 pendant quelques années, les Thébaïins ne s'occupe- …
 raient pas de politique, .
 Bacchus est dieu, Tirésias est son prophète.
@@ -584,14 +584,14 @@ Et voici : lacchus nous fait connaître cette vie de
 l'au-delà, et moyennant une brève durée de privations et de dévotions à son culte, il assure les éphé- ‘5
 mères d'une éternité bienheureuse. N'est-ce pas, Er
 roi, le parti le plus sage de l'écouter et de lui
-Et s'écroulerait ainsi la splendeur de l'orgueilleuse ‘ 4
-Pour l'édification d'une éternelle et divine cité ! # k.
+Et s'écroulerait ainsi la splendeur de l'orgueilleuse ‘
+Pour l'édification d'une éternelle et divine cité ! #
 
 La gloire serait ternie de la race Cadméide.
-combien heureux qui s'humilierait en vue k:
+combien heureux qui s'humilierait en vue
 d'une gloire immortelle !
 
-Non! — Tous deux, sortez! A vous, je pardonne, 4
+Non! — Tous deux, sortez! A vous, je pardonne,
 
 mais Bacchus périra, et je vais à l'instant rassem-
 bler les citoyens pour exterminer sa bande.
@@ -628,8 +628,8 @@ On entraîne Bacchus. — Depuis quelques instants le jour a beaucoup baissé;
 PENTHÉE, tendant le bras vers la porte : O Zeus, dis-moi par un .
 signe manifeste que vraiment je combats pour toi,
 et que je remporterai la victoire.
-Un éclair illumine la scène, un coup de tonnerre retenlit; Penthée sort. e
-Rideau l
+Un éclair illumine la scène, un coup de tonnerre retenlit; Penthée sort.
+Rideau
 
 Il m'assurait qu'avant de mourir je verrais le dieu
 C'est l'imposteur Bacchus que tu nommes ainsi ?
@@ -670,7 +670,7 @@ Le dieu s'engendre lui-même et reparaît dans une
 nouvelle génération après avoir traversé le sein
 d'une déesse, à la fois son épouse et sa mère.
 Je ne comprends pas. ‘4
-C'est pourtant bien simple. Zagreus — 0
+C'est pourtant bien simple. Zagreus
 
 Qui est Zagreus? ‘4
 
@@ -716,8 +716,8 @@ Que signifie le culte du vin?
 juste — le sang de Bacchus, de même que dans les
 mystères de Démêter et Coré infernales, le froment
 représente son corps, ou plutôt son corps représente ; ‘44
-le froment. Ce que tu ne soupçonnes peut-être pas, % 24
-c'est que Coré était vierge quand elle enfanta À4
+le froment. Ce que tu ne soupçonnes peut-être pas, %
+c'est que Coré était vierge quand elle enfanta
 Bacchus; son nom du moins le laisse supposer; et
 ceci porte d'ailleurs le coup de grâce aux interpré
 tations évhéméristes. Ce qui est sûr, c'est que ‘4
@@ -725,12 +725,12 @@ Hermès, l'esprit divin, procède de Zeus par Bacchus,
 et Bacchus de Zeus par Hermès, et qu'ils sont d'une ‘4
 nature semblable ou similaire.
 Voilà qui est élégant, simple et compréhensible !
-Et mes deux villes pillées, mes bestiaux égorgés, 4
+Et mes deux villes pillées, mes bestiaux égorgés,
 mes serviteurs tués, l'oisiveté, le meurtre, la rébel- "4
 lion prêéchés partout dans mes états, comment l'évhé-
 mérisme rend-il compte de tout cela? Re
 Comment — on a pillé! c'est incroyable ; c'est
-inadmissible, ce sont des agents provocateurs — 1
+inadmissible, ce sont des agents provocateurs
 
 Cesse de railler. As-tu compris que ton heure est
 Bacchus est immortel ; s'il le veut il pourra me
@@ -750,7 +750,7 @@ On l'a soutenu. Lycurgue signifierait l'hiver, me-
 neur de loups, menaçant pour la vigne — dans cet
 ordre d'idées, tout peut se défendre.
 
-Ne crois pas Damis, parce que tu m'as fait rire, s.
+Ne crois pas Damis, parce que tu m'as fait rire,
 que ta vie soit épargnée. Si ta folie paraît moins
 dangereuse que celle des pillards et assassins du
 reste de la bande, elle est plus menaçante pour
@@ -781,13 +781,13 @@ J'adore ce dieu.
 Fr Quand le vis-tu pour la première fois?
 
 Ce fut un jour d'automne où je revenais des “
-Mystères de Coré, réveuse et l'âme dispose à rece- ë
+Mystères de Coré, réveuse et l'âme dispose à rece-
 voir le souffle divin. Je vis sur une place une grande
-foule autour d'un homme jeune, pâle, et qui me x
+foule autour d'un homme jeune, pâle, et qui me
 sembla beau. Les hommes, agenouillés, tendaient
 les mains vers lui; les femmes, les cheveux épars
 dans la poudre, cherchaient de leurs lèvres les
-pans de ses vêtements. Mais lui, rêveur, se taisait ÿ
+pans de ses vêtements. Mais lui, rêveur, se taisait
 et semblait regarder en lui-même, et, comme j'étais
 voilée et accompagnée d'une seule servante, j'osai
 m'arrêter et je l'écoutai.
@@ -795,7 +795,7 @@ Que disait-il?
 Il flétrissait les Rois, les Prêtres, les Riches; sa
 parole me révoltait et m'attirait. Il dévoua au
 malheur la maison de Cadmus; il annonça la ‘à
-destruction de Thèbes. J'étais pénétrée d'horreur, 1
+destruction de Thèbes. J'étais pénétrée d'horreur,
 mais d'une sorte d'horreur religieuse; quand je fus
 partie, ma pensée resta tournée vers lui, et par
 moment je maudissais mon rang et ma fortune. —
@@ -985,7 +985,7 @@ débauches des Bacchanales. — Donnant à nos
 efforts un but mystique et extérieur à la vie, il veut
 laisser l'homme végéter immobile et sauvage, sans
 espoir de bien-être ni de progrès, tel qu'il était
-avant que survinssent le très sage ravisseur du feu, 4
+avant que survinssent le très sage ravisseur du feu,
 et le fils révéré d'Agénor et de Téléphassa, inven- À
 teur des signes qui parlent à l'esprit, et fondateur
 de cette cité.
@@ -995,11 +995,11 @@ J'ai deux âges d'homme de plus que toi, 6 Penthée,
 j'ai vu naître et mourir bien des cultes et je crois
 que nul n'est dangereux, parce que leur esprit
 intime n'est jamais compris et observé par la foule
-mobile. Introduis demain le culte de Bacchus; L
+mobile. Introduis demain le culte de Bacchus;
 quelles choses seront changées dans la ville? Il y "à
-aura chaque année deux ou trois fêtes de plus; un k
+aura chaque année deux ou trois fêtes de plus; un
 nouveau collège de prêtres et de prétresses se
-créera, ainsi que je te l'avais proposé. La vie maté- Ê
+créera, ainsi que je te l'avais proposé. La vie maté-
 rielle de la cité sera à peine modifiée, car on ne
 saurait vivre toute une année en Bacchanales.
 
@@ -1026,9 +1026,9 @@ Vieillard aveugle, qui as un glaçon à la place du
 cœur, oublies-tu que je suis un dieu, que ma vérité
 est une et absolue, et que prouver par des raisons
 politiques la divinité de ma mission, c'est proférer
-un blasphème ? e
+un blasphème ?
 Tirésias fait un geste de découragement. mA
-J'aime mieux que tu parles ainsi. Au moins tu k
+J'aime mieux que tu parles ainsi. Au moins tu
 mourras sans t'être démenti. Mais je veux savoir
 aussi comment tu excuseras les crimes qu'on tereproche.
 Quels crimes ? Ma vie fut toujours pure etcon-
@@ -1094,12 +1094,12 @@ un jour, et t'entraînera dans la mort ! Malheur à toi!
 Le dernier né divin mourra à son tour! L'altier
 Olympos où tu habites s'enflammera aux rayons ar-
 dents du désir de savoir allumé par Prometheus au
-cœur de l'homme! Il s'écroulera, ton fier Olympos, U
+cœur de l'homme! Il s'écroulera, ton fier Olympos,
 il s'écroulera avec toi, et avec tous les grands dieux
-Ouraniens ! Malheur à toi! Je serai vengé et je p
-connais mon vengeur, et ton pouvoir divin, ô Baç- ù
+Ouraniens ! Malheur à toi! Je serai vengé et je
+connais mon vengeur, et ton pouvoir divin, ô Baç-
 chus ! ne saura l'arrêter, car il ignore la crainte. — À
-Voici devant vous le dernier descendant de Cadmus, 4
+Voici devant vous le dernier descendant de Cadmus,
 père de la cité. njette ses armes. Frappez-moi, si vous ts
 l'osez ! Tous hésitent. Qui donnera le coup de la Mort au
 dernier des grands rois Thébains ?
@@ -1109,7 +1109,7 @@ se ruent sur lui; il tombe accablé de coups. Les uns sortent alors,
 
 traînant son cadavre, les autres se prosternent, tout sanglants, devant
 GLAUCOS, se prosternant aussi
-Maître, au fond de mon cœur je t'ai toujours ÿ
+Maître, au fond de mon cœur je t'ai toujours
 
 Relève-toi ! tu es l'ouvrier de la onzième heure, et ?
 ton salaire ne sera pas moindre. ) 4\
@@ -1197,7 +1197,7 @@ Voyez comme la foule servile fuit le contact de
 
 à A des âmes aussi viles, il faut une religion.
 à C'est au nom de la religion que ces hommes
-accomplissent leurs bassesses et leurs crimes! InKL : AR D È
+accomplissent leurs bassesses et leurs crimes! InKL : AR
 ‘à terroge-les : c'est l'erreur de Tirésias qu'ils diront
 baïr, et non sa déchéance !
 
@@ -1206,30 +1206,30 @@ J'aime mieux ne point voir ce qui va se passer.
 fi Il sort, tous les autres se prosternent.
 a 1 Deux prêtres entrent, puis Bacchus qui jette sur la foule prosternée
 Al un regard de domination et de mépris; d'autres prêtres viennent
-ensuite, et, fermant la marche, le Grand-Prêtre Damis. ÿ
+ensuite, et, fermant la marche, le Grand-Prêtre Damis.
 Relevez-vous ! Le dieu a repris sa forme humaine
 et maintenant les yeux profanes peuvent le voir “4
 sans danger. ‘4
-Les Thébains se relèvent, secouant leurs robes aux genoux. + pi: 1
-BACCHUS, désignant Tirésias de son fhyrse £ 4
+Les Thébains se relèvent, secouant leurs robes aux genoux. + pi:
+BACCHUS, désignant Tirésias de son fhyrse £
 Voilà l'insolent qui osa nier ma divinité ! ‘14
 Vieillard! Faut-il te répéter ce que tu devrais fe
 savoir ? Tu donnes pour mère au dieu Bacchus une ‘7°
-simple mortelle ! 4 pamis : Prêtre, proclame la vérité, n
+simple mortelle ! 4 pamis : Prêtre, proclame la vérité,
 afin que nul n'erre à l'avenir ! n sassiea.
 L'Enfant que Zeus engendra dans le sein de la
 vierge Coré fut transmis à Sémélé par Hermès.
-Ainsi Bacchus naquit trois fois : de Coré d'abord, 4
+Ainsi Bacchus naquit trois fois : de Coré d'abord,
 
 dont la virginité répudiait le travail de l'enfante- ?
 ment ; — la seconde fois de Sémélé, quand elle eut
 été frappée de la foudre; — et la troisième fois de
 Zagreus, qui fut Bacchus préformé, à la fois mâle et
 femelle, pour se contenir et s'enfanter lui-même.
-De même, Bacchus mourra trois fois : la première ‘1 4
+De même, Bacchus mourra trois fois : la première ‘1
 fois en tant que Zagreus, Bacchus divin et primitif ; 4 à
 la seconde fois en tant que Bacchus terrestre ; la
-troisième fois en tant que Coros Sôter ou Rédemp- 04 k
+troisième fois en tant que Coros Sôter ou Rédemp-
 teur, époux infernal de Coré Eleutheria, la libératrice qui intercède auprès de lui. de
 
 Et quiconque niera les vérités que je viens d'exprimer sera puni comme corrupteur de la jeunesse et
@@ -1251,7 +1251,7 @@ C'est clair !
 Maintenant que vous possédez la Voie, la Vie et
 la Vérité, il faut arracher d'entre vous l'arbre qui
 ne porte pas de bons fruits, il faut couper le mem-
-bre gangrené : j'ai nommé de vieillard Tirésias, qui j
+bre gangrené : j'ai nommé de vieillard Tirésias, qui
 répandait parmi vous de pernicieuses doctrines,
 insinuant que ma nature était différente de celle de
 mon père, et tombant dans les plus lamentables
@@ -1260,9 +1260,9 @@ malheur à celui par qui le scandale arrive ! Donc
 Tirésias sera puni en avertissement aux obstinés.
 J'ai vu les Hellènes se faire des guerres sanglantes
 pour des intérêts parfois légers; j'ai vu le Locrien
-détester l'Étolien, le Thessalien menacer le Béotien, 4
+détester l'Étolien, le Thessalien menacer le Béotien,
 l'Athénien attaquer les terres de Mégare. J'ai vu
-des hommes s'injurier parce que les uns étaient ÿ
+des hommes s'injurier parce que les uns étaient
 Asiatiques, les autres Européens; encore combat- à
 taient-ils sous des chefs différents et parfois l'un
 contre l'autre. Mais jamais jusqu'à ce jour la Hellas
@@ -1417,7 +1417,7 @@ ne suis pas au courant. Où est Penthée? Que se
 passe-t-il ici?
 Cependant les pèlerins étrangers sont sortis,
 
-Penthée est donc mort? k
+Penthée est donc mort?
 la chasse, par accident.
 quel titre lui succédas-tu ?
 Comme époux de sa sœur Autonoé.
@@ -1621,7 +1621,7 @@ Saurai-je les formuler ?
 L'habitude me donne la science divinatoire des
 sentiments, J'excelle à faire connaître le mal à qui
 ANDROMÈDE, faisant un mouvement pour se lever, mais retenue
-par Autonoé j
+par Autonoé
 Quelle nuit ! A quoi bon revenir sur ce qui est fait
 et se tourmenter de l'irréparable — Ma vie m'appa-
 raît maintenant affreuse et sombre — Est-ce done
@@ -1661,7 +1661,7 @@ Je ne resterai pas un moment de plus dans ce palais.
 Il fait un signe à Andromède qui se lève, et la précède vers la porte; Bacchus se »
 précipite au devant de lui et lui barre le chemin. Tu veux me forcer
 à la violence? Je ne combattrai pas mon hôte.
-Il va passer par la porte de droite; Bacchus décroche une épée pen- E
+Il va passer par la porte de droite; Bacchus décroche une épée pen-
 due au mur et se jette sur lui; Persée, sentant son mouvement,
 C'est un dieu que tu combais!
 

@@ -15,23 +15,23 @@ nl ie dans nos cinq premières séries, 1900-1904; un si
 à grand nombre de documents, de textes formant EEE
 PE si grand nombre de cahiers de lettres, — nouvelles, … à
 110 romans, drames, dialogues, poèmes et contes; — ae
-\ $ si grand nombre de cahiers d'histoire et de philœ M
+\ $ si grand nombre de cahiers d'histoire et de philœ
 "1e se sophie; et ces documents, renseignements, textes,
-I dossiers et commentaires, ces cahiers de lettres, M
+I dossiers et commentaires, ces cahiers de lettres,
 Ne d'histoire et de philosophie étaient si considérables \
-ue | que nous ne pouvons pas songer à en donner ici} 10
+ue | que nous ne pouvons pas songer à en donner ici}
 UN l'énoncé même le plus succinct; pour savoir ce qui a ie
 ‘Ai paru dans les cinq premières séries des cahiers, is
 pu: suffit d'envoyer un mandat de cinq francs à M. Andrél\ tas
 Le Bourgeois, administrateur des cahiers, 8, rue de la Sor-. Ne. a
-‘à bonne, rez-de-chaussée, Paris, cinquième arrondisse- D
+‘à bonne, rez-de-chaussée, Paris, cinquième arrondisse-
 5 sommaire, 1900-1904, de nos cinq premières SU \
-Le Ce catalogue a été justement établi pour donner, + . L
+Le Ce catalogue a été justement établi pour donner, +
 AE autant qu'il se pouvait, une image en bref, un raccourci, 3 DEA
 ct une idée, abrégée, mais complète, de nos éditions anté
-a : rieures et de nos cinq premières séries ; tout y est classé ÿ
+a : rieures et de nos cinq premières séries ; tout y est classé
 AU 1, dans l'ordre ; il suffit de le lire pour trouver, à leur ‘(EAN
-1 place, les références demandées. no. ë
+1 place, les références demandées. no.
 Ut Ce catalogue, in-18 grand jésus, forme un cahier IR
 V très épais de XI1+-G08 pages très denses, marqué cinq. ‘a ;
 
@@ -43,8 +43,8 @@ NE LH abonnait rétrospectivement à la sixième série le rece- RE
 | D Rper le fait même de son abonnement, en tête de la FR
 1 sé ie; nous l'envoyons contre un mandat de cinq francs AP
 cc toute personne qui nous en fait la demande. An:
-| Pour la septième série, année ouvrière 1905-1906, et 1
-| Ne el n attendant que paraisse le catalogue analytique som- ÿ
+| Pour la septième série, année ouvrière 1905-1906, et
+| Ne el n attendant que paraisse le catalogue analytique som-
 | ST ne re de nos deuxièmes cinq séries, 1904-1909, on à
 | n peu t consulter, — provisoirement, — la petite table À
 ; a alytique très sommaire que nous en avons établie et :
@@ -52,9 +52,9 @@ cc toute personne qui nous en fait la demande. An:
 | Pour amorcer tout travail que l'on aurait à commencer tre
 … dans notre premier catalogue analytique sommaire, con- ;
 | _ sulter ci-après le petit index alphabétique provisoire
-| qu e nous avons établi automatiquement de ce catalogue F
+| qu e nous avons établi automatiquement de ce catalogue
 . analytique sommaire dans l'index total de nos éditions
-; an érieures et de nos sept premières séries. Ê
+; an érieures et de nos sept premières séries.
 
 Il a été tiré de ce cahier treize exemplaires sur
 whatman ainsi distribués : :
@@ -66,7 +66,7 @@ Tous nos exemplaires sur whatman sont numérotés <
 à la presse et imprimés au nom du souscripteur ; nos
 tirages d'exemplaires sur whatman sont rigoureuse = à
 ment limités au nombre d'abonnements à chaque instant souscrits: nous ne vendons point d'exemplaires
-sur whatman en dehors de l'abonnement: l'abonnement r
+sur whatman en dehors de l'abonnement: l'abonnement
 sur whatman à cette huitième série est de cent francs
 pour tous pays.
 Les Cahiers de la Quinzaine sont composés à la main,
@@ -92,20 +92,20 @@ tn) le prix actuel; ?
 antérieures et pour nos cinq premières séries, la page
 du catalogue analytique sommaire où est catalogué ce
 
-| 5 a. _ de nos éditions antérieures k
+| 5 a. _ de nos éditions antérieures
 —._ et de nos sept premières séries
 
 | 14 4 chaque jour, — poèmes, — de François Porché (V-17,
 | HD | vers l'action, — de René Salomé (I-2, 17 décembre 1900, à
 | Dee en voie d'épuisement.......... douze francs 23 |
-Action Socialiste, par Jean Jaurès, — première série; Le i
+Action Socialiste, par Jean Jaurès, — première série; Le
 … Socialisme et l'Enseignement; le Socialisme et les Peuples, À
 | ; Re trois francs cinquante 3 ,
 | Aërt, — trois actes, — de Romain Rolland, — premigr
 août 1898, — un volume en voie d'épuisement............
 | courrier d'Algérie, — par François Dagen, — cahier de : \
 | cour iers, — considérations sur les causes de la grandeur À
-ue ourrier d'Algérie, —cinq brèves rectifications de Bernard- é
+ue ourrier d'Algérie, —cinq brèves rectifications de Bernard-
 | Rips oul Allier, — l'enseignement primaire des indigènes à ;
 LA ENNEMIS trois francs cinquante
 
@@ -113,7 +113,7 @@ Raoul Allier, — Charles Péguy, — Raoul Allier, — l'en- =
 seignement primaire des indigènes à Madagascar (VI-6,
 — — la séparation des Églises et de L'État (NI-14,
 — — — — édition du Siècle, en vente à la librairie >
-— — la Séparation des Églises et de l'État, — la sépa- 2
+— — la Séparation des Églises et de l'État, — la sépa-
 Cahier d'annonces (-r0, jeudi 4 avril 1901, un cahier en
 la politique anticlérieale et le socialisme, — par Édouard
 | Jeanne d'Arc, — drame en trois pièces, — de Marcel et
@@ -136,25 +136,25 @@ re : Bacchus, — drame en trois actes, — de Lionel Landry (8,
 ÿE a Marcel et Pierre Baudouin, — Jeanne d'Arc, — drame en
 trois pièces, — Domremy, les batailles, Rouen, — décembre
 À ÿ “à È Pierre Baudouin, — Marcel, — premier dialogue de la cité
-fe . — — La chanson du roi Dagobert, première chansonFe née (IV-15, mardi 24 mars 1903............. un france 93r
+fe . — — La chanson du roi Dagobert, première chansonFe née (IV-15, mardi 24 mars 1903............. un france
 Pa Joseph Bédier, — sur l'œuvre de Gaston Paris (V-14,
 :4 — — Cahiers de la Quinzaine, — note sur Le roman de
 __ Tristan et Iseut (VI-15, mardi 18 avril r905..... six francs
-14 Beethoven, — de Romain Rolland, — vies des hommes
+Beethoven, — de Romain Rolland, — vies des hommes
 —_ illustres, — avec le masque de Beethoven (IV-10, samedi
 — 24 janvier 1903, un cahier épuisé, n'est plus mis en vente
-Ex 4 que dans les collections complètes de la quatrième série 206
+Ex 4 que dans les collections complètes de la quatrième série
 LE Beethoven, deuxième édition, sans le masque (IV-10,,
 114 . courrier de Belgique, — de René Salomé (Il-18, mardi
 mr 1 Henry Bérenger (non point à titre de collaborateur, mais
 _ en citation dans l'affaire Dreyfus), — clôture! (IV-18, mardi
 ; "5 _ Henri Bergson, — introduction à la métaphysique, —
 — conclusion, — d'après la Revue de Métaphysique et de Morale
-154 Bernard-Lazare, — l'oppression des Juifs dans l'Europe [E
-- … orientale, — les Juifs en Roumanie (US, jeudi 13 février Û
+Bernard-Lazare, — l'oppression des Juifs dans l'Europe [E
+- … orientale, — les Juifs en Roumanie (US, jeudi 13 février
 
 ù Bernard-Lazare, — une lettre adressée à monsieur Th. LT
-4 Delcassé, ministre des affaires étrangères, — de Budapest, Le
+Delcassé, ministre des affaires étrangères, — de Budapest, Le
 ji — — la loiet les congrégations, — consultation (HE-21, :
 ne: samedi 16 août 1902........... trois francs cinquante 17%
 s — — Juifs de Roumanie, — une lettre à monsieur
@@ -167,13 +167,13 @@ or Edmond Bernus, — La Russie vue de la Vistule, — histoire
 
 Fa! 5 Ernest Bersot, — discours prononcé sur la tombe d'Arnold
 
-1 Edouard Berth, — la politique anticléricale et le socialisme
+Edouard Berth, — la politique anticléricale et le socialisme
 
 ; il Berthelot, sénateur, membre de l'Académie française, |
 
 " secrétaire perpétuel de l'Académie des sciences, — discours
 
-4 prononcé à l'inauguration du monument Renan (V-3, mardi 2
+4 prononcé à l'inauguration du monument Renan (V-3, mardi
 
 k À moinovembre|r 905 ".5-.....22..0... te Ndeux francs ta
 
@@ -193,7 +193,7 @@ U P. Birukov, — introduit l'Église et l'État, de Tolstoi (VI-13,
 
 “ Le Bloc de Clemenceau, indications de librairie complètes,
 
-FI et collections (V-5, mardi 8 décembre 1903, deux francs 299
+FI et collections (V-5, mardi 8 décembre 1903, deux francs
 
 Boe klin chez les Français, — par Léon Deshairs (-r4, ; '.
 S LL aurice Bouchor, — une lettre sur ce que l'on peut jouer | |
@@ -201,7 +201,7 @@ _ dans une représentation populaire (II-6, samedi 28 dé- rl
 BAL 0 Célestin Bouglé, — tout un dossier dans le cahier la déla- os
 tion aux Droits de l'Homme, textes formant dossier (VI-9, À
 19 mars 1901, un cahier en voie d'épuisement............ : qi
-& _ Émile Boutroux, président du Conseil de direction, — dis- L
+& _ Émile Boutroux, président du Conseil de direction, — dis-
 … cours lu pour l'inauguration des locaux et pour l'ouverture 4 %
 des cours à l'École des Hautes Études Sociales (U-1, jeudi |
 . 29 novembre 1900, un cahier en voie d'épuisement.......
@@ -210,17 +210,17 @@ Pierre Savorgnan de Brazza, les derniers jours de M. de
 _ Jean des Brebis ou le livre de la misère, — par Émile à
 _ Moselly; Jean des Brebis, à la belle étoile, le revenant, la
 mort du Bouif, le Trompion, Cri-Cri (V-15, mardi 26 avril
-1 B enn, — Yves Madec professeur de collège (VI-10, mardi
+B enn, — Yves Madec professeur de collège (VI-10, mardi
 #4 | T0 de Bretagne, — par Edmond Lebret (IV-11, mardi
-128 Henri Brisson, — préface au cahier de Raoul Allier, — la
+Henri Brisson, — préface au cahier de Raoul Allier, — la
 | … séparation des Églises et de l'État (VI-14, mardi 4 avril 1905,
 Ë e _ — édition du Siècle, en vente à la librairie des cahiers,
 … M. Brunetière historien, — par Daniel Delafarge (1-15,
 | mardi 23 juillet 1901, un cahier en voie d'épuisement,
 
 En duction et notes de L. Lévi : première partie, Maximilien
-| FN Robespierre jusqu'à son entrée dans l'Assemblée nationale, 3
-1 Ferdinand Buisson, — une lettre dans le cahier La délation k
+| FN Robespierre jusqu'à son entrée dans l'Assemblée nationale,
+Ferdinand Buisson, — une lettre dans le cahier La délation
 Lee aux Droits de l'Homme, textes formant dossier (VI-9, mardi
 Fi Bulletin de l'Office du travail, — courrier de France, grève :
 ‘4 générale des mineurs, une longue citation ([V-9, mardi RE
@@ -230,18 +230,18 @@ Me Cahiers nivernais, une annonce (Il-r, mardi premier oc-
 Fa Catalogue analytique sommaire, 1900-1904, — de nos
 
 ‘a Catholicisme et critique, — par Paul Desjardins, — ré- |
-40 Jlexions d'un profane sur l'affaire Loisy (VEx17, mardi
+Jlexions d'un profane sur l'affaire Loisy (VEx17, mardi
 :34 — —  — — édition des Libres entretiens, en vente à à
 à la librairie des cahiers ..:....:..:.......:.:"Ndenxctranco
 f 4 le comité catholique pour la Défense du Droit, une lettre :
 RE: Léon Chaine, — les Catholiques français et leurs diffi-
 
-EX, 16 janvier 1902, un cahier en voie d'épuisement..…........ ï
+EX, 16 janvier 1902, un cahier en voie d'épuisement..…........
 à 1 — — la Russie vue de Vladivostock, journal d'un CE
 
 “1 -  Félicien Challaye, — impressions sur la vie japonaise
 pr > — — Second courrier d'Indo-Chine (IV-9, mardi 13 janpa On An MEN nm franc /N200
-1 100
+1
 | 40 — — impressions sur Java, — fragments de journal
 ci ; — — la réorganisation du Congo français (VII-16,
 ÿ 1 .  Chaumié, ministre de l'Instruction publique et des BeauxMN Arts, — Discours prononcé aux funérailles d'Emile Zola
@@ -250,7 +250,7 @@ ci ; — — la réorganisation du Congo français (VII-16,
 _ Lionel Landry (1-5, lundi 28 janvier 1901, un cahier en
 re — — même temps, du même (Il-14,samedi 6 juillet 1907,
 pe premier dialogue de la cité harmonieuse, — Marcel, —
--_ par Pierre Baudouin, juin 1898......... deux francs 1
+-_ par Pierre Baudouin, juin 1898......... deux francs
 sta de la Cité Socialiste, — par Pierre Deloire, août 1897...
 1:08 Georges Clemenceau, — Discours pour la liberté; —
 dossier Clemenceau-Pressensé, Clemenceau-Jaurès; — le
@@ -264,46 +264,46 @@ x é le Coltineur débile, de Jérôme et Jean Tharaud, — l'Écha- ;
 (4 faudage, la Merveille, sur les routes, la Détresse, août à $
 MX le Congo français, par Félicien Challaye (VII-r2, mardi à
 à Î le Congo léopoldien, par E. D. Morel et Pierre Mille (VH-6, ;
-di | les deux Congo devant la Belgique et devant la France, — f
-à par Pierre Mille et Félicien Challaye (VII-16, mardi 13 avril 2
+di | les deux Congo devant la Belgique et devant la France,
+à par Pierre Mille et Félicien Challaye (VII-16, mardi 13 avril
 É Pour et contre les congrégations, — dossier (I-21, samedi -
-4 La préparation du congrès socialiste national (1-2, 20 jan- £
-in vier 1900, un cahier en voie d''épuisement, douze francs 8 ï
+La préparation du congrès socialiste national (1-2, 20 jan- £
+in vier 1900, un cahier en voie d''épuisement, douze francs
 Le — — (13, 5 février 1900, un cahier en voie d'épuise1 \ MENU M snenn- leu easic certe cet RÜOUZONETIEN RS à
 5 — — (!-, 20 février 1900, un cahier en voie d'épuise-
 à La dernière préparation et la tenue du congrès socialiste à
 4 ; national (1-7, 5 avril 1900, un cahier en voie d'épuisement, :
-1 ! Compte rendu sténographique non officiel de la version û
+1 ! Compte rendu sténographique non officiel de la version
 fi française du cinquième congrès socialiste international tenu QE
-# à Paris du 23 au 27 septembre 1900 (Il-16, mardi 13 août F4
+# à Paris du 23 au 27 septembre 1900 (Il-16, mardi 13 août
 he: le congrès de Dresde, — textes et documents, — septembre
-A 1903, — une édition de Gaston Raphaël (V-16, mardi 24 mai F
+A 1903, — une édition de Gaston Raphaël (V-16, mardi 24 mai
 \ La Consultation internationale ouverte à La Petite Répu1 blique sur l'affaire Dréyfus et le cas Millerand (15, 5 mars '
 4 1900, un cahier en voie d'épuisement ..... huit francs 14 \
 +; #0 ent ss Luis eh enter nentenee tes OUI PONS
-5 ï — — (xt, mardi 3 et mercredi { juillet 1900, un cahier f
+5 ï — — (xt, mardi 3 et mercredi { juillet 1900, un cahier
 \ épuisé, n'est plus mis en vente que dans les collections
-1 complètes de la première série, quand il y en a...... 21
+1 complètes de la première série, quand il y en a......
 
 | 4 … Jean Coste ou l'instituteur de village, — par Antonin : ; TPE
 …  Lavergne (Î-12, mardi 11 juin 1901, un cahier épuisé, n'est At
 à plus mis en vente que dans les collections complètes de la va
 En Le. —  — — édition Ollendorff, en vente à la librairie
-« des cahiers..................... trois francs cinquante 33
+« des cahiers..................... trois francs cinquante
 ù 4 Jean Coste, — une étude brève de M. Sorel sur le roman à
 Ne Lavergne (III-8, jeudi 13 février 1902, deux francs 117 ji)
 ….. Henri Dagan, — l'Oppression des juifs dans l'Europe . |
-… orientale, — les massacres de Kichinef et la situation des N
+… orientale, — les massacres de Kichinef et la situation des
 :2 François Dagen, — cahier de courriers, — courrier d'Al- :
 FL gérie, — considérations sur les causes de la grandeur et de ,
-Lola décadence de l'antisémitisme en Algérie (IV-13, mardi 4
+Lola décadence de l'antisémitisme en Algérie (IV-13, mardi
 14 la chanson du roi Dagobert, — première chansonnée, — |
 . Danton, — trois actes, — de Romain Rolland (1-6, jeudi
 10 février 1907, un cahier épuisé, n'est plus mis en vente que
-_ dans les collections complètes de la deuxième série 29
+_ dans les collections complètes de la deuxième série
 FN Jean Deck, — cahier de courriers, — courrier de Fin- ‘
 “ lande, — en particulier sur les troubles des 17 et 18 avril
- — — Pour la Finlande, mémoire et documents (Il-21, L
+ — — Pour la Finlande, mémoire et documents (Il-21,
 “23 juillet 19071, un cahier en voie d'épuisement............
 
 Georges Delahathe, — juifs russes, — un voyage d'études
@@ -316,20 +316,20 @@ d'un profane sur l'affaire Loisy (VI-17, mardi 23 mai 1905,
 a la/librairie\des cahiers. ...2...0..-...07 dec hirancs
 Pour et contre Diderot, — confrontation (I-5, samedi
 2 mars 1901, un cahier épuisé, n'est plus mis en vente que
-dans les collections complètes de la deuxième série.... 29
+dans les collections complètes de la deuxième série....
 | Dingley, l'illustre écrivain, — par Jérôme et Jean Tharaud
 | le congrès de Dresde, — textes et documents, — septembre
 1903, — une édition de Gaston Raphaël (V-16, mardi
 
 L'Afjaire Dreyfus, — textes et documents (1-1, 5 janvier
-1900, un cahier en voie d'épuisement .... dix francs 7
-1901, un Cahier en voie d'épuisement ... huit francs 28
+1900, un cahier en voie d'épuisement .... dix francs
+1901, un Cahier en voie d'épuisement ... huit francs
 — — docteur Oÿon, — précis de l'affaire Dreyfus,
 lettre à un ami qui ne sait pas, préface d'Anatole France,
 éditions de Pages libres, annonce (IV-13, mardi 24 février
 
-Jaurès; docteur Oyon, — précis de l'Affaire Dreyfus, — ÿ
-trois francs cinquante 235 et 237
+Jaurès; docteur Oyon, — précis de l'Affaire Dreyfus,
+trois francs cinquante 235 et
 — — Charles Péguy, — Affaire Dreyfus, — Cahiers de
 la Quinzaine, — Débats parlementaires; dossier : demande
 d'enquête, lettre adressée au ministre de la guerre par
@@ -376,7 +376,7 @@ al vembre 1900, un cahier en voie d'épuisement.............
 É École socialiste, — une annonce (U-r0, jeudi £ avril 19017, #
 g un cahier en voie d'épuisement.......... douze franes 31 |
 1 } de l'Église et de l'État, — par Georges Sorel, — fragments :
-D: l'Église et l'État, — de Tolstoi, — traduction J.-W. Bien- e
+D: l'Église et l'État, — de Tolstoi, — traduction J.-W. Bien-
 F < stock, — introduit par P. Birukov(VI-13, mardi 21 mars 1905
 " un franc
 
@@ -393,19 +393,19 @@ de — — (13, 5 février 1900, un cahier en voie d'épuisement
 
 ; As — — (14, 20 février 1900, un cahier en voie d'épuise-
 
-| di Mé oires et dossiers pour les libertés du personnel ensei- i
+| di Mé oires et dossiers pour les libertés du personnel ensei-
 … gnant en France (I-15, mardi 23 juillet 1901, un cahier en Me
 . — — (I, mardipremier octobre 1901 .. un franc 8] : A
-: Ar — (7, jeudi 16 janvier 1902, un cahier en voie ; k
-| À Les Libres Entretiens de l'Union pour l'Action morale, — 3
+: Ar — (7, jeudi 16 janvier 1902, un cahier en voie
+| À Les Libres Entretiens de l'Union pour l'Action morale,
 | …__— Cahiers de la Quinzaine (VI-16, mardi 9 mai 1905, un à #
-|‘ cahier retiré du commerce, n'est plus mis en vente que dans 4
+|‘ cahier retiré du commerce, n'est plus mis en vente que dans
 | les collections'complètes de la sixième série................ #
 —. — — édition de Paul Desjardins, — Catholicisme et cri- ;
 .… tique, — réflexions d'un profane sur l'affaire Loisy, — en
 vente à la librairie des cahiers............... deux francs :
-… Études Socialistes, — par Jean Jaurès (II-4, jeudi 5 dé- C
-_cembre 1901, un cahier non mis dans le commerce, n'est É
+… Études Socialistes, — par Jean Jaurès (II-4, jeudi 5 dé-
+_cembre 1901, un cahier non mis dans le commerce, n'est
 _ mis en vente que dans les collections complètes de la troi- À
 ? _— — édition Ollendorff, en vente à la librairie des cahiers #
 … Pierre Félix, — une contribution aux Preuves (1-5, lundi FN
@@ -416,32 +416,32 @@ $ | Pour la Finlande, mémoire et documents, — par Jean Deck \
 . Fradet, — élections dans l'Yonne, — dossier (I-18, mardi “48
 
 Anatole France, — Pour et contre le socialisme ; la liberté à
-par l'étude ; histoire contemporaine, Clopinel, après Clopinel, QE 1
+par l'étude ; histoire contemporaine, Clopinel, après Clopinel, QE
 spectacle consolant (1-3, 5 février 1900, un cahier en voie ‘4
 — — Prolétariat et science (1-6, 20 mars 1900,un cahier de
 — — Diderot, ami du peuple (H-7, samedi 2 mars 19017, #
-un cahier épuisé, n'est plus mis en vente que dans les 4
+un cahier épuisé, n'est plus mis en vente que dans les
 collections complètes de la deuxième série........... 29 !
 — — Cahiers de la Quinzaine; la liberté par l'étude; |
 histoire contemporaine: la loi est morte, mais le juge est %
 vivant; vol domestique; les juges intègres; pensées de À
-Riquet; discours pour la liberté (I-15, mardi 29 avril 1902, D
+Riquet; discours pour la liberté (I-15, mardi 29 avril 1902,
 — — L'affaire Crainquebille, — édition complète (IV-7, !
 mardi 7 octobre 1902, un cahier retiré du commerce, n'est |
 plus mis en vente que dans les collections complètes de la
 — — préface au docteur Oyon, précis de l'affaire
 Dreyfus, lettre à un ami qui ne sait pas, éditions de Pages
-libres, annonce (IV-13, mardi 24 février 1903, un franc 23r
+libres, annonce (IV-13, mardi 24 février 1903, un franc
 d''Anatole France; l'affaire Crainquebille, administration
 — — Discours prononcé à l'inauguration du monument :
-— — Éditions d'art. — Voir Édouard Pelletan; 1
+— — Éditions d'art. — Voir Édouard Pelletan;
 courrier de France, grève générale des mineurs, du
 Bulletin de l'Office du travail (V-9, mardi 13 janvier 1903, |
 la France vue de Laval, — par Félicien Challaye (W-r2,
 
-1 Gallouédee, une lettre portant témoignage dans la polé-
+Gallouédee, une lettre portant témoignage dans la polé-
 | ds mique Téry (I-7, jeudi 16 janvier 1902, un cahier en voie
-(53 La vie d'Évariste Galois, — par Paul Dupuy, — avec un 6
+(53 La vie d'Évariste Galois, — par Paul Dupuy, — avec un
 1} très beau portrait de Galois (V-2, mardi 27 octobre 1903...
 |] Louis Gillet, — La tour d'Armor, — gwerz de Cornouailles,
 Le — dans le premier Cahier de Noël (IV-7, samedi 20 dé-
@@ -456,19 +456,19 @@ j — —  — — édition Calmann Lévy, en vente à la
 v 4 Jean Grave et Urbain Gohier, — un dossier, — par Ludovic
 L Æ Urbain Gohier, — une lettre de rectification au dossier
 ï Jean Grave et Urbain Gohier (U-15, mardi 23 juillet 1907,
-| un cahier en voie d'épuisement ........... huit francs 37
+| un cahier en voie d'épuisement ........... huit francs
 ; — — dossier comment il a quitté l'Aurore (Il-18, mardi
 — — une rectification, dans le cahier Émile Zola (IV-5,
 à — — annonce du Vieux Cordelier ({V-11, mardi 3 fé-
 # — — Spartacus, — cinq actes (VI-12, mardi 7 mars ;
 
-Gorki, — une photographie de Tolstoi et Gorki se promenant ensemble à Iasnaïa Poliana.... deux francs 111
+Gorki, — une photographie de Tolstoi et Gorki se promenant ensemble à Iasnaïa Poliana.... deux francs
 Jean Grave et Urbain Gohier, — un dossier, — par Ludovie # La
 la Grève, — trois actes, — de Jean Hugues (II-6, samedi à:
 grève générale des mineurs, courrier de France, du Bul- À
-letin de l'Office du travail (V-9, mardi 13 janvier 1903... 3 Ë
+letin de l'Office du travail (V-9, mardi 13 janvier 1903...
 grèves d'Armentières, du même Bulletin (V-7, mardi 5 jan- &
-Charles Guieysse, — Intellectuels et socialisme, — contri- Ë
+Charles Guieysse, — Intellectuels et socialisme, — contri-
 bution (1-9, mardi 19 mars 1901, un cahier en voie d'épui- Re:
 BEMEDEE AL pie ne ealale store 10 SN vla seal TERRE RS
 — — Les Universités Populaires et le mouvement ouvrier à
@@ -478,19 +478,19 @@ laires 1900-1901. — II. — Départements; édition de ce |
 Paul Guieysse, député du Morbihan, — discours pour la
 remise du monument de Renan au maire de Tréguier (V-3,
 Guillèrm, maire de Tréguier, — réponse à M. Paul Guieysse :
-pour l'inauguration du monument Renan (V-3, mardi 10 no- è
+pour l'inauguration du monument Renan (V-3, mardi 10 no-
 les haleurs, — d'Émile Moselly (VII-r9, mardi 24 juillet 1906 a
 Daniel Halévy, — Michelet et Quinet; — et dans le même ;
 cahier présentation des quelques textes (IV-21, mardi 21 juil- #
 
 cd Daniel Halévy, — Histoire de quatre ans, 1997-2001 (V-6, fa
 AQU — — Louis Ménard, une étude préliminaire à la réim- +11
-S _ pression de Louis Ménard, Prologue d'une Révolution (V-18, 14
+S _ pression de Louis Ménard, Prologue d'une Révolution (V-18,
 4 4 1 Abel Hermant, président de la Société des Gens de Lettres, ne
 
 RAS De Discours prononcé aux funérailles d'Émile Zola (IV-5, #
 
-1 Affaire Hervé, — mémoires et dossiers pour les libertés ù.
+Affaire Hervé, — mémoires et dossiers pour les libertés
 .. du personnel enseignant en France, attentats dans l'Yonne KA
 
 (5, mardi23 juillet 1907, un cahier en voie d'épuisement, . a
@@ -500,35 +500,35 @@ RAS De Discours prononcé aux funérailles d'Émile Zola (IV-5, #
 - Gustave Hervé, — le droit des fonctionnaires (V-5, mardi %
 D i Heureux qui comme Utbyrsse, — de Jean Schlumberger Ge
 
-les hobereaux, — de Jérôme et Jean Tharaud, — histoire 1
+les hobereaux, — de Jérôme et Jean Tharaud, — histoire
 
-RE) Notes sur la Hollande et sur l'intimité, par Henri Michel, ' K.
+RE) Notes sur la Hollande et sur l'intimité, par Henri Michel, '
 
 … George Jacob Holyoake, — introduction au monde sans à
-à Dieu (V-11, mardi premier mars 190%, un cahier non mis L
+à Dieu (V-11, mardi premier mars 190%, un cahier non mis
 dans le commerce, n'est plus mis en vente que dans les col- %
-…  lections complètes de la cinquième série .............. 331 3
+…  lections complètes de la cinquième série ..............
 
 A ee George Jacob Holyoake, — introduction au monde sans : ?
-Dieu, — édition Cornély, en vente à la librairie des cahiers s.
+Dieu, — édition Cornély, en vente à la librairie des cahiers
 
 Fi ru un franc cinquante 334 >
-É Jean Hugues, — la Grève, trois actes (II-6, samedi 28 dé- ‘ L
+É Jean Hugues, — la Grève, trois actes (II-6, samedi 28 dé- ‘
 
-Hypatie, — quatre actes de Gabriel Trarieux, deuxième 14
+Hypatie, — quatre actes de Gabriel Trarieux, deuxième
 
 petit index alphabétique du catalogue analytique som
-maire (VIl-r, mardi 26 septembre 1905, un cahier épuisé, : 4
-n'est plus mis en vente que dans les collections complètes 4
+maire (VIl-r, mardi 26 septembre 1905, un cahier épuisé,
+n'est plus mis en vente que dans les collections complètes
 courrier d'Indo-Chine, — par Félicien Challaye (I-7, jeudi EEE,
-Second courrier d''Indo-Chine, — par Félicien Challaye 1
-les Intellectuels devant le socialisme ; l'amnistie et les so- 4
+Second courrier d''Indo-Chine, — par Félicien Challaye
+les Intellectuels devant le socialisme ; l'amnistie et les so-
 cialistes, — par Hubert Lagardelle (II-4, vendredi 18 jan- Ka
-vier 1901, un cahier en voie d'épuisement, huit francs 25 - 4
-Intellectuels et socialisme, — par Charles Guieysse, —une 4
+vier 1901, un cahier en voie d'épuisement, huit francs
+Intellectuels et socialisme, — par Charles Guieysse, —une
 contribution (I-0, mardi 19 mars 1901, un cahier en voie
 Intellectuels et socialisme, — par Paul Mantoux, — une
-contribution (Îl-9, mardi 19 mars 19o7, un cahier en voie 3
+contribution (Îl-9, mardi 19 mars 19o7, un cahier en voie
 Pour et contre les libertés internationales, — dossier :
 Clemenceau-de Pressensé, Clemenceau-Jaurès, débat pour A.
 et contre les libertés internationales (V-5, mardi 8 décembre KE.
@@ -538,17 +538,17 @@ impressions sur la vie japonaise, — par Félicien Challaye ;
 
 AR Jean Jaurès, — Action Socialiste, première série; le Socia- |
 —._ lismeet l'Enseignement; le Socialisme et les Peuples... |
-f — — Le théâtre social, matinée-conférence (1-3, vendredi ë
+f — — Le théâtre social, matinée-conférence (1-3, vendredi
 | 21 décembre 1900, un cahier en voie d'épuisement..........
 
 = — — Vérité, un article (I-15, mardi 23 juillel 1901, :
 
-‘< un cahier en voie d'épuisement ........... huit francs 36
+‘< un cahier en voie d'épuisement ........... huit francs
 ) — — Études Socialistes (U-4, jeudi 5 décembre 1901,un |
 cahier non mis dans le commerce, n'est plus mis en vente \
-| que dans les collections complètes de la troisième série 99 ÿ
+| que dans les collections complètes de la troisième série
 | — — Études Socialistes, — édition Ollendorff, en vente
-“ à la librairie des cahiers........ trois francs cinquante 104
+“ à la librairie des cahiers........ trois francs cinquante
 | — — Affaire Dreyfus, — Débats parlementaires, — In- '
 | — — le comité catholique pour la défense du Droit, une &
 L lettre à Jaurès, à laquelle Jaurès n'a point répondu (1V-20,
@@ -564,7 +564,7 @@ congrès socialiste national, et généralement tous autres
 congrès et débats;
 
 impressions sur Java, — de Félicien Challaye, — fragments
-- de journal (IV-13, mardi 24 février 1903.... un franc 226
+- de journal (IV-13, mardi 24 février 1903.... un franc
 ; Jean-Christophe, — de Romain Rolland, — I. — l'aube
 la librairie des cahiers.............. trois francs cinquante
 
@@ -579,68 +579,68 @@ UE |. nonces (-10, jeudi 4 avril 1907, un cahier en voie d'épu ise- |
 \ 4e l'oppression des Juifs dans l'Europe orientale, — les Juifs …
 _ en Roumanie, — par Bernard-Lazare (IIS, jeudi 13 fév ier a
 A Juifs de Roumanie, — une lettre de Bernard-Lazare à # on
-fi un franc ST 0
-hu lOppression des juifs dans l'Europe orientale, — les mas. 4
+fi un franc ST
+hu lOppression des juifs dans l'Europe orientale, — les mas.
 Mas sacres de Kichinef et la situation des prolétaires juifs en
 que Russie, — par Henri Dagan (V-1, mardi 13 octobre 1903."
 EN |" le 14 juillet, action populaire, — lrois actes, — de Ro main |
-0 Maurice Kahn, — cahiers de courriers, — courriers dd  EÔ
+Maurice Kahn, — cahiers de courriers, — courriers dd  EÔ
 56 — — édition du cahier: textes et documents, — congrès ; :
 3 des U. P. mai 1904; causerie sur Liberté (V-20, mardi 13 sep"
 
 l'Oppression des juifs dans l'Europe orientale, — les mas- 27000
 
-sacr es de Kichinef et la situation des prolétaires juifs en î à 14
+sacr es de Kichinef et la situation des prolétaires juifs en î à
 Russie, — par Henri Dagan (V-1, mardi 13 octobre 1903, : Fo Re
 Er Vladimir Korolenko, — la maison numéro 13, — traduit AC
-par . Elie Eberlin; — une note d'Ælie Eberlin (VI-6, mardi 1
+par . Elie Eberlin; — une note d'Ælie Eberlin (VI-6, mardi
 … Paul Lafargue (en citation, et non point à titre de colla- Te
 …borateur), — le Socialisme et les intellectuels, — conférence ti
-(F9, mardi 8 el jeudi 10 mai 1900, un cahier en voie d'épui- 11
+(F9, mardi 8 el jeudi 10 mai 1900, un cahier en voie d'épui-
 . Hubert Lagardelle, — les Intellectuels devant le socialisme ; Ms
 …l'amnistie et les socialistes (1-4, vendredi 18 janvier 1901, un "21
 _ Louis Lamaud, — librairie et bibliographie du Bloc, A
 et collections (V-5, mardi 8 décembre 1903, deux francs 99 RAC
-Adolphe Landry, — annonce d'un article, La superstition 35
+Adolphe Landry, — annonce d'un article, La superstition
 _ di es principes (IV-12, mardi 17 février 1903... un france 219 ; rt
-… Lionel Landry, — courrier de Chine, du temps de l'expé- \ 208
+… Lionel Landry, — courrier de Chine, du temps de l'expé- \
  dition de Chine (I-5, lundi 28 janvier 1901, un cahier en ÉA
 … février 1901, un cahier en voie d'épuisement, huit francs 30 PT
 gr _— — courrier de Chine, même temps (I-14, samedi 6 juil- . A
 JL de Lanessan, — résultats de cette enquête, — conclu- CURE
 | sions, — dans le cahier de Raoul Allier, la séparation des ES
-…Holises et de l'État (VI-14, mardi £ avril 1905.. six francs M:
+…Holises et de l'État (VI-14, mardi £ avril 1905.. six francs
 …. — — édition du Siècle, en vente à la librairie des AU
 n Laval, — dans Pelites garnisons (V-12, mardi 15 mars 1904 on.
 
-: La France vue de Laval, — par Félicien Challaye (V-r2, 4
+: La France vue de Laval, — par Félicien Challaye (V-r2,
 
-Antonin Lavergne, — Jean Coste ou l'instituteur de village D
+Antonin Lavergne, — Jean Coste ou l'instituteur de village
 
 (-12, mardi 11 juin 1901, un cahier épuisé, n'est plus mis Hi.
 
 en vente que dans les collections complètes de la deuxième #4
 ‘ — — Jean Coste, édition Ollendorff, en vente à la librai- 5: À
 rie des cahiers.................. trois francs cinquante 33 5)
-— — la médaille, — la-lettre de convocation (V-4, jeudi 4
+— — la médaille, — la-lettre de convocation (V-4, jeudi
 
 Interpellation Lavertujon, — mémoires et dossiers pour à
 
 les libertés du personnel enseignant en France (II-15, mardi à
 
-23 juillet 1901, un cahier en voie d'épuisement ............ 4
+23 juillet 1901, un cahier en voie d'épuisement ............
 
 A. Lavy, — l'œuvre de Millerand, table (Hi-12, samedi. ‘ hs
 Henri Lebeau, Jérôme et Jean Tharaud, — Moines de *
-Edmond Lebret, — courrier de Bretagne ({V-11, mardi 6
+Edmond Lebret, — courrier de Bretagne ({V-11, mardi
 Jean le Clerc, — introduction à courrier de France, Ke
 grève générale des mineurs, du Bulletin de l'Office du tra :
-— — du même Bulletin, présentation de : grèves d'Ar- 1
-la lettre de convocation, — par Antonin Lavergne (IV-4, 4
+— — du même Bulletin, présentation de : grèves d'Ar-
+la lettre de convocation, — par Antonin Lavergne (IV-4,
 f Louise Lévi, — Congrès de Lyon, — compte-rendu analytique non ofliciel (-14, samedi 6 juillet 1901, un france 35 |
 — — Maximilien Robespierre, — un livre du Dr. Karl : y
 j Brunnemann, — traduction et notes de L. Lévi; première à
-partie : Maximilien Robespierre jusqu'à son entrée dans f
+partie : Maximilien Robespierre jusqu'à son entrée dans
 l'Assemblée nationale, 1758-1789 (V-8, mardi 19 janvier 1904, .
 L'affaire Liebknecht (1-1, 5 janvier 1900, un cahier en voie à
 
@@ -648,41 +648,41 @@ L'affaire Liebknecht (1-1, 5 janvier 1900, un cahier en voie à
 religieuse de Renan, une étude (V-3, mardi 10 novembre CE
 Le Livre pour tous, — une circulaire, — un commentaire #
 CA réflexions d'un profane sur l'affaire Loisy, — de Paul A
-… Desjardins, — catholicisme et critique (VI-17, mardi 23 mai 11e
+… Desjardins, — catholicisme et critique (VI-17, mardi 23 mai
 1 _— — _— — — — édition des Libres Entretiens, ;;60
 … en vente à la librairie des cahiers............. deux francs Li
 AT — de la situation faite à l'enseignement supérieur en
 “3 les Loups, — trois actes, — de Romain Rolland, — octobre ‘à
-…. la Lumière, — de Jérôme et Jean Tharaud, — le navire, le k
-me cien, Timor, les ténèbres, juin 1900..... un frane 2 } 4
+…. la Lumière, — de Jérôme et Jean Tharaud, — le navire, le
+me cien, Timor, les ténèbres, juin 1900..... un frane 2 }
 | 4 D Congrès de Lyon, — compte rendu analytique non ofliciel,. à
-. —par Louise Lévi(I-14, samedi 6 juillet 1907,un franc 35 É
-… courriers de Macédoine, — par Maurice Kahn, — cahiers k
+. —par Louise Lévi(I-14, samedi 6 juillet 1907,un franc
+… courriers de Macédoine, — par Maurice Kahn, — cahiers
 | _ Madagascar, — Raoul Allier, — l'enseignement primaire *
-des indigènes à Madagascar (VI-4, mardi 8 novembre 1904, 3
+des indigènes à Madagascar (VI-4, mardi 8 novembre 1904,
 _ Yves Madec professeur de collège, — par Brenn (VI-10, ‘4
 
 Le petit index alphabétique ne |
 ê * Ypes Madec professeur de collège, — Cahiers de la Quin |
-F4 Society of Chicago, — le monde sans Dieu, — a new cate- M
-Fa * _ chism, — traduit avec l'autorisation de l'auteur par Le Clerc M
+F4 Society of Chicago, — le monde sans Dieu, — a new cate-
+Fa * _ chism, — traduit avec l'autorisation de l'auteur par Le Clerc
 ; de Pulligny (V-11; mardi premier mars 190, un cahier non
-RS mis dans le commerce, n'est mis en vente que dans les col- 1
-He lections complètes de la cinquième série..............: 326,
-ie Society of Chicago, — le Monde sans Dieu, — a new cate- M
+RS mis dans le commerce, n'est mis en vente que dans les col-
+He lections complètes de la cinquième série..............:
+ie Society of Chicago, — le Monde sans Dieu, — a new cate-
 (to) chism, — traduit avec l'autorisation de l'auteur par Le Clerc et
-feu de Pulligny, préface par Émile Vandervelde, député au 5
-4 Parlement belge, édition Cornély, en vente à la librairie des nu "M
+feu de Pulligny, préface par Émile Vandervelde, député au
+Parlement belge, édition Cornély, en vente à la librairie des nu "M
 1 | Paul Mantoux, — Intellectuels et socialisme, — une Con- | "M
 pi" tribution (Il-9, mardi 19 mars 1901, un cahier en voie JS
 Marcel, — par Pierre Baudouin, — premier dialogue dela ;
 à Ludovic Marchand, — Jean Grave et Urbain Gohier, dos- ne
 AE] Eddy Marix, — la tragédie de Tristan et Iseut, — einq DUR
-rt Clément Marot, — une réponse à L. Maillard (IV-3, mardi M
-Dit monsieur Matou et les circonstances de sa vie, — de René 44 4
-M Salomé, — avec le portrait authentique de M. Matou (IV-8, Si 4
+rt Clément Marot, — une réponse à L. Maillard (IV-3, mardi
+Dit monsieur Matou et les circonstances de sa vie, — de René
+M Salomé, — avec le portrait authentique de M. Matou (IV-8, Si
 M la médaille, — par Antonin Lavergne (IV-4, jeudi 20 no
-5 Louis Ménard, — Prologue d'une Révolution, — réimpres- ES:
+Louis Ménard, — Prologue d'une Révolution, — réimpres- ES:
 Revue de Métaphysique et de Morale, — annonce (IV-1,
 
 Henri ichel, — cahier de courriers, — Notes sur la Hol- SLA
@@ -692,29 +692,29 @@ hommes illustres, — XL. — la lutte (VII-18, mardi 26 juin 1906 1008
 
 _… Michelet et Quinet, — par Daniel Halévy, — et dans le he
 
-…_ même cahier présentation des quelques textes (IV-21, mardi 228
-Mbinre Mille, — l'enfer du Congo léopoldien (VU-6, mardi 150
+…_ même cahier présentation des quelques textes (IV-21, mardi
+Mbinre Mille, — l'enfer du Congo léopoldien (VU-6, mardi
 RE. — — les deux Congos devant la Belgique et devant la UE
-“ France; le Congo léopoldien devant la Chambre belge (VI- V3
-Re TVœusre.de Millerand, de A. Lavy, une annonce; table (II- L 4
+“ France; le Congo léopoldien devant la Chambre belge (VI-
+Re TVœusre.de Millerand, de A. Lavy, une annonce; table (II-
 Le monde sans Dieu, de M. M. Mangasarian, — avertisse- re
 
 “ment de Charles Péguy, — introduction de George Jacob A
 _Holyoake, — traduction Jean le Clerc de Pulligny (V-r1, rue
-—… mardi premier mars 190, un cahier non mis dans le com- 4
-( ni merce, n'est plus mis en vente que dans les collections 2
+—… mardi premier mars 190, un cahier non mis dans le com-
+( ni merce, n'est plus mis en vente que dans les collections
 D Le monde sans Dieu, de M. M. Mangasarian, — introduc- ‘a :
 LE ion de George Jacob Holyoake, — traduction Jean le Clere Re
 de Pulligny, — préface par Émile Vandervelde, député au TA » Parlement belge, — édition Cornély, en vente à la librairie Ms.
 
-… … quatre jours à Moniceau, — par André Bourgeois (I-9; 4
+… … quatre jours à Moniceau, — par André Bourgeois (I-9;
 . mardi 19 Mars 1901, un cahier en voie d'épuisement...... (LT
 M E. D. Morel, — préface, et post-scriptum au cahier de Le.
 … Pierre Mille, le Congo léopoldien (VI-6, mardi 21 novembre a
-12 Émile Moselly, — l'aube fraternelle, l'arrivée, au camp, au ? :.2
+Émile Moselly, — l'aube fraternelle, l'arrivée, au camp, au ? :.2
 … fort (IV, jeudi 23 octobre 1902, un cahier épuisé, n'est ‘LES
 
-plus mis en vente que dans les collections complètes de la 4
+plus mis en vente que dans les collections complètes de la
 Émile Moselly, — Jean des Brebis ou le livre de la misère nn |
 — — les retours, — les haleurs, le soldat (VII-19, mardi Du |
 Le Mouvement Socialiste, — une annonce dans le cahier ni |
@@ -725,23 +725,23 @@ le Mouvement Socialiste, annonces (IV-4, jeudi 20 no- É |
 Cahier de Noël; Villon; Tolstoi; Jérôme et Jean Tha- '
 raud; Louis Gillet ([V-7, samedi 20 décembre 1902, un .
 — — Porché; les primitifs français; Gillet; Tharaud; ; À
-avec trente reproductions d'œuvres des primitifs (VI-7, mardi 1
-Bulletin de l'Office du travail, — courrier de France, — 24
+avec trente reproductions d'œuvres des primitifs (VI-7, mardi
+Bulletin de l'Office du travail, — courrier de France,
 grève générale des mineurs ([V-9, mardi 13 janvier 1903, à
 
-; — — grèves d'Armentières; couverture, sommaire d'un 4
-numéro (V-7, mardi 5 janvier 1904, deux francs 309 et 310 10
+; — — grèves d'Armentières; couverture, sommaire d'un
+numéro (V-7, mardi 5 janvier 1904, deux francs 309 et
 
 F Orléans, — dans Petites garnisons (V-19, mardi 15 mars |
-2 M: Ostrogorski, — la Démocralie et l'organisation des 4
+M: Ostrogorski, — la Démocralie et l'organisation des
 , partis politiques ; avant-propos ; table des titres des cha-
  … pitres; table des bilan de l'Angleterre, bilan des Américains,
 —_ conclusion, qui est pour ainsi dire un bilan général (IV-r2,
 À Docteur Oyon, — précis de l'affaire Dreyfus, lettre à un
 7: ami qui ne Sait pas, préface d'Anatole France, édition de |
 
-à — — précis de l'Affaire Dreyfus, — deuxième annonce 1
-un cahier en voie d'épuisement............ huit francs 24 s
+à — — précis de l'Affaire Dreyfus, — deuxième annonce
+un cahier en voie d'épuisement............ huit francs
 Ù — — annonce, une couverture, un dessin de Christophe
 é, (5, lundi 28 janvier 1907, un cahier en voie d'épuisement,
 à à — — édition du docteur Oyon, précis de l'affaire Drey-
@@ -765,44 +765,44 @@ quinzaine (I-2, 20 janvier 1900, un cahier en voie d'épuise- | MM
 HE vail des enfants (1-3, 5 février 1900, un cahier en voie d'épuiA Semen ::11130000. ARR douzefrancs Mo/s 1 |
 A — — dela grippe; la préparation du congrès socialiste. | MM)
 ul national; travail des enfants (1-4, 20 février 1900, un cahier A
-| en voie d'épuisement................. huit francs 12 et 1
-Si — — la Consultation internationale ouverte à La Petite M
+| en voie d'épuisement................. huit francs 12 et
+Si — — la Consultation internationale ouverte à La Petite
 République sur l'affaire Dreyfus et le cas Millerand 5, tn
 Ge verte à La Petite République sur l'affaire Dreyfus et le cas
-KG Millerand (1-6, 20 mars 1900, un cahier en voie d'épuise- nn M
+KG Millerand (1-6, 20 mars 1900, un cahier en voie d'épuise- nn
 Wat — — Annonce au Provincial; toujours de la grippe; là
-se dernière préparation et la tenue du congrès socialiste natio- h | M
+se dernière préparation et la tenue du congrès socialiste natio-
 A nal (1-7, 5 avril 1900, un cahier en voie d'épuisement..... ""
 neuf francs 16 et 17 +20
 Y — — la Consullation internationale ouverte à la Petite UM
-4 République sur l'affaire Dreyfus et le cas Millerand (ES;
+République sur l'affaire Dreyfus et le cas Millerand (ES;
 a mardi 24 avril et samedi 5 mai 1900, un cahier en voie PA
 | — — Entre deux trains; rectifications; Le Socialisme et :*#2
 : RATE les intellectuels, conférence du citoyen Paul Lafargue (1-9,
 
-… mardi 8 et jeudi 10 mai 1900, un cahier en voie d'épuise- 4
+… mardi 8 et jeudi 10 mai 1900, un cahier en voie d'épuise-
 à … Charles Péguy, — Communications; les Petits Teigneux, . ‘a
 | documents; annonce (1-10, lundi 11 et mardi 12 juin 1900, FAT
-JA 1e — Réponse brève à Jaurès; le Socialisme et les 4
+JA 1e — Réponse brève à Jaurès; le Socialisme et les
 | Intellectuels, documents; comparaison; la Consultation ë AR
-“internationale ouverte à la Petite République sur l'affaire F0
-“ Dreyfus et le cas Millerand (1-11, mardi 3 et mercredi. 3
-ft 4 juillet 1900, un cahier épuisé, n'est plus mis en vente : 70
+“internationale ouverte à la Petite République sur l'affaire
+“ Dreyfus et le cas Millerand (1-11, mardi 3 et mercredi.
+ft 4 juillet 1900, un cahier épuisé, n'est plus mis en vente
 … que dans les collections complètes de la première série, Ne:
  Lantier (12, vendredi 16 novembre 1900, un cahier en voie Pl
 L: — — Ajournement; nouvelles communications; nos Et:
-| annonces, nos comptes rendus, École des Hautes Études ÿ
-Fa ociales (I-x, jeudi 29 novembre 1900, un cahier en voie 4
+| annonces, nos comptes rendus, École des Hautes Études
+Fa ociales (I-x, jeudi 29 novembre 1900, un cahier en voie
 
 : …__— — Pour ma maison; administration; Pages libres; +0
-te ectifications; le théâtre social, matinée-conférence de J
-“Jaurès; couverture (I-3, vendredi 21 décembre 1900, un 53
-_nistration; pour moi; contribution aux Prewes; Lionel ÿ
-“ Landry, courrier de Chine; couverture (1-5, lundi 28 jan- ; È
-ni. huit francs 27, 28 et 29 e
+te ectifications; le théâtre social, matinée-conférence de
+“Jaurès; couverture (I-3, vendredi 21 décembre 1900, un
+_nistration; pour moi; contribution aux Prewes; Lionel
+“ Landry, courrier de Chine; couverture (1-5, lundi 28 jan-
+ni. huit francs 27, 28 et
 _ tration; casse-cou; librairie des cahiers, annonces de - À
-librairie; pour et contre Diderot; librairie des cahiers (1-7, ; j:
-« samedi 2 mars 1901, un cahier épuisé, n'est plus mis en T2
+librairie; pour et contre Diderot; librairie des cahiers (1-7,
+« samedi 2 mars 1901, un cahier épuisé, n'est plus mis en
 “vente que dans les collections complètes de la deuxième £
 4 ‘es — cahier d'annonces; procès-verbaux; pour les étu- :
 diants russes; Aulard, Histoire politique de la Révolution +4
@@ -811,9 +811,9 @@ fran aise; nos annonces; les Journaux pour tous; la Propa- “4
 « > gande socialiste; Société des Visiteurs ; le Mouvement
 Socialiste; la Revue d'Art dramatique; Société nouvelle de |
 librairie et d'édition; école socialiste; annonces des cahiers ER
-(-10, jeudi 4 avril 1901, un cahier en voie d'épuisement... s.
+(-10, jeudi 4 avril 1901, un cahier en voie d'épuisement...
 Charles Péguy, — Compte rendu de mandat; librairie des ‘ LA |
-cahiers; Collège libre des Sciences sociales; la révolution 4
+cahiers; Collège libre des Sciences sociales; la révolution
 sociale sera morale ou elle ne sera pas (Il-r1, jeudi 25 avril £
 1901, un cahier en voie d'épuisement... douze francs 32 Ne |
 — — une préface de l'éditeur au Jean Coste d'Antonin :
@@ -824,28 +824,28 @@ n'est plus mis en vente que dans les collections complètes ;
 — — Mémoires et dossiers pour les libertés du per- |
 * historien; attentats dans l'Yonne, Le Pioupiou de l'Yonne;
 une rectification au dossier Jean Grave et Urbain Gohier; .
-sanglante bataille socialiste (1-15, mardi 23 juillet 1901, un D:
+sanglante bataille socialiste (1-15, mardi 23 juillet 1901, un
 | cahier en voie d'épuisement .......... huit francs 36 et 37 |
 — — compte rendu sténographique non officiel de la .
 version française du cinquième congrès socialiste interna- À
-tional tenu à Paris du 23 au 27 septembre 1900; présen- .1
+tional tenu à Paris du 23 au 27 septembre 1900; présen-
 — — Compte rendu de Congrès; bilan; attentats dans |
 Yonne; Cahiers nivernais; librairie des cahiers (1,
-— — Vraiment vrai; Pages libres; Jaurès (Il-2, jeudi 1
-— — de la raison, avertissement au cahier Jaurès, k
+— — Vraiment vrai; Pages libres; Jaurès (Il-2, jeudi
+— — de la raison, avertissement au cahier Jaurès,
 Etudes Socialistes (-4, jeudi 5 décembre 1901, un cahier
 
 __ non mis dans le commerce, n'est mis en vente que dans les #
 —…_ collections complètes de la troisième série............. 102 Di
-Charles Péguy, introduction du gérant au cahier : Georges k
+Charles Péguy, introduction du gérant au cahier : Georges
 _ _ Delahache, Juifs; l'affaire Hervé; lettre à M. Charles Guieysse ;
 
 .  (W, jeudi 19 décembre 1901......... un franc 104 et 105 « ÿ — — introduction du gérant au cahier : Jean Hugues,
-é. la Grève; Racine; une lettre de Maurice Bouchor; l'affaire t
+é. la Grève; Racine; une lettre de Maurice Bouchor; l'affaire
 
 Téry; une lettre à M. Gustave Téry (I-6, samedi 28 dé-
 F — — M. Gustave Téry, — polémiques et dossiers; une ‘4
-4 réponse de Gustave Téry; réponses particulières à M. Gus- ë
+4 réponse de Gustave Téry; réponses particulières à M. Gus-
 3 tave Téry ; Gustave Hervé; bilan bref; la Grève (UI-7, jeudi
 n 16 janvier 1902, un cahier en voie d'épuisement............
 #4 — — Jean Coste, étude brève (I-8, jeudi 13 février à
@@ -872,11 +872,11 @@ Va . contre les congrégations, dossier (Il-21, samedi 16 août 4 ne
 Au! 1902!:...::4:.:1:.0444..:. trois francs cinquante (iyE er RL « 13 — — un mot de citation devant Anatole France, laf M |
 HN faire Crainquebille; éditions d'art Edouard Pelletan, plu
 AU du commerce, n'est plus mis en vente que dans les collec- : |" |
-De tions complètes de la quatrième série.......... 174 et 176 M
+De tions complètes de la quatrième série.......... 174 et
 A — — de Jean Coste (IV-3, mardi 4 novembre 1902...
 ta — — Cahiers de la Quinzaine; subventionné; M. Henry
 ne Bérenger; le Mouvement Socialiste; M. André Morizet; A
-PA. M. Buré; M. Émile Terquem; M. Georges Colomb; désabonLi nements (IV-4, jeudi 20 novembre 1902 ...... un franc 180
+PA. M. Buré; M. Émile Terquem; M. Georges Colomb; désabonLi nements (IV-4, jeudi 20 novembre 1902 ...... un franc
 ‘ — — Textes et commentaires, — Émile Zola; les récentes "4
 A œuvres de Zola; édition critique de la Lettre au Président |"
 si de la République; bibliographie et librairie; éditions d'art PAR
@@ -885,12 +885,12 @@ si de la République; bibliographie et librairie; éditions d'art PAR
 RE taire des cahiers, — en forme de catalogue (IV-6, jeudi Re
 1h — — présentation des {rois lettres de Tolstoi; présen- "M
 4 7 iation de lu légende de la Vierge dans le premier Cahier de
-Ne Noël (V-7, samedi 20 décembre 1902, un cahier en voie M
+Ne Noël (V-7, samedi 20 décembre 1902, un cahier en voie
 A — — Almanach des Cahiers pour l'an 1903; courrier de UM
 ns Montfaucon; courrier de France; courrier de barbarie \
-ne — — une page devant Édouard Berth, la politique anti. M
+ne — — une page devant Édouard Berth, la politique anti.
 1 cléricale et le socialisme ; une page devant Edmond Lebret, De
-ji courrier de Bretagne; annonce du Vieux Cordelier (EN-1x, 14
+ji courrier de Bretagne; annonce du Vieux Cordelier (EN-1x,
 AIN — — vient de paraître; une page devant: Henri Bergson, UN
 \ Introduction à la métaphysique, conclusion; Revue de Méta-  "« physique et de Morale; Bulletin de la Société française de Fi
 
@@ -900,54 +900,54 @@ dry; les deux livres de M. Bergson; et le cours du Collège SA:
 de France; articles de revue; une page devant M. Ostro- Ke
 gorski, la Démocratie et l'organisation des partis politiques ; AT
 … Cahiers de la Quinzaine sur les bouilleurs de cru; annonces ne
-de librairie des cahiers ([V-12, mardi 17 février 1903....... 9
+de librairie des cahiers ([V-12, mardi 17 février 1903.......
 … . Charles Péguy, — cahier de courriers; couverture, annonce ‘1148
-du docteur Oyon, précis de l'affaire Dreyfus, lettre à un ami * ni é
+du docteur Oyon, précis de l'affaire Dreyfus, lettre à un ami * ni
 qui ne sait pas, préface d'Anatole France, éditions de Pages ira
 … nonces d'Anatole France; l'affaire Crainquebille, adminis- je
 | tervention Jaurès, — invalidation Syveton; — textes et ‘
-H _ documents ; — deuxième annonce de : docteur Oyon, précis j
+H _ documents ; — deuxième annonce de : docteur Oyon, précis
 ! ae trois francs cinquante 235 et 237 fe
 A — Affaire Dreyfus, — Cahiers de la Quinzaine, — du
-vi ‘adressée au ministre de la guerre par M. Alfred Dreyfus; 1e
+vi ‘adressée au ministre de la guerre par M. Alfred Dreyfus;
 brefs commentaires; un article de M. Henry Bérenger, cl6- PAS
 nn — — Affaire Dreyfus, — Cahiers de la Quinzaine, — L ‘AS
-… reprise politique parlementaire; — dossier de l'affaire t
+… reprise politique parlementaire; — dossier de l'affaire
 … Dreyius depuis son recommencement, le comilé catholique à
-… pour la Défense du Droit; une page devant : Léon Chaine, J
+… pour la Défense du Droit; une page devant : Léon Chaine,
 les Catholiques français et leurs difficultés actuelles ; un mot à
 “ dévant : Lieutenant-colonel Picquart, l'affaire Henry- “
-_ Reinach; une annonce; quelques commentaires; emprunt K
+_ Reinach; une annonce; quelques commentaires; emprunt
 __ — — Georges Clemenceau, — Discours pour la liberté; Pr
-‘ha — le droit des fonctionnaires, avertissement bref; une note Ë
+‘ha — le droit des fonctionnaires, avertissement bref; une note
 \ de l'Aurore sur le rappel de MM. Buret et Desemblanc; Les Fe
 sier Clemenceau-Jaurès; Le Bloc; complément; Cahiers de la je
 
-17 Fa Quinzaine; Georges Clemenceau; Bernard-Lazare et Tra- =
+Fa Quinzaine; Georges Clemenceau; Bernard-Lazare et Tra- =
 Charles Péguy, — cahiers de courriers; — Cahiers de la L “2
 Quinzaine ;nos cahiers sont édités par des souscriptions men- , +
 suelles régulières et par des souscriptions extraordinaires ; PE
 la souscription ne confère aucune autorité sur la rédaction ni :
 sur l'administration : ces fonctions demeurent libres; sou Là ?
-naires; emprunt des cahiers; du socialiste de l'espèce dite D:
-# universitaire; du collectivisme normalien; de lentraine M
+naires; emprunt des cahiers; du socialiste de l'espèce dite
+# universitaire; du collectivisme normalien; de lentraine
 — — un avertissement au cahier Mangasarian, le monde .
-sans Dieu, non mis dans le commerce, n'est mis en vente 4
+sans Dieu, non mis dans le commerce, n'est mis en vente
 que dans les collections complètes de la cinquième série nn
 — — dans le cahier petites garnisons un avertissement {
-avant Félicien Challaye, la France one de Laval; Orléans É
-ou de Montargis, un avertissement et trois comptes rendus; 4
-Cahiers de la Quinzaine : Georges Clemenceau, discours 4
+avant Félicien Challaye, la France one de Laval; Orléans
+ou de Montargis, un avertissement et trois comptes rendus;
+Cahiers de la Quinzaine : Georges Clemenceau, discours
 pour la liberté; Cahiers de la Quinzaine, souscriptions .
-— — un avertissement au cahier : Gabriel Trarieux, — D!
+— — un avertissement au cahier : Gabriel Trarieux,
 — — un avant-propos au cahier le congrès de Dresde, L |
-— textes et documents, — septembre 1903 (V-16, mardi 4
+— textes et documents, — septembre 1903 (V-16, mardi
 — — réédition et présentation de : Louis Ménard, Prologue d'une Révolution; vacances, distributions de prix |
-— — Texte sans commentaires, — Catalogue analytique ÿ
-sommaire, — 1900-1904, — de nos cinq premières séries; 4
-quelques mots; éditions des cahiers antérieures à la fon- æ
+— — Texte sans commentaires, — Catalogue analytique
+sommaire, — 1900-1904, — de nos cinq premières séries;
+quelques mots; éditions des cahiers antérieures à la fon-
 dation des cahiers, première série, deuxième série, troisième |
-40 20
+40
 
 k. Charles Péguy, — pour la rentrée; catalogue analytique
 À sommaire; avis important de l'administration, portant sur
@@ -972,13 +972,13 @@ k — — Cahiers de la Quinzaine, la Délation aux Droits de
 th — — Notre bon collaborateur ; Cahiers de la Quinzaine;
 La délation aux droits de l'homme (VI-14, mardi 4 avril 1905
 
-es Charles Péguy, — librairie des cahiers, — Joseph Bédier, 110
-ee — le roman de Tristan et Iseut (VI-15, mardi 18 avril 1905, 14 4
+es Charles Péguy, — librairie des cahiers, — Joseph Bédier,
+ee — le roman de Tristan et Iseut (VI-15, mardi 18 avril 1905,
 
-Û — — Cahiers de la Quinzaine, — les Libres Entretiens. on v.
+Û — — Cahiers de la Quinzaine, — les Libres Entretiens. on
 de l'Union pour l'Action morale (VI-16, mardi 9 mai 1905, Be
 
-ES — — petit index alphabétique du catalogue analytique 1
+ES — — petit index alphabétique du catalogue analytique
 EMA sommaire et table analytique très sommaire de la sixième
 série; pour la rentrée; petit index alphabétique provisoire
 à de notre catalogue analytique sommaire; table analytique
@@ -987,98 +987,98 @@ je Cahiers de la Quinzaine; de la dérision due par les hommes
 CAR supérieurs aux hommes inférieurs qui dressent des inven=
 f laires, fabriquent des catalogues, établissent des index, et
 Je font profession de mettre en vente toutes autres sortes de
-| répertoires (VII-1, mardi 26 septembre 1905, un cahier M
+| répertoires (VII-1, mardi 26 septembre 1905, un cahier
 ë épuisé, n'est plus mis en vente que dans les collections
 complètes de la septième série ........:..........."t
 
 — — l'étude que l'on ea lire; la Revue philosophique; - 11%
 
 nous devons remercier (VII-2, mardi 3 octobre 1905, un franc |
-ANNEE — — notre patrie (VIl-3, mardi 1 j octobre 1905, un franc nn M
+ANNEE — — notre patrie (VIl-3, mardi 1 j octobre 1905, un franc nn
 
 : — — Cahiers de la Quinzaine; Robert Dreyfus, la vie et
 
 # les prophéties du comte de Gobineau, édition Calmann « F Lévy ; sixièmes séries complètes; Gaston Raphaël, le Rhin
 ; allemand, dix-neuvième cahier de la quatrième série; abon-
-: nement sur whatman (VII-{, mardi 26 octobre 1905 ....... __ « | quatre franes 54
+: nement sur whatman (VII-{, mardi 26 octobre 1905 ....... __ « | quatre franes
 
-À — — courrier de Russie; Cahiers de la Quinzaine; le s
+À — — courrier de Russie; Cahiers de la Quinzaine; le
 ( portrait de Gapone; le cliché que nous avons reproduit,
-Paul Desjardins, catholicisme et critique, réflexions d'un 4
+Paul Desjardins, catholicisme et critique, réflexions d'un
 
-profane sur l'affaire Loisy (VII, mardi 14 novembre 1905, 54
-— — le cahier que l'on va lire; Cahiers de la Quinzaine, M
+profane sur l'affaire Loisy (VII, mardi 14 novembre 1905,
+— — le cahier que l'on va lire; Cahiers de la Quinzaine,
 
 Romain Rolland, Jean-Christophe (VII-6, mardi 21 no
 
 , He © harl es Péguy,— les suppliants parallèles ; cahier de Noël ‘ARE
-_  etcahier pour le nouvel an (Wil-7, mardi 12 décembre 1905 11
-48 PUR EE Louis de Gonzague; Cahiers de la Quinzaine, édi- te ‘1
+_  etcahier pour le nouvel an (Wil-7, mardi 12 décembre 1905
+PUR EE Louis de Gonzague; Cahiers de la Quinzaine, édi- te ‘1
 …. tions sur whatman, et particulièrement abonnement sur PASS
 — whatman ; Romain Rolland, la Montespan; le prix de la Vie Une
 | heureuse; septième cahier, cahier de Noël de la septième ! JHATES
-série; même cahier, page 46; le prix de la Vie heureuse; 170
+série; même cahier, page 46; le prix de la Vie heureuse;
 n une vraie coquille; les suppliants parallèles (VII-8, mardi ru
 ne We — — Cahiers de la Quinsaine ; lune fait tort à l'autre; pe
 De: À? etes de l'Union pour la vérilé, M. Paul Desjardins, (CHE
 _ l'ancienne Union pour l'action morale, échange d'abonne- 1"
-À ments; Romain Rolland, Jean-Christophe ; une rectification 4
+À ments; Romain Rolland, Jean-Christophe ; une rectification
 … de M: Gabriel Monod (VII-10, mardi 23 janvier 1906....... SES
 We Ke — — Tout ce qu'il faut (VI-13, mardi 6 mars 1906... Fo
 F ré: SA deux francs cie
-| sans compter tout ce qui concerne la fondation, l'insti- : 4
+| sans compter tout ce qui concerne la fondation, l'insti-
  . … tution, la tenue, le maintien et la présentation de tous ces EL:
 cahiers, leur correction leur établissement typographique, HE
-\ ‘ …— — plusieurs annonces dans laffaire Crainquebille 2
+\ ‘ …— — plusieurs annonces dans laffaire Crainquebille
 (V1, mardi 7 octobre 1902, cahier retiré du commerce, DR
 ne m'est plus mis en vente que dans les collections complètes OR
 “4 Pt — — annonces de deux éditions d'Anatole France dans (2 eu
 re ‘le cahier Emile Zola (IV, jeudi 4 décembre 1902.......... Fe re
-.  — — plusieurs annonces d'Anatole France après la } k
-…_. chanson du roi.Dagobert ({V-15, mardi 24 mars 1903... x
+.  — — plusieurs annonces d'Anatole France après la }
+…_. chanson du roi.Dagobert ({V-15, mardi 24 mars 1903...
 \ 1 — — trois annonces d'éditions de Tharaud dans le ca- $ se
-‘al hier les hobereaux (V-19, mardi 12 juillet r904,un franc 397 F 56
+‘al hier les hobereaux (V-19, mardi 12 juillet r904,un franc
 
 Édouard Pelletan, — une annonce d'édition dans le cahier £
-de Noël de la sixième série (VI-7, mardi 20 décembre 1904 4
+de Noël de la sixième série (VI-7, mardi 20 décembre 1904
 F — — une annonce d'édition de Tharaud dans le cahier
 la tragédie de Tristan et Iseut (VI-15, mardi 18 avril 1905, Li
 — — une annonce d'édition, dont une de Tharaud, >
-dans le cahier les frères ennemis (VII-10, mardi 23 janvier 4
+dans le cahier les frères ennemis (VII-10, mardi 23 janvier
 Jean Perrin, — annonce d'un article le principe d'équiva- '
 lence et la notion d'énergie, annonce du livre les Principes ‘
 Bibliothèque du Congrès international de Philosophie, — à
-| Bulletin de la Société française de Philosophie, — J
-annonce (IV-12, mardi 17 février 1903..... un franc 219
+| Bulletin de la Société française de Philosophie,
+annonce (IV-12, mardi 17 février 1903..... un franc
 Lieutenant-colonel Picquart, — l'affaire Henry-Reinach
-— — lieutenant-colonel en réforme, — de la situation 4
+— — lieutenant-colonel en réforme, — de la situation
 faite à la défense militaire de la France (VI-13, mardi À
 François Porché, — à chaque jour, — poèmes (V-17, -
 à — — à ma grand mère, poème, dans le cahier de Noël |
-— — les suppliants (Vil-7, mardi 12 décembre 1905... 4
+— — les suppliants (Vil-7, mardi 12 décembre 1905...
 ù Francis de Pressensé, — dossier Clemenceau-Pressensé
 pour et contre les libertés internationales (V-5, mardi 8 dé- ;
-les primitifs français, cahier de Noël de la sixième série; 4
+les primitifs français, cahier de Noël de la sixième série;
 à Louis Gillet; avec trente reproductions d'œuvres des pri- %
-Prologue d'une Révolution, — par Louis Ménard, — une 1
+Prologue d'une Révolution, — par Louis Ménard, — une
 
 _ La Propagande socialiste, — dans le cahier d'annonces #4
 ….  (H-10, jeudi 4 avril 1901, un cahier en voie d'épuisement... | À
 a ÿ . quelques mots sur Proudhon, — par Georges Sorel, — |
-références (I-13, samedi 22 juin 1901...... un franc 34 N
+références (I-13, samedi 22 juin 1901...... un franc
 * Jean Psichari, gendre d''Ernest Renan, parle au nom de la ,
-à famille à l'inauguration du monument de Renan (V-3, k
+à famille à l'inauguration du monument de Renan (V-3,
 É Jean le Clerc de Pulligny, — traduction de : M. M. ManL. gasarian, a new calechism, en : le monde sans Dieu; note
 —  (V-11, mardi premier mars 190f, un cahier non mis dans
-: le commerce, n'est plus mis en vente que dans les collec- K
+: le commerce, n'est plus mis en vente que dans les collec-
 à tions complètes de la cinquième série ......... 330 et 333 |
-4 — — traduction de M. M. Mangasarian, « new cate- L
+4 — — traduction de M. M. Mangasarian, « new cate-
 à chism, en : le monde sans Dieu; notes; préface par Emile |
-en vente à la librairie des cahiers, un franc cinquante 334
+en vente à la librairie des cahiers, un franc cinquante
 Fa Pierre Quillard, — Pour l'Arménie, mémoire et dossier
-4 Edgar Quinet, — avec un portrait au crayon par Flora
+Edgar Quinet, — avec un portrait au crayon par Flora
 _ Géraldy; quelques textes, choisis et présentés par Daniel
-vi deux francs 248 et 253
+vi deux francs 248 et
 y Gaston Raphaël, — le Rhin allemand ({V-19, mardi 26 mai
 …. — — édition du congrès dè Dresde, — textes et documents, — septembre 1903 (V-16, mardi 24 mai 1904........
 de Textes et commentaires, — le monument de Renan, — ‘
@@ -1086,23 +1086,23 @@ de Textes et commentaires, — le monument de Renan, — ‘
 
 ; le dimanche treize septembre dix-neuf cent trois; dans le |
 \ même cahier, Ernest Renan, — Prière que je fis sur l'Acro- LS ta
-\ pole quand je fus arrivé à en comprendre la parfaite beauté M
+\ pole quand je fus arrivé à en comprendre la parfaite beauté
 Vel la crise religieuse de Renan, — de René Litalien, une ae à
 les retours, — d'Emile Moselly (VIl-19, mardi 24 juillet
 à DDOO nee-ennaceer be ce-cecr-ceeccsecthe.:c 0e: CITES
-\ ; La Revue d'Art dramatique, — une annonce, — dans le k E
+\ ; La Revue d'Art dramatique, — une annonce, — dans le
 FR cahier d'annonces (U-10, jeudi 4 avril 19071, un cahier en
 (021 Revue de Métaphysique et de Morale, — conclusion d'un Us
 \ article de M. Henri Bergson, et une annonce (IV-12, mardi “4
 je : Revue philosophique, — une annonce (VII-2, mardi 3 0€ |"
 ' le Rhin allemand, — par Gaston Raphaël (IV-19, mardi PRE
-| Charles Richet, — La paix et la guerre (VI-2, mardi 3 00 M
+| Charles Richet, — La paix et la guerre (VI-2, mardi
 Maximilien Robespierre, — par le Dr. Karl Brannemann, — mi
 traduction et notes de L. Lévi : première partie, Maximilien "M
-Robespierre jusqu'à son entrée dans l'Assemblée nationale, M
+Robespierre jusqu'à son entrée dans l'Assemblée nationale,
 à Romain Rolland, — Aërt, — trois actes, — premier août … “1
 MU 1898, un volume en voie d'épuisement.. sept francs 2 à
-à — — le Triomphe de la Raison, — trois actes, — 20 0€ 4
+à — — le Triomphe de la Raison, — trois actes, — 20 0€
 tobre 1899, un volume en voie d'épuisement......:....." à
 | un cahier épuisé, n'est plus mis en vente que dans les col- <
 à  lections complètes de la deuxième série............... 29 |
@@ -1117,119 +1117,119 @@ Le cahier épuisé, n'est plus mis en vente que dans les collec- LS
 _ tions complètes de la quatrième série ................ 9206 + EU
 Mare — Vies des hommes illustres, — Beethoven, — VE
 -… deuxième édition, sans le masque ([V-10,, mardi 22 sep- Ati
-…. — — Le temps viendra, — trois actes (IV-14, mardi : ? 100
+…. — — Le temps viendra, — trois actes (IV-14, mardi : ?
 nu— — le Théâtre du Peuple (V-4, mardi 24 novembre ut
 1903, un cahier épuisé, n'est plus mis en vente que dans DNE si
 les collections complètes de la cinquième série ..... 2797 QUS
 3 oo — — — — le même sous couverture Fischbacher, set
-4 Fe no — — Jean-Christophe. — I. — L'aube, — édition Ollen- 4
- dorff, en vente à la librairie des cahiers.................. M
+Fe no — — Jean-Christophe. — I. — L'aube, — édition Ollen-
+ dorff, en vente à la librairie des cahiers..................
 ; ë dE trois francs cinquante |
 1 n— — Jean-Christophe. — II. — Le matin; la mort de AS
-ne — Jean-Christophe. — I. — Le matin, — édition 4
+ne — Jean-Christophe. — I. — Le matin, — édition
 * Ollendorff, en vente à la librairie des cahiers ............. We
 | Lt trois francs cinquante QE:
 | nee Nes Jean-Christophe. — II. — l'adolescent; la maison Ÿ 3)
 ME 0 Jean-Christophe. — WI. — l'adolescent, — édition 4 à
 | | Ollendorfi, en vente à la librairie des cahiers ..........,... à vos
-Lu — — Vies des hommes illustres, — la vie de Michel- ME 1
+Lu — — Vies des hommes illustres, — la vie de Michel- ME
 
 les Juifs en Roumanie, — de l'oppression des Juifs dans me
 l'Europe orientale, par Bernard-Lazare (II-8, jeudi 13 fé- …
 Juifs de Roumanie, — une iettre de Bernard-Lazare à Es.
 Pour les étudiants russes (I-10, jeudi 4 avril 1901, un
-la Russie vue de Vladivostock, journal d'un expulsé, — de é
+la Russie vue de Vladivostock, journal d'un expulsé, — de
 Félicien Challaye (-14, mardi 22 avril 1902, un franc 143 ;
 1 la Russie oue de la Vistule, — histoire de 1895, — par À
-Edmond Bernus (I-17, mardi 3 juin 1902.. un france 148
+Edmond Bernus (I-17, mardi 3 juin 1902.. un france
 lOppression des juifs dans l'Europe orientale, — les mas- à
-sacres de Kichinef et la situation des prolétaires juifs en Ÿ
+sacres de Kichinef et la situation des prolétaires juifs en
 Russie, — par Henri Dagan (V-1, mardi 13 octobre 1903... +5
-les événements actuels en Russie, — par Tolstoi, — traduc- f
+les événements actuels en Russie, — par Tolstoi, — traduc-
 tion J.-W. Bienstock (VI-13, mardi 21 mars 1905, un franc À
-i René Salomé, — Vers l'action (Il-2, 1 7 décembre 1900, un ÿ
-— — courrier de Belgique (Ul-18, mardi 10 juin 1902, Ë
-— — Monsieur Matou et les circonstances de sa vie, j
+i René Salomé, — Vers l'action (Il-2, 1 7 décembre 1900, un
+— — courrier de Belgique (Ul-18, mardi 10 juin 1902,
+— — Monsieur Matou et les circonstances de sa vie,
 avec le portrait authentique de M. Matou (IV-8, samedi
 de l'anglais d'Israël Zangwill; — une note sur Zangwill :
-Savonarole, — cinq actes de Gabriel Trarieux, troisième 4
+Savonarole, — cinq actes de Gabriel Trarieux, troisième
 et dernière pièce des Vaincuüs (VII-14, mardi 20 mars 1906, +
 
-‘4 En les cahiers d'Arnold Scherer (VIL-15, mardi 3 avril 1906, ; û
-414 Jean Schlumberger, — Heureux qui comme Ulysse (VII-17, :
-4 Gabriel Séailles, — introduction au cahier Les Universités ,
+‘4 En les cahiers d'Arnold Scherer (VIL-15, mardi 3 avril 1906,
+Jean Schlumberger, — Heureux qui comme Ulysse (VII-17, :
+Gabriel Séailles, — introduction au cahier Les Universités ,
 - Populaires, 1900-1901, 1. — Paris et banlieue (U-10, jeudi ue
-k s JE séparation des Églises et de l'État, — une campagne du 3
-Siècle; Raoul Allier; Henri Brisson, J.-L. de Lanessan 4
+k s JE séparation des Églises et de l'État, — une campagne du
+Siècle; Raoul Allier; Henri Brisson, J.-L. de Lanessan
 4 _ — — édition du Siècle, en vente à la librairie des cahiers ; CA
-a — — la Séparation au Sénat, de Raoul Allier (VII-4, 1
-‘ à _ une campagne du Siècle, — Raoul Allier, — la séparation F
+a — — la Séparation au Sénat, de Raoul Allier (VII-4,
+‘ à _ une campagne du Siècle, — Raoul Allier, — la séparation
 … des Eglises et de l'État; Henri Brisson; J.-L. de Lanessan £
-_ . — — édition du Siècle, en vente à la librairie des cahiers F.
-4 Le Socialisme et les intellectuels, une conférence du citoyen d fi
-108 Lafargue (9, mardi 8 et jeudi 10 mai 1900, un cahier en y
-“0 — — documents (I-11, mardi 3 et mercredi { juillet 1900, è
+_ . — — édition du Siècle, en vente à la librairie des cahiers
+Le Socialisme et les intellectuels, une conférence du citoyen d fi
+Lafargue (9, mardi 8 et jeudi 10 mai 1900, un cahier en y
+“0 — — documents (I-11, mardi 3 et mercredi { juillet 1900,
 _ un cahier épuisé, n'est plus mis en vente que dans les ë"
 - collections complètes de la première série, quand il y en a, À ‘
 “ès Socialismes nationaux, — par Georges Sorel (I-14, mardi #4
-A4 Société nouvelle de librairie et d'édition, une annonce dans 4
-ma À: le cahier d'annonces (U-10, jeudi 4 avril 1901, un cahier en 1
-1 À Société des Visiteurs, une annonce dans le ‘cahier d'an- Ÿ
+A4 Société nouvelle de librairie et d'édition, une annonce dans
+ma À: le cahier d'annonces (U-10, jeudi 4 avril 1901, un cahier en
+À Société des Visiteurs, une annonce dans le ‘cahier d'an-
 —_  nonces (1-10, jeudi { avril 19071, un cahier en voie d'épuise- À
 A le soldat, — d'Émile Moselly (VII-19, mardi 24 juillet 1966 “£
-14 49 24
+14
 
 Georges Sorel, — quelques mots sur Proudhon; références ; AT
-> — — de l'Église et de l'État, — fragments (I-3, samedi * re 4,
-| André Spire, — et vous riez (VII-8, mardi 26 décembre Re î
+> — — de l'Église et de l'État, — fragments (I-3, samedi * re
+| André Spire, — et vous riez (VII-8, mardi 26 décembre Re
 Suarès, — la tragédie d'Elektre et Oreste, — trois actes °
 $ (NI-x1, mardi 21 février 1905....... trois francs cinquante .
-$ table analytique très sommaire de la sixième série (VHx, LA 4
-mardi 26 septembre 1905, un cahier épuisé, n'est plus mis \ 1
+$ table analytique très sommaire de la sixième série (VHx, LA
+mardi 26 septembre 1905, un cahier épuisé, n'est plus mis \
 | en vente que dans les collections complètes de la septième CH
 Laurent Tailhade (en citation, et non point à titre de col- FR
 ; laborateur), — courrier de barbarie, — lettre familière à is
-Jules Tannery, sous-directeur de l'École normale supé- d
+Jules Tannery, sous-directeur de l'École normale supé-
 rieure, — un avertissement à la vie d'Évariste Galois (V-2, À
 Les Petits Teigneux, — documents (I-10, lundi 11 et mardi À
 Le temps viendra, — trois actes, — de Romain Rolland AN
 Eur Émile Terquem, — dossier de l'élection Beauregard (HI-18, ‘5
 
-tre Gus ave Téry (non point à titre de collaborateur, mais en : t
+tre Gus ave Téry (non point à titre de collaborateur, mais en
 f _eitation) — polémiques et dossiers, une réponse à :' ARE
-À. M. Charles Péguy (Il-7, jeudi 16 janvier 1902, un cahier 18
-… | » Jérôme et Jean Tharaud, — le Coltineur débile : lÉcha- V4
+À. M. Charles Péguy (Il-7, jeudi 16 janvier 1902, un cahier
+… | » Jérôme et Jean Tharaud, — le Coltineur débile : lÉcha-
 …— faudage, la Merveille, sur les routes, la Détresse, août 1898 A Le
 ù__ _— — la Lumière : le navire, le magicien, Timor, les È É Nr:
 _  — — Dingley, l'illustre écrivain (Il-13, samedi 12 avril DUAL.
 ‘ie — — la légende de la Vierge, dans le premier Cahier \
 … … de Noël; cinq contes : du moine qui voulut voir Notre : 1 RIEUR
 Dame; l'image; les trois roses de Notre Dame Sainte Marie; QE
-du cierge qui vint se poser sur la viole de Pierre de Syglar; 0
-—_ du clere qui priait Notre Dame pour sa luxure (IV-7, 3
+du cierge qui vint se poser sur la viole de Pierre de Syglar;
+—_ du clere qui priait Notre Dame pour sa luxure (IV-7,
 i ÿ . samedi 20 décembre 1902, un cahier en voie d'épuisement, 4 #4
 8] Henri Lebeau, Jérôme et Jean Tharaud, — Moines de ‘1
 F4 Jérôme et Jean Tharaud, — Les hobereaux, — histoire ae.
-- | vraie; — et trois annonces d'éditions chez Pelletan (V-19, 5
-. sixième série; Renaud lutte avec les mauvais anges; la 14
+- | vraie; — et trois annonces d'éditions chez Pelletan (V-19,
+. sixième série; Renaud lutte avec les mauvais anges; la
 _ Vierge aux colombes, — ou la Vierge ennemie d'orgueil- s $ he:
-__  leuse vertu; les trois ducats; la Vierge aux voleurs; la 0
-4 Vierge aux oiseaux; celui qui fit pleurer la rose; la jongle- 14
+__  leuse vertu; les trois ducats; la Vierge aux voleurs; la
+Vierge aux oiseaux; celui qui fit pleurer la rose; la jongle-
 ; resse qui fut en danger d'être noyée; la statue de Dionysos ‘4
 dé — — les frères ennemis (VIl-10, mardi 23 janvier 1906, (FE
-A deux francs sa 0
-4 — — Editions d'art. — Voir Edouard Pelletan ; 1e
-‘4 le Théâtre du Peuple, — de Romain Rolland (V-4, mardi 24
-À _ 24 novembre 1903, un cahier épuisé, n'est plus mis en vente $ 0
+A deux francs sa
+4 — — Editions d'art. — Voir Edouard Pelletan
+‘4 le Théâtre du Peuple, — de Romain Rolland (V-4, mardi
+À _ 24 novembre 1903, un cahier épuisé, n'est plus mis en vente $
 je que dans les collections complètes de la cinquième série ..… Ca
 
 le Théâtre du Peuple, — de Romain Rolland, sous cou
 le théâtre social, — par Jean Jaurès, — matinée-conférence si
-(1-3, vendredi 21 décembre 1900, un cahier en voie d'épui- 4
-Tolstoi, — une photographie de Tolstoi et Gorki se pro- F
+(1-3, vendredi 21 décembre 1900, un cahier en voie d'épui-
+Tolstoi, — une photographie de Tolstoi et Gorki se pro-
 — — une lettre inédite, adressée à Romain Rolland |
 — — trois lettres, traduction établie pour les cahiers
-par les soins de Romain Rolland, dans le premier Cahier k
+par les soins de Romain Rolland, dans le premier Cahier
 de Noël (V-7, samedi 20 décembre 1902, un cahier en voie à
 _ — l'Église et l'État: les événements actuels en Russie, |
 — traduction J.-W. Bienstock, — le premier introduit par
@@ -1247,23 +1247,23 @@ Le tragédie de Tristan et Iseut, — cinq actes, — de Eddy
 L: Heureux qui comme Ulysse, — de Jean Schlumberger
 È Sociélé des Universités Populaires, — annonce (I-14,
 hé les Universités Populaires et le mouvement ouvrier, — par ;
-À Charles Guieysse (I-2, jeudi 15 octobre 1901, un france 88
+À Charles Guieysse (I-2, jeudi 15 octobre 1901, un france
 La les Universités Populaires, 1 900-1901, — 1. — Paris et ban-
 1e Textes et documents, — congrès des U. P. mai 1904 (V-50,
 : _ Les Vaincus, — trilogie de Gabriel Trarieux; voir successivement Joseph d'Arimathée, Hypatie, Savonarole........
 ‘des Albert Valès, — une bibliographie pour le cahier Edgar
 Émile Vandervelde, — Socialisme et collectivisme (I-10,
 ê. lundi 11 et mardi 12 juin 1900, un cahier en voie d'épuise-
-‘7 Émile Vandervelde, député au Parlement belge, — une i
+‘7 Émile Vandervelde, député au Parlement belge, — une
 | préface au Monde sans Dieu de M. M. Mangasarian,
 4 traduction Le Clerc de Pulligny, édition Cornély, en vente |
-a à la librairie des cahiers... un franc cinquante 334 et 335
+a à la librairie des cahiers... un franc cinquante 334 et
 
 à Vérité, un article de Jean Jaurès (1-15, mardi 23 juillet À
 
-1901, un cahier en voie d'épuisement.... huit franes 36. Ÿ 14
+1901, un cahier en voie d'épuisement.... huit franes
 
-TE Vernon, — la plaquette, portrait de Waldeck-Rousseau M
+TE Vernon, — la plaquette, portrait de Waldeck-Rousseau
 contes de la Vierge, — de Jérôme et Jean Tharaud, —
 
 dans le deuxième Cahier de Noël; huit contes : Renaud
@@ -1284,19 +1284,19 @@ pue Notre Dame Sainte Marie; du cierge qui.vint se poser sur %
 j la viole de Pierre de Syglar; du clerc qui priait Notre Dame :
 SA pour sa luxure (IV-5, samedi 20 décembre 1902, un cahier ‘sd
 
-Maistre Françoys Villon, — Ballade qve Villon feit a la 4
+Maistre Françoys Villon, — Ballade qve Villon feit a la
 le reqveste de sa mere poer prier Nostre Dame, — dans le pre-
 
 : mier Cahier de Noël (IV-7, samedi 20 décembre 1902, un +
-1 Fa la Russie vue de Vladivostock, journal d'un expulsé, de
-ne Félicien Challaye (U-14, mardi 22 avril 1902, un france 143
+Fa la Russie vue de Vladivostock, journal d'un expulsé, de
+ne Félicien Challaye (U-14, mardi 22 avril 1902, un france
 LL le testament politique de Waldeck-Rousseau (VI-5, mardi u .
-À Attentats dans l'Yonne, affaire Hervé, affaire du Pioupiou K.
+À Attentats dans l'Yonne, affaire Hervé, affaire du Pioupiou
 Ke de l'Yonne (-15, mardi 23 juillet 1901, un cahier en voie si
 
 “ Attentats dans l'Yonne, — suite (U-1, mardi premier
 
-Li — — plusieurs articles de Hervé (II-5, jeudi 19 dé- 4
+Li — — plusieurs articles de Hervé (II-5, jeudi 19 dé-
 
 Ke — — Hervé, l'Anniversaire de Wagram, à nos amis de
 
@@ -1318,23 +1318,23 @@ Wu. Président de la République; bibliographie (V-5, jeudi 4; dé-
 
 1905-1906
 
-mi Cette table analytique très sommaire est un aperçu 5e
-ne beaucoup trop succinct de notre septième série, 190
+mi Cette table analytique très sommaire est un aperçu
+ne beaucoup trop succinct de notre septième série,
 1906; elle sera remplacée par un exposé un peu moine ns
 insuffisant dans le catalogue analytique moins sommaire de nos deuxièmes cinq séries ; h DURS a
 Elle sera constamment tenue à jour, c'est-à-dire que
 , Jusqu'à la publication de ce deuxième catalogue analy- Fe
 | tique sommaire, le premier cahier de toute série nou
 velle comportera, en sa fin, une table analytique très
-sommaire de la série précédente; | D.
+sommaire de la série précédente;
 Les prix marqués ici sont les prix marqués des
-| cahiers mêmes; on peut compter que ces prix Marqués d
-Fi forment, pour l'ensernble de la septième série, un prix. 1
-Ft marqué total de quarante-trois francs: et en effet, à 0
+| cahiers mêmes; on peut compter que ces prix Marqués
+Fi forment, pour l'ensernble de la septième série, un prix.
+Ft marqué total de quarante-trois francs: et en effet, à
 dater du premier janvier 1907, nos collections com
 Ÿ plètes de la septième série, s'il en reste, seront vendues Re
 quarante-trois francs ; mais jusqu'au 3 1 décembre 1906 Fix
-inclus, et conformément à une règle qui n'a point cessé 1
+inclus, et conformément à une règle qui n'a point cessé
 de fonctionner depuis le commencement de notre inst
 tution, toute personne qui commandera une collection
 16 complète de la septième série à M. Bourgeois pourra la
@@ -1343,12 +1343,12 @@ tution, toute personne qui commandera une collection
 Ÿ l'Alsace-Lorraine, l'Algérie et la Tunisie, et de vingt- à Ni:
 ë cinq francs pour les autres pays de l'Union postale uni- Hp |
 à verselle; ces personnes seront donc traitées comme si À
-se elles souscrivaient, dans le courant de la même année » 1e
+se elles souscrivaient, dans le courant de la même année »
 : civile, un abonnement ordinaire à la septième série de res <
 me nos cahiers ; “4
-d u Les prix marqués ici pour les cahiers vendus séparé-. r: 4
+d u Les prix marqués ici pour les cahiers vendus séparé-.
 S ment ne peuvent naturellement pas diminuer ; ils aug-
-“ menteront à mesure que ces cahiers viendront en voie 7
+“ menteront à mesure que ces cahiers viendront en voie
 
 de notre septième série -
 
@@ -1375,7 +1375,7 @@ de la dérision due par les hommes supérieurs aux
 hommes inférieurs qui dressent des inventaires, fabriquent des catalogues, établissent des index, et font
 
 table analytique très sommaire | 39 SNA
-profession de mettre en vente toutes autres sortes de : 22
+profession de mettre en vente toutes autres sortes de
 Nos Cahiers sont édités; ‘4
 f épuisé, ce cahier n'est plus mis en vente que dans les … eu.
 collections complètes de la septième série; &E
@@ -1393,7 +1393,7 @@ de XII + 320 pages, in-18 grand jésus, bon à tirer du
 Raour AzLtEeR. — La Séparation des Églises et de
 l'État; — la séparation au Sénat;
 cahier pour la reprise; in memoriam;
-L'amendement Augagneur; les associations cultuelles; Ë
+L'amendement Augagneur; les associations cultuelles;
 « simultaneum »; autour de l'article 4; un premier pas; '
 Moyen âge ?; la difficulté initiale; une porte ouverte; }
 
@@ -1441,35 +1441,35 @@ russe ; Arrivée ; le banquet des écrivains ; les avocats;
 table anabrtique très sommaire Qu
 
 LE la diète de Finlande: la manifestation di Hide dar
-& ï  cembre; les dvorniki ; soirées de Saint-Pétersbourg; les , de ë
-4 conseils municipaux de Pétersbourg et de Moscou; les dau U
+& ï  cembre; les dvorniki ; soirées de Saint-Pétersbourg; les , de
+4 conseils municipaux de Pétersbourg et de Moscou; les dau
 110 zemstvos et le mouvement constitutionnel; le Tsar a on
-répondu; en attendant le manifeste; une opinion sur M
+répondu; en attendant le manifeste; une opinion sur
 (ie  l'oukase impérial; la réponse des zemstvos ; l'assem- ne. EX
 Pal blée de la noblesse de Tver ; le Banquet des Décabristes M. Fe
-(il à Saint-Pétersbourg ; l'esturgeon du gendarme; lim 24 ï
+(il à Saint-Pétersbourg ; l'esturgeon du gendarme; lim
 | pression à Saint-Pétersbourg après la chute de Port- HAE
-és Arthur; la politique de M. Witte; loisirs de fin d'année ; 1) “ah à k
+és Arthur; la politique de M. Witte; loisirs de fin d'année ; 1) “ah à
 a les bruits courent ; ) 4508
-‘4 le soulèvement ouvrier; une grève; autre grève; de 4
+‘4 le soulèvement ouvrier; une grève; autre grève; de
 14 autres grèves; un coup de canon contre le Palais Lors
-_ d'Hiver; vers la grève générale; [le portrait de 200
-nr: Gapone]; le soulèvement ouvrier; vers la Révolution? ; 0
-( _ intervention des libéraux; la journée du dimanche De ne Ë
+_ d'Hiver; vers la grève générale; [le portrait de
+nr: Gapone]; le soulèvement ouvrier; vers la Révolution?
+( _ intervention des libéraux; la journée du dimanche De ne
 _ 9/22 janvier ; le lendemain des massacres ; comment le Lin À
 | gouvernement se défend; la révolte de l'opinion; (ENS
 si enquête sur les journées révolutionnaires ; Gapone ; Me
 ‘à la foule ; l'armée ; les responsables; les moris etles 1°
-ui le pardon du Tsar ; le tsar pardonne et bénit ; # : F2
+ui le pardon du Tsar ; le tsar pardonne et bénit ; #
 1 _ quelques documents ; [un passeport] ; Fe) à
-h Charles Péguy, — Cahiers de la Quinsaine, — le 514
+h Charles Péguy, — Cahiers de la Quinsaine, — le
 _ portrait de Gapone; le cliché quenous avons reproduit; ie Que
 ‘3 Paul Desjardins, —catholicisme et critique, — réflexions FX
 _ d'un profane sur l'affaire Loisy ; Re.
-14 Sixième cahier de la septième série, un cahier jaune
-| de XVI + 180 pages, in-18 grand jésus, bon à tirer du : 40
+Sixième cahier de la septième série, un cahier jaune
+| de XVI + 180 pages, in-18 grand jésus, bon à tirer du
 
-JL ne faut pas que le Congo français: Lu, t
+JL ne faut pas que le Congo français: Lu,
 
 ii Charles Péguy, — le cahier que l'on va lire; Ki DA
 
@@ -1482,7 +1482,7 @@ D … ments établis par la Commission, visite de M. Malfeyt, #3
 L k ne … Haut Commissaire Royal, et ce qui en résulta; a
 | “M É Charles Péguy, — Cahiers de la Quinzaine, — Romain Le
 bu Rolland, — Jean-Christophe; ‘à
-it _ Septième cahier, cahier de Noël de la septième série, | 15
+it _ Septième cahier, cahier de Noël de la septième série,
 
 j # -_ un cahier blanc de 124 pages, in-18 grand jésus, bon à a
 F0 _ tirer du mardi 12 décembre 1905 ......... deux francs “.
@@ -1492,10 +1492,10 @@ F0 _ tirer du mardi 12 décembre 1905 ......... deux francs “.
 114 d Huitième cahier, cahier pour le jour de l'an de la à
 en septième série, un cahier blanc de XXXVI<+ 116 pages,
 DR. in-18 grand jésus, bon à tirer du mardi 26 décembre ‘1
-VIE avec les bons souhaits ; N
+VIE avec les bons souhaits
 ‘1 Charles Péguy.— Louis de Gonzague; Se
 
-ss _ Charles Péguy. — Cahiers de la Quinsaine; — édi- 1
+ss _ Charles Péguy. — Cahiers de la Quinsaine; — édi-
 
 | table analytique très sommaire LEUVSR
 tions sur whatman, et particulièrement abonnement
@@ -1503,31 +1503,31 @@ sur whatman; Romain Rolland, — la Montespan, — Mr K #4
 drame en trois actes; — le prix de la Vie heureuse; sx Lei
 . septième cahier, cahier de Noël de la septième série; :
 même cahier, page 46; le prix de la Vie heureuse; une LE.
-Neuvième cahier de la septième série, un cahier jaune 5
+Neuvième cahier de la septième série, un cahier jaune
 de XXIV + r08 pages, in-18 grand jésus, bon à tirer du ER
-R cahier pour la rentrée: F. 4
-Ë Ferpwanp Lot. — De la situation faite à l'ensei- " 42
-avertissement: les revenus des Universités et établis- ER 4
+R cahier pour la rentrée:
+Ë Ferpwanp Lot. — De la situation faite à l'ensei- "
+avertissement: les revenus des Universités et établis- ER
 sements d'enseignement supérieur en Allemagne et en = ne.
 France; les Facultés des Lettres et des Sciences en ESS
 France et en Allemagne, étude de statistique du Per- De
 sonnel Enseignant; les lacunes du personnel enseignant #4
 des Facultés des Lettres et de Droit de province; le a
-Dixième cahier de la septième série, un cahier blanc CE È
+Dixième cahier de la septième série, un cahier blanc CE
 de 104 pages, in-18 grand jésus, bon à tirer du mardi 33, . LE
-fini d'imprimer du jeudi 25 janvier 1906 ... deux francs S
+fini d'imprimer du jeudi 25 janvier 1906 ... deux francs
 Éditions d'art Édouard Pelletan, 125, boulevard Saint- ne:
 Germain, Paris, l'ami de l'ordre, Almanach du Biblio- ne
-phile, Bibliothèque sociale et philosophique ; 5
+phile, Bibliothèque sociale et philosophique
 
 | \ Re es Péguy, — Cahiers de la Quinzaine, — l'une 14 “
-YA ait to rt à l'autre; l'annonce de l'Union pour la vérité, l ï.
+YA ait to rt à l'autre; l'annonce de l'Union pour la vérité,
 
 __ M. Paul Desjardins, l'ancienne Union pour l'action *
 | morale, échange d'abonnements; Romain Rolland, à
-Jean-Christophe; une rectification de M. Gabriel Monod; P+ 1
+Jean-Christophe; une rectification de M. Gabriel Monod; P+
 É 17 _  Onzième cahier de la septième série, un cahier jaune [it
-…_. de XII 132 pages, in-18 grand jésus, bon à tirer du 11e
+…_. de XII 132 pages, in-18 grand jésus, bon à tirer du
 V 11 _ cahier pour la discussion ; ta
 FT on peut noter ; * je
 n__ l'installation matérielle en province, (1. les Bâtiments. FA
@@ -1537,17 +1537,17 @@ D l'effectif scolaire; nos Universités françaises sont-elles AU
 _ les crédits de matériel des Universités allemandes et il
 __ Douzième cahier de la septième série, un cahier jaune +4
 AE de 120 pages, in-18 grand jésus, bon à tirer du mardi à
-_ cahier pour la publication; 7
-à la mémoire: 4
+_ cahier pour la publication;
+à la mémoire:
 CA Il ne faut pas;
-…_  Fézrcren CHazLrAyE. — Le Congo français; f
+…_  Fézrcren CHazLrAyE. — Le Congo français;
 …_ Pierre Savorgnan de Brazza, les derniers jours de
 - M. de Brazza; [portrait de Pierre Savorgnan de Brazza]; rt
 
 table analytique très sommaire COTES
 
 le Congo français; les indigènes du Congo Français, |
-quelques remarques psychologiques et sociologiques; 1 00
+quelques remarques psychologiques et sociologiques;
 commerce et l'agriculture au Congo Français, les Com- NS
 pagnies concessionnaires et la situation des indigènes; es
 tableau des Compagnies concessionnaires accordées en
@@ -1555,17 +1555,17 @@ tableau des Compagnies concessionnaires accordées en
 Treisième cahier de la septième série, un cahier jaune 1 “4
 de XII-+-96 pages, in-18 grand jésus, bon à tirer du
 et cahier pour la discussion; Den
-| Charles Péguy, — Tout ce qu'il faut; 8
+| Charles Péguy, — Tout ce qu'il faut;
 Deux armées, 1. — Armée française; II. — L'armée “2
 la défense de la Belgique ; l'armée anglaise; la puissance EN
-de l'armement moderne; Recrutement régional; les 4
+de l'armement moderne; Recrutement régional; les
 Grandes Manœuvres; les forces morales et la guerre; | ‘LT
 la Défense nationale; Contradiction; Notre artillerie de
 campagne; Tableaux d'avancement; Favoritisme; l'ap- a
 plication de la nouvelle loi militaire; Saint-Cyr et Poly- Ne
 technique à la caserne; +6 ‘1
-Quatorzième cahier, cahier de Pâques de la septième 5
-série, un cahier blanc de XVI--164 pages, in-18 grand 4
+Quatorzième cahier, cahier de Pâques de la septième
+série, un cahier blanc de XVI--164 pages, in-18 grand
 
 2: _lautodafé) des vanités; le portrait de Françoise; le
 prieur de Saint-Marc; l'épreuve du feu; la passion du ;
@@ -1590,43 +1590,43 @@ ENS _ table analytique très sommaire _. à
 D  Féricen CHALLAYE. — La réorganisation du Cong
 Re Pierre Mie. — Le Congo léopoldien devant la …
 fon Dix-septième cahier de la septième série, un cahier
-4 blanc de 104 pages, in-18 grand jésus, bon à tirer du S
+4 blanc de 104 pages, in-18 grand jésus, bon à tirer du
 ‘4 JEAN ScHLUMBERGER. — Heureux qui comme …
 “ hr Dix-huitième cahier de la septième série, un cahier
-1 vert de 108 pages, in-18 grand jésus, bon à tirer du M
-1 Romain RozLanp. — Vies des Hommes illustres. —
+1 vert de 108 pages, in-18 grand jésus, bon à tirer du
+Romain RozLanp. — Vies des Hommes illustres. —
 Ju la vie de Michel-Ange. — I. — la lutte; un:
-he Il est, an Museo Nazionale; 61 ÿ
+he Il est, an Museo Nazionale;
 1 kil [portrait de Michel-Ange par Marcello Venusti, Musée
 Lie du Capitole, Rome] TR
 FE Dix-neuvième cahier de la septième série, un cahier rs
 1 de blanc de 72 pages, in-18 grand jésus, bon à tirer au
-mur à la gloire ; : 01
+mur à la gloire ;
 LE Émize Mosezzy. — les retours. — les haleurs, le,
 
-| rést né, à la date du dimanche 7 octobre 1906, d
+| rést né, à la date du dimanche 7 octobre 1906,
 | maît le présent cahier : |
-| La première série de nos cahiers, année 1900, dont ÿ
+| La première série de nos cahiers, année 1900, dont
 nous avons pu reconstituer quelques collections, se vend
 | La à euxième série, année I{00-I9OT, en voie d'épui-
 | ment, se vend cent francs ;
 | La troisième série, année 1901-1902,se vend trente-
 | L aq uatrième série, année 1902-1903, se vend trenteTe ,
 | Le | :1peot série, année 1903-1904, se vend qua-
-La sixième série, année 1904-1905, se vend soiFF D
-Jusqu'au 31 décembre 1906, inclus, et sauf épuiseent, un abonnement à la septième série, année 1905FAP « 906, se vend vingt francs; à ; ï
-Jusqu'au 31 décembre 1907, inclus, et sauf épuiseent. un abonnement à la huitième série, année 1906- R
+La sixième série, année 1904-1905, se vend soiFF
+Jusqu'au 31 décembre 1906, inclus, et sauf épuiseent, un abonnement à la septième série, année 1905FAP « 906, se vend vingt francs; à
+Jusqu'au 31 décembre 1907, inclus, et sauf épuiseent. un abonnement à la huitième série, année 1906-
 | 07 ; se vend vingt francs.
 
 rez-de-chaussée, Paris, cinquième arrondissement. | À
 Nos Cahiers sont édités par des souscriptions men:
 suelles régulières et par des souscriptions extraordi
-naires ; la souscription ne confère aucune autorité su 4:
+naires ; la souscription ne confère aucune autorité su
 la rédaction ni sur l'administration ; ces fonctions.
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scoluire, d'une Gnnée
 ouvrière, d'octobre-novembre à juin-juillet; l'abor nee |
-ment se prend pour une série. 251
+ment se prend pour une série.
 On peut souscrire cet abonnement à tout moment de.
 l'année, mais l'abonnement ainsi souscrit est, de droit;
 valable pour la série en cours. ro
@@ -1639,12 +1639,12 @@ sont numérotés à la presse et imprimés au nom du
 souscripteur ; le tirage à part sur whatman a comme cé
 de fonctionner au premier janvier 1906 ; les inscri la
 tions pour cet abonnement particulier sont reçues en
-tout temps et reçoivent un numéro d'ordre détermü é
+tout temps et reçoivent un numéro d'ordre détermü
 automatiquement par le rang même qu'elles occupent
 dans l'ordre de l'arrivée, les numéros les plus bas venant
 J naturellement aux premières inscriptions; c'est ce Ca
 méro d'inscription qui devient automatiquement le
-numéro du tirage réservé à chacun des souscripteurss M
+numéro du tirage réservé à chacun des souscripteurss
 l'édition sur whatman est strictement limitée au
 Brera et
 
@@ -1652,7 +1652,7 @@ es, six timbres de dix centimes.
 Nous engageons nos abonnés de certains pays à nous
 | mr a nder un abonnement recommandé ; tous les cahiers
 | labonnement recommandé sont empaquetés à part et
-| :ommandés à la poste ; la recommandation postale, k
+| :ommandés à la poste ; la recommandation postale,
 | portant une transmission de signature, garantit le
 | À stina aire contre certains abus; pour cette recom-
 | anda tion, pour tous pays, en sus, cinq francs.

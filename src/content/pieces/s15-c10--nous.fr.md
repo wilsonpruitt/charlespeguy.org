@@ -209,8 +209,6 @@ Enfant, contre la chaste robe,
 Bien qu'ayant perdu ma candeur,
 Je te dois de garder un fond naïf et probe
 
-1
-
 Un petit coin de terre est mon seul juge au monde.
 Là, pied à pied, les pins combattent avec l'onde
 Pour la possession du sable. J'obéis
@@ -277,8 +275,6 @@ Mais les vagues, chantant en chœur comme des chantres,
 Éparpillent dans l'air des semailles de bruit,
 Et la Beauté, la fleur divine, impérissable,
 Seule s'épanouit sur les pentes du sable. »
-
-2
 
 Mon cœur, ton sourd marteau fait trembler ma poitrine,
 Que forges-tu dans l'ombre avec tant de chaleur ?

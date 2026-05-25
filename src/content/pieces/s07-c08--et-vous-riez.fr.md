@@ -10,11 +10,11 @@ ocrSource: "Extracted 2026-05-25 from conflated s07-c08--louis-de-gonzague.fr.md
 translationNotes: "Le fichier s07-c08--louis-de-gonzague.fr.md contenait par erreur la poésie de Spire (lignes 10–657) et de la matière éditoriale de Péguy (lignes 660–1042), toute attribuée à Péguy. La portion Spire a été extraite ici. La vraie essai *Louis de Gonzague* (le saint) commençant au feuillet 19 du cahier n'est pas dans la source OCR existante et reste à récupérer."
 ---
 ## Qu'à votre enfant joli?
-3 — Je pense que le berce, et qu'il fait chaud-soleil. Ë 4
+3 — Je pense que le berce, et qu'il fait chaud-soleil.
 Moi que vous êtes belle, sur la terre fleurie.
-Je sais que je suis belle, mon homme me le dit, 0
-1 Je sais que je suis belle, et mon petit aussi. M.
-100 44
+Je sais que je suis belle, mon homme me le dit,
+Je sais que je suis belle, et mon petit aussi.
+100
 
 Je vous ai vu pencher sur les routes ardentes
 Vos mille petites mains remuantes et fraîches,
@@ -33,62 +33,62 @@ Y: Et lasses d'embellir le chemin monotone
 Où rampe la misère de ces âmes sans grâce.
 
 DUAL Qui, pour dépenser ta sève exubérante,
-11 Tu te lasses parfois pate
+Tu te lasses parfois pate
 M: De la poussière des pieds trop lourds, $ 1}
 ny ; Tu te lasses des mains qui comptent des denrées, QUE.
 + 6 Tu te lasses des bouches qui donnent des baïsers
 j 1 Arbre fier, tu languis d'abriter les grand routes; 4 :
-‘e _ Lëés bénédictions des foules te dessèchent, 4
-4 Et pour épanouir tes branches vigoureuses, Li
+‘e _ Lëés bénédictions des foules te dessèchent,
+Et pour épanouir tes branches vigoureuses, Li
 LL Pour redresser tes feuilles et pour rendre à tes fleurs à
-1 Le désir, qui fera votre race immortelle, 4
+Le désir, qui fera votre race immortelle,
 + Tu sens qu'il te faudrait abriter la maison
 fi j D'un philosophe. ;
-De Il lui faut vos longues avenues, :1tè
+De Il lui faut vos longues avenues,
 ‘1 Pour diriger ses pas, quand il médite; à
 É Late Il lui faut votre fraîcheur silencieuse ©
 s ce Pour protéger les controverses balancées Sa
 hi ; De ses graves amis.
 à { Et vous, vous frémirez de sublimes frissons
-‘ ; En sentant se glisser le long de votre tige D:
-1 Et s'élever plus haut que vos cimes sereines : 1800
+‘ ; En sentant se glisser le long de votre tige
+Et s'élever plus haut que vos cimes sereines : 1800
 LAN La montée de leurs doutes et de leurs certitudes. De
 
 Comme vous, ils se sont formés patiemment, OS
 FA Et, quand le soleil bis du printemps qui hésite
 A crevé les bourgeons des marronniers pressés, MAUR
-1 Ils ont su comprimer la hâte de leur cœur. Le ne
-Ils attendent le jour de vos feuilles tardives. 18
-Ils vont, rêvant d'étés riches comme vos étés, 10
-Et d'automnes, comme vos automnes, 400
-Dont les vents ;: 40
-0 Ne peuvent qu'emporter vos semences ailées,
+Ils ont su comprimer la hâte de leur cœur. Le ne
+Ils attendent le jour de vos feuilles tardives.
+Ils vont, rêvant d'étés riches comme vos étés,
+Et d'automnes, comme vos automnes,
+Dont les vents ;:
+Ne peuvent qu'emporter vos semences ailées,
 i 4 Et laissent triomphants, quand tout meurt près de vous, Na “
-Vos solides rameaux qui jaunissent à peine. 4 54
+Vos solides rameaux qui jaunissent à peine.
 
 NT Pourquoi rendis-tu
 ‘114 Pourquoi gardas-tu : "AO
 ee Des vents qui dessèchent (LASER
-Fes Et des vents qui glacent ? 80
-LT Pourquoi donnas-tu, re 34
-re à A mon tronc flexible, 250
+Fes Et des vents qui glacent ?
+LT Pourquoi donnas-tu, re
+re à A mon tronc flexible,
 É. A mon cœur si tendre, à “#0
-ti A mon front sans peur, ‘} 310
-‘1 Vivre dans ton ombre. 71
+ti A mon front sans peur, ‘}
+‘1 Vivre dans ton ombre.
 
-EU S Sur les pentes tièdes, 5e" 50
-0  Mesfrères heureux . l ;
+EU S Sur les pentes tièdes, 5e"
+Mesfrères heureux . l ;
 as VAE Vois, mes bras si las, Mt)
 Rens Las de supplier, {1H
 Ru Pendent, vers la neige,
 LAS Baisse un peu ta cime, 1 à
 5% enir à mon Corps, . ‘YU
-Re Venir à mes fruits, | 110
-118 Venir à mes pieds, 1170
-PURE La mer de lumière ardente. , 1
+Re Venir à mes fruits,
+Venir à mes pieds, 1170
+PURE La mer de lumière ardente.
 Ra Marcher dans ton destin. (F2
 (F5 Se fatiguent, un jour, : ‘4
-Des baisers sur le front 7
+Des baisers sur le front
 
 Qu'autorisent les mères.
 Et leurs cœurs gonflés
@@ -96,28 +96,28 @@ Appellent dans les soirs,
 Qui fassent éclater, dans des baisers sanglants,
 
 Dans vos longues robes flottantes, Se
-Dans vos vêtements précieux, 178
-ne à O mes amis, Ô mes amies, | 4 D.
+Dans vos vêtements précieux,
+ne à O mes amis, Ô mes amies,
 CPE Vous glissez, lassés, lents et pâles. LA
 © Vous glissez dans vos chambres tièdes. : 2108
 TRES Vos mains élèvent vers vos yeux LA Lx
 Des fleurs de verre, imprécises
-Comme les soucis de vos âmes. s 610
-Vos frêles mains, indécises, 155
+Comme les soucis de vos âmes.
+Vos frêles mains, indécises,
 Dessinent les cadences fluides
-De vos phrases, vagues et parées 10 h ñ
+De vos phrases, vagues et parées
 Comme les étoffes de vos robes.
-QE Regardez le ciel, mes amis! : 07e
-110 Regardez les champs, et les arbres; ‘0
+QE Regardez le ciel, mes amis!
+Regardez les champs, et les arbres; ‘0
 He “à Et puis regardez, regardez, | °AUS
-Vos mains, vos vases et vos robes! 040
+Vos mains, vos vases et vos robes!
 
-0 Riez, joyeux rameurs, et vous barreuses blanches,
+Riez, joyeux rameurs, et vous barreuses blanches,
 f:, f Qui glissez au soleil sur vos barques ailées, "NES
-4 Fe ” Et criez en passant, au pêcheur immobile :
+Fe ” Et criez en passant, au pêcheur immobile :
 ‘FR « Regarde ton bouchon, pêcheur, pêcheur stupide! »
 U : Rayez de fugitif la campagne éternelle, dsl “5
-1 Espiègles amusants qui ne comprenez pas Res. “Fat
+Espiègles amusants qui ne comprenez pas Res. “Fat
 } 30 Que l'eau veut des amants plus mesurés que vous.
 & Vous ne comprenez pas ce pêcheur immobile, ‘2 ‘a
 M; Toujours, toujours penché sur son bouchon stupide,
@@ -125,22 +125,22 @@ nee Et qui ne vous voit pas et ne vous entend pas; KPNS
 Fi Qui ne regarde pas les nuages qui flochent,
 1:40 Les roseaux qui se froissent, les saules qui saluent, +4
 5 ; Et qui seul, toujours seul, sur le fleuve chantant,
-Œux: Attend, serré d'espoir, la minute qui vient. 1
-ÿ Lobesr ni At 0
+Œux: Attend, serré d'espoir, la minute qui vient.
+ÿ Lobesr ni At
 
 Tenez-vous par la main, fillettes, et marchez.
 Dans l'ombre du mur gris qui s'éboule, passez, x #
 Arquez vos ventres fiers dans vos tabliers roses. à
 Laissez dire à vos yeux si profondément clairs LA
-Votre joie de sentir couler, en votre cœur, É.
+Votre joie de sentir couler, en votre cœur,
 Un autre cœur aimant qui se mélange au vôtre;
 Petits enfants pâmés de vous donner la main. De
 ‘4 Tenez-vous par la main, jeunes filles alanguies. ‘at
-Tandis que les garçons se retournent, et regardent 1
+Tandis que les garçons se retournent, et regardent
 Vos jupes sensuelles qui battent vos talons
 Passez, et, balançant vos doigts entrelacés,
-à Contez-vous, de vos bouches brûlantes qui s'attirent, r 2e
-Vos premières lectures, et vos premiers baisers. D.
+à Contez-vous, de vos bouches brûlantes qui s'attirent,
+Vos premières lectures, et vos premiers baisers.
 Tenez-vous par la main, amies. F: '
 … Tenez-vous par la main, amants silencieux.
 Marchez vers le soleil qui se voile de saules.
@@ -154,13 +154,13 @@ ci Lo Comme une amante qui n'est plus. |
 ‘4 Glisse ses eaux paisibles et ses lentes péniches. De
 vtt Tes arbres se balancent et fraîchissent ma tête
 Brûlante de vouloir, et lasse de penser,
-5 0 2
-5 Tes feuilles ont jauni, puis sont venus les vents,
+5
+Tes feuilles ont jauni, puis sont venus les vents,
 mn Les averses qui rouillent, les tempêtes qui brisent.
 5 00 Et jour à jour, somptueux et funèbre
 Re Et tu vis. Tu devins éternel, ô lumière,
 E té En passant par mes prunelles éblouies. \ATFICES
-44 ons ï Ils peuvent te détruire à grands coups de cognée 14
+44 ons ï Ils peuvent te détruire à grands coups de cognée
 
 Les bûcherons ingrats et les faiseurs de ponts ;
 Et moi-même, aurais beau me dissoudre,
@@ -176,27 +176,27 @@ TRE Luttez un peu, révoltez-vous ! LES
 Pat, Défendez-vous, contre les vents qui vous entraînent.
 RAT. Demeurez quelque temps au-dessus de nos villes. _
 MON ee Qu'un de vous, de vos troupes vagues, se détache,
-” à nes Et se fasse notre nuage familier. se 5
+” à nes Et se fasse notre nuage familier. se
 CU — Oh! ce n'est pas pour nous défaire
-A Le Qu'ils nous bousculent dans l'éther. 11e
+A Le Qu'ils nous bousculent dans l'éther.
 De Nous flottions, entre l'effroyable silence
-61 Ér.: Et la terre chantante des hommes,
-PA Dont les voix adorables expirent { « 70
-à Avant d'arriver jusqu'à nous. 20
+Ér.: Et la terre chantante des hommes,
+PA Dont les voix adorables expirent { «
+à Avant d'arriver jusqu'à nous.
 ‘4 Les vents passaient, bohémiens sublimes, He
 FER Qui connaissent tous les chemins de l'infini. 1:40
-1 Nous les avons priés. 40
+Nous les avons priés.
 ÿl * Ils nous ont emportés dans leurs souffles.
-pee Et nous errons, altérés de musique, : 55
+pee Et nous errons, altérés de musique,
 LR Cherchant un coin du ciel qui ne soit pas muet.
 
 Je vous ai trop aimés, paresseuses prairies, Hs
-We Saules qui m'endormez dans vos grises berceuses, 4) ù
+We Saules qui m'endormez dans vos grises berceuses, 4)
 Et vous, poitrails rétifs des péniches, tirées
 Sur des canaux dormants par des chevaux qui butent.
-À _ Je me prends, pays lents, à vos bruits susurrants; ; 4
+À _ Je me prends, pays lents, à vos bruits susurrants;
 Je m'amollis au son de vos fades musiques. ee,
-© fleuve, emporte-moi vers tes monts mugissants, 24
+© fleuve, emporte-moi vers tes monts mugissants,
 Dans la cluse grondante, où des rocs bleus et roux, ge” AË
 La chute des sapins, des pierres et des glaçons; Mr
 Où tes eaux vont friser leur écume sifilante
@@ -209,17 +209,17 @@ F J'ai vu des yeux fermés sur des narines froides, ‘4
 
 ‘M J'ai vu des lèvres bleues et des fronts immobiles,
 
-Fi J'ai vu des draps tirés, des cires allumées ; 1:
+Fi J'ai vu des draps tirés, des cires allumées
 
 f Au pied des lits j'ai vu des femmes agenouillées, Un.
 
-#3 Mais ton odeur, à pourriture, me rend lâche. : 4
+#3 Mais ton odeur, à pourriture, me rend lâche.
 
 ne Et je ne peux m'enfuir dans vos villes parées, “3
 
 FA Vos fronts précis, vos yeux rieurs et vos mains,
 
-2 Et les reins de vos fils, et les sublimes gorges de vos filles,
+Et les reins de vos fils, et les sublimes gorges de vos filles,
 
 NA Je les vois suinter et se dissoudre, PAR :
 
@@ -233,7 +233,7 @@ Demander à la terre une mort parfumée ; ANRT
 = Aux chants étincelants des cognées et des scies Les se
 É _ Laissez vos troncs d'argent écraser les clairières, # 4 pes
 ES Et vos branches, monter au ciel, en flammes claires. ne +
-Arbres, recueillez-moi! je peux vous voir mourir. TTENES 1
+Arbres, recueillez-moi! je peux vous voir mourir. TTENES
 
 Ce doigt posé entre mes deux épaules ?
 
@@ -254,20 +254,20 @@ Ah! derrière mon dos quelqu'un est là qui guette!
 Non, non ! tu ne peux pas! je travaille ce soir;
 Un essaim enchanté d'images me protège !.…
 
-Ma barque, lentement descend le fil de l'eau. 14
-Les arbres sont penchés sur la rivière calme; ù
+Ma barque, lentement descend le fil de l'eau.
+Les arbres sont penchés sur la rivière calme;
 50h _ Un poisson saute en l'air en faisant un bruit plats
 fn ÿ A coups secs, un pêcheur fiche un pieu dans la rive. ee :
 4 _ De gros nuages blancs tombent du ciel dans l'eau.
 Mon cœur, tu ne bats plus de la fièvre des villes. ‘0e
-5 1 1
-Oublie tous tes ennuis et toutes tes douleurs. 113
+5
+Oublie tous tes ennuis et toutes tes douleurs.
 ro Détends-toi, cœur ardent, malade de trop vivre, r 2:00
-LE Et jouis pleinement de la beauté du soir. D:
+LE Et jouis pleinement de la beauté du soir.
 Flancs boisés des collines, molles ondulations ETES
-… Des plaines, plantées de grands arbres, se LE Æ
-5 Rideaux de peupliers balancés par le vent, DER.
-# _ Aulnes qui coquetez sur le miroir du fleuve, V4
+… Des plaines, plantées de grands arbres, se LE
+Rideaux de peupliers balancés par le vent, DER.
+# _ Aulnes qui coquetez sur le miroir du fleuve,
 des __ Nature reposante où les autres s'apaisent, 1:18
 "SR il, je voudrais rendre tou: ar mes yeux.
 D Moi, drais te dre toute, yeux,
@@ -277,12 +277,12 @@ Ah! ta sérénité, que peut-elle sur moi? Le
 Quand tu veux te créer l'ombre d'une forêt, 1 12 000)
 # Li _ L'encens et la musique d'une cathédrale, VER a
 FU Le mouvement et la lumière d'une cité, UE Fi ;
-Tute dis, souriante, indiflérente et froide, 3
+Tute dis, souriante, indiflérente et froide,
 nr _ J'ai mille ans devant moi.
-AE Ê L PAS‘ Lo « “RO Tu ne calmeras pas mon cœur inquiet, nature. 2
+AE Ê L PAS‘ Lo « “RO Tu ne calmeras pas mon cœur inquiet, nature.
 Moqueuse, en tes yeux verts l'éternité me raille. ‘KES
 Ma barque, lentement, descend le fil de l'eau. Dora
-1588 0
+1588
 
 rez-de-chaussée, Paris, cinquième arrondissement.
 
@@ -365,7 +365,7 @@ correspondance le numéro de l'abonnement, comme
 appartiennent aux cahiers, du seul fait de cette publiD. cation, en toute propriété littéraire, sans aucune réserve,
 À et sans autre signification ni contrat; les manuscrits
 À non insérés ne sont pas rendus.
-4 1
+4
 
 Éditions sur whatman, et particulièrement abonnement sur whatman.— Aujourd'hui premier janvier 1906,
 à moins d'accident ou de surprise industrielle de fabrication que rien ne permet de prévoir, commencent à
@@ -390,9 +390,9 @@ Les conditions de pureté qui sont exigibles de toute
 habituelle de notre fabrication.
 ‘ Les conditions de rareté, qui ne sont pas moins exi1
 
-gibles de toute édition de cet ordre, sont ici garanties Ë
+gibles de toute édition de cet ordre, sont ici garanties
 par les dispositions suivantes : (2
-L'édition sur whatman se décompose ainsi : 4
+L'édition sur whatman se décompose ainsi
 Pour chacun des cahiers qui paraissent et seulement
 pour les cahiers qui paraissent; et sans qu'il y ait
 jamais aucune réimpression : |
@@ -403,17 +403,17 @@ un deuxième exemplaire de souche, qui est l'exem-
 LA un troisième exemplaire de souche, qui est l'exemplaire
 de l'imprimeur ; |
 les exemplaires de l'abonnement ;
-les exemplaires d'auteur. : Ë
+les exemplaires d'auteur.
 Tous ces exemplaires sans aucune exception sont
 numérotés à la presse et imprimés au nom du destinataire. :
 k Les exemplaires de souche sont numérotés et affectés :
-comme leur titre le porte. 3
+comme leur titre le porte.
 Les exemplaires d'abonnement sont numérotés de 1à (
 x, x étant le nombre d'abonnements à chaque instant "À
-] Les exemplaires d'auteurs sont numérotés de À à X, s.
-X étant le nombre d'exemplaires souscrits réellement 54
+] Les exemplaires d'auteurs sont numérotés de À à
+X étant le nombre d'exemplaires souscrits réellement
 et payés par l'auteur. à
-Aiünst dans tous les cas et dans toutes les sections les 4
+Aiünst dans tous les cas et dans toutes les sections les
 conditions requises pour une édition de cet ordre sont à
 réalisées, dans tous les cas et dans toutes les sections le hi:
 
@@ -436,7 +436,7 @@ whatman et un abonnement ordinaire. L'exemplaire de
 l'abonnement ordinaire sera traité comme un exemplaire
 4 d'usage; qu'il est; l'exemplaire sur whatman pourra
 ainsi demeurer ce qu'il doit être, un exemplaire de
-4 Comme départ, et par une stricte application des
+Comme départ, et par une stricte application des
 1 règles que nous avons posées, comme le porte notre bon » à tirer que l'on pourra voir un peu plus loin daté de
 mardi dernier 26 décembre, nous avons tiré en tout à
 4 vingt-et-un exemplaires sur whatman ce cahier d'André
@@ -448,27 +448,27 @@ librairie de : |
 Roma RoLLanD. — La Montespan, — drame en
 trois actes, — anciennement aux éditions de la Revue
 d'art dramatique et musical, — un volume de 94 pages
-Nous continuons ainsi à rassembler à la librairie des 4
+Nous continuons ainsi à rassembler à la librairie des
 cahiers les anciennes œuvres de notre collaborateur; à
-cette Montespar complète sensiblement notre collec- 4
+cette Montespar complète sensiblement notre collec-
 tion; pour la recevoir, envoyer un mandat de deux
 francs à M. André Bourgeois, administrateur des À
 On a pu lire dans un assez grand nombre de ;
-journaux que le prix de cinq mille francs de la Vie heu- 1
+journaux que le prix de cinq mille francs de la Vie heu-
 reuse avait été décerné à notre collaborateur M. Romain ;:
 Rolland pour son Jean-Christophe. Là-dessus quelques À
-langues ont commencé de marcher. Je ne veux point 3
+langues ont commencé de marcher. Je ne veux point
 me mêler à ces commentaires. Je suis de ceux qui ;
-approuvent un tel choix entièrement et sans aucune É:
+approuvent un tel choix entièrement et sans aucune
 ‘réserve, et qui sans aucune réserve s'en félicitent. Sans L'
-J'en félicite sans aucune réserve et premièrement le 3
+J'en félicite sans aucune réserve et premièrement le
 jury qui a fait ce choix. Il faut noter que notre collaborateur M. Romain Rolland n'était nullement candidat.
-Il n'avait fait, sous aucune forme, aucune démarche, 4
+Il n'avait fait, sous aucune forme, aucune démarche,
 aucun acte de candidature, ni au commencement pour %
 poser sa candidature, ni depuis pour la suivre. C'est le
 jury de la Vie heureuse lui-même qui eut l'initiative de
 cette désignation et qui le premier nous fit demander
-98 4
+98
 11700
 
 d'office, à M. André Bourgeois, par son éditeur la maison Hachette, les exemplaires qui devaient servir à
@@ -522,26 +522,26 @@ Je suis très ennemi des errata. En typographie, — et
 est-ce bien en typographie seulement, —le regret aggrave SE.
 dans la fabrication industrielle, c'est ce que je crois que %
 les peintres et les dessinateurs nomment des repentirs.
-14 Pourtant je dois dire, page 21 de ce cahier, que ce n'est
-4 pas moi qui avais écrit : éu nous a fourni. Je me suis 4
-reporté à ma copie, qui fait foi. J'avais écrit : tu nous 4
+Pourtant je dois dire, page 21 de ce cahier, que ce n'est
+4 pas moi qui avais écrit : éu nous a fourni. Je me suis
+reporté à ma copie, qui fait foi. J'avais écrit : tu nous
 as fourni. Je sais assez d'orthographe, ayant passé :
 quatre années pleines à l'école primaire, — ce quina À
 pas été donné à beaucoup de secondaires, et ce qui m'a
-précisément dispensé, dans ces derniers temps, de É.
+précisément dispensé, dans ces derniers temps, de
 tomber après tant d'autres dans cette démagogie pri- …
 maire, — et un plein semestre à l'école primaire supé- me
 rieure. J'avais écrit : tu nous as fourni. Les composi-
-teurs ont composé : {u nous a fourni. : 42
+teurs ont composé : {u nous a fourni.
 Peut-être ont-ils pensé que c'était encore un moyen De ;
-d'assurer encore un peu plus le célèbre serré du texte. 4
+d'assurer encore un peu plus le célèbre serré du texte.
 Et puis il paraît que c'est le métier des compositeurs de
-ne pas composer tout à fait ce qu'on leur donne, au 1
+ne pas composer tout à fait ce qu'on leur donne, au
 moins dans ces temps modernes. Mais ce qu'il y
 d'admirable, c'est l'immense quantité de personnes qui
 ont lu cette faute en épreuve, et qui n'y ont rien trouvé “À
 à redire. On serait épouvanté, si je donnaïs le nombre.
-Des familles entières, des familles honorables seraient 31
+Des familles entières, des familles honorables seraient
 perdues, si je donnais les noms. Moi le premier. Je “# à
 
 commence à croire, outre la faiblesse humaine, outre nos |
@@ -549,7 +549,7 @@ infirmités naturelles, que tant de parallélismes ; russe,
 français; grec, traduction; nous avaient généralement
 accablés. Et le rendu et le serré nous fait écrire un tel
 français que la lecture s'y perd, que l'esprit s'y brouille, »
-et que le simple entendement en demeure obtus d'un ë
+et que le simple entendement en demeure obtus d'un
 
 C'est d'ailleurs un phénomène extrêmement connu.
 Tant qu'une faute est en épreuves, c'est-à-dire aisément

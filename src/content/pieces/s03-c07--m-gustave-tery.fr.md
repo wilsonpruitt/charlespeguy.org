@@ -7,7 +7,7 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 19637
 ---
-Nous mettrons en vente le 10 janvier, jour de sa e.
+Nous mettrons en vente le 10 janvier, jour de sa
 __ JEAN Jaurès. — Études Socialistes, un volume de
 ON RE + 276 pages, édité par la Société d'Editions Rs.
 __ littéraires et artistiques, librairie Paul Ollendorff, un Pa.
@@ -17,7 +17,7 @@ l'édition Ollendorif. Ben
 Vient de paraitre à la librairie Jacques, en vente à la SL
 S librairie des cahiers : #35
 \ GEORGES SOREL. — La ruine du monde antique, - #4
-Conception matérialiste de l'histoire, un volume de x
+Conception matérialiste de l'histoire, un volume de
 _ A dater du premier janvier 1902 le Mouvement 25 "40
 ji Socialiste va demeurer 10, rue Monsieur-le-Prince ; il SRE.
 | paraîtra tous les samedis, sur 48 pages: le numéro
@@ -51,7 +51,7 @@ e Nous avons publié un dossier de l'affaire Hervé dans
 4 # le quinzième cahier de la deuxième série. — Mémoires
 | et dossiers pour les libertés du personnel enseignant
 
-et le mouvement ouvrier 1 franc Ù
+et le mouvement ouvrier 1 franc
 34: Nos Cahiers sont édités par des souscriptions men- à
 ka suelles régulières et par des souscriptions extraordi- à
 _ naires; la souscription ne confère aucune autorité sur
@@ -75,7 +75,7 @@ paraissant vingt fois par an
 
 Er : Nous avons en vente à la ] brair br es cahiers Len
 _ roman de Tristan et Iseut, deuxiè Li édition, un Li
-Re: # volume à trois francs cinquante, où plutôt deuxième! Ÿ
+Re: # volume à trois francs cinquante, où plutôt deuxième!
 tirage, puisque les éditeurs ont Ja mauvaise habitude ©
 de compter les éditions par un certain nombre des
 + exemplaires tirés et non par le recommencement, par
@@ -84,11 +84,11 @@ os Heureux ceux de nous qui ont pensé à temps à se pro3 curer la première é
 38 depuis la mauvaise idée de mettre à la première page ee
 de la couverture, pour le deuxième tirage, un frontispice %
 ee vert, censément artistique, représentant les facies de
-1 Tristan et Iseut. Les éditeurs ignoraient sans doute que
+Tristan et Iseut. Les éditeurs ignoraient sans doute que
 ; 4 Tristan et Iseut nous paraissent assez bien dessinés à
 3 % ‘ dansle français de l'auteur.
 « 58 M. Bédier a patiemment, fidèlement restitué pour
-4 nous l'image fruste laissée par les vieux poètes. Je me 248
+4 nous l'image fruste laissée par les vieux poètes. Je me
 SRE représente celte image d'après le texte. De quel droit
 +2 un dessinateur vient-il interposer, entre l'image origiT4 nale et la représentation que j'en ai, une image qu'il a,
 “He plus ou moins. Il faut respecter cette liberté du lecteur. À
@@ -96,11 +96,11 @@ Dre Naturellement l'auteur n'en savait rien et ne s'en «
  aperçut que quand le livre apparaissait aux galeries nn
 2 a de l'Odéon. Il faut pourtant respecter la liberté de
 , 54 Je conseille d'acheter en temps utile du second tirage.
-# À On ne sait pas jusqu'où peut aller le zèle d'un éditeur, À Æ
+# À On ne sait pas jusqu'où peut aller le zèle d'un éditeur, À
 4 quand il est éditeur d'art. : %
-à * Je m'applaudis tous les jours, devant de tels k è
+à * Je m'applaudis tous les jours, devant de tels
 © exemples, d'avoir voulu faire des éditions, d'avoir
-“AS continué à en faire après un premier essai malheureux. s: # È
+“AS continué à en faire après un premier essai malheureux. s: #
 RS: Il est de plus en plus indispensable qu'il y ait des
 institutions exprès pour sauvegarder la pleine liberté #
 . delauteuret du lecteur.
@@ -182,7 +182,7 @@ davantage la punition que tu m'infliges aujourd'hui. Je
 
 Le soir de la séance où le Conseil supérieur de l'Instruction publique avait condamné Hervé, celui des juges qui
 depuis le commencement de l'affaire et dans les débats
-mêmes avait défendu l'accusé avec le plus de patience ea + TL A TRE L
+mêmes avait défendu l'accusé avec le plus de patience ea + TL A TRE
 exacte, avec le plus de sérieux, avec le plus de sûreté,
 quittant la séance, rencontra M. Gustave Téry.
 — Eh bien ? demanda Téry.
@@ -212,7 +212,7 @@ mesurés, très académiques la belle lettre que M. Gabriel
 Séailles m'avait fait l'honneur de m'écrire, M. Guieysse
 m'a répondu fort courtoisement que « tout jugement
 pour lui.était toujours revisable ». De ton côté, moncher
-1 Péguy, spontanément et avec une bonne grâce dont je
+Péguy, spontanément et avec une bonne grâce dont je
 , te remercie, tu m'as offert d'insérer une rectification
 
 dans ton prochain cahier. Je ne te l'ai pas envoyée.
@@ -593,7 +593,7 @@ chose me paraît fâcheuse : le titre.
 écoliers ». Et à ce propos, je crois devoir répondre en passant À
 à un autre de nos camarades, que si je me suis permis de
 souligner les tendances réactionnaires du « Manuel de
-l'Histoire de la littérature française », publié par M. Brunetière, c'est précisément qu'il s'agit d'un « manuel ». Certes, Ë
+l'Histoire de la littérature française », publié par M. Brunetière, c'est précisément qu'il s'agit d'un « manuel ». Certes,
 je ne conteste pas à M. Brunetière « le droit de dire sa
 pensée sur Rabelais et sur Voltaire »; ce que je lui conteste,
 c'est le droit de faire, sous couleur d'enseignement, une
@@ -796,7 +796,7 @@ l'espèce de références que l'on peut avoir ainsi. M. Gallouédec est au Conse
 | $. — Je crois que M. Gallouédec est séparé de Téry
 î par un malentendu comparable à celui qui me sépare
 de Téry. Quelques-uns nous disaient aussi que l'affaire
-3 Dreyfus était un malentendu. Ce que Téry nomme ici
+Dreyfus était un malentendu. Ce que Téry nomme ici
 
 malentendu, je le nomme en français non sibyllin divisions profondes et incompatibilités totales d'action.
 M. Gallouédec, de qui est née la Société Condorcet,
@@ -821,9 +821,9 @@ en deux formules frappées. Il appelle ça un dialogue
 indifférent. Il n'est pas homme de théâtre.
 $. — Grossièreté. Il est exigeant, le chef. Depuis six -
 mois que nous soutenons une bataille universitaire
-f pour la défense de nos rares libertés, nous nous sentons d
+f pour la défense de nos rares libertés, nous nous sentons
 battus de jour en jour par l'ingérence des politiciens.
-4 Et le dernier soir, au dernier moment, quand ça y est,
+Et le dernier soir, au dernier moment, quand ça y est,
 ï comme disent les soldats, nous n'avons pas le droit de
 ; leur dire leurs vérités. Il faut encore que nous ayons
 À l'air contents ?
@@ -883,7 +883,7 @@ Si un troisième a” donnait
 La guerre est déclarée
 S'il y avait encore beaucoup de manuscrits &,, @y, Gys.. à
 donnant quelque chose d'approchant, et si ces manuscrits étaient aussi incertains que la mémoire de Téry,
-tous les philologues supposcraient que ces leçons ë É - 22
+tous les philologues supposcraient que ces leçons
 | variables, flottantes, à forme littéraire, seraient les déformations littérarisées d'une leçon non littéraire
 primitive. Etla leçon non littéraire primitive que l'on
 supposerait dans le manuscrit père inconnu À serait
@@ -961,7 +961,7 @@ lui-méme qui le voulait. Elle ne va pas contre mon
 ; aussi le voulait.
 | $. — Si. Hervé a reçu à la Petite République des
 ! louanges lourdes, dont il n'a pas semblé assez incom-
-\f modé. Au fameux banquet, il a reçu un sonnet dans j
+\f modé. Au fameux banquet, il a reçu un sonnet dans
 1 l'estomac. Comme un sous-préfet en tournée de revision.
 Ÿ Ce n'est pas l'auteur du sonnet que je blâme. C'est le
 
@@ -1155,7 +1155,7 @@ j $. — Téry ne veut pas se faire une brillante situation .
 11% dans la presse. Ila voulu se faire et il s'est fait une
 
 _ brillante situation dans la presse et dans la politique.
-3 Il y a des situations qui ne sont pas brillantes finan4 cièrement et qui sont brillantes socialement. Il y a des
+Il y a des situations qui ne sont pas brillantes finan4 cièrement et qui sont brillantes socialement. Il y a des
 situations qui ne sont pas brillantes financièrement, et
 qui sont le passage indispensable, l'introduction inévitable aux grandes, ou aux brillantes situations, finanE cières. Ce sont des stages. Dans les administrations, il
 ; y a detrès grosses situations qui ont exigé des stages
@@ -1416,7 +1416,7 @@ Comme à dix-huit ans, je suis à la recherche d'une
 Que faire ?
 Prendre un métier manuel? Quand on vit dans les
 livres depuis l'âge de dix ans et quand on s'y est usé
-les yeux, on n'est pas bon à grand chose. i
+les yeux, on n'est pas bon à grand chose.
 Vivre de ma plume dans le journalisme ? Les très
 rares journaux socialistes où je consentirais à entrer
 ont leur personnel au grand complet et les autres, ou
@@ -1489,7 +1489,7 @@ Ne servir quand même. Sur l'initiative de mon ami
 ; des quatre universitaires qui vinrent si crâänement
 / déposer pour moi en Cour d'assises, une Caisse de
 secours mutuels se constitue entre membres de l'enseignement pour garantir leur traitement aux professeurs
-ou instituteurs frappés, pour raisons politiques, par i
+ou instituteurs frappés, pour raisons politiques, par
 arbitraire administratif ; chacun verse par mois un
 centième de ce qu'il gagne. Il paraît que je vais être le
 premier pensionné du coup d'État... du coup d'État
@@ -1578,7 +1578,7 @@ bilan de l'opération. Avoir : ils sont publiés au moins à
 deux mille exemplaires, envoyés immédiatement à plus
 de treize cents abonnés, lecteurs sérieux patiemment
 choisis, lus d'au moins trois mille personnes. Doit : la
-bonne presse fait un silence total sur cette publication. L
+bonne presse fait un silence total sur cette publication.
 Nos anciens abonnés n'ont pas oublié les rares courriers que notre ami Lionel Landry nous a envoyés de : ,
 Chine. Aujourd'hui nous publions de Félicien Challare
 
@@ -1684,7 +1684,7 @@ disent, pour maintenir le prestige du Blanc. Le plus
 bête, le plus vil des soldats de l'infanterie de marine
 s'estime supérieur au plus fin lettré annamite; il le
 cravachera, si celui-ci ne se découvre pas vite, il
-l'injuriera ou le rudoiera sans raison, pour s'amuser. l
+l'injuriera ou le rudoiera sans raison, pour s'amuser.
 Quelques exemples plus particuliers. Dans un village
 
 F du Tonkin, je vois un colon faire venir le chef d'un
@@ -1749,7 +1749,7 @@ erreurs contraires, provenant de cette même idée
 fausse, que les races sont identiques, qu'il n'y a entre
 elles que des différences d'éducation, qu'une bonne
 éducation doit réussir à européaniser, franciser le
-monde. Nos Français d'Indo-Chine ne soupçonnent pas s
+monde. Nos Français d'Indo-Chine ne soupçonnent pas
 qu'il y a plus de morts que de vivants, et que les morts
 mènent les vivants; que l'hérédité est plus forte que
 l'éducation; qu'il y a des différences de races; d'inchangeables différences morales entre les races; que des
@@ -1848,13 +1848,13 @@ d'entendre l'éternelle apologie du rôle qu'y jouent les
 missionnaires. Beaucoup de républicains croient encore,
 beaucoup de journaux républicains disent encore, que,
 si les associations religieuses sont dangereuses en
-France par leur opposition au pouvoir civil, elles L
+France par leur opposition au pouvoir civil, elles
 servent du moins dans le monde la cause de la nation
 française. Je reviéns d'Extrème-Orient avec l'impression très forte que le mal fait par les associations
 religieuses en France est minime, comparé au mal fait
 par elles en Indo-Chine. Je veux, mon cher Péguy, te
 citer quelques faits, peu connus ou même ignorés en
-France. Ce que je dirai, je l'ai entendu répéter par tout le F
+France. Ce que je dirai, je l'ai entendu répéter par tout le
 monde en Indo-Chine, — catholiques, non catholiques,
 
 fonctionnaires, colons, indigènes, — sans aucune
@@ -2037,7 +2037,7 @@ leur domination dans leurs villages, les Pères, paraît-il,
 ne méconnaissent pas les avantages du fouet ni de la
 « cadouille ». On m'a aflirmé l'authenticité d'un mot de
 Mgr Puginier, célèbre là-bas : « Dieu fait bien ce qu'il
-fait : il a fait pousser le rotin à côté de l'Annamite : l
+fait : il a fait pousser le rotin à côté de l'Annamite
 c'est pour s'en servir. »
 Ce qui est grave, c'est que les missionnaires introduisent parmi une population éminemment pacifique un
 dangereux esprit de guerre intestine. L'Annamite est
@@ -2069,7 +2069,7 @@ Je ne pardonne pas, mon cher Péguy, aux mission-
 ainsi un soulèvement des indigènes. Je ne leur pardonne
 . pas le mal qu'ils font aux Annamites. Nulle part on
 n'est aussi dur et méprisant pour l'indigène qu'à la
-4 Mission. A un résident de mes amis, actif et dévoué,
+Mission. A un résident de mes amis, actif et dévoué,
 à un missionnaire disait qu'il ne comprenait pas qu'on
 Ë prit des mesures pour arracher les indigènes à la
 
@@ -2105,7 +2105,7 @@ texte et n'est pas un jeu de scène. Ainsi
 
 LANTIER. — Un peu démonté, je ne sais quoi répondre.
 
-Même page, dernier mot, et commencement de la 17,
+Même page, dernier mot, et commencement de la
 au lieu de simplem, on doit lire simplet.
 
 Page 23, quinzième ligne, au lieu de à la côte, on
@@ -2149,7 +2149,7 @@ pas l'orthographe, ni que nos abonnés ne savent pas
 lire. J'en conclus qu'il faut être prudent.
 Maurice Kahn veut bien me signaler que dans la À
 lettre de Maurice Bouchor on doit lire ligne 5 de la
-lettre, au lieu de scène des Bavards, scène des F
+lettre, au lieu de scène des Bavards, scène des
 ligne 13 de la lettre, au lieu de Grégoire, Gringoire.
 Kahn est plus familiarisé que moi avec l'écriture de
 Maurice Bouchor, qui n'est pas familière. J'avoue que Eje ne connaissais pas la scène des Bavardes. Mais

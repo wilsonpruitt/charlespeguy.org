@@ -19,7 +19,7 @@ curé de Sens. Voici un spécimen de ces plaisanteries
 A M. l'abbé Olivier, curé-archiprêtre
 de la Métropole
 vit et combat au service de sa
-patrie est un être sacré : il ne fait s i
+patrie est un être sacré : il ne fait
 pas seulement métier de soldat, il Cr
 fait métier de christ, de sauveur et, PHASE
 s'il vient à mourir, ce n'est pas une re
@@ -39,7 +39,7 @@ durer les avanies avec une parfaite sérénité : M. l'abbé
 expliquer, sont au contraire irascibles et vindicatifs
 
 quinzième cahier ‘de la deuxième sé
-‘à leur cœur déborde, non de mansuétude pour leurs k.
+‘à leur cœur déborde, non de mansuétude pour leurs
 à ennemis, mais de fiel.
 Au cours de sa polémique avec le Sans-Patrie, le “4
 Dar curé-archiprêtre avait déjà trouvé moyen de dénoncer
@@ -134,7 +134,7 @@ quatre cents francs, au moyen d'une souscription ou- ‘23
 verte dans le Travailleur, et au bon moment, le Piou-
 
 piou fut prêt; 4.000 exemplaires en furent distribués, je.
-Jamais feuille antimilitariste ne fut mieux adaptée. 4 7
+Jamais feuille antimilitariste ne fut mieux adaptée.
 
 aubut: le Pioupiou s'adressait surtout à de jeunes
 paysans, souvent peu instruits; aussi pas de grandes
@@ -182,7 +182,7 @@ Quand tu n'pourras fair' autrement.
 L'œuvre de chair accompliras,
 . Au claqu'dent, très régulièr' ment.
 fair' des faux t'exerceras,
-Si tu vis's aux hauts command'ments. k
+Si tu vis's aux hauts command'ments.
 Tes trois ans faits, le camp fout'ras
 Chez toi regretter l'régiment.
 Le Sans-Patrie du Travailleur y était allé naturelle-
@@ -205,8 +205,8 @@ je crains de ne pouvoir supporter sans broncher et
 sans riposter les rebuffades d'un gradé mal embouché; « parce que j'ai autre chose à faire de plus utile que de
 servir de larbin, de groom, de cocher, de palefrenier,
 de cuisinier, de déménageur ou de bonne d'enfant à mes
-officiers et à leurs femmes ; parce qu'il me déplaît d'èts e #1 4
-le dindon qui fait trois ans, tandis que les fils des riches, E.
+officiers et à leurs femmes ; parce qu'il me déplaît d'èts e #1
+le dindon qui fait trois ans, tandis que les fils des riches,
 qui ont eu les moyens d'user leurs fonds de culotte
 jusqu'à vingt-six ans sur les bancs des écoles, ne fo nt.
 qu'un an; parce que.je sais qu'à nos portes, en Suisse, par
@@ -267,7 +267,7 @@ nous lancer à la tête et je dirai à mes camarades qu'en
 cas de commandement de faire feu le devoir des polirons est de tirer en l'air, celui des hommes de cœurde
 refuser de tirer sur leurs frères, les travailleurs en
 — Petit conscrit, enfant du peuple, que feras-tu sites
-chefs demandent des volontaires pour aller à Mada- É:
+chefs demandent des volontaires pour aller à Mada-
 gascar, au Tonkin, en Chine ou ailleurs défendre « nos.
 — Je tâcherai d'abord de ne pas leur éclater de rire au He.
 x nez quand ils viendront nous débiter leurs tirades pa
@@ -276,9 +276,9 @@ d'esprit qui seraient tentés de s'enrôler : il faut être stupide, quand soi-m
 pour aller crever là-bas de fièvre ou de dysenterie afin
 de permettre à quelques galonnés de pêcher dans le
 sang galons et décorations, à quelque grosse maison de
-commerce de gagner des millions par l'exploitation des … 4
+commerce de gagner des millions par l'exploitation des …
 indigènes, à une poignée de missionnaires d'introduireà
-l'autre bout du monde des dogmes abêtissants et dan- Ë
+l'autre bout du monde des dogmes abêtissants et dan-
 Re geréux. Je leur dirai que c'est le dernier des métiers
 que celui qui consiste à s'introduire, armés de fusils
 œ répétition et de canons à la mélinite, chez des peuples ai
@@ -321,7 +321,7 @@ Je vous signalerai ensuite que, malgré votre affectation
 de haute impartialité, vous avez omis quelques pièces du -
 « dossier ».. notamment les accusations les plus odieuses
 dirigées contre l'Aurore.
-Enfin je vous prie de dissiper une équivoque possible, : 158
+Enfin je vous prie de dissiper une équivoque possible,
 d'après la citation que vous faites de la théorie pontificale
 Fe sur les « bätards ». Vous semblez m'en faire application. De
 La régularité de mon état-civil ne m'inspire aucun orgueil
@@ -331,7 +331,7 @@ assez pour que je vous envoie la présente rectification.
 Recevez, Monsieur, mes salutations. : ME:
 Cette rectification intéresse entre autres
 le gérant de ces cahiers; ES De
-Se et Jean Grave lui-même. 3 - 102
+Se et Jean Grave lui-même.
 LL Le Depuis qu'elle nous est parvenue, nous avons reçu de
 Re Jean Grave une lettre à Ludovic Marchand, où iléclaire
 are plusieurs points du débat.
@@ -364,7 +364,7 @@ le jeudi soir de deux heures à cinq heures. es
 k. Ainsi que nous l'avons annoncé, le seizième et dernier
 cabier de la deuxième série sera le compte rendu sténo- FE
 graphique non officiel du cinquième congrès socialiste
-international, tenu à Paris en septembre 1900. Non seu- L
+international, tenu à Paris en septembre 1900. Non seu-
 lement ce compte rendu est un monument unique, mais
 
 - Nous avons donné le bon à tirer après corrections
@@ -395,7 +395,7 @@ cela excite l'enthousiasme général. fait une chute devant le toro qu'on dé
 Le toro, qui a été blessé à la patte tourne immédiatement. #4 Sp
 droite, est plutôt calmé: Reverte a fait A noter de belles poses de banderilles
 son « brindis » à la présidence et, d'un par Curite, Currinche et des passes de
-coup d'épée très heureux, tue le toro au cape très hardies par Bonifa. + 12e
+coup d'épée très heureux, tue le toro au cape très hardies par Bonifa. +
 milieu d'une ovation enthousiaste. Le Revertito, qui doit estoquer, fait de. té
 ” Toro-Club lui offre une palme en or. belles passes de muleta, mais il manque
 
@@ -406,8 +406,8 @@ dans l'arène. Enfin, au troisième coup, le oi y
 
 Le deuxième picadore est aussi dé- gravement touché, se couche après cinq.
 
-monté; furieux, il remonte en selle, minutes de résistance; il est “hs x
-pendant que le toro retourne au pre- “le puntillero. 4 5
+monté; furieux, il remonte en selle, minutes de résistance; il est “hs
+pendant que le toro retourne au pre- “le puntillero.
 mier cheval qu'il frappe encore. 4° toro. — Campanero, un bicho,
 
 Le premier picadore revient dans rouge, tête foncée, entre avec impét uOl'arène avec un cheval que le toro at-  sité dans le redontel et se précipite sur.
@@ -434,13 +434,13 @@ SRE Dans leur première série les Cahiers de la Quinza ne
 4 - ont publié les réponses des militants socialistes à la
 ù consultation internationale ouverte à la Petite Répu-
 à blique sur l'affaire Dreyfus et le cas Millerand:
-dans le cinquième cahier les réponses de Van Kol — « “CS _Bebel — Vandervelde — Plekhanov — Iglesias — Andre: 54
+dans le cinquième cahier les réponses de Van Kol — « “CS _Bebel — Vandervelde — Plekhanov — Iglesias — Andre:
 dans le sixième cahier les réponses de Tom Mann =
 
 dans le huitième cahier les réponses de Liebkne ‘ht -
 dans le onzième cahier la réponse de. Rosa Luxe
 - À F2 - Dans leur deuxième série les Cahiers ont pu blié
-k Antonin Lavergne. — Jean Coste ou l'Ins! jituter ÿ
+k Antonin Lavergne. — Jean Coste ou l'Ins! jituter
 
 1418 On a ici le texte même du cinquième congrès socia- Le
 De MM. Corcos frères, sténographes habituels du Parti
@@ -465,7 +465,7 @@ séance avait voté la résolution suivante
 e 1° Aux représentants des groupements qui poursuivent la
 substitution de la propriété et de la production socialistes
 ? à la propriété et à la production capitalistes et qui considèrent l'action législative et parlementaire comme un des
-moyens nécessaires pour arriver à ce but; 5
+moyens nécessaires pour arriver à ce but;
 2° Aux organisations purement corporatives qui, bien que
 ne faisant pas de politique militante, déclarent reconnaitre
 la nécessité de l'action législative et parlementaire.
@@ -485,7 +485,7 @@ pas inutile de reproduire deux autres textes qui ne
 avait été déposée par Liebknecht; c'est une erreur. Eugène Guérard,
 - qui faisait partie du bureau, nous apprend qu'elle avait été rédigée
 ù par Vandervelde et amendée par Millerand. — Eugène Guérard. —
-Le Congrès de Londres, page 29.
+Le Congrès de Londres, page
 
 * furent pas mis aux voix. Le premier avait été proposé
 par la Social-democratic Federation d'Angleterre; il
@@ -513,11 +513,11 @@ doivent faire tous leurs efforts pour le conquérir.
 Les anarchistes et leurs alliés — même s'ils s'appellent communistes anti-parlementaires (1) — ne peuvent prendre part
 à ce Congrès, à quelque organisation qu'ils appartiennent.
 D'après Eugène Guérard, les textes allemands et an- -
-ss glais étaient encore plus rigoureux et le dernier para- i
+ss glais étaient encore plus rigoureux et le dernier para-
 Fe graphe portait : « Les anarchistes et leurs alliés, même
 s'ils s'appellent communistes anti-parlementaires où
 toute autre dénomination... »
-(1) Cette formule était dirigée contre les amis de Domela Nieuwen- n
+(1) Cette formule était dirigée contre les amis de Domela Nieuwen-
 huis et de Cornelissen en Hollande.
 E 5 Le Comité général du Parti socialiste français adressa
 4 _ en mai 1900 l'appel suivant aux organisations ouvrières : DE
@@ -646,7 +646,7 @@ Depuis, le Parti Ouvrier Socialiste Révolutionnaire a proposé aux diverses nat
 
 six nations sur onze : -
 
-Le mouvement croissant de la concentration des capitaux, le désor-. ÿ
+Le mouvement croissant de la concentration des capitaux, le désor-.
 dre économique, irréductible par des moyens politiques, résultant ne
 
 de leur concurrence, et, par suite, l'aggravation incessante dela
@@ -655,7 +655,7 @@ direct entre le travail et le capital, qui prendra la forme d'une
 EE _ Nous vous invitons donc à vous rendreau Congrès socia-
 liste international de Paris.
 Une circulaire subséquente vous fera connaître les dispo- Hs
-sitions prises par le socialisme français, unitoutentier dans - 5e
+sitions prises par le socialisme français, unitoutentier dans
 une même pensée d'entente et d'action commune, pour.
 réserver aux délégués de tous les pays la plus fraternele
 -  hospitalité et pour assurer à la face du monde l'éclat etla
@@ -678,7 +678,7 @@ Séance du dimanche 23 septembre 1900
 Avant l'ouverture du Congrès, les délégués français
 se réunissent dès dix heures un quart pour élire leur
 
-bureau. Le citoyen Dubreuilh (P.S. R.), secrétaire du x
+bureau. Le citoyen Dubreuilh (P.S. R.), secrétaire du
 Comité général, monte à la tribune. Il déclare que c'est
 par erreur que certains camarades croient que la sec-
 tion française doit se réunir ce matin. Il dit que la
@@ -736,7 +736,7 @@ pourra plus être élu. (Mouvements divers. Tumulte)
 citoyens, constituer notre bureau avant que les mandats
 - des délégués aient été vérifiés. Vérifions-les d'abord
 nous élirons le bureau ensuite. (Applaudissements
-mets en doute la bonne foi de personne. Maïs nous e
+mets en doute la bonne foi de personne. Maïs nous
 autres, dans le Nord, où notre Fédération est si forte,
 - avons des habitudes d'organisation. Je veux bien croire
 que tous les mandats sont réguliers ; c'est possible.
@@ -746,7 +746,7 @@ valable. (Approbations sur les bancs du P. O. F. et
 Le citoyen Briaxp. — Citoyens, la question qui se
 pose a été réglée au sein du Comité général. Je fais
 appel à la loyauté de tous, ici, et je défie un seul denos
-camarades du Comité général, appartenant au P. O.
+camarades du Comité général, appartenant au
 ou au P. S. R., d'apporter ici la moindre dénégation
 mes paroles. Si le Comité général s'est laissé plus
 absorber par la préparation du Congrès national que
@@ -826,7 +826,7 @@ ne à paix.
 5e Citoyennes et citoyens, notre ordre du jour, l'ordre du
 à jour du Congrès socialiste international, comprend, en
 même temps que cette grande question de la paix,
-L (1) Les Italiens, les Hollandais et les Russes ont parlé en français. ÿ
+L (1) Les Italiens, les Hollandais et les Russes ont parlé en français.
 
 toutes les autres questions sur lesquelles, à cetteheure,
 s'élèvent des controverses dans les partis socialistes de
@@ -839,9 +839,9 @@ Ah! citoyens, laissez-moi, au nom de nos camarades
 de France qui n'ont pas réalisé encore chez eux l'unité
 complète, l'unité organique dont tous les autres pays
 nous ont donné l'exemple, laissez-moi exprimer le vœu
-que l'exemple de la force que donne aux partis socia- É
+que l'exemple de la force que donne aux partis socia-
 listes des autres pays l'unité organique saura, par une ie
-amicale propagande, nous conseiller l'unité complète, K
+amicale propagande, nous conseiller l'unité complète,
 l'unité entre socialistes, pour préparer l'unité entre les
 hommes par la révolution sociale. (Vifs applaudisse-
 è ments et acclamations unanimes)
@@ -854,7 +854,7 @@ toutes les races, de toutes les nations.
 La démocratie allemande est unanimement convain-
 cue de la nécessité de marcher la main dans la main
 avec les socialistes prolétaires de tous les pays, pour
-briser le joug du capitalisme et arriver à l'expropria- s
+briser le joug du capitalisme et arriver à l'expropria-
 tion économique de la bourgeoisie. Justement le Con-
 grès de Mayence a rappelé ce souvenir qu'il y a vingtcinq ans il y avait au sein de la démocratie socialiste
 
@@ -935,13 +935,13 @@ avons vaincu la réaction sanglante de 1898, nous avons
 bien mérité de la liberté. La monarchie italienne s'est
 heurtée à notre obstruction inlassable : elle en a appelé
 au pays, etle pays lui a répondu en accroissant nos
-voix, en augmentant nos mandats. (Applaudissements) 4
+voix, en augmentant nos mandats. (Applaudissements)
 Maintenant, la monarchie essaie d'exploiter contre
 nous l'attentat de Monza, et malgré cela deux nouveaux
 députés socialistes ont été élus quelques jours seule-
 ment après la mort du roi Umberto. C'est que nous “4
 autres, socialistes italiens, comme l'a montré notre
-récent Congrès, nous sommes unis. Chez nous il peut y « 2
+récent Congrès, nous sommes unis. Chez nous il peut y «
 avoir des discussions entre nous, mais grâce à l'unité
 du parti, il ne peut y avoir de divisions. (Applaudisse-
 C'est donc avec la conscience d'avoir fait leur devoir
@@ -949,7 +949,7 @@ que les socialistes italiens vous tendent la main et
 s'apprêtent à lutter avec vous. (Applaudissements una
 Le citoyen Aprer, président de la section autr=
 chienne. — J'apporte à tous les socialistes étrangers le. Le
-salut fraternel des socialistes autrichiens. Nous autres, 4
+salut fraternel des socialistes autrichiens. Nous autres,
 
 qui avons dû constituer, en Autriche, une petite Internationale, nous connaissons mieux que personne les
 difficultés à surmonter. Nous venons ici, comme nous y
@@ -980,7 +980,7 @@ notre petit pays notre devoir intégral de socialistes,
 ” nous avons pratiqué fraternellement l'union socialiste.
 
 Aux premiers temps du christianisme, les païens,
-voyant le spectacle de l'union des premiers chrétiens, E
+voyant le spectacle de l'union des premiers chrétiens,
 disaient : « Comme ils s'ainfent! » Cet amour des pre-
 miers chrétiens a constitué la force de leur doctrine. En
 Belgique, actuellement, les bourgeois disent des socialistes : « Gomme ils s'aiment ! » C'est la constatation de
@@ -1004,7 +1004,7 @@ de vous. Il vous guette. Concentrez toute votre énergie
 contre l'ennemi commun. Socialistes français, unissez- à
 vous. (Longs applaudissements. Ovation. — Cris de:
 
-Vive l'Unité) * 2
+Vive l'Unité)
 
 @) Il y avait d'un côté le Parti Ouvrier fondé en 1885 par De
 Paepe et Volders et de l'autre côté le Parti socialiste républicain, ‘4
@@ -1039,8 +1039,8 @@ montré l'inscription qu'il porte : « Prolétaires, unissez
 vous ! » (Applaudissements répétés sur tous. les Fa
 Le citoyen PLEKHANOrr, secrétaire de la sectionrusse.
 — C'est dans foute la mesure où ils sont conscients de
-leurs intérêts de classe et où ils sont unis, que les prolé- Ë
-taires russes marchent la main dans la main avec le prolétariat mondial. Vous vous souvenez du mot de Jacoby: 4
+leurs intérêts de classe et où ils sont unis, que les prolé-
+taires russes marchent la main dans la main avec le prolétariat mondial. Vous vous souvenez du mot de Jacoby:
 La formation du plus petit syndicat a, pour l'évolution
 historique, plus d'importance que la bataille de Sadowa. “4
 Pour la Russie c'est plus vrai que pour tout autre pays.
@@ -1053,7 +1053,7 @@ lement pour l'émancipation économique de leur classe, a
 mais encore pour la libération de tous les peuples du
 knout de la Russie. (Vifs applaudissements) FF
 Le citoyen Krircaevskx, président de la section
-russe. — Je vous demande de flétrir les monstruosités e
+russe. — Je vous demande de flétrir les monstruosités
 odieuses du tsarisme et d'adopter les deux ordres du
 jour que je vais vous lire
 « Les révolutionnaires polonais, juifs et russes, dé-
@@ -1065,7 +1065,7 @@ de la fête de la solidarité internationale du prolétariat, +.
 ont décidé, à l'unanimité et avec enthousiasme, d'en-
 voyer leur salut cordial au Congrès international ouvrier
 socialiste de Paris et de lui souhaiter du fond du cœur
-le meilleur succès dans ses travaux. Vive le socialisme + 4
+le meilleur succès dans ses travaux. Vive le socialisme +
 
 démocratique! Vive le Congrès international ouvrier
 É « L'organisation ouvrière englobant des ouvriers de
@@ -1082,18 +1082,18 @@ cette compréhension n'était pas assez vive pour s'im- Fa
 poser d'une manière générale. Chez nous ce mouvement
 se termina, comme dans plusieurs autres pays de.
 l'Europe, par l'écroulement de la monarchie absolue et
-létablissement d'une constitution bourgeoise et libérale. e
+létablissement d'une constitution bourgeoise et libérale.
 Ce fut le retentissement des héroïques combats de la
 Commune de Paris en 1871 qui éveilla l'esprit des
 ouvriers danois et fit arborer dans leur pays le drapeau <
 - rouge del'internationalisme. Le prochain flot civilisateur
 des grandes nations trouvera en Danemark une armée
 de travailleurs bien organisés et prèts à concourir
-laccomplissement de la grande œuvre révolutionnaire, 2
+laccomplissement de la grande œuvre révolutionnaire,
 c'est-à-dire à l'écrasement définitif et irrévocable du
 Moloch capitaliste et à la fondation de ia nouvelle société
-de liberté, d'égalité et de fraternité. (Applaudissements j
-- Le citoyen Daszynski, secrétaire de la section polo- L
+de liberté, d'égalité et de fraternité. (Applaudissements
+- Le citoyen Daszynski, secrétaire de la section polo-
 naise. — J'apporte le salut de la Pologne écrasée et
 meurtrie, où commence enfin de s'aflirmer la conscience
 de classe du prolétariat. Nous voulons la paix inter__ nationale. Et nous la voulons au moment même où
@@ -1102,23 +1102,23 @@ de classe du prolétariat. Nous voulons la paix inter__ nationale. Et nous la vo
 peuples en élevant un rempart de baïonnettes! Nous
 voulons de toutes nos forces l'unité des prolétaires polo- “4
 nais, mais nous la voulons seulement sous le drapeau
-du socialisme révolutionnaire. (Vifs applaudissements) 3
+du socialisme révolutionnaire. (Vifs applaudissements)
 
 Bohème. — Le dernier Congrès socialiste tchèque m'a
 donné mission de venir saluer les membres du Congrès
 socialiste international. C'est avec une joie profonde
 que je m'acquitte de cette tâche. Si nous ne sommes
 qu'un petit parti, nous sommes cependant de bons
-socialistes, comme vous tous, camarades. Et à la démo- È
+socialistes, comme vous tous, camarades. Et à la démo-
 cratie socialiste mondiale, nous adressons nos meilleurs
 
-Le citoyen Furxozz, président de la section suisse. — 4
+Le citoyen Furxozz, président de la section suisse.
 Nous n'avons pas précisément, en Suisse, une très
 forte organisation. Peut-être en serait-il autrement, si
 nous avions été quelque peu persécutés, au lieu d'être
 en possession de toutes les libertés politiques. Quoi
 qu'il en soit, le Parti Ouvrier Suisse donne l'exemple
-d'une unité parfaite, malgré la différence des langues, 4
+d'une unité parfaite, malgré la différence des langues,
 des usages, des différents cantons qui composent notre
 pays. Vous pouvez avoir confiance en nous! Nous
 marcherons, toujours et d'un commun accord, avec les
@@ -1140,7 +1140,7 @@ devons opposer notre unité à l'unité du Capital. Le
 à prolétaires et à les jeter dans des conflits aussi criminels qu'odieux. Vous n'avez pas oublié, camarades, les
 actes du capitalisme espagnol aux Philippines et vous
 voyez ceux du capitalisme anglais en Afrique. Que la
-ces monstruosités ! (Vifs applaudissements) e
+ces monstruosités ! (Vifs applaudissements)
 
 Le citoyen CAMBIER, de la République argentine. —
 Je me contenterai de m''associer, en deux mots, aux
@@ -1173,7 +1173,7 @@ Un colloque violent s'établit avec le président. Le
 citoyen LAFARGUE réclame la parole. Elle lui est accordée. Tumulte indescriptible sur la tribune. Le calme se
 rétablit peu à peu. Le citoyen LAFARGUE peut parler.
 Le citoyen LAFARGUE. — Citoyens, j'ai une protesta-
-tion à vous lire. La voici : D F
+tion à vous lire. La voici
 S Attendu que la vérification des pouvoirs pour la section
 française avait été, par décision du Comité généraletpar
 voie de la presse, fixée à deux heures de l'après-midi;
@@ -1238,7 +1238,7 @@ soir de deux à six heures.
 Malgré les protestations des délégués anglais qui .
 voudraient que les séances ne durassent que jusqu'à -
 à cinq heures, la proposition Furnémont est adoptée.
-Le citoyen PRÉSIDENT. — Voici deux dépêches que le k
+Le citoyen PRÉSIDENT. — Voici deux dépêches que le
 bureau du Congrès a reçues : :
 La première est de Nîmes
 Citoyens réunis nombre cinq cents pour fêter Maison du
@@ -1246,8 +1246,8 @@ Peuple socialiste de Nimes adressent salut fraternel témoignage sympathie aux r
 Le second télégramme de Carmaux
 du prolétariat international leurs salutations fraternelles.
 Font des vœux pour unité socialiste internationale, pour
-affranchissement humanité et chute société capitaliste, Æ
-pour qu'enfin justice et égalité règnent par société commu- E:
+affranchissement humanité et chute société capitaliste,
+pour qu'enfin justice et égalité règnent par société commu-
 Je propose que le Congrès admette en bloc l'ordre du
 jour provisoire et que les questions soient discutées et
 mises aux voix au fur et à mesure que les différentes Fi
@@ -1267,7 +1267,7 @@ on pourra ensuite discuter les autres questions. Alors,
 nous aurons bien l'opinion du Congrès, et pas seulement l'opinion d'une commission. (Applaudissements) -
 
 proposition Fribourg, bien qu'en principe elle soit
-excellente; mais il faudrait, pour qu'elle soit applicable, s
+excellente; mais il faudrait, pour qu'elle soit applicable,
 que le Congrès siégeât pendant trois mois. (Rires) Je
 mets aux voix la proposition du bureau. — Adoptée
 l'unanimité.
@@ -1286,7 +1286,7 @@ onze premiers points. Le Comité général français, après
 avoir pris l'avis des diverses nationalités, y a ajouté un
 douzième point, la grève générale. Afin d'éviter toute
 k discussion au sujet de l'irrégularité de cette décision, -
-je demanderai que le Congrès décide que le douzième ÿ
+je demanderai que le Congrès décide que le douzième
 point sera inscrit à l'ordre du jour. (Approbations)
 
 Le citoyen PRÉSIDENT. — Il est entendu que lon .
@@ -1297,15 +1297,15 @@ du jour de cette séance et nous pouvons la lever.
 Le citoyen FURNÉMONT. — Je dois indiquer ce quise
 passe au point de vue de la salle : les délégués ont à se
 réunir dans un local dont le patron de l'établissement
-m'a refusé la clef, sur l'ordre paraît-il du citoyen j
+m'a refusé la clef, sur l'ordre paraît-il du citoyen
 Dubreuilh. (Exclamations sur certains bancs. — Voix
-nombreuses : Dubreuilh à la tribune) 3 4
+nombreuses : Dubreuilh à la tribune)
 m'occuper, pour mon compte, de la partie matérielle
-de l'organisation du Congrès; c'est le citoyen Boutié, 3
+de l'organisation du Congrès; c'est le citoyen Boutié,
 trésorier du Comité général, qui a loué la salle, et il va
 vous fournir des explications à cet égard.
 Le citoyen Bourié. (P. O. F.) — Quand nous sommes
-venus traiter, au nom de la commission d'organisation, 3
+venus traiter, au nom de la commission d'organisation,
 pour la location de la salle, le propriétaire a consenti
 de nous louer celle-ci et la petite salle annexe. Hier
 matin, j'avais demandé par faveur au propriétaire de
@@ -1333,7 +1333,7 @@ que nous avons à accomplir avec les camarades étrangers, — nous faisons à n
 mettre un nom pour chaque commission et les deux
 camarades qui auraient le plus de voix seraient ceux
 qui seraient nos délégués dans les commissions et au
-bureau. Je fais cette proposition parce que nous pen- s
+bureau. Je fais cette proposition parce que nous pen-
 sons, mes amis et moi, que nous devons trouver un
 système qui nous permette d'aboutir — sans préjuger
 j en rien des idées de personne — pour le moment où
@@ -1348,7 +1348,7 @@ Le citoyen Présipexr. — Nous allons procéder au
 vote dans cès conditions. Êtes-vous d'avis que l'on
 mette treize chapeaux, douze pour les commissions et
 un pour le bureau et que chacune des fractions mette
-un nom? (Hésitation d'un grand nombre de délégués) 1
+un nom? (Hésitation d'un grand nombre de délégués)
 
 proposition Delory est acceptable; et les objections que
 paraissent y faire un certain nombre de camarades
@@ -1366,16 +1366,16 @@ et d'un certain nombre de fédérations départementales
 Décidés à remplir jusqu'au bout notre devoir international, nous proposons à la délégation française de suspendre
 tout conflit pendant la durée du Congrès international, et, FR:
 puisqu'il existe deux manières de concevoir l'action et la
-politique socialistes, d'attribuer à chacune de ces fractions, 254
+politique socialistes, d'attribuer à chacune de ces fractions,
 sans rechercher où se trouve la majorité ou la minorité, “4
 un président au bureau général et un délégué à chacune
 des douze commissions. /Bruit} FR
 
 Si vous voulez que la lutte reprenne, vous n'avez qu'à
-repousser” cette proposition, que nous faisons pour “2 3
+repousser” cette proposition, que nous faisons pour “2
 remplir notre devoir vis-à-vis des socialistes étrangers. ge
 (Applaudissements) C'est, en somme, la proposition És
-Delory, mais expliquée par un exposé de motifs. $ 4
+Delory, mais expliquée par un exposé de motifs. $
 
 Le citoyen Géraurr-Ricuanp. (F. S. R.) — Nous
 sommes aussi pénétrés que nos camarades de l'autre
@@ -1417,7 +1417,7 @@ rants de Guesde, d'attribuer à ce qu'on appelle chacune
 à des deux fractions le choix direct et explicite de ses
 représentants. Je préfère le système Delory, qui permet
 à chacune des tendances d'avoir des garanties, sans ‘à
-qu'il y ait une cassure officielle. (Applaudissements) È
+qu'il y ait une cassure officielle. (Applaudissements)
 C'est pour cela que je me rallie à cette dernière proposition.
 Le citoyen GérAurr-RicHarp. — Je suis d'avis que
 nous acceptions tous la motion Delory ; mais c'est sur
@@ -1441,20 +1441,20 @@ faut, non pas voter comme l'indiquait le citoyen
 Delory, mais voter à mains levées. Nous n'avons qu'à
 désigner des deux côtés nos candidats. — Adopté
 l'unanimité.
-Une partie de l'assemblée acclame le nom du citoyen e
+Une partie de l'assemblée acclame le nom du citoyen
 
 Renou(P.O.S.R.) comme président ; l'autre celui du Fe
 citoyen Vaillant. (P. S. R.) Ces deux noms, mis aux
 voix, sont acceptés à l'unanimité. Le vote est salué par
-les cris de : Vive la Commune! s
+les cris de : Vive la Commune!
 La séance est suspendue et reprise à midi. ne
 successivement les noms des délégués choisis pour faire
 partie des commissions. Voici ces noms
 Première commission. — Exécution des décisions du Congrès. Recherche et application des moyens pratiques pour
 l'entente, l'organisation et l'action internationale des tra-
-vailleurs et des socialistes. — Marcel SemBAr et Hubert : e
+vailleurs et des socialistes. — Marcel SemBAr et Hubert
 Deuxième commission. — Législation internationale du Res
-travail pour la limitation de la journée de travail. Discus- x
+travail pour la limitation de la journée de travail. Discus-
 sion sur la possibilité d'un minimum de salaire dans les
 divers pays. — GroussIER et MoREAU (des Omnibus). ze
 Troisième' commission. — Des conditions nécessaires de
@@ -1464,9 +1464,9 @@ politique et économique de la bourgeoisie; c} socialisation
 des moyens de production. — LAFARGUE et PoxARD, !
 risme, suppression des armées permanentes. — VAILLANT PRES
 Cinquième commission. — La politique coloniale, — .
-Rozpes et LAGROSILLIÈRE. 3 ù
+Rozpes et LAGROSILLIÈRE.
 Sixième commission. — Organisation des travailleurs
-. Septième commission. — La lutte pour le suffrage universel et la législation directe par le peuple. — LePAGEe et k
+. Septième commission. — La lutte pour le suffrage universel et la législation directe par le peuple. — LePAGEe et
 . Huitième commission. — Socialisme communal, — DeLORY et FLAISSIÈRES. ee
 Neuvième commission. — La conquête des pouvoirs pu-
 blics et les alliances avec les partis bourgeois. — GUESDE » … et Jaurès.
@@ -1477,7 +1477,7 @@ la gauche du Congrès (guesdistes, blanquistes et groupes alliés),
 Onzième commission. — Les Trusts. — ARGYRIADÈS et
 ‘ Douzième commission. — La grève générale. — ZévAës et pe.
 Les résultats sont adoptés à l'unanimité, à mains "
-levées, et salués par des acclamations. \ 4
+levées, et salués par des acclamations. \
 La séance est levée à midi un quart. On se sépare au Bi
 chant de l'Internationale. Me.
 La séance est ouverte à deux heures quarante, sous Fe
@@ -1485,7 +1485,7 @@ la présidence du citoyen Singer (Allemagne). “4
 Le citoyen Présipenr. — Nous avons appris avec une
 grande satisfaction que les camarades français se sont
 mis d'accord pour le choix des présidents et des délé-
-gués aux commissions ; et nous sommes particulière- M
+gués aux commissions ; et nous sommes particulière-
 ment heureux que lés citoyens Vaillant et Renou aient
 été élus présidents. (Vifs applaudissements) Voici la
 liste des membres du bureau élus par les sections
@@ -1495,7 +1495,7 @@ jour il y aurait deux présidents de nationalités diffé-
 rentes ; pour aujourd'hui, il a décidé que le citoyen
 Vaillant présiderait avec moi; pour demain ce seront
 les citoyens Andrea Costa et Hyndman. .
-Nous avons le plaisir d'annoncer que le Congrès sié-, 74
+Nous avons le plaisir d'annoncer que le Congrès sié-,
 gera à partir de demain dans la grande salle, où nous
 serons bien mieux à notre aise. A nn
 (Le citoyen Vaillant prend place à la présidence, :
@@ -1546,8 +1546,8 @@ _ aussi plein de courage qu'à l'heure actuelle. Nous a
 à devons donc être certains, en acclamant le socialisme
 à s international, que dans les luttes qui s'engagent, le
 #à socialisme triomphera ! (Applaudissemenis unanimes.
-à — Cris répétés de : Vive la Commune !à gauche,et Vive . j
-l'unité ! à droite) 1
+à — Cris répétés de : Vive la Commune !à gauche,et Vive
+l'unité ! à droite)
 #4 Le citoyen PRÉSIDENT. — Nous allons procéder, tout
 d'abord, à la vérification des mandais : les règles pour
 Eu cette vérification ont été fixées par le Congrès de Lon-
@@ -1557,11 +1557,11 @@ ee". que pour les mandats contestés.
 "4 Le citoyen Delory, rapporteur de la commission de
 vérification des mandats pour la France, a la parole.
 Le citoyen DELory. (P. O. F.) — Je prie les camarades français de ne pas trouver, dans les quelques exEx plications que je serai obligé de fournir, une idée de
-(on Nous nous sommes réunis hier, dans l'après-midi (1), 4
+(on Nous nous sommes réunis hier, dans l'après-midi (1),
 et les organisations présentes ont accepté la proposition
 40e suivante : puisqu'il était diflicile dans l'état actuel de
 Ja délégation française d'avoir exactement les mandats fi
-Ne (1) En réunion particulière de la gauche française. Le discours de ‘4 é
+Ne (1) En réunion particulière de la gauche française. Le discours de ‘4
 è *  Delory ne s'entend que d'après cette réunion particulière. ‘à
 
 déposés par tous, nous avons décidé de nous en rapporter à la commission de vérification pour le Congrès national et de prendre les mandats déposés, défalcation
@@ -1598,11 +1598,11 @@ de la Fédération des travailleurs socialistes, d'un cer-
 tain nombre de Fédérations autonomes, de syndicats
 } et de coopératives ont compris que dans la section fran-
 à ù çaise l'accord s'était fait ce matin, complet et sans
-réserve, conformément à une décision du Comité géné- Ë
+réserve, conformément à une décision du Comité géné-
 ni: ral sur laquelle il est impossible d'épiloguer. Etant donA nées les conditions dans lesquelles le Congrès inter-
-à national a été organisé, le Comité général a jugé qu'il Ÿ
+à national a été organisé, le Comité général a jugé qu'il
 à était impossible de procéder à une validation, à un ‘à
-examen détaillé des mandats; les conditions d'admis- F
+examen détaillé des mandats; les conditions d'admis-
 sion pour le Congrès international n'étant pas les mêmes
 que pour le Congrès national, il a été décidé dans le sein
 du Comité général que chaque organisation validerait ‘4
@@ -1615,7 +1615,7 @@ dats sans exception sont portés au Congrès internatio-
 nal ; ils ont été acceptés par anticipation, par une déciju sion du Comité général. (Vifs applaudissements
 Le citoyen PRÉSIDENT. — Après délibération avec mes “
 ‘ camarades du bureau, je déclare que tous les mandats
-Hé français ont été reconnus valables par le Congrès. (ApNe plaudissements) k
+Hé français ont été reconnus valables par le Congrès. (ApNe plaudissements)
 
 Le citoyen PRÉSIDENT. — Les organisations politiques
 d'Allemagne sont représentées ici par quarante-cinq
@@ -1650,15 +1650,15 @@ va bientôt s'ouvrir, et il a été dans la nécessité de retenir
 
 une certaine partie de ses forces dans le pays. La délé
 gation autrichienne est composée de dix délégués les
-organisations politiques en comptent cinq, les syndic: ts ET ë.
-k ouvriers deux, les groupes ouvriers des différentes \ 4
+organisations politiques en comptent cinq, les syndic: ts ET
+k ouvriers deux, les groupes ouvriers des différentes \
 An industries en comptent trois. Il n'y a pas eu de con
 testations en ce qui concerne leurs mandats, qui ont
 Ér tous été acceptés. (Applaudissements) TR
 ee Le délégué de l'Italie Enrico FERRI. — En ce qui
 à concerne l'Italie, le Parti socialiste se trouve dans la
 nécessité de se réorganiser dans tout le pays, après
-à deux ans de réaction sanglante, réactionnaire et jésui- É
+à deux ans de réaction sanglante, réactionnaire et jésui-
 tique ensuite. (Applaudissements) C'est pour cette 4 À
 ‘À raison que le Parti socialiste italien n'a pu envoyer que a
 dix Deus des Bronpes poRtiques des rome au
@@ -1730,7 +1730,7 @@ dats polonais au Congrès international de Zurich en
 aujourd'hui encore, la majorité des délégués polonais
 veut abuser de ses droits monopolisés et essaie de
 
-i dégrader la Pologne socialiste devant le monde entier. s
+i dégrader la Pologne socialiste devant le monde entier.
 k Il ne s'agit point ici de formalités, ni d'irrégularités,
 ni même de doute sur la validité des mandats contes-
 tés ; il s'agit au fond de controverses de programme, de
@@ -1747,16 +1747,16 @@ partage qui s'est opéré entre la Russie, l'Allemagne et
 dereprésenter cette fraction. D'autrepart, lessocialistes
 plus ou moins nationalistes, qui suivent avant tout le
 plan utopique et fantaisiste de la reconstitution de la
-Pologne. C'est précisément contre cette utopie nuisible, M
+Pologne. C'est précisément contre cette utopie nuisible,
 k (1) Dans les Congrès internationaux on vote par nations; maison
 r24 admet l'existence de nations que ne connaît pas la géographie poliPA tique; c'est ainsi que la Bohême constitue une nation. Mais comment
 faut-il interpréter l'existence de ces unités ? Faut-il y voir la reconFF naissance de droits historiques latents d'États qui pourraientrenaître ?
-M. Ou bien faut-il y voir seulement la reconnaissance de langues diffé- M
+M. Ou bien faut-il y voir seulement la reconnaissance de langues diffé-
 k: rentes? Pour la Pologne les deux solutions sont fort éloignées l'une
 i de l'autre. — Au Congrès de Londres, en 1896, Adler avait affirmé la
 Fe deuxième solution et dit qu'il y a en Autriche quatrelangues, formant
 3 1 quatre unités ayant droit à Ja représentation. (Hamon, le Socialisme
-et le Congrès de Londres, page 134.) 2
+et le Congrès de Londres, page 134.)
 
 contre cette tendance nationaliste que nous luttons
 énergiquement, convaincus que le prolétariat n'est pas
@@ -1791,7 +1791,7 @@ y ont droit; il s'agit ensuite des principes de la justice
 
 et de l'honneur socialistes. Croyez-moi, itoyens, j'ai la
 gorge pleine de larmes d'être obligée de vous dé aoncer
-/11a3 ici les procédés honteux de mes camarades polonais. \ x
+/11a3 ici les procédés honteux de mes camarades polonais. \
 Ex Ê Comment ! nous nous sommes réunis ici pour délibérer
 à ‘ des voies et moyens de lutte; comment! nous nous
 Fe sommes réunis peur délivrer l'humanité de la morale
@@ -1805,18 +1805,18 @@ et avec la mauvaise foi des jésuites ! (Vifs applaudisse- !
 profond, et je les dénonce au monde socialiste tout
 je entier comme indignes du nom honorable de polonais et
 de socialiste! Quant à vous, citoyens, je vous prie de
-valider à l'unanimité tous les cinq mandats contestés, l
+valider à l'unanimité tous les cinq mandats contestés,
 qui se trouvent entre les mains de socialistes sincères.
-(Nouveaux applaudissements) Vous montrerez ainsi à ces h
+(Nouveaux applaudissements) Vous montrerez ainsi à ces
 3$ socialistes que l'idéalde notre cause n'estpas seulement +4
 légalité économique et la liberté politique, mais qu'il est
-fait encore des principes essentiels de la bonne foi, de la j
+fait encore des principes essentiels de la bonne foi, de la
 justice et de la fraternité! (Applaudissements prolongés)
 Le citoyen PrÉsIDENT. — Je donne la parole au citoyen
 Adler; puis je la donnerai au camarade Daszynski.
 Le citoyen ApLer (Autriche). (1) — Il n'y a pas lieu
 d'examiner en séance publique du Congrès la questionx
-de mandats qui divise les deux fractions polonaises; 4
+de mandats qui divise les deux fractions polonaises;
 <'est au bureau à trancher la question, en vertu d'une
 ‘ décision antérieure ; etille fera dans leplus large esprit
 ea de conciliation.
@@ -1870,11 +1870,11 @@ Le citoyen Hyxpman (Angleterre). — Nous deman-
 soient tranchées par le bureau. - à
 ex Le citoyen VANDERVELDE (Belgique). — Le Congrès
 de Londres, constatant que ces questions de vérifica-
-tions de mandats lui faisaient perdre un temps précieux, j
+tions de mandats lui faisaient perdre un temps précieux,
 — et vous le constatez vous-mêmes — a décidé formel
 à lement qu'à l'avenir elles seraient tranchées en dernier
 *S ressort par le bureau. Dès lors, ilme semble qu'ilnya
-pas lieu de mettre aux voix la proposition du camarade x
+pas lieu de mettre aux voix la proposition du camarade
 è Hyndman. Nous devons mettre à exécution les déci- À
 sions du Congrès de Londres.
 La citoyenne Rosa LuxEMBuRG fait savoir qu'elle
@@ -2070,7 +2070,7 @@ d'un secrétaire général salarié, ayant pour mission de
 1% procurer à chacun les renseignements nécessaires, de
 rédiger un code explicatif des résolutions prises aux
 +5 () Le principe d'un comité permanent avait été voté à Londres”
-à (Hamon. Op. cit., page 164 et page 267.) è
+à (Hamon. Op. cit., page 164 et page 267.)
 
 Congrès, de distribuer des rapports ayant trait au
 
@@ -2097,7 +2097,7 @@ manière dont le détail sera donné plus loin.
 Quelques arguments sufliront pour vous convaincre
 de l'urgence absolue de créer cet organe central. Nous
 n'avons pas à craindre que le comité permanent ait le
-sort du Comité général de l'ancienne Internationale; é
+sort du Comité général de l'ancienne Internationale;
 nous vivons dans des temps très différents. Le Comité is
 général de l'Internationale exprimait le rêve de quelques
 penseurs et non point une réalité vivante. Ils avaient
@@ -2115,12 +2115,12 @@ LR Le Congrès international socialiste de Paris, considérant
 qu'il importe aux Congrès internationaux, destinés à deveEt nir le Parlement du prolétariat, de prendre les résolutions -
 qui guideront le prolétariat du monde entier dans sa lutte
 pour la délivrance; que ces résolutions, résultats de l'en-
-de prendre les mesures suivantes : *4
+de prendre les mesures suivantes :
 1° Un comité d'organisation sera nommé, aussi vite que
 possible, par les organisations socialistes du pays où se
 tiendra le prochain Congrès ; à
 2° Un comité permanent international, ayant un délégué
-pour chaque pays, sera formé et disposera des fonds néces- M
+pour chaque pays, sera formé et disposera des fonds néces-
 saires. Il arrêtera l'ordre du jour du Congrès suivant et
 demandera des rapports sur les questions à l'ordre du jour
 3° Ce comité choisira un secrétaire général] salarié, chargé:
@@ -2153,7 +2153,7 @@ déjà combattu et sont tombés! (Vifs applaudissements)
 En bon socialiste et en mauvais financier, j'allais oublier la chose principale ; j'ai parlé de la question théorique, mais je n'ai pas traité la question pratique
 la question d'argent. A cet égard, nous avons eu de
 longues discussions. Finalement, nous avons pensé que
-pour créer ce comité permanent, il nous suflirait, pour s
+pour créer ce comité permanent, il nous suflirait, pour
 commencer, d'une somme de dix mille francs pour avoir
 un secrétaire salarié et faire face aux autres frais : frais ‘
 de local, de correspondance, de traduction, etc. Nous
@@ -2191,8 +2191,8 @@ bon de ne pas perdre trop de temps à discuter cette ques=« ô tion et, pour y 
 qu'on vote d'abord immédiatement sans discussion Sur
 la question de principe. Le Congrès veut-il le secréta=
 ê riat international, oui ou non ? Deuxième vote : Le Congrès accepte-il la somme de dix mille francs à réunir
-par les différents pays ? Troisième vote : Quel sera e
-pays où devra siéger le secrétariat ? s
+par les différents pays ? Troisième vote : Quel sera
+pays où devra siéger le secrétariat ?
 j Nous pourrons ainsi passer plus rapidement à une
 a Le citoyen WAGxEr (France).— J'appuie le camarade
 ‘ qui vient de vous proposer de scinder le travail pour
@@ -2209,16 +2209,16 @@ tant, qui serait indiquée pour chacune des nationalités,
 suivant la force de ses organisations.
 Le citoyen VAN Kor. — Le citoyen Smith a proposé
 une somme plus large que la mienne; mais je crois
-qu'il faut tenir compte que les organisations de chaque k
+qu'il faut tenir compte que les organisations de chaque
 pays ont des charges de propagande et d'action, pour
 lesquelles elles font appel à leurs membres et qu'on ne
-peut guère demander un supplément de cotisation à ÿ
-tous les membres adhérents aux organisations écono- Ë
+peut guère demander un supplément de cotisation à
+tous les membres adhérents aux organisations écono-
 miques et politiques. Je crois qu'en demandant trop on
 n'obtiendra rien. Nous avons amplement discuté la question financière; nous avons admis une somme raison- + À
 nable qui peut suffire pour la rémunération du secré- à
 taire, pour les frais de locaux qui seront très petits, de
-traduction et de correspondance, ainsi que pour les k
+traduction et de correspondance, ainsi que pour les
 imprimés, qui pourront être payés aussi par les organi-
 sations. Je crois donc pouvoir soutenir que dix ou douze
 mille francs seront suflisants pour le début de cette
@@ -2257,7 +2257,7 @@ sous font plus de trois francs ; c'est donc une affaire
 Il faut que le Congrès décide que dans une période
 déterminée une somme doit être fournie par toutes les
 he É organisations socialistes; ce sera au secrétaire de
-de recueillir à chaque réunion du groupe les dix cen- h
+de recueillir à chaque réunion du groupe les dix cen-
 times par tête de chaque membre. On donne à la porte
 
 j de toutes les réunions; il n'est personne qui ne mettela
@@ -2268,7 +2268,7 @@ bien, onles sortira dans ce but, et ce serait une honte .
 de constater que dans le monde entier, socialiste, on ne … bi
 pr. peut pas trouver cent mille francs; ce serait un aveu
 pénible à faire. La création de ce comité sera le lien
-qui affirmera précisément cette solidarité internationale b
+qui affirmera précisément cette solidarité internationale
 À que nous avons tous acclamée. J'appuie très chaleureusement la proposition du citoyen Smith; et je crois que
 
 le moyen pratique de la réaliser, je viens de vous l'indi- de
@@ -2290,7 +2290,7 @@ La clôture, mise aux voix, est décidée.
 Le citoyen Enrico Ferri (Italie). — Comme président
 de la première commission, je désirerais dire quelques
 mots : Van Kol vous a indiqué le chiffre qu'après
-longue discussion nous avons décidé de proposer au 4:
+longue discussion nous avons décidé de proposer au
 Congrès. Nous avons vu qu'il faut distinguer entre les
 envolées platoniques et les réalisations pratiques. D'un
 autre côté, comme nous sommes dans un Congrès international, comme nous avons le bonheur de constater
@@ -2319,12 +2319,12 @@ sh année, les dix mille francs demandés par la première
 prévue d'une certaine manière. On ne peut pas s'engager
 notamment pour le compte des syndicats, surtout pour
 à l'Allemagne où les syndicatsne peuvent pas faire action
-Fe commune avec le parti politique. Il faut voter le prinRe cipe d'une certaine somme à fournir par les diverses w
+Fe commune avec le parti politique. Il faut voter le prinRe cipe d'une certaine somme à fournir par les diverses
 à nationalités; et qu'ensuite celles-ci soient libres de
 ‘2 réclamer de leurs adhérents la cotisation nécessaire
 he S comme elles l'entendront, et de la façon qui conviendra ‘À
 Le citoyen Vax Kor. — Toutes les objections indiquées ici, nous les avons traitées, notamment celle
-‘à “ayant trait aux syndicats. Il est certain que chaque k
+‘à “ayant trait aux syndicats. Il est certain que chaque
 nation sera libre de trouver les moyens les pluspropres
 “ à procurer l'obole à laquelle elle se sera engagée ; etla
 f, somme de dix mille francs que nous avons proposée
@@ -2333,7 +2333,7 @@ n'engage que les organisations politiques.
 1e sition de la commission, qui a fixé à l'unanimité la
 é, somme de dix mille francs. — Adopté à l'unanimité.
 # Le citoyen Présiexr. — Nous passons à la troisième
-Le. question : Où siégera le Comité international ? s
+Le. question : Où siégera le Comité international ?
 Ce . Le citoyen Hyxpmax. — J'ai l'honneur de proposer la
 
 Fr Maison du Peuple de Bruxelles ; la Belgique estun pays
@@ -2383,7 +2383,7 @@ propagande socialiste révolutionnaire internationale; un
 #5 Propose, en cas de conflit militariste international produit
 È par la classe dirigeante de quelque pays que ce soit, que le
 comité aura pour mission de faire une propagande antis. militaire active, afin de provoquer une grève internationale
-ÿ 3 des baïonnettes(1), afin d'éviter l'effusion dusang prolétarien, Ë
+ÿ 3 des baïonnettes(1), afin d'éviter l'effusion dusang prolétarien,
 au profit du capitalisme international. /Applaudissements)
 Le citoyen FurxéMoxT (Belgique). — Au point de vue
 k s pratique, la résolution que nous avons prise est excel- ‘4
@@ -2407,7 +2407,7 @@ ns tendant à la nomination de deux délégués par nationa-
 lité au comité international, avec ratification ulté-
 rieure. — Adopté à l'unanimité.
 Die (1) L'idée d'une grève militaire avait été soumise au Congrès
-248 Op. cit., page 164.) La proposition Barrat ne donna lieu à aucune
+Op. cit., page 164.) La proposition Barrat ne donna lieu à aucune
 
 Le citoyen Van Kor. — Nous voyons que nos cœurs
 battent à l'unisson les uns des autres. Camarades, il
@@ -2453,16 +2453,16 @@ La mission de cette commission sera donc aussi bien
 
 aucun grief du prolétariat ne sera ét affé, car on fe:
 
-ne ao Ÿ appel à l'opinion publique de tous les pays: et la voi : 2e
+ne ao Ÿ appel à l'opinion publique de tous les pays: et la voi
 
 è du prolétariat se fera entendreet sera répétée dans tous % à
-les pays de l'univers où le socialisme a pénétré. hi pi ; S
+les pays de l'univers où le socialisme a pénétré. hi pi
 Voilà la résolution qui doit compléter la première que
 si vous avez votée ; celle-ci ne présente pas de grandes De.
 difficultés ; elle a l'avantage de ne rien coûter, et ses
 résultats seront des plus précieux. Voici la proposition
-que je dépose : ÿ
-‘2 d Le comité socialiste international devra exiger des grou- ï
+que je dépose
+‘2 d Le comité socialiste international devra exiger des grou-
 À À pes socialistes parlementaires nationaux l'organisation
 d'une commission spéciale interparlementaire pour faciliter
 te une action commune sur les grandes questions politiques
@@ -2475,7 +2475,7 @@ d au Congrès une résolution dont notre ami Vinck avait
 déjà pris l'initiative au Congrès international des
 étudiants socialistes et qui me paraît être le complé-
 ment nécessaire des résolutions qui viennent d'être
-ù Nous proposons, en effet, de donner mandat au secré- k
+ù Nous proposons, en effet, de donner mandat au secré-
 tariat ouvrier siégeant à Bruxelles d'établir une biblio-.
 he thèque du socialisme, des archives internationales qui »
 centraliseraient les livres, les brochures, les rapports et
@@ -2483,7 +2483,7 @@ centraliseraient les livres, les brochures, les rapports et
 fl prolétarien dans les deux mondes. re
 É D'accord avec les citoyens Ferri et Costa, pour
 °ù l'Italie, Hyndman, pour l'Angleterre, Singer, pour
-l'Allemagne, et, j'en suis convaincu, de nombreux am s
+l'Allemagne, et, j'en suis convaincu, de nombreux am
 
 parmi les camarades français, je propose la résolution
 Le secrétariat international siégeant à Bruxelles sera
@@ -2535,11 +2535,11 @@ chiens, qui connaissent notre malheureuse situation;
 
 qu'ils nous aident à marcher la main dansla main avec
 
-le prolétariat universel! (Applaudissements) 1
+le prolétariat universel! (Applaudissements)
 
 Le citoyen PRÉSIDENT. — En conformité des décisions
 
-ÿ prises ce matin, les Américains ont nommé leurs délé- M
+ÿ prises ce matin, les Américains ont nommé leurs délé-
 
 gués au bureau permanent : ce sont les cifoyens -
 
@@ -2553,11 +2553,11 @@ ee (1) Cette traduction, à force d'être littérale, est peu intelligible sur
 
 à quelques points. Pour comprendre l'exposé trop bref de la situation,
 
-lire : P. Leroy-Beaulieu, les nouvelles sociétés anglo-saxonnes. e.
+lire : P. Leroy-Beaulieu, les nouvelles sociétés anglo-saxonnes.
 
-international réuni à Paris. Nous espérons que ce Congrès s
+international réuni à Paris. Nous espérons que ce Congrès
 servira à l'unité et aux intérêts du prolétariat de tous les
-pays. x
+pays.
 Nous sommes trop peu nombreux pour être représentés
 à ce Congrès, mais nous espérons pouvoir l'être au prochain quand bien même il n'y aurait qu'un seul délégué
 pour toute l'Australie.
@@ -2585,7 +2585,7 @@ actuelle, ils sont vingt-deux sur cent vingt-cinq membres
 de la Chambre et tiennent ainsi la balance du pouvoir
 entre les deux partis bourgeois, les libre-échangistes et les
 protectionnistes — les trade-unionistes ne professent pas
-des doctrines socialistes et ne travaillent pas consciencieusement à établir une société social-démocratique en s'atta- l
+des doctrines socialistes et ne travaillent pas consciencieusement à établir une société social-démocratique en s'atta-
 quant aux causes économiques des vexations auxquelles
 le prolétariat est soumis. Ils se contentent de chercher de
 simples palliatifs aux iniquités du système capitaliste.
@@ -2610,11 +2610,11 @@ ne duire à de nouvelles réalisations, que nous oubliions
 he notre idéal révolutionnaire et que nous oublions les
 D: .commémorations qui nous sont sacrées.
 C'est dans cet ordre d'idées que je vous propose de.
-4 < décider que vendredi prochain, après la clôture du k
+4 < décider que vendredi prochain, après la clôture du
 ‘4 Congrès, nous nous rendrons au Père-Lachaise, devant
 ee. le mur des Fédérés.. (Applaudissements enthousiastes)
 Le: et que nous déposerons une couronne d'immortelles
-s. rouges, dont une souscription internationale couvri n
+s. rouges, dont une souscription internationale couvri
 Commune, qui ont combattu pour l'affranchissement
 humain et l'avenir du socialisme. (Nouveaux et longs
 applaudissements. Cris répétés de : Vive la Com
@@ -2633,13 +2633,13 @@ achevé, nous proposons une suspension de séance de
 La séance est suspendue jusqu'à trois heures et
 la reprise de la séance, le citoyen WurM (Alle-
 magne) a la parole pour lire un rapport sur la première
-question de l'ordre du jour examinée par la deuxième k
+question de l'ordre du jour examinée par la deuxième
 commission : Législation internationale du travail par
 Le citoyen Wurm. — La commission s'associe à la ps
 résolution prise par les Congrès précédents ; mais il faut
 déclarer que si le Congrès se prononce aujourd'hui en He
 faveur de la journée légale de huit heures, cela ne veut ;,
-pas dire que les représentants du prolétariat dans les k
+pas dire que les représentants du prolétariat dans les
 Parlements ne peuvent légiférer que sur cette base de
 huit heures; s'ils ne peuvent arriver à une législation
 sur cette base de huit heures, ils peuvent légiférer sur
@@ -2733,12 +2733,12 @@ réforme qui a été faite autrefois : on a porté la journée
 de douze heures à dix heures, ce qui est assez géné-
 ralisé en France. Eh bien, étant donnés les nouveaux
 progrès, la nécessité de défendre sa dignité personnelle,
-de s'instruire, de s'élever par l'éducation, afin que i
+de s'instruire, de s'élever par l'éducation, afin que
 nous puissions profiter des progrès qui ont été réalisés
 par le progrès moderne et démocratique, il est utile et
-il serait possible d'abaïsser cette journée de travail à k
+il serait possible d'abaïsser cette journée de travail à
 huit heures. De grands exemples ont été donnés déjà
-et dans d'autres pays; des entrepreneurs, des capita- F
+et dans d'autres pays; des entrepreneurs, des capita-
 listes même ont avoué qu'avec un peu de bonne volonté,
 en améliorant leur outillage, ou en faisant usage de
 leurs capitaux pour soulager la main-d'œuvre, on
@@ -2747,7 +2747,7 @@ faudrait que s'en féliciter, puisqu'il y a trop de travail
 leurs et surproduction; en diminuant le nombre d'heures
 de travail, on réaliserait donc un progrès, puisqu'On
 éviterait du chômage pour un grand nombre d'entre
-(1) Il y aïici une petite erreur; la question est plus ancienne: k
+(1) Il y aïici une petite erreur; la question est plus ancienne:
 (Cf. Gabriel Deville, Historique du Premier Mai, Devenir Social
 
 Il faut réaliser dans ce sens des réformes urgentes.
@@ -2875,11 +2875,11 @@ posant dans les cahiers des charges des travaux adjugés
 nous avons l'honneur de vous proposer le vote de la
 Le Congrès déclare que le minimum de salaire n'est pos-
 sible que là où il peut être fixé par des syndicats fortement
-() H s'agirait plutôt du living wage des Anglais (de Rousiers, M@ Ÿ 4
+() H s'agirait plutôt du living wage des Anglais (de Rousiers, M@
 question ouvrière en Angleterre, pages 280-281) que d'un vrai minimum: Mie
 La différence est grande ; car il semble que parfois en fixant Un Mi=
 nimum de salaires dans les cahiers des charges des entreprises} CD
-ait surtout voulu faire une vague démonstration philanthropique: J
+ait surtout voulu faire une vague démonstration philanthropique:
 
 organisés, que ce minimum, dont le taux ne peut être fixé
 d'une façon générale et unique pour tous les pays, doit être
@@ -2940,14 +2940,14 @@ pas régler cette question d'une manière internationale ;
 elle peut être réglée tout au plus nationalement, ou par
 région ; je dis en outre que nous pouvons, dans certains
 cas, par l'action syndicale, imposer des conditions de
-travail aux États et aux particuliers. e ÿ
+travail aux États et aux particuliers.
 
 J'indique que les délégués allemands ont voté contre
-la résolution de la commission, mais c'est parce qu'il k,
+la résolution de la commission, mais c'est parce qu'il
 nous en avait été fait une traduction inexacte. Maïnte-
 nant que nous en connaissons le texte vrai, nous nous ge
 y rallions tous; c'est donc à l'unanimité que ce texte + ‘à
-est proposé au Congrès. h
+est proposé au Congrès.
 
 Le citoyen PRÉSIDENT. — Je mets cette résolution aux
 voix. — Adopté à l'unanimité.
@@ -2966,7 +2966,7 @@ Le Comité d'action appelle l'attention du Congrès international socialiste de 
 et du Creusot qui luttent depuis quatorze mois pour secouer
 le joug capitaliste. Pour conquérir leur indépendance, ils
 ont besoin de l'appui et du concours des socialistes du
-monde entier. Le Comité espère que les membres du Con- Ç
+monde entier. Le Comité espère que les membres du Con-
 grès viendront par leur obole en aide à leurs revendications
 il demande qu'une collecte soit faite à chaque séance et
 adresse son salut socialiste à tous les camarades !
@@ -3011,7 +3011,7 @@ réduction des heures de travail est une nécessité abso- ‘à
 lue. Pour que les ouvriers ne fassent plus d'heures sup=
 plémentaires, il faut qu'eux-mêmes reconnaissent toute
 (1) Sur les origines de cette manifestation lire l'article déjà mens
-tionné du citoyen Gabriel Deville {Devenir social, avril 1896). = ÿ
+tionné du citoyen Gabriel Deville {Devenir social, avril 1896). =
 A Londres on avait décidé que cette journée serait aussi CONSACTÉE A.
 manifester contre le militarisme. (Hamon. Op. cit., page 167.) se
 
@@ -3040,7 +3040,7 @@ La section française s'est donc ralliée à la proposition
 générale ; mais nous faisons quand même, au nom de
 tous les membres de la commission, un appel vibrant
 à tous les délégués des nations représentées ici pour
-faire la propagande la plus active en faveur de la manifestation du Premier Mai, journée des revendications f
+faire la propagande la plus active en faveur de la manifestation du Premier Mai, journée des revendications
 du prolétariat. (Applaudissements)
 
 Le citoyen PRÉSIDENT. — Je mets aux voix la proposition de la commission. — Adopté à l'unanimité.
@@ -3066,7 +3066,7 @@ personnelles et il montrerait la nécessité de l'unité
 de pensée chez les prolétaires.
 Si la commission a été unanime pour le principe, elle
 ne l'a pas été pour la forme. Il est évident que le procédé
-doit être différent suivant les pays; nous ne pouvions e
+doit être différent suivant les pays; nous ne pouvions
 proposer de règle s'adaptant à toutes les nationalités
 notre résolution doit donc laisser toute liberté. La commission pense que ce sont les organisations politiques
 et économiques qui doivent remplir cette tâche qui
@@ -3115,7 +3115,7 @@ politiquement et économiquement la bourgeoisie et de socialiser les moyens de p
 j Cette première proposition a été votée à l'unanimité je
 de la commission ; et celle que je vais vous lire a été (
 votée à la majorité
-Les socialistes de tous les pays s'engagent à intervenir d
+Les socialistes de tous les pays s'engagent à intervenir
 afin que les étrangers, dans leur pays respectif, jouissent
 du même droit de coalition que les nationaux, et à se servir à cet effet de tous les moyens à leur disposition. /Ap-
 Le citoyen HarrImaN (États-Unis). — Cette question
@@ -3124,20 +3124,20 @@ que les socialistes américains se sont divisés. Il y a en
 Amérique des socialistes (1) qui croient qu'il ne faut,
 pas s'associer avec le mouvemement syndical américain parce que ce mouvement syndical est le théâtre
 d'intrigues politiques de la part d'individus fourvoyés
-dans les syndicats. D'autres socialistes (2) reconnais- J
+dans les syndicats. D'autres socialistes (2) reconnais-
 sent que les syndicats sont corrompus, que les chefs
 sont vendus ; mais ils pensent qu'il faut aller vers ces
 chefs de syndicats corrompus pour les amener à bien.
 Ils pensent que ces syndicats n'agissent pas dans le
 sens socialiste ou agissent avec le capitalisme, et que ‘4
-le prolétariat n'agit pas tout entier dans le sens socialiste et agit parfois contre le mouvement ouvrier parce b
+le prolétariat n'agit pas tout entier dans le sens socialiste et agit parfois contre le mouvement ouvrier parce
 qu'il n'est pas syndiqué. Mais, malgré tout, ils pensent
-ÿ qu'il faut que les ouvriers socialistes américains semetS tent dans ces syndicats, quelle qu'en soit la corruption: 1
+ÿ qu'il faut que les ouvriers socialistes américains semetS tent dans ces syndicats, quelle qu'en soit la corruption:
 Ces syndicats sont autonomes, il y a donc moyen de les
 réformer; tant qu'on ne les aura pas réformés on ne ji
 pourra pas compter sur un soulèvement possible de la “
 masse. Il faut que les syndicats marchent d'accord avec ns
-le mouvement socialiste. J'approuve donc la résolution 1:
+le mouvement socialiste. J'approuve donc la résolution
 @) Parti ouvrier socialiste qui comprend notamment Sanial et
 Daniel de Léon.
 (2) Parti social-démocrate auquel appartient l'orateur.
@@ -3255,9 +3255,9 @@ critiques contre le Comité général qui est l'émanation
 de tout le socialisme français. (Longues protestations)
 
 La question de la publication des résolutions est sans
-importance, vous le savez bien. (Nouvelles _pro lesta- ÿ
+importance, vous le savez bien. (Nouvelles _pro lesta-
 se Le citoyen Présinexr. — Le bureau se mettra ‘accord Ke
-avec le camarade français dont on a parlé, afin quelle: É.
+avec le camarade français dont on a parlé, afin quelle:
 nous devons discuter les résolutions relatives à la
 à tactique, au socialisme communal, etc. Si nous ne.
 de sommes pas prêts au commencement de la séance pour
@@ -3268,8 +3268,8 @@ Le citoyen Egers. — Le Comité général se réunit ce
 Re F soir et parlera de cette question. ne
 La séance est levée à six heures trois quarts. Re
 
-Séance du mercredi 26 septembre 1900 N
-La séance est ouyerte à dix heures, sous la prési- f
+Séance du mercredi 26 septembre 1900
+La séance est ouyerte à dix heures, sous la prési-
 dence du citoyen Vandervelde (Beïgique), assisté du
 Le citoyen PRÉSIDENT. — Camarades, l'ordre du jour
 a été ainsi fixé : Nous terminerons la discussion commencée hier, c'est-à-dire la discussion sur le rapport de
@@ -3295,7 +3295,7 @@ général du Parti socialiste français s'est réuni hier soir
 et a pris les mesures d'organisation nécessaires pour la
 bonne marche du Congrès. Dans ces conditions, le
 malentendu qui s'était élevé entre le Comité d'organisation et le bureau, malentendu auquel on aurait grand
-é tort d'attribuer une importance exagérée, se trouve ÿ
+é tort d'attribuer une importance exagérée, se trouve
 complètement aplani, et je tiens à dire, au nom de nous
 tous, que nous n'avons jamais songé à reprocher à nos
 camarades français un manque de fraternité, mais bien
@@ -3308,21 +3308,21 @@ ce rendez-vous groupera certainement les militants de
 toutes les fractions et de toutes les nationalités. (Vifs
 ration des travailleurs socialistes belges se tient à la
 disposition des délégués des autres nationalités pour qe:
-leur fournir des renseignements sur l'industrie textile, 4
+leur fournir des renseignements sur l'industrie textile,
 les cuirs et peaux, pour l'industrie verrière, etc., afin
 d'établir des relations internationales à cet égard. Il “à
 s'excuse d'avertir que les renseignements qu'il pourra
 fournir seront moins intéressants et moins complets
 que ceux qu'il pourra obtenir en échange. Les ouvriers ke
 verriers belges soutiennent en ce moment une grève nn
-formidable en faveur du droit de se syndiquer libre: 4
-ment. Ils ont épuisé une grande partie de leurs res- 144
+formidable en faveur du droit de se syndiquer libre:
+ment. Ils ont épuisé une grande partie de leurs res-
 sources et ils demandent que le prolétariat universel ‘4
 leur vienne en aide dans cette lutte.
 Nous avons reçu le télégramme suivant
 Les socialistes arméniens résidant à Genève, envoient
 leur salut cordial au Congrès de la classe ouvrière des
-deux mondes, laquelle seule, en détruisant le système capi- i
+deux mondes, laquelle seule, en détruisant le système capi-
 taliste et abolissant la propriété privée, pourra établir
 dans le monde l'égalité, la liberté et la fraternité.
 
@@ -3375,7 +3375,7 @@ n'étaient pas résolues encore dans les diverses natio-
 nalités, et n'apporter ici que les questions qui étaient #
 résolues par toutes, pour qu'il y eût un vote unanime
 dans nos Congrès. Et c'est un vote unanime, sur cette
-question, qui vous est présenté par la troisième com- 33
+question, qui vous est présenté par la troisième com-
 mission, parce que tous les points ont été examinés et
 c'est après une longue discussion que nous avons écarté
 beaucoup de points qui n'étaient pas encore résolus. Je
@@ -3386,14 +3386,14 @@ rend qui s'était élevé en Allemagne sur une question
 de doctrine du Parti socialiste, avec Bernstein. Nous
 avons écarté cela, nous n'avons pas à le discuter.
 dit qu'elle était un moyen d'expropriation capitaliste.
-Eh bien, le délégué belge lui a répondu : Nous, qui pra- d
+Eh bien, le délégué belge lui a répondu : Nous, qui pra-
 tiquons la coopération depuis si longtemps avec tant de
 succès, nous repoussons cette théorie ; ce n'est pas un
 moyen d'expropriation de la classe capitaliste; c'est
 simplément un moyen de recrutement socialiste; c'est
 le moyen d'avoir un budget socialiste au service de la
 
-Quand est venue cette question de la coopération, 1
+Quand est venue cette question de la coopération,
 nous avons dit : Il y a deux formes de coopératives: les
 coopératives de consommation et celles de production.
 Les coopératives de consommation sont celles que nous
@@ -3412,13 +3412,13 @@ Jaurès proteste, et c'est lui qui en a été un des promoteurs. (Nouvelles prot
 Nous sommes opposés aux coopératives de produc-
 
 () Cf. ce que Bernstein a rapporté des opinions de Marx
-relatives à la coopération /Socialisme théorique et Social-démocratie t
+relatives à la coopération /Socialisme théorique et Social-démocratie
 pratique, traduction française, pages 163-167). IL semble d'après les
 faits cités par Bernstein que Marx attachait une grande importance
 à la coopérative de production comme « antithèse la plus directe de
 l'entreprise capitaliste ».
 
-à û tion; et j'étais obligé de dire pourquoi le mot coopéra- Ë
+à û tion; et j'étais obligé de dire pourquoi le mot coopéra-
 
 tion figurait dans notre motion. Cela peut soulever cer-
 taines irrilations d'un côté de l'assemblée, mais je
@@ -3433,7 +3433,7 @@ Le citoyen HynpmaAN (Angleterre). — J'ai cédé mon
 tour de parole au citoyen Lafargue, mais ce n'était pas
 pour dire cela. Nous protestons contre ce discours qui
 n'a rien à faire ici.
-Le citoyen PrésipENT. — Nous ne pouvons compter © M
+Le citoyen PrésipENT. — Nous ne pouvons compter ©
 que sur votre bon vouloir et votre tolérance, pour que
 la présidence fasse respecter son autorité morale sur les
 orateurs; je vous demande de bien vouloir ne pas les
@@ -3461,22 +3461,22 @@ La clôture, mise aux voix, est prononcée.
 Je donne la parole à Xrüchevsky, qui était inscrit “4
 avant la clôture. ea.
 Le citoyen Kerrcmevsky. — Le citoyen Lafargue à SE "3"
-dit que la commission devait écarter les coopératives” + C7
+dit que la commission devait écarter les coopératives” +
 de production comme un danger. La commission ne # à
 s'est pas arrêtée à cette proposition. Il n'a pas été dit 2408
 d'ailleurs un mot qui puisse nous faire penser que les -
-coopératives de production sont un danger. (Applandis- 215
+coopératives de production sont un danger. (Applandis-
 sements) Nous avons des exemples de coopératives de
 production vivantes et fortes qui augmentent la force : = =3
 du prolétariat et du parti socialiste.
-La deuxième objection est une question de rédaction: 350
+La deuxième objection est une question de rédaction:
 Jai insisté à la commission pour que nous ne nous bor-
-nions pas à constater simplement la tendance objective x, ï
+nions pas à constater simplement la tendance objective
 du mouvement capitaliste, mais que nous précisions
 aussi que la socialisation des moyens de productionest
 le but final du parti socialiste conscient. C'est pourquoi “70
 je propose qu'on introduise dans cette proposition, sous
-une forme ou sous une autre, l'indication du but final, et s.
+une forme ou sous une autre, l'indication du but final, et
 je proposerai d'ajouter après la phrase : « Il engage les
 militants socialistes à propager ces moyens de lutte et
 d'éducation qui augmentent la force de la classe ou-
@@ -3499,9 +3499,9 @@ proposition faite, en y joignant l'amendement Xrit-
 chevsky qui ne peut donner lieu à aucune discussion.
 amendement serait ajouté par un membre de la com
 mission à une proposition qui a été déjà discutée et
-acceptée ; il n'est pas admissible d'agir ainsi. l
+acceptée ; il n'est pas admissible d'agir ainsi.
 L'amendement est rejeté.
-Le citoyen PRÉSIDENT. — Nous votons maintenant sur j
+Le citoyen PRÉSIDENT. — Nous votons maintenant sur
 le texte de la résolution. — Adopté à l'unanimité moins
 commission (2) a désigné le citoyen Vandervelde pour
 faire le rapport de la majorité et le citoyen Enrico Ferri
@@ -3513,7 +3513,7 @@ matin; mais dès quele rapport de la majorité et le ra p- ‘
 port de la minorité auront été faits, la séance de ce
 . © A partir de ce moment c'est lui qui préside la séance.
 4 (2) La neuvième question était ainsi concue : « La conquête des
-pouvoirs publics et les alliances avec les partis bourgeois. » 1 4
+pouvoirs publics et les alliances avec les partis bourgeois. »
 
 matin sera levée et la commission se réunira avant
 toute discussion.
@@ -3533,7 +3533,7 @@ Sur la première question, question des alliances, le
 débat a été extrêmement bref et il devait l'être, car il
 n'était que la continuation et la confirmation des discussions qui avaient déjà eu lieu dans les Congrès
 internationaux précédents. Sur ce point, je me plais
-le souligner (car c'était une question fondamentale}, 4
+le souligner (car c'était une question fondamentale},
 tous les membres de la commission, à quelque fraction,
 à quelque nationalité qu'ils appartinssent, se trouvèrent
 unanimes et la résolution qui fut finalement admise
@@ -3554,7 +3554,7 @@ te minimum, jusqu'à complète élimination, ne sauraient être
 EY Fi tolérées qu''autant que leur nécessité aura été reconnue par
 x l'organisation régionale ou nationale dont relèvent les
 AA Tel est donc, compagnons, le résumé de la décision
-F. Fa prise : de coopération, d'alliance avec les partis bour- É
+F. Fa prise : de coopération, d'alliance avec les partis bour-
 ‘3 FA geois, il ne peut pas être question d'en faire d'une
 Da manière durable et permanente, car ce serait aller
 *] A l'encontre du principe fondamental de notre Parti, qui
@@ -3571,7 +3571,7 @@ alors tout ce qui les divise et ils se défendent contre
 “ta l'agression. De même les partis ouvriers ne doivent.
 9 “té recourir à des contacts avec d'autres partis que lorsqu'il
 ne. ÿ s'agit du cas de légitime défense : pour la défense de la
-3 : liberté, comme en Italie; pour la défense des droits d e
+3 : liberté, comme en Italie; pour la défense des droits
 Ne la personnalité humaine, comme jadis en Fran Ce...
 1023 \ (Vifs applaudissements à droite) pour arracher
 “34 à suffrage universel comme en Belgique (Nouve au
@@ -3648,7 +3648,7 @@ le Parti organisé reconnaît que ce dernier donne des
 preuves évidentes de partialité dans la lutte entre le“
 Capital et le Travail.
 La résolution Kautsky, ainsi amendée, a été votée à
-la majorité de vingt-quatre voix contre quatre. ' f
+la majorité de vingt-quatre voix contre quatre. '
 
 Et maintenant, citoyens, sans avoir la prétention et
 la témérité de vouloir refléter le sentiment unanime
@@ -3657,7 +3657,7 @@ nuances d'opinion, je voudrais vous donner mon senti- ‘40
 ment personnel, avec la conviction que c'est le sentiment du plus grand nombre des membres de la majorité,
 sur les deux résolutions qui sont présentées au Congrès.
 En ce qui concerne les alliances et les coalitions, je Fe
-puis être extrêmement bref, puisque nous sommes j.
+puis être extrêmement bref, puisque nous sommes
 unanimes ; et je déclare que notre sentiment à tous est
 celui-ci : Dans n'importe quelle circonstance, si les
 coalitions ont même un caractère exceptionnel et tem- à
@@ -3687,11 +3687,11 @@ Pt conciliation, j'ajoute qu'un grand nom bre | d'entr e nous, nt
 que le plus grand nombre d'entrenous peut-être, sinous
 avions dans un Congrès national à nous prononcer sur
 F 4 la question de savoir si, dans un pays comme la France,
-Be il est bon qu'un socialiste entre dans un gouvernement ° 4
+Be il est bon qu'un socialiste entre dans un gouvernement °
 ni. bourgeois, nous dirions : Quelle que soit la valeur
 intellectuelle et morale de ce ministre, à laquelle nous
 rendons le plus complet hommage, quels que soient les
-Be arguments puissants qu'on peut faire valoir en faveur de d
+Be arguments puissants qu'on peut faire valoir en faveur de
 son entrée dans le gouvernement, nous considérons
 que les inconvénients d'une pareille situation sont infiL nr niment plus grands que ses avantages. Et si nous avions
 ‘ { à nous prononcer, nous dirions que Müllerand et ses
@@ -3711,7 +3711,7 @@ tional n'est pas une Cour de justice et d'arbitra ge,
 Le et à lancer des ‘décrets d'excommunication! (Wifs
 RS Notre rôle est, au contraire, un rôle de pacification
 ‘hi $ de conciliation et de tolérance; nous avons à nous pr .
-154 Te noncer, avec une fermeté inébranlable, sur les questio
+Te noncer, avec une fermeté inébranlable, sur les questio
 
 de principe; nous avons, au contraire, à laisser une
 liberté complète d'action à chacune des nationalités,
@@ -3758,7 +3758,7 @@ de bancs)
 Hier, notre compagnon Auer avait un mot que je
 veux répéter au Congrès, car il nous a été à tous au cœur,
 il disait : Dans un pays comme le nôtre, en Allemagne, .
-celui qui serait assez stupide pour entrer dans un ministère sans l'approbation de son Parti, serait immédia- i
+celui qui serait assez stupide pour entrer dans un ministère sans l'approbation de son Parti, serait immédia-
 tement exclu de ce parti. (Applaudissements à gauche)
 Par conséquent, nous ne pouvons admettre l'entrée
 d'un ministre socialiste dans un gouvernement bourgeois que comme un expédient dont notre résolution
@@ -3775,7 +3775,7 @@ cerveaux du prolétariat, alors, la place de ce ministre +8
 
 v'est plus au gouvernement et le Parti doit avoir le droit
 de lui dire : Vous êtes sorti de nos rangs, rentrez-y !
-(Applaudissements prolongés sur la plupart des bancs) 3
+(Applaudissements prolongés sur la plupart des bancs)
 
 C'est dans ces conditions qu'à côté d'un certain €
 nombre d'entre nous, qui peut-être adopteraient la tactique qui a été inaugurée en France par certains de nos
@@ -3783,7 +3783,7 @@ camarades, le plus grand nombre s'est trouvé d'accord
 pour voter par espit de conciliation l'ordre du jour
 Et maintenant, pour finir, chers camarades, laissezmoi vous dire qu'autant nous considérons la question
 des coalitions comme fondamentale — parce qu'elle
-intéresse tous les pays ici représentés, parce qu'elle se e
+intéresse tous les pays ici représentés, parce qu'elle se
 pose dans toutes les circonstances auxquelles se mêle
 la vie de notre parti, — autant nous sommes obligés de
 considérer que la question d'une brûlante actualité, qui
@@ -3799,7 +3799,7 @@ que présentent certaines réformes immédiates qui
 peuvent être réalisées par un ministre socialiste, son
 portefeuille pèse jamais bien lourd dans la balance
 entre la classe ouvrière et la classe capitaliste. Et dès
-lors, notre pensée à tous, c'est que le jour où pareille k
+lors, notre pensée à tous, c'est que le jour où pareille
 question disparaîtra de l'ordre du jour des Congrès
 socialistes français, ce sera un soulagement pour le
 prolétariat universel! (Applaudissements sur un grand ‘
@@ -3817,7 +3817,7 @@ ce pénible chemin qui pour tant des nôtres a été un .
 1% calvaire, il en est qui tomberont peynt-être, succombant
 Me” à l'épuisement de la fatigue ou sous les balles de nos
 à ; ennemis ; mais le prolétariat vainqueur, qui aura su ,
-Re. _ conquérir un jour intégralement les pouvoirs publics, 4
+Re. _ conquérir un jour intégralement les pouvoirs publics,
 devra être composé d'hommes forts physiquement et
 moralement, conscients de leur intérêt de classe, ayant
 reçu une éducation complète dans tous les domaines
@@ -3840,7 +3840,7 @@ sommes dignes d'y entrer. » Il y a dans Molière, Tartuffe ou lIm=…
 Du posteur, acte IV, scène 7, Tartuffe : De.
 C'est à vous d'en sortir, vous qu parlez en maître; nn.
 L: , La maison m'appartient, je le ferai connaître.
-La séance est ouverte à deux heures, sous la prési- t
+La séance est ouverte à deux heures, sous la prési-
 dence du citoyen Vandervelde (Belgique), assisté du
 Le citoyen PRÉSIDENT. — La parole est au camarade
 Le citoyen Exrico FErri (Italie). — Officiellement, je
@@ -3851,7 +3851,7 @@ comme le condamné à mort — car nous serons tués
 sous la motion Xautsky — (Rires), je me suis demandé
 ce que j'étais vraiment, et je me suis persuadé qu'au
 contraire j'étais le rapporteur de la majorité. (Nouveaux
-rires et applaudissements sur certains bancs) Le discours de mon ami Vandervelde a redoublé ma conviction que nous avons balancé cette motion Kautsky, k
+rires et applaudissements sur certains bancs) Le discours de mon ami Vandervelde a redoublé ma conviction que nous avons balancé cette motion Kautsky,
 parce qu'en effet la question de la neuvième commission est double : question de participation au pouvoir
 par un socialiste, alliance du parti socialiste avec des
 fractions de la bourgeoisie.
@@ -3877,17 +3877,17 @@ LR Une voix à gauche. — Nous le verrons! (Bruit) Re
 ÿ Le citoyen FErRI. — En tout cas, que je sois battu ou
 non, que la majorité commence par déclarer d'avance
 qu'ici nous sommes tous des socialistes et des frères.
-1e (Vifs applaudissements sur un grand nombre de bancs) 1
+1e (Vifs applaudissements sur un grand nombre de bancs)
 :ôh et qu'à l'issue de notre vote, s'il y a des majorités et des
-PA : minorités, il n'y ait pas du moins des vainqueurs et des ÿ
+PA : minorités, il n'y ait pas du moins des vainqueurs et des
 vaincus! (Nouveaux applaudissements sur la plupart
-des bancs) 4
+des bancs)
 2e Puisque la deuxième résolution'a été votée à l'unani4 Fe |. mité, je suis véritablement le rapporteur de l'unaniJi mité. (Rires) à
 Cependant, ce balancement qui s'est effectué est le
 produit, non pas d'ambitions, de fourberies ou d'habi-
 à. ‘ letés personnelles; il est le symptôme et la manifestaDE € tion d'un état d'âme socialiste, non pas seulement en
 Le France, mais dans tous les pays.
-410 Nous socialistes, nous traversons une phase décisive
+Nous socialistes, nous traversons une phase décisive
 cialiste international. Chaque pays a dans ses entrailles
 lé même état d'âme, qui se révèle au milieu d'une
 ‘44 af crise. En France, on appelle cela le cas Millerand: en
@@ -3898,11 +3898,11 @@ du Landtag. Eh bien, j'estime qu'il serait inutile d'avoir
 fait des milliers de kilomètres pour venir à Paris aux
 assises internationales du socialisme et pour y prendre
 une résolution à l'instar de Ponce-Pilate qui va se laver
-les mains. (Applaudissements à gauche) 4
+les mains. (Applaudissements à gauche)
 Lorsqu'on dit que le cas Willerand n'intéresse pas le
 socialisme international, on dit du vrai et on dit de
 l'inexact; on dit du vrai, lorsqu'on parle du cas indivi- À
-duel, personnel; et on dit de l'inexact, lorsqu'on envi- É
+duel, personnel; et on dit de l'inexact, lorsqu'on envi-
 sage le cas général, dont le cas Millerand n'est que le
 symptôme et l'effet.
 Nous socialistes, nous n'avons pas le droit de flétrir
@@ -3924,7 +3924,7 @@ conscience de classe?
 Écartons les cas personnels et constatons que la
 même situation existe partout. En Italie cela est moins
 retentissant qu'en France; mais, Tu ati et moi, nous
-sommes comme Jaurès et Jules Guesde, avec ceti e
+sommes comme Jaurès et Jules Guesde, avec ceti
 ae À différence cependant qu'en Italie nous avons déjà _dé-
 passé ce que j'appellerai la phase personnaliste du
 socialisme. (Vifs applaudissements sur un grand
@@ -3951,11 +3951,11 @@ s'occuper de l'organisation économique du prolétariat
 à l'aide de son organisation politique et électorale. Ce ‘4
 courant peut être qualifié de droit, par une raison topo-
 à graphique... (Rumeurs sur certains bancs) Je peux me ‘4
-k. tromper, mais je suis sincère; personne n'a le monopole w
+k. tromper, mais je suis sincère; personne n'a le monopole
 ‘14 de la vérité; mais pour faire quelque chose d'utile, il
 faut que tout le monde ici dise ouvertement $a pensée!
 
-ne 5 : (Vive approbation sur un grand nombre de bancs) 4
+ne 5 : (Vive approbation sur un grand nombre de bancs)
 
 at Eh bien, ce courant socialiste s'est trouvé alimenté en,
 
@@ -4032,7 +4032,7 @@ quinzaine de jours, j'étais à Rome, dans notre Congrès
 national: je présentais la même résolution que je ‘4
 présente ici, et j'ai été battu par le courant représenté
 par mon ami T'urati; mais nous avons été des frères @b
-des amis le lendemain comme la veille. w
+des amis le lendemain comme la veille.
 
 Actuellement, on pourrait dire, n'est-ce pas, €
 voyant le côté gauche et le côté droit : Voyez comme
@@ -4172,14 +4172,14 @@ lation de principe ; il ne peut pas s'occuper des détails
 de la tactique.
 . Moi, je dis au contraire qu'on ne peut pas faire de
 distinction entre les principes et la tactique... (Applau=
-dissements à gauche). C'est une vieille distinction scos ï
+dissements à gauche). C'est une vieille distinction scos
 lastique que de séparer la théorie de la pratique; mais, à
-pour nous, esprits positivistes et d'expérience, nous k
-disons que la théorie n'est que la pratique généralisée k
+pour nous, esprits positivistes et d'expérience, nous
+disons que la théorie n'est que la pratique généralisée
 et la pratique n'est que la théorie en action! (Nouveaux
 Est-ce que, lorsque vous allez permettre lentrée d'un
 ministre socialiste dans un gouvernement bourgeois, à
-vous allez afficher au dos du ministre les principes géné- S
+vous allez afficher au dos du ministre les principes géné-
 raux de son parti, sauf à lui laisser pratiquer par devant
 une tactique contraire ?.. (Rires) J'estime qu'il doit
 personnifier à la fois la tactique qui se meut et le prin-
@@ -4190,7 +4190,7 @@ Il faut agir avec beaucoup de prudence, dit la motion
 Kautsky ; il faut faire de la tactique prudentielle ; il faut
 la pratiquer dans des cas très exceptionnels. Oui, c'est
 bien, mais ce sont là des lisières en caoutchouc; car qui
-jugera les cas où la prudence exige telle ou telle tactique, alors que la pancarte des principes doit planer l
+jugera les cas où la prudence exige telle ou telle tactique, alors que la pancarte des principes doit planer
 au-dessus du monde réel et de la pratique quoti- à
 
 Je voyage beaucoup en Italie pour la propagande;
@@ -4216,11 +4216,11 @@ s votée par le Congrès d'Ivry, c'est-à-dire la défense, l'in- FES
 à résolution à l'unanimité, la neuvième commission a
 à approuvé, dans sa majorité, la résolution Kautsky, qui
 1e dit que dans un cas particulier, lorsque la situation poli4 à tique l'exigera, on pourra faire cette expérience « dan-
-nu: gereuse ».. L''adjectif s'y trouve, mais l'adjectif n'em- é
+nu: gereuse ».. L''adjectif s'y trouve, mais l'adjectif n'em-
 pêche pas le substantif... Tout le monde s'accordera
 dire que c'est dangereux, mais que l'on a pour se pro- à
 x téger le courage et la foi socialistes ! (Rires et applau-
-dissements à gauche) C'est là une question de tactique ÿ
+dissements à gauche) C'est là une question de tactique
 ne et non de principe, dit la motion Xautsky, alors que je
 ne dis que, pour nous, la tactique et les principes ne sont
 que le droit et le revers de la même médaille, et que bé
@@ -4232,13 +4232,13 @@ en caoutchouc, qui ne seront jamais un obstacle pour
 RES La majorité de la commission, se trouvant dans cet
 état d'âme qui se reflète dans le monde international, a
 FE voté la motion Xautsky ; mais, comme si elle avait voté
-ni: . l'usage d'un poison pour l'organisme socialiste, elle à s
+ni: . l'usage d'un poison pour l'organisme socialiste, elle à
 
 4e tout de suite voté le contrepoison avec la résolution
 Guesde, qui interdit les alliances. Pourtant, est-ce que
 la participation d'un ministre à un gouvernement bour-
 
-Hes geois est possible sans qu'il y ait une coalition avecun e.
+Hes geois est possible sans qu'il y ait une coalition avecun
 
 fraction bourgeoise ? Évidemment non. Un socialiste
 peut devenir maire d'une commune, lorsqu'il y a une
@@ -4259,7 +4259,7 @@ et qui dirait à la bourgeoisie : Allez-vous-en!
 Je crois que la parole a trahi la pensée de notre ami,
 qui connaît si bien l'esprit de notre parti socialiste :
 lorsque le prolétariat se sera emparé de la société
-humaine, il ne chassera pas la bourgeoisie et il ne met- E.
+humaine, il ne chassera pas la bourgeoisie et il ne met-
 tra personne à la porte ; le socialisme poursuit la lutte ]
 de classe au nom des travailleurs mais pour la rédemption de l'humanité entière ! (Vifs applaudissements)
 Le citoyen VANDERVELDE. — Je n'ai pas parlé d'exclusion de la société, mais du gouvernement.
@@ -4288,12 +4288,12 @@ Le citoyen SemBar. (P. S. R.) — C'est une erreur. “
 rectifierez ; mais si c'est exact, je maintiens ce que j'ai
 dit contre cette entreprise de pillage international. Le
 J'arrive à la deuxième résolution. Je trouve que la
-résolution Guesde n'est pas aussi précise que je l'aurais voulu; le principe est le même que ma résolution; 4
+résolution Guesde n'est pas aussi précise que je l'aurais voulu; le principe est le même que ma résolution;
 mais la formule de la résolution d''Ivry est assez.
 élastique, car on ne dit pas : pas de coalition, pas
 d'alliance, mais coalitions exceptionnelles ; on demande
 qu'elles soient réduites à leur minimum possible...
-Le citoyen Jures GuEspe. — Jusqu'à élimination k
+Le citoyen Jures GuEspe. — Jusqu'à élimination
 Le citoyen Enrico FerrI. — Il y a une digue à cela
 c'est vrai; c'estl'approbation, le consentement préalable
 du Parti organisé et sa direction; et je crois justemer Fe
@@ -4313,7 +4313,7 @@ pas changés en ce qui concerne la division fondamentale
 entre la classe capitaliste et la classe des prolétaires industriels et agricoles; ‘à
 
 Et rappelant que la composition et les progrès du Parti
-socialiste ne se sont réalisés que par la conscience de classe, k
+socialiste ne se sont réalisés que par la conscience de classe,
 clairement et complètement éveillée chez les travailleurs;
 
 Déclare qu'on ne doit changer ni le programme, ni les
@@ -4334,11 +4334,11 @@ Quant à la participation des socialistes au pouvoir poli-
 tique ou administratif, elle ne sera admise que lorsqu'elle
 est l'effet de la majorité acquise par le Parti socialiste dans
 les assemblées politiques et communales.
-Il n'y a que deux cas dans lesquels on peut faire cette j
+Il n'y a que deux cas dans lesquels on peut faire cette
 coalition : le cas qui s'est produit pour la France et
 celui qui s'est produit pour l'Italie : extrême défense
 des libertés publiques, lorsqu'on avait projeté un C oup
-0 Ÿ d'État pour supprimer les libertés constitutionnelles, de BE É
+Ÿ d'État pour supprimer les libertés constitutionnelles, de BE
 
 Du presse, de réunion, d'association, des syndicats. Alors,
 è 4 Ù le Parti socialiste a pris l'initiative de faire une coali1108 tion avec les radicaux et les républicains. Car, ci-
@@ -4354,7 +4354,7 @@ de militant socialiste est parfaitement tranquille:leroi
 ne socialiste, même pour la défense de la civilisation
 contre les forces réactionnaires. (1)
 5e longueur de mes observations au bureau du Congrès et
-‘45 au Congrès lui-même. Nous sommes donc, nous, les re6 présentants de la minorité, d'accord avec la majorité, 1
+‘45 au Congrès lui-même. Nous sommes donc, nous, les re6 présentants de la minorité, d'accord avec la majorité,
 pour l'interdiction des alliances, avec permission ex-
 ceptionnelle et transitoire d'une coalition pour une « Re extrême défense. Nous restons à l'état de minorité, au
 contraire, en ce qui concerne la motion Xautsky, qui va
@@ -4398,7 +4398,7 @@ ments prolongés sur la plupart des bancs. Acclama- a
 
 Le citoyen Hyxpmax (Angleterrre). — Nous avons
 entendu de magnifiques discours, mais cela nous a
-coûté de longues heures pour les discours eux-mêmes k
+coûté de longues heures pour les discours eux-mêmes
 et pour les traductions. Nous pensons que nous ne som-
 mes point ici dans une réunion publique, c'est-à-dire
 venus pour entendre de belle rhétorique, mais pour ré-
@@ -4434,32 +4434,32 @@ mande ne devienne pas la patrie d'Attila, mais que le
 reste la patrie de Goethe! (Vifs applaudissements
 droite) Pour les élections au Landtag, après bien de
 
-hésitations et des contradictions, la démocratie so- * 4
+hésitations et des contradictions, la démocratie so-
 cialiste allemande a adopté enfin une participation
 directe et obligatoire. Ferri nous rappelait la coalition Hi
 électorale des socialistes italiens avec les républicains
-et les radicaux. En Belgique, contre le projet de loi qui k
+et les radicaux. En Belgique, contre le projet de loi qui
 menaçait, non pas même le suffrage universel, mais le
 suffrage plural, il y a eu coalition de résistance entre le
 prolétariat et la bourgeoisie libérale belge.
 Par conséquent, nous nous épuisons en discussions
-vaines lorsque nous cherchons des formules ingénieuses e.
+vaines lorsque nous cherchons des formules ingénieuses
 pour dissimuler à demi une pratique universelle du pro-
 létariat. (Nouveaux applaudissements à droite) Et pour
 moi, je dis qu'une des causes qui contribuent à l'heure
 présente dans le monde entier au trouble apparent des
-esprits, c'est que le socialisme, au lieu d'avouer hautement — puisqu'il n'a que les motifs les plus désinté- É:
+esprits, c'est que le socialisme, au lieu d'avouer hautement — puisqu'il n'a que les motifs les plus désinté-
 ressés et les plus nobles — la tactique qu'il a adoptée, “4
-semble embarrassé de son action. Nous vous demandons de dire hautement ce que vous faites. Et mainte- E.
+semble embarrassé de son action. Nous vous demandons de dire hautement ce que vous faites. Et mainte-
 nant, qu'on l'appelle alliance ou qu'on l'appelle coalition
 — ces subtilités de vocabulaire où se réfugie l'esprit
 d'intransigeance ne me choquent pas outre mesure.
-Quand les hommes ne peuvent plus changer les choses, 4
-ils changent les mots. (Rires et applaudissements) Eten M4
+Quand les hommes ne peuvent plus changer les choses,
+ils changent les mots. (Rires et applaudissements) Eten
 vérité, l'humanité a si peu de joies innocentes que je
 me ferais scrupule de lui retirer celle-là !
 Sur l'autre question, plus controversée, de la partici- À
-pation d'un socialiste au gouvernement bourgeois, 4
+pation d'un socialiste au gouvernement bourgeois,
 j'adhère pour ma part à la motion Kautsky, parce
 qu'elle réalise ou qu'elle exprime un équilibre d'opinion, un peu instable peut-être, mais qui est le seul Re
 possible à l'heure présente.
@@ -4488,7 +4488,7 @@ ment participent à la nomination du chef de l'État...
 ne (Bruyantes et vives protestations à gauche) :.
 
 ‘ Le citoyen JAURÈS. — J'entends des huées, comme si -
-ne. nous étions déjà au Congrès national. (Nouvelles et w
+ne. nous étions déjà au Congrès national. (Nouvelles et
 te Une voix à gauche. — C'est une provocation!
 “2 Le citoyen JAURÈS. — Camarades étrangers, on vous
 #4 Le : traduira tout à l'heure mes paroles; vous les trouverez.
@@ -4502,16 +4502,16 @@ chef de l'État républicain, il y ait des socialistes fran-
 çais qui me crient : C'est une provocation! (Nouvelles
 et violentes interruptions à gauche. — La plupart des ‘1
 délégués étrangers se lèvent et, se tournant vers la gauche de l'assemblée, protestent énergiquement contre ne
-cette attitude) D
+cette attitude)
 
 Le citoyen PRÉSIDENT. — Je demande aux membres du ‘4
-Congrès qui représente ici le socialisme international, N
-de respecter le grand orateur qui l'honore à cette tri- E
-bune. (Bruit à gauche. — Applaudissements et accla- E.
+Congrès qui représente ici le socialisme international,
+de respecter le grand orateur qui l'honore à cette tri-
+bune. (Bruit à gauche. — Applaudissements et accla-
 
 mations sur un grand nombre de bancs.) Nous avons E_
 tous le même intérêt solidaire à ce que les deux
-opinions en présence soient présentées avec toute l'am- Ë
+opinions en présence soient présentées avec toute l'am-
 pleur que ce débat mérite. Je supplie donc le Congrès Si
 d'assurer la parole à l'orateur actuellement inscrit.
 Le citoyen JAURÈS. — Je croyais m'être appliqué
@@ -4544,8 +4544,8 @@ Parti socialiste belge organisé ne permettront pas à des
 individualités de prendre l'initiative et la responsabilité
 de décisions pareilles ; mais la question sous sa forme
 impersonnelle se posera en Belgique, comme elle s'est
-posée en France. (Applaudissements) l
-Eh bien, je n'entends pas — ce n'est pas le lieu — 1
+posée en France. (Applaudissements)
+Eh bien, je n'entends pas — ce n'est pas le lieu
 la traiter ici à fond; je me borne à dire que si j'adhère
 à la motion Kautsky, c'est qu'en déclarant que c'est là
 non pas une question de principe, mais une question de
@@ -4553,16 +4553,16 @@ tactique, elle laisse juge le Parti socialiste dans le
 monde de trancher la question en tenant compte chaque
 fois des intérêts positifs du prolétariat, dans une situation politique et sociale déterminée.
 Voilà pour moi le sens de la motion et voilà pourquoi
-j'y adhère. Trop longtemps, trop souvent, le partisocia- M
+j'y adhère. Trop longtemps, trop souvent, le partisocia-
 liste a commis la faute de transformer en questions de
-principe, én questions fondamentales et principielles, M
+principe, én questions fondamentales et principielles,
 des questions qui n'étaient en effet que des questions
 () Le Socialiste (organe du P. O. F.) dans son numéro du 7-14 juil-
 let 1901 reproche au citoyen Anseele d'avoir dit à la Chambre des
 représentants de Belgique qu'un socialiste pourrait entrer dans un
 ministère monarchique. Le Socialiste rappelait à ce sujet la motion
 Kauïtsky; mais on verra que pour beaucoup de membres du Congrès elle ouvre une porte, au lieu de dresser une barrière, comme
-pense le citoyen Guesde. 4 4
+pense le citoyen Guesde.
 
 de étique: Et alors, qu'arrive-t-il? C'est qu'après avoir,
 au nom de la lutte de classe, interdit la participation
@@ -4573,16 +4573,16 @@ classe, uniquement parce qu'on l'a fait intervenir là où
 elle n'avait rien à faire.
 La lutte de classe nous oblige à affirmer que, puisqu'il s'agit de substituer la propriété communiste à la
 propriété capitaliste, c'est la classe qui a un intérêt
-d'ensemble à cette substitution qui peut travailler sincè- L
-rement à la réaliser; la lutte de classe nous oblige à l
+d'ensemble à cette substitution qui peut travailler sincè-
+rement à la réaliser; la lutte de classe nous oblige à
 dire que le prolétariat n'attendra plus, comme aux
-temps du socialisme utopique, son salut des puissants ÿ
+temps du socialisme utopique, son salut des puissants
 d'aujourd'hui, comme lorsque Robert Owen demandait
-au Congrès des souverains assemblés à Aix-la-Chapelle de sauver la classe ouvrière (1); la lutte de classe k
+au Congrès des souverains assemblés à Aix-la-Chapelle de sauver la classe ouvrière (1); la lutte de classe
 nous oblige à dire que le prolétariat est majeur pour
 conduire lui-même ses affaires. Mais c'est précisément
 parce qu'il est majeur qu'il ne faut pas, pour son action )
-dans l'avenir, lui lier les mains par des formules de tac- k
+dans l'avenir, lui lier les mains par des formules de tac-
 Maintenant, il y a une autre raison pour laquelle
 j'adhère à la motion Xautsky, c'est qu'elle prévoit qu'en
 aucun cas l'entrée d'un socialiste dans un ministère ne
@@ -4591,12 +4591,12 @@ Parti organisé seul donnera le signal de l'entrée, du dé- à
 part et exercera entre ces deux dates son contrôle souverain. Ut
 J'ajoute que là est la véritable garantie contre les
 (1) En 1818; il s'agissait d'obtenir une législation destinée à « pro=
-téger la santé des ouvriers ». (Métin, le Socialisme en Angleterre, L
+téger la santé des ouvriers ». (Métin, le Socialisme en Angleterre,
 ‘20 reuse, en effet, de la collaboration gouvernementale du
 D. La bourgeoisie a pu, en une heure de crise, appeler
 un socialiste, un individu socialiste ; elle hésitera bien
 Es, davantage à appeler un socialiste lorsque ce socialiste
-à a sera le délégué du Parti socialiste tout entier, quand ce à i
+à a sera le délégué du Parti socialiste tout entier, quand ce à
 Re sera alors un commencement d'expropriationpolitique….
 
 k À Elle ne s'y résignera que lorsqu'il y aura une crise si
@@ -4605,7 +4605,7 @@ ne libérale elle-même reconnaïtra son impuissance à se
 ne É sauver sans le concours des prolétaires organisés, ou
 4 | lorsque la force du prolétariat sera telle que son absten54e tion gouvernementale créerait un si grand vide que
 dans ce vide, comme dans un abîme, la viepolitique du
-Ke. pays disparaîtrait. h
+Ke. pays disparaîtrait.
 _SS C'est pour cela que j'adhère à la motion Kautsky.
 5 (Applaudissements prolongés sur un grand nombre de
 Fa Le citoyen SEMBAT. — J'ai demandé la parole sur une
@@ -4615,7 +4615,7 @@ grave que celle des crédits pour l'expédition de Chine,
 ke les députés socialistes français avaient pu méconnaître
 re assez leur devoir pour ne pas intervenir. U 34)
 Il est de mon devoir de souligner devant les camaF 0 rades étrangers que nous avons toujours considéré
-#4 £ comme étant notre obligation stricte et rigoureuse d'ac- F
+#4 £ comme étant notre obligation stricte et rigoureuse d'ac-
 complir à la tribune du Parlement français toutes les
 Û 5: manifestations nécessaires pour affirmer nos opinions -
 Ta internationalistes. Notamment, lors des crédits deman-
@@ -4629,7 +4629,7 @@ pour la flotte ; et je tiens d'autant plus à le dire, qu'on
 a souligné assez fréquemment ici nos dissensions et nos
 divisions pour que nous tenions à aflirmer devant les
 camarades de tous les pays qu''ilest un point sur lequel
-nous n'avons jamais été désunis c'est dans la lutte l
+nous n'avons jamais été désunis c'est dans la lutte
 contre le chawvinisme, et dans l'affirmation de nos
 sur la plupart des bancs)
 
@@ -4671,7 +4671,7 @@ nous inclinerons ; et quelle que soit la décision du Con- : »
 grès socialiste international, quand vous aurez parlé
 sur quelque point que ce soit, vous ne trouverez en
 ‘4 France que des socialistes respectueux de vos décisions.
-de \ (Applaudissements sur un grand nombre de bancs) 4
+de \ (Applaudissements sur un grand nombre de bancs)
 Mais, si tel est notre devoir et si nous jurons dele
 remplir, cette docilité même vous impose, à vous,
 citoyens, un autre devoir : oui, nous sommes prêts
@@ -4730,7 +4730,7 @@ ce Congrès, les délégués français de toutes les organisations ont donné l'
 ou dans l'autre. Je ne doute pas que la cau se qu'ils
 Her. défendent de part et d'autre ne peut que gagneräce
 64) que de part et d'autre on s'écoute avec tolérance. La."
-De. parole est au citoyen Joindy. (Applaudissements) 47
+De. parole est au citoyen Joindy. (Applaudissements)
 ee Le citoyen Jompy.— Je demanderai simplement,
 camarades français, de me permettre d'exercer le
 nu. mandat qui m'amène ici. De même que chacun a le
@@ -4741,7 +4741,7 @@ terruption violente ne parvient pas jusqu'au citoyen
 Joindy) Je n'entends pas ce que vous dites, citoyens;
 personne ne l'entend ici; et je ne pense pas d'ailleurs
 17e que l'on puisse aujourd'hui rouvrir le débat qui a
-‘ motivé l'interruption de jadis. (1) 4
+‘ motivé l'interruption de jadis. (1)
 À Ce que nous avons à expliquer, camarades, ce sont
 
 les raisons qui nous ont amenés à suivre la tactique qui
@@ -4799,7 +4799,7 @@ avec vous.
 
 Ah! certes, lorsqu'on en veut faire une question purement doctrinale, la difficulté est grande : on veut comparer des situations qui ne sont pas pareilles; on veut
 
-comparer la situation de pays qui ne son Lande: 3
+comparer la situation de pays qui ne son Lande:
 même état d'esprit; et on aboutit à vouloir obliger le
 Vire prolétariat international à s'enfermer dans des form ule: Br; te
 
@@ -4824,7 +4824,7 @@ ne le premier orateur inscrit, mais il ne reste plusquecinq
 à 4 devons à notre camarade Guesde de ne pas l'obliger à .
 arler dans de pareilles conditions et que nous serons
 5 ‘is tous d'accord pour lui donner la parole demain matin.
-1180 La séance est levée à six heures. j
+1180 La séance est levée à six heures.
 
 Séance du jeudi 27 septembre 1900
 La séance est ouverte à dix heures, sous la présidence du citoyen Van Kol (Hollande) assisté des citoyens
@@ -4864,7 +4864,7 @@ mn Une voix. — C'est un tort ! ‘0
 es Le citoyen Quercx (Angleterre). (1) — Je propose,
 - Re comme amendement à la proposition anglaise, que le
 3% prochain Congrès ait lieu dans trois ans. On objecte …
-Bt: qu'il est difficile d'organiser ces Congrès internatio- M
+Bt: qu'il est difficile d'organiser ces Congrès internatio-
 naux ; ch bien, c'est parce que nous ne les organisons
 
 pas assez souvent; avec l'habitude, on les fera mieux.
@@ -4911,7 +4911,7 @@ Puis, j'estime qu'il ne peut pas entrer dans la tâche
 d'un Congrès international de s'immiscer dans les petits
 détails du mouvement socialiste des différentes nationalités : un Congrès international socialiste peut seule-
 
-ment établir les grandes lignes de la marche du n
+ment établir les grandes lignes de la marche du
 prolétariat universel; pour ces grandes lignes qu'il )
 s'agit de tracer, il ne paraît pas nécessaire de se réunir
 bien fréquemment. Je fais remarquer que jusqu'à
@@ -4978,7 +4978,7 @@ vous accueillir tous fraternellement et de la meilleure
 
 ‘1 _ tons bien cordialement le Congrès international ne
 réunir, la prochaine fois, à Vienne. Vienne est une
-belle et joyeuse ville; et les frères d'Autriche feront 4 4
+belle et joyeuse ville; et les frères d'Autriche feront
 Be leur possible pour rendre le séjour aussi agréable et
 
 aussi joyeux que possible. Il est vrai que l'Autricheest
@@ -5005,7 +5005,7 @@ te Le citoyen Krirenevsky (Russie). — J'indique que
 l être représentée par aucun délégué, à cause des
 rapports de police existantentre la Russie et l'Autriche.
 be C'est pourquoi je demande que si le Congrès ne veut
-« 1 pas empêcher les socialistes russes d'être représentés x
+« 1 pas empêcher les socialistes russes d'être représentés
 ;. Ua É au Congrès suivant, il devra voter pour Amsterdam. .
 ni. Le citoyen Anrer (Autriche). — Il est vrai que la
 re “ police est bien méchante en Autriche, mais elle ne l'est
@@ -5015,7 +5015,7 @@ même dans le monde policier en Autriche ; et je crois
 ‘os Ne que les Autrichiens peuvent prendre l'engagement et
 4 12 4 promettre qu'il ny aura pas de tracasseries, d'expul-
 “140 sions et de dangers pour les délégués russes qui vien
-Du reste, au point de vue des difficultés policières, 7
+Du reste, au point de vue des difficultés policières,
 YAutriche n'en a pas le privilège; et sous la République
 même, avec un gouvernement où il y a un ministre socialiste, on a créé des difficultés sérieuses à Plekhanoff et
 à Bebel pour leur permettre d'assister à ce Congrès. Je
@@ -5070,10 +5070,10 @@ socialiste. La prise du pouvoir ne pourra être confondue
 avec la mendicité ministérielle. (Vifsapplaudissements
 Nous sommes encore avec Kautsky et la majorité de
 la commission, lorsqu'il rappelle — car tout cela appartient au passé socialiste révolutionnaire international,
-tout cela ce ne sont pas des nouveautés, c'est le principe d
+tout cela ce ne sont pas des nouveautés, c'est le principe
 même de la lutte engagée depuis plus de trente ans par
 le prolétariat conscient contre le vieux monde qui
-s'écroule, — lorsqu'il rappelle que ce qu'il faut au pro- L
+s'écroule, — lorsqu'il rappelle que ce qu'il faut au pro-
 létariat pour s'affranchir, c'est, non pas le pouvoir
 gouvernemental conquis fragmentairement, mais c'est
 
@@ -5208,7 +5208,7 @@ ei: Elle ne laisse place, par suite, en régime bourgeois, © m'
 l'occupation des positions électives dont le Parti peut s'emparer au moyen de ses propres forces, c'est-à-dire des
 travailleurs organisés en parti de classe, et interdit nécessairement toute participation socialiste aux gouvernements
 bourgeois, contre lesquels les socialistes doivent rester
-l'état d'opposition irréductible. x
+l'état d'opposition irréductible.
 Voilà le champ ouvert au prolétariat, voilà jusqu'où
 peut aller le prolétariat, avec ses forces, à l'état de
 classe ennemie; voilà l'autre champ dans lequel il ne
@@ -5263,16 +5263,16 @@ gouvernement bourgeois qui commence. Quand vous
 déléguez un ministre directement, vous commencez la
 véritable œuvre qui aura à seterminer par la Révolution:
 Au contraire, le jour où vous acceptez Ce que
-devriez prendre, c'est vous qui découvrez votre classe; ÿ
+devriez prendre, c'est vous qui découvrez votre classe;
 
-lui créez des responsabilités devant lesquelles elle a T3
+lui créez des responsabilités devant lesquelles elle a
 le droit de reculer.
 Dans tous les cas, pour nous, notre conviction est sé
 absolue : on ne peut pas dans une société bourgeoise pate
 dépasser, comme conquête de pouvoirs publics par le
 moyen légal, les positions électives ; et c'est pourquoi
 je demanderai, dans tous les cas, au Congrès, de vouloir
-bien accepter que notre motion, sur laquelle nous e
+bien accepter que notre motion, sur laquelle nous
 tenons à ce qu'on puisse se compter, soit mise aux voix
 la première, de façon à ce que nous sachions quels
 sont ceux qui sont restés avec nous sur le terrain
@@ -5280,7 +5280,7 @@ premier où nous luttons depuis vingt ans et plus...
 Ah! je sais bien qu'on a dit que c'était la vieille
 méthode, le vieux jeu, que nous avions fait jadis
 besogne utile en séparant les classes, en indiquant au
-prolétariat la mission qui lui incombait de s'affranchir, 4
+prolétariat la mission qui lui incombait de s'affranchir,
 parce que de son affranchissement résulterait l'affran-
 chissement général, que cela avait été utile dans le
 passé, mais qu'on pouvait recoudre ce que nous avions
@@ -5348,7 +5348,7 @@ Je suis certain que la lecture de cette phrase de
 Kautsky aura été une terrible désillusion pour certains
 de nos amis, qui, prêts à mourir pour la cause se seront
 demandé : Devrai-je donc, moi qui suis prêt aux sacrifices et à l'abnégation, me résigner à devenir membre
-d'une coopérative ou d'une mutualité socialistes 2.
+d'une coopérative ou d'une mutualité socialistes
 Oui, mes amis ! car si la lutte sur les barricades est
 héroïque, la lutte de tous les jours, celle pour maintenir la foi et la confiance dans le cœur du prolétariat, est
 aussi belle! (Vifs applaudissements sur un grand
@@ -5377,7 +5377,7 @@ sentira miné, il ne se défendra pas contre le flot gros- fi:
 sissant du socialisme et ne nous obligera pas à la <4
 bataille !.. Plus nombreux seront nos syndicats et nos
 coopératives, plus nombreux seront nos électeurs et
-plus approchera la bataille suprême, qui sera meur- ù
+plus approchera la bataille suprême, qui sera meur-
 trière, parce que le monde exploiteur sentira que c'est
 la dernière! (Applaudissements) À
 Mais ici nous nous séparons de la minorité. Kautsky
@@ -5388,13 +5388,13 @@ Voilà les deux thèses nettement déterminées. 1%
 Et d'abord, je demande à Guesde : La société bour- à
 geoise repose sur deux forces : la force politique (elle
 est maîtresse du gouvernement) et la force économique
-(1) Depuis le Congrès de' Lyon (1901) le citoyen Delesalle a quitté d
+(1) Depuis le Congrès de' Lyon (1901) le citoyen Delesalle a quitté
 le P. O. F. Au Congrès de 1899, il avait obtenu de son parti l'adop="
 tion d'une politique de transaction. {Compte rendu sténographique,
 
 (elle est maîtresse dn commerce et de l'industrie) et
 cette dernière force est peut-être plus gigantesque que
-la première. Si, un jour, la grande industrie du Creusot, 4
+la première. Si, un jour, la grande industrie du Creusot,
 les mines d'Anzin, les établissements Cockerill en Bel-
 gique, des usines de pétrole en Amérique, ou une grande
 pour diriger elle-même sa propre entreprise, s'adressait
@@ -5426,7 +5426,7 @@ d'écrire une belle brochure; il faut, pour qu'elle soit
 utile, que l'ouvrier puisse la lire; et pour qu'il la lise, il
 lui faut de l'argent et du temps, en même temps que la
 
-capacité intellectuelle pour l'étudier. Or, nous nous trou- ñ
+capacité intellectuelle pour l'étudier. Or, nous nous trou-
 vons devant un socialiste de talent comme Guesde, qui *à
 croit pouvoir nous dire : Le mouvement s'est étendu,
 mais il a perdu en profondeur ce qu'ila gagné en éten-
@@ -5436,8 +5436,8 @@ sont trop longues. Et alors, celui qui travaille à dimi- .
 nuer les heures de travail, à augmenter les salaires, à
 augmenter le bien-être de la classe ouvrière, fait œuvre
 utile et méritoire ! (Applaudissements prolongés sur un
-grand nombre de bancs) 1
-Le citoyen PRÉSIDENT. — Je propose de clore la dis- Ë
+grand nombre de bancs)
+Le citoyen PRÉSIDENT. — Je propose de clore la dis-
 cussion à trois heures sur cette question. Voici une
 autre proposition qui ne vient pas du bureau, mais
 d'une grande partie de l'assemblée, c'est de suspendre
@@ -5453,7 +5453,7 @@ de choses à dire, après le discours de notre excellent
 ami Guesde ; toutes ses paroles sont l'expression directe
 de notre pensée. Nous voulons seulement affirmer que
 dans la lutte actuelle engagée entre la classe ouvrière
-et la classe çapitaliste, nous considérons qu'il est néces- F.
+et la classe çapitaliste, nous considérons qu'il est néces-
 saire que le parti socialiste se montre distinct, qu'il ps
 reste un parti d'opposition et de révolution, et que de
 la classe capitaliste il n'obtienne que ce qu'il peut
@@ -5517,7 +5517,7 @@ et d'ergoter pour savoir quelles étaient ces circonstances
 Eh bien, il faut que le Congrès international parle
 (1) A ce moment Bernstein dit en riant à un de ses voisins que le PE à
 citoyen Vaillantse trompait et que la majorité des délégués allemands
-penchait de son côté. On remarquera que l'avis du Comité directeur n
+penchait de son côté. On remarquera que l'avis du Comité directeur
 allemand fut donné par Auer qui adopta les mêmes principes que He
 Jaurès et qu'Anseele et considéra comme secondaires les restrictions
 de la proposition Kautsky. Ceux qui ont observé ce qui se passait.
@@ -5561,7 +5561,7 @@ divisent, ont été examinées avec la même conscience,
 avec le même détail, mais peut-être avec moins de
 passion, par les Allemands, il y a quelques années.
 
-É - Parmi les Allemands, en effet, on s'est demandé s'il s
+É - Parmi les Allemands, en effet, on s'est demandé s'il
 pouvait y avoir des coalitions avec des fractions du
 parti bourgeois, si le prolétariat pouvait s'aventurer
 sur le parquet glissant du parlementarisme bourgeois,
@@ -5591,7 +5591,7 @@ pour savoir quel plat il fallait préférer. Et le simple
 paysan de la Basse-Allemagne se disait : Pruneaux.
 cuits, viandes rôties, voilà de fameux plats ; mais l'OD
 n'en voit jamais! (Rires prolongés) C'est la situation
-où nous nous trouvons. k
+où nous nous trouvons.
 ‘Mais la question se présente encore à nous par un
 autre côté. Quelles circonstances ont fait, en Franceÿ…
 qu'un socialiste a pu devenir ministre? Il s'agissait de
@@ -5646,12 +5646,12 @@ route qu'il doit prendre; j'estime que nous, socialistes,
 nous ne devons pas être des fanatiques, des dogma-
 tiques, car nous ne possédons pas toute la vérité, mais
 nous aspirons à la vérité; c'est pour cela que nous
-devons avoir notre liberté d'action dans les cir- É
-J'espère qu'à l'avenir les camarades français parvien- N
+devons avoir notre liberté d'action dans les cir-
+J'espère qu'à l'avenir les camarades français parvien-
 dront à régler leurs questions de famille en famille et £.
 qu'ils penseront que l'on ne doit laisser aux congrès
 internationaux que la solution de questions générales:
-Alors, les congrès internationaux futurs seront vrai- ü
+Alors, les congrès internationaux futurs seront vrai-
 ment une démonstration du prolétariat organisé et
 conscient. ne
 J'espère aussi qué quelle que soit la décision du
@@ -5663,7 +5663,7 @@ main dans la main avec leurs frères de tous les pays.
 (Vifs applaudissements sur un grand nombre de
 Le citoyen PRÉSIDENT. — La discussion de cette
 question est close; mais je donnerai encore la parole
-cet après-midi au citoyen Andrea Costa pour une dé- F
+cet après-midi au citoyen Andrea Costa pour une dé-
 La séance est levée à une heure.
 La séance est ouverte à deux heures et demie, sous la
 présidence du citoyen VAN Koz (Hollande), assisté des
@@ -5674,7 +5674,7 @@ parvenir les noms des délégués au Comité permanent
 Je donne, ainsi que je l'ai annoncé, la parole au
 citoyen Andrea Costa, pour une déclaration.
 Lecitoyen Axprea Cosra (Italie). — Notre ami Ferri,
-avec lequel nous sommes en désaccord d'opinion, mais s
+avec lequel nous sommes en désaccord d'opinion, mais
 que nous aimons comme il nous aime, parce que, ainsi
 qu'on vous l'a dit, il peut y avoir des discussions en
 Italie, il n'y a pas de divisions (Applaudissements)…
@@ -5689,7 +5689,7 @@ contraire, il nous dira : J'avais tort.
 ss Le citoyen Ferria cru pouvoir exprimer l'opinion de sé
 pus la délégation italienne. Je n'ai pas l'habitude d'abusee
 de la parole, ni de la patience des Congrès, mais j'ai
-insisté ce matin auprès du bureau pour que la parole Ÿ
+insisté ce matin auprès du bureau pour que la parole
 
 me soit réservée. Je tenais, en effet, à indiquer, alors
 que notre ami Ferri a présenté au Congrès de Paris
@@ -5711,7 +5711,7 @@ industriel, intellectuel et moral de l'Italie étant diffé-
 rentes, il y avait lieu d'appliquer aux différentes régions
 de l'Italie, — et nous pensons qu'il y a lieu d'appliquer.
 aussi aux différentes nations, — une tactiquedifférente.
-De sorte que nous devrions laisser au bon sens, à: 4
+De sorte que nous devrions laisser au bon sens, à:
 l'intelligence, à l'équité, à la moralité — oui, disons-le « — de nos amis de tous les partis socialistes internatio-\
 ‘ naux la question de savoir si dans la tactique électorale
 on devait ou non accepter certaines alliances ou cerE taines coalitions. Voici la résolution que nous avons
@@ -5721,25 +5721,25 @@ confirmant sa foi dans les principes fondamentaux du.
 parti : la lutte de classe, la socialisation des moyens de
 production, de travail et d'échange, déclare la pleine auto- à
 nomie des organisations. La
-Le citoyen PRÉSIDENT. — La discussion étant close, 3
+Le citoyen PRÉSIDENT. — La discussion étant close,
 le citoyen Costa a demandé la permission de faire une
 déclaration et il fait un discours ! (Approbation) à
 Le citoyen ANDREA Cosra. — Je représente ici la .
 majorité de la délégation italienne! Du reste, il n'y a
-pas dix minutes que je parle !(Bruyantes interruptions) 1
-Le citoyen Maxence Rozpes. (A. C.) — Et la disci- s:
+pas dix minutes que je parle !(Bruyantes interruptions)
+Le citoyen Maxence Rozpes. (A. C.) — Et la disci-
 pline, et la décision du Congrès! (Tumulte. — Voix
-nombreuses : Parlez! — D'autres voix : Non! pas de ÿ
+nombreuses : Parlez! — D'autres voix : Non! pas de
 discours ; ta discussion est close !)
 Le citoyen AnDrEA Cosra. — Le Congrès interna-
-tional n'est pas une guillotine ! (Agitation) 1
+tional n'est pas une guillotine ! (Agitation)
 
 (Le président et le citoyen Costa échangent de vives
 observations, à la suite desquelles le président lui
-accorde la parole.) i
+accorde la parole.)
 Le citoyen Présipenr. — Camarades, je vous demande
-d'entendre encore quelques minutes le citoyen Costa, 4
-en raison de sa vive insistance et de sa situation parti- b
+d'entendre encore quelques minutes le citoyen Costa,
+en raison de sa vive insistance et de sa situation parti-
 Le citoyen AnpREA Cosra. — Le Congrès de Rome a
 donc affirmé l'autonomie des organisations régionales, à
 comme nous aflirmons ici l'autonomie des organisations
@@ -5759,7 +5759,7 @@ Re par le Congrès de Rome (1). Du reste, cette attitude, (4
 ë i4 que le Congrès de Rome n'adoptât la tactique électorale
 de l'autonomie. +.
 2 : (Nouveau bruit. — Une partie de l'assemblée, notam-
-- ment la délégation anglaise et les membres du P. O.
+- ment la délégation anglaise et les membres du
 à : protestent violemment contre la longueur du discours
 du citoyen Andrea Costa.)
 A). À: Le citoyen PRÉSIDENT approuve cette protestation et
@@ -5767,7 +5767,7 @@ A). À: Le citoyen PRÉSIDENT approuve cette protestation et
 résoudre les difficultés que nous avions à vaincre. Il se
 1 25 ” trouve en présence de deux résolutions qui se com
 battent, et la règle générale, dans tous les Congrès, est
-‘4 de la commission. Le citoyen Vaillant, qui avait proce posé de mettre aux voix la résolution de la minorité, 4
+‘4 de la commission. Le citoyen Vaillant, qui avait proce posé de mettre aux voix la résolution de la minorité,
 ee | "a acquiescé à cette manière de faire. Maïs il a dit que
 K , la résolution Guesde constituerait alors un amendement -
 ï à la résolution Xautsky. Je crois qu'on n'a qu'à lire les
@@ -5838,7 +5838,7 @@ Le citoyen VANDERVELDE. — J'appuie cette proposi-
 tion de notre camarade Vinck. (Vive approbation) —
 
 Le citoyen PRÉSIDENT. — Nous passons à la question
-cinquième commission, sur la politique coloniale. s
+cinquième commission, sur la politique coloniale.
 
 Le citoyen VA Koz. — Camarades, je suis heureux
 que pour la première fois, dans le Parlement du prolé-
@@ -5873,7 +5873,7 @@ voie que l'impérialisme ou le socialisme. Et l'Amérique
 Me. inévitable, le militarisme. Dès qu'on veut s'étendre,
 L. ‘ accaparer des contrées nouvelles, il faut une flotte
 Ke puissante, comme l'a compris l'Allemagne, des armées
-nouvelles, et l'on dépense des millions de plus par & n;
+nouvelles, et l'on dépense des millions de plus par &
 ne c'est ainsi qu'agissent toutes les nations européenne
 qui veulent prendre leur part au butin des contrées
 
@@ -5924,7 +5924,7 @@ du Congo, les cadavres hideux entassés, les malheureuses victimes qui accusent 
 la Belgique ? Ai-je besoin de rappeler aux Anglaisles
 victimes qu'ils ont faites et qu'ils font encore aux
 quatre coins du monde? Rappellerai-je aux Français
-les cruautés qui se sont produites à Madagascar et k
+les cruautés qui se sont produites à Madagascar et
 ailleurs ? Aux Allemands, le meurtre des femmes qui
 ne voulaient pas subir les outrages de leurs officiers ?
 Et nous autres, Hollandais, pouvons-nous oublier les
@@ -5934,7 +5934,7 @@ et la misère chez un peuple jusqu'alors heureux ? (1)
 Chaque nation européenne a, on peut le dire, un
 registre noir de crimes et de cruautés coloniales!
 Aussi devons-nous élever une voix de protestation
-en entendant les cris de douleur qui partent des déserts s
+en entendant les cris de douleur qui partent des déserts
 de l'Afrique, des plaines de l'Australie, qui partent de
 partout où s'est abattue la main hideuse du capita
 Le prolétariat doit faire entendre la voix de la solidarité humaine, lui qui ne connaît pas de différences de
@@ -5943,13 +5943,13 @@ les êtres, quelle que soit la couleur de leur peau, ont
 des cœurs comme nous, et savent aimer et haïr! La
 Commission vous propose donc de faire entendre une “à
 
-(1) Dans une conférence du 21 janvier 1901, le citoyen Van Kola < ù
+(1) Dans une conférence du 21 janvier 1901, le citoyen Van Kola <
 donné beaucoup de détails sur la politique hollandaise /MOUVEMENE
 socialiste, 1° et15 mars). La guerre de vingt-huit ans, dont ilest
 question ici, est celle d'Atjeh (ou Atchin); un petit peuple, qui
 comptait cinq cent mille âmes, n'est pas encore soumis...
 protestation contre l'expansion coloniale, l'impérialisme et le militarisme! Voici sa résolution
-Le Congrès socialiste international, tenu à Paris en 1900, é
+Le Congrès socialiste international, tenu à Paris en 1900,
 considérant que le développement du capitalisme mène
 fatalement à l'expansion coloniale, cette cause de conflits
 entre les gouvernements; que l'impérialisme qui en est la
@@ -5981,7 +5981,7 @@ le permettront;
 
 Le citoyen HyxpMax (Angleterre). (1) — Nous tenons
 à dire ici bien haut que, comme socialistes anglais,
-nous ne sommes pas partisans de cette guerre que ÿ
+nous ne sommes pas partisans de cette guerre que
 poursuit notre nation en Afrique, que nous la haïssons,
 
 (1) I prononce son discours en français. Il appartient à la Socialdemocratic Federation.
@@ -6001,7 +6001,7 @@ que de la rhétorique, mais sont utiles à connaître. Dans
 4 ; l'Inde, ce pays qui, cependant, serait riche, la popu- de
 lation est la plus misérable du monde : une famille
 entière reçoit, pendant toute une année, moins de
-$ cinquante francs, pour cinq personnes : peut-on s'ima4 : giner une misère aussi effrayante ! Eh bien! cependant, 3
+$ cinquante francs, pour cinq personnes : peut-on s'ima4 : giner une misère aussi effrayante ! Eh bien! cependant,
 25e de cette population misérable, nous tirons chaque
 ‘ année trente millions de livres sterling, soit sept cent
 ÿ cinquante millions de francs, sans retour. Il y a en ce
@@ -6054,16 +6054,16 @@ Ainsi donc, comme socialistes anglais, nous ne craignons
 
 pas denous rencontrer avec les socialistes du continent
 nous savons que ce sont des frères, malgré le langage
-de la presse capitaliste anglaise. e
+de la presse capitaliste anglaise.
 Comme Anglais, je suis tout honteux des crimes abo-
-minables qui se sont commis en Afrique du sud; et je l
+minables qui se sont commis en Afrique du sud; et je
 dois déclarer qu'il n'y a pas une organisation ouvrière
 qui ait pris une résolution en faveur de cette guerre; au (
-contraire, non seulement les socialistes, mais un grand Ÿ
+contraire, non seulement les socialistes, mais un grand
 nombre d'ouvriers anglais qui sont simplement des
 membres de chambres syndicales ouvrières, ont été .
 unanimes à condamner la guerre du sud de l'Afrique.
-Ce que nous avons de plus pratique à faire pour empêcher les guerres coloniales, c'est de créer une presse j
+Ce que nous avons de plus pratique à faire pour empêcher les guerres coloniales, c'est de créer une presse
 puissante en Angleterre. L'opinion anglaise a été abusée,
 trompée, aveuglée par une presse qui appartient aux
 propriétaires de mines d'or du Transvaal. Vous autres,
@@ -6075,7 +6075,7 @@ il ny a pas eu beaucoup d'orateurs anglais ayant pris
 la parole à ce congrès, je crois que c'est une occasion
 pour nous de faire acte de présence devant toute l''Europe et le monde civilisé.
 Je ressens une humiliation profonde de me trouver ici
-à Paris et d'être membre d'une nation qui, par sa po- È
+à Paris et d'être membre d'une nation qui, par sa po-
 litique, s'est couverte de honte devant le monde civilisé.
 Je suis le représentant de cinquante mille ouvriers Sÿndiqués, d'usine; j'aila même opinion socialiste que les
 camarades Hyndman et Quelch; mais ces cinquante
@@ -6083,7 +6083,7 @@ mille ouvriers ne sont pas tous des socialistes ; ils SOnt
 (1) De l'Independent Labour Party. ‘14
 
 cependant tous opposés à la guerre dans l'Afrique du
-sud, ainsi qu'on l'a déjà dit. (Applaudissements) l
+sud, ainsi qu'on l'a déjà dit. (Applaudissements)
 Nos adversaires, impérialistes, nous ont dit : Mais
 vous gagnerez de meilleurs salaires, puisqu'il y aura
 plus de travail, en raison des nouveaux marchés ou-
@@ -6103,8 +6103,8 @@ nous passons par la même phase : nous allons trop loir
 et nous devrons reculer. (Nouveaux applaudissements)
 Si vous assistiez aux réunions électorales en Angleterre, vous entendriez presque tous les orateurs
 chauvins répéter ce cliché célèbre : Le soleil ne se
-couche jamais sur les possessions de la Grande- È
-Bretagne! Eh bien, moi, je dis : Il y a beaucoup d'en- Ù
+couche jamais sur les possessions de la Grande-
+Bretagne! Eh bien, moi, je dis : Il y a beaucoup d'en-
 droits, sous le drapeau de la Grande-Bretagne, où le
 soleil ne luit jamais! (Applaudissements enthousiastes
 sur la plupart des bancs)
@@ -6126,14 +6126,14 @@ En ce qui concerne la protestation dont on a déjà ‘4
 parlé, je veux être un peu plus positif : il ne s'agit pas ‘1
 quant à nous — et je parle ici au nom des prolétaires de
 la Guadeloupe — d'apporter une réprobation, si éner- “à
-gique soit-elle, contre la politique coloniale, qui consiste 0h
+gique soit-elle, contre la politique coloniale, qui consiste
 à faire des colonies des endroits où vient se concentrer
 la surproduction, à faire des colonies des déversoirs de
 la surproduction métropolitaine. Il y a une autre
-question qu'il est du devoir du parti socialiste international d'étudier, et d'étudier de suite, c'est la création, ï.
+question qu'il est du devoir du parti socialiste international d'étudier, et d'étudier de suite, c'est la création,
 c'est l'organisation méthodique de classe du prolétariat
 colonial; c'est la création d'un programme colonial,
-d'abord avec des considérants internationaux, et d'un *4
+d'abord avec des considérants internationaux, et d'un
 programme de revendications minima qui peuvent être
 fixées par chacune des nations. Il y a là des revendica- ni
 tions qui ne peuvent pas nous échapper, d'autant plus
@@ -6143,7 +6143,7 @@ point de vue économique, mais au point de vue de
 l'action de classe du prolétariat colonial.
 commission n'a pas été attaquée, je n'ai pas à la
 défendre; je n'ai qu'à faire une constatation précieuse
-c'est que dans ce congrès mondial, où le prolétariat dem F1
+c'est que dans ce congrès mondial, où le prolétariat dem
 toutes les parties du monde est représenté, dans un
 élan d'indignation et avec un cri d'horreur — on peut le
 dire — on a brûlé sur le front de la bourgeoisie un ia
@@ -6189,13 +6189,13 @@ capitaliste. Dans ce sens, citoyens, notre Congrès
 n'aurait pas fait œuvre nouvelle, en votant une résolu-
 tion analogue à celles qui ont été prises contre le
 militarisme par tous les congrès précédents.
-Mais ce n'est pas une répétition de cette opinion que ÿ
+Mais ce n'est pas une répétition de cette opinion que
 je veux exprimer et que nous avons cru devoir voter
 dans notre résolution; au contraire, je suis heureuse de
 pouvoir constater que, dans les deux commissions, nous
 ayons été unanimes à désirer d'aller plus loin, de faire
 du nouveau et avant tout, du pratique. Tel était le
-programme que nous étions tous décidés à accepter, en ÿ
+programme que nous étions tous décidés à accepter, en
 abordant notre résolution. me
 Du nouveau? — Le militarisme n'est-il pas une des
 plaies, un des crimes les plus anciens du monde bouts
@@ -6207,10 +6207,10 @@ formidable qui constitue la préparation à une guerre
 possible entre deux ou trois États voisins: c'est um
 militarisme qui fait courir constamment à des conquêtes
 
-coloniales nouvelles toutes les grandes nations du #4 Ë
+coloniales nouvelles toutes les grandes nations du #4
 monde; qui transforme les États-Unis d'Amérique en un ‘2
 État exclusivement militariste, qui en fait de même pour
-FAngleterre; et alors que jusqu'à présent l'Allemagne, L.
+FAngleterre; et alors que jusqu'à présent l'Allemagne,
 à peu près seule, voyait son armée et sa flotte sans
 cesse s'accroître, cette politique est devenue le mot .
 d'ordre du monde entier. Cette politique a été inaugurée
@@ -6230,7 +6230,7 @@ la politique intérieure et extérieure du monde capita-
 liste, il est nécessaire que la défense s'organise, dans la
 politique socialiste. Il est temps que par ses représen- à
 tants, le parti socialiste prenne ofliciellement acte de la
-politique mondiale; et c'est justement ce que nous ” D
+politique mondiale; et c'est justement ce que nous ”
 avons voulu marquer par notre résolution.
 J'aborde le côté pratique de notre résolution; il
 consiste à proposer d'entamer une action permanente
@@ -6259,14 +6259,14 @@ allemand, partout la même domination du militarisme,
 la même politique coloniale, la même réaction et dans
 tous les pays un état permanent de guerre. Or, c'est
 précisément cette uniformité de réaction qui va créer
-dans tous les pays une base nouvelle et une uniformité l
+dans tous les pays une base nouvelle et une uniformité
 d'action et de propagande socialistes; c'est cet état
 permanent de guerre qui va engendrer une uniOn per
 manente des prolétaires, pour le maïntien de la paix!
 Mais ce n'est pas seulement pour donner un nouvel
 élan à notre lutte quotidienne, mais aussi au point de
 vue de notre but final qu'une union plus étroite des
-prolétaires de tous les pays en matière politique É: 4
+prolétaires de tous les pays en matière politique
 
 s'impose à l'heure actuelle. Citoyens, au début du
 mouvement socialiste, on supposait généralement que “A
@@ -6279,14 +6279,14 @@ probabilité (1); mais il devient de plus en plus probable
 (1) Le changement de point de vue est dû, pour une très grande
 partie, aux écrits de Bernstein. (Cf. Op. cit., pages 115-144.) La citoyenne:
 Luxemburg avait été l'un des adversaires les plus fougueux des
-que ce sera au contraire une vaste crise politique : Ÿ
-mondiale qui va sonner l'heure de mort du capita- $ 4
+que ce sera au contraire une vaste crise politique
+mondiale qui va sonner l'heure de mort du capita- $
 Done, citoyens, si le Marlborough capitaliste s'en va- Ke
 
-? t-en guerre, de laquelle peut-être il ne reviendra plus, X
-si la politique mondiale engendre des conflits et des k
+? t-en guerre, de laquelle peut-être il ne reviendra plus,
+si la politique mondiale engendre des conflits et des
 événements inattendus, incalculables, il faut bien que
-nous nous préperions pour le grand rôle qu'il nous ; d
+nous nous préperions pour le grand rôle qu'il nous
 faudra jouer tôt ou tard.
 Ah! je sais bien que ce n'est pas aujourd'hui ni demain
 que viendra la grande débäcle; peut-être que notre
@@ -6299,7 +6299,7 @@ main, formons une armée qui soit prête à combattre
 l'ennemi commun! (Applaudissements prolongés. —
 (A ce moment, la citoyenne Bonnevial, accompagnée
 de deux autres citoyennes, arrive sur la tribune et
-présente à Clara Zetkin une gerbe de fleurs, liées par ÿ
+présente à Clara Zetkin une gerbe de fleurs, liées par
 un ruban rouge, portant cette inscriptiou : « A Clara
 Zetkin! Les femmes socialistes françaises. » — Des
 applaudissements enthousiastes éclatent de toutes parts.)
@@ -6330,7 +6330,7 @@ symbole d'espérance dans la propagande socialiste
 parmi les femmes! (Vifs applaudissements)
 
 La citoyenne CLarA ZErkiN (Allemagne). — J'estime
-que ce bouquet n'est pas seulement pour ma personne, 4
+que ce bouquet n'est pas seulement pour ma personne,
 mais pour mon sexe ; il est un gage de l'action et de
 Pénergie des femmes socialistes ; nous avons la conviction que l'émancipation intégrale de l'humanité sera
 l'œuvre du prolétariat ; et c'est pour cela que nous
@@ -6350,15 +6350,15 @@ La citoyenne Rosa LuxemBurG. — Voici cette réso-
 
 Le Congrès déclare qu'il y a lieu de redoubler, dans tous
 les pays, de zèle, d'énergie, de vigueur dans la lutte quoti-
-dienne contre le militarisme, qu'il y a lieu surtout d'op- É
+dienne contre le militarisme, qu'il y a lieu surtout d'op-
 poser, à l'alliance de la bourgeoisie et des gouvernements Xe
 impériaux, l'alliance des prolétaires de tous les pays.
 Le Congrès indique comme moyens d'actions : Fa
 1° Les différents partis socialistes sont engagés à pour- !
 suivre avec soin l'éducation et l'organisation de la jeunesse, ‘
-en vue de combattre le militarisme ; a » Les députés socialistes, dans tous les pays, s'engagent e1
+en vue de combattre le militarisme ; a » Les députés socialistes, dans tous les pays, s'engagent
 à voter contre toute dépense militaire et toute dépense pour Le
-la flotte et les expéditions militaires coloniales; S
+la flotte et les expéditions militaires coloniales;
 La.commission socialiste internationale permanente
 sera chargée d'entamer et de régler, dans tous les cas d'im-
 portance internationale, un mouvement de protestation et
@@ -6369,7 +6369,7 @@ la paix comme celle de la Haye, qui, dans la société actuelle,
 ne peuvent aboutir qu'à des déceptions fâcheuses, comme
 l'a démontré dernièrement la guerre du Transvaal. (1)
 Le citoyen VozKkAERT (Belgique). — Pour la première
-fois, un Congrès international socialiste va prendre des l
+fois, un Congrès international socialiste va prendre des
 résolutions pratiques pour combattre le militarisme.
 La première résolution est l'organisation de la jeunesse
 en vue d'une propagande antimilitariste là où elle
@@ -6379,7 +6379,7 @@ simultanée des armées permanentes et armement général du peuple
 pacifiquement les conflits internationaux ; référendum sur la
 question de paix et de guerre dans le cas où les gouvernements
 n'accep ent pas la sentence. (Hamon. Op. -cit., page 269). La commission avait proposé l'organisation de la nation armée, c'est-à-dire
-des milices ; mais, sur la demande du citoyen Allemane (P. O. S. R.), 4
+des milices ; mais, sur la demande du citoyen Allemane (P. O. S. R.),
 on avait voté l'armement du peuple.
 Dans la Petite République du 16 juillet 1901, le citoyen Cipriani
 accuse les députés socialistes italiens d'avoir voté le budget de la
@@ -6402,12 +6402,12 @@ n'est pas seulement en gage de reconnaissance, c'est un
 symbole d'espérance dans la propagande socialiste
 parmi les femmes! (Vifs applaudissements) À
 La citoyenne CLARA ZETKkIN (Allemagne). — J'estime
-que ce bouquet n'est pas seulement pour ma personne, 4
+que ce bouquet n'est pas seulement pour ma personne,
 mais pour mon sexe; il est un gage de l'action et de
-Pénergie des femmes socialistes ; nous avons la convic- F
+Pénergie des femmes socialistes ; nous avons la convic-
 tion que l'émancipation intégrale de l'humanité sera
 l'œuvre du prolétariat; et c'est pour cela que nous
-luttons avec le prolétariat universel partout où il se met k
+luttons avec le prolétariat universel partout où il se met
 Le prolétariat international peut être sûr que les
 femmes socialistes d'Allemagne seront toujours fidèles
 à leurs convictions et à leurs promesses ! (Nouveaux ei
@@ -6418,7 +6418,7 @@ Le citoyen PRÉSIDENT. — Je donne à nouveau la parole ns
 de la quatrième commission.
 St La citoyenne Rosa LuxeMBurG. — Voici cette réso- RE
 Le Congrès déclare qu'il y a lieu de redoubler, dans tous ‘
-les pays, de zèle, d'énergie, de vigueur dans la lutte quoti- ÿ
+les pays, de zèle, d'énergie, de vigueur dans la lutte quoti-
 dienne contre le militarisme, qu'il y a lieu surtout d'op- Ne
 poser, à l'alliance de la bourgeoisie et des gouvernements
 impériaux, l'alliance des prolétaires de tous les pays. "y
@@ -6432,13 +6432,13 @@ en vue de combattre le militarisme ;
 la flotte et les expéditions militaires coloniales; À
 La.commission socialiste internationale permanente
 sera chargée d'entamer et de régler, dans tous les cas d'im-
-portance internationale, un mouvement de protestation et Ÿ
+portance internationale, un mouvement de protestation et
 d'agitation antimilitariste uniforme et commun dans tous
 les pays.
 Le Congrès proteste contre les soi-disant conférences de
 la paix comme celle de la Haye, qui, dans la société actuelle,
 ne peuvent aboutir qu'à des déceptions fàcheuses, comme
-l'a démontré dernièrement la guerre du Transvaal. (1) D
+l'a démontré dernièrement la guerre du Transvaal. (1)
 Le citoyen VozkAERT (Belgique). — Pour la première ‘
 fois, un Congrès international socialiste va prendre des fe
 résolutions pratiques pour combattre le militarisme.
@@ -6447,9 +6447,9 @@ en vue d'une propagande antimilitariste là où elle
 (1) Les résolutions de Londres étaient plus radicales : suppression
 simultanée des armées permanentes et armement général du peuple ; À
 — création d'un tribunal arbitral nommé par le peuple afin de régler
-pacifiquement les conflits internationaux; — référendum sur la } 1
+pacifiquement les conflits internationaux; — référendum sur la }
 question de paix et de guerre dans le cas où les gouvernements
-n'accepteraient pas la sentence. (Hamon. Op. -cit., page 269). La com- É
+n'accepteraient pas la sentence. (Hamon. Op. -cit., page 269). La com-
 mission avait proposé l'organisation de la nation armée, c'est-à-dire ‘a
 
 des milices ; mais, sur la demande du citoyen Allemane (P. O. S. R.), y
@@ -6459,7 +6459,7 @@ Dans la Petite République du 16 juillet 1901, le citoyen Cipriani
 accuse les députés socialistes italiens d'avoir voté le budget de la
 
 n'existe pas. En Belgique, nous prenons les jeunes gens
-à l'âge de seize ans, nous en faisons des socialistes j
+à l'âge de seize ans, nous en faisons des socialistes
 conscients, qui combattent le militarisme, Chaque
 vent des journaux antimilitaristes, et certains conidées le plus d s gens possible, et en rentrant de
 yen PRÉSIDENT. — Nous allons procéder au
@@ -6473,14 +6473,14 @@ anglais envers les Boers de l'Afrique du Sud
 EL — L ngrès S liste international de Paris, aflir- à
 mant un s plus les sentiments de sympathie frater-
 commis en Arménie, dénonce aux travailleurs des deux
-ments capitalistes, engage les groupes parlementaires socia- È
+ments capitalistes, engage les groupes parlementaires socia-
 listes à intervenir à chaque occasion en faveur du peuple
-arménien, odieusement opprimé, auqu 1 le Congrès adress s
+arménien, odieusement opprimé, auqu 1 le Congrès adress
 l'assuran le son étroite et ardente solidarit “=
-Adopté par acclamation. Æ
+Adopté par acclamation.
 Le citoyen PRÉSIDENT. — En ce qui concerne la sixième
 question, la parole est au citoyen Sfoermer', rapporteur
-de la commission k
+de la commission
 Le citoyen SroErMER (Allemagne). — Les membres
 de cette commissic t considéré l'organisation des
 travailleurs maritimes dans le sens le plus large, et ont
@@ -6519,8 +6519,8 @@ Le citoyen PRÉSIDENT. — Nous allons procéder au
 vote. La résolution de la commission vous a été lue tout
 à l'heure.
 Il y a été ajouté une seconde partie que je vous lis: “à
-I. — Le Congrès international socialiste de Paris flétrit ” 4
-avec indignation la politique sauvage d'oppression du tsa- D
+I. — Le Congrès international socialiste de Paris flétrit ”
+avec indignation la politique sauvage d'oppression du tsa-
 risme russe envers les peuples polonais et finlandais et
 engage les prolétaires de toutes les nationalités, souffrant sa
 sous le joug du régime absolu, à se réunir pour la lutte
@@ -6568,7 +6568,7 @@ chande, que c'est le devoir tout spécial des partis socialistes organisés, tan
 
 de veiller à ce que toutes les lois réglant l'emploi et le
 travail dans cette industrie soient aussi parfaites et aussi
-bien administrées que possible. s
+bien administrées que possible.
 En même temps la commission est d'avis que les
 marins naviguant doivent s'organiser en syndicats et
 groupes politiques, reconnaître la lutte de classe, et
@@ -6584,17 +6584,17 @@ senter quelques observations relativement à la rédaction de la résolution; se
 décision prise, je ne la discuterai pas.
 En ce qui concerne ce qu'on doit entendre par tra- ‘4
 vailleurs maritimes, la grande majorité a décidé qu'il
-faut entendre les marins,les dockers et les camionneurs, 4
+faut entendre les marins,les dockers et les camionneurs,
 tous ceux qui travaillent aux quais. Aussi avons-nous ‘4
 pris la parole pour demander que tous les Partis
 ouvriers, toutes les organisations s'occupent d'organiser £i
-les marins, les dockers et les camionneurs. Ce n'estpas à ÿ
-seulement au point de vue syndical qu'il faut se placer, b:
+les marins, les dockers et les camionneurs. Ce n'estpas à
+seulement au point de vue syndical qu'il faut se placer,
 c'est au point de vue de l'intérêt du parti Ouvrier, parce
 que lorsque les dockers et les marins seront avec nous, à
 nous disposerons d'une force immense. En effet, nous
 pouvons comparer les transports à la troisième colonne.
-qui soutient toute la société, toute la production. Donc, 13
+qui soutient toute la société, toute la production. Donc,
 lorsque les dockers seront avec nous, lorsque nous
 aurons également les marins et lorsqu'une guerre sera
 nécessaire, nous pourrons disposer d'eux pour batailler
@@ -6663,13 +6663,13 @@ quant à la responsabilité des employeurs, que le navire pe
 soit dans un dock ou dans une rivière, l'indemnité sera
 payée pour tous les accidents ; Dee
 Visite complète de tout le gréement et l'outillage En
-vue de prévenir les accidents; S
+vue de prévenir les accidents;
 3° Les gages ne seront jamais payés dans les cafés, hôtels
 ou chez les placeurs maritimes ; ne.
-4° Établissements de bureaux de travail dans tous les, É,
+4° Établissements de bureaux de travail dans tous les,
 
 ports, de bureaux de travail pour l'embauchage des travail-
-leurs de cette section ; L
+leurs de cette section
 Fixation d'un maximum d'heures dans la journée de
 travail et d'un minimum de salaires. Augmentation des
 gages pendant les heures de nuit et le dimanche.
@@ -6713,7 +6713,7 @@ l'exercice de cette souveraineté par la conservation des
 droits populaires d'initiative et de référendum.
 VI. — Le Congrès déclare que le combat pour la perfection du suffrage universel est l'un des meilleurs moyens
 pour préparer intellectuellement et moralement les masses
-à la conquête de la souveraineté politique et économique, 4
+à la conquête de la souveraineté politique et économique,
 de les pénétrer du sentiment de la lutte de classe et de les
 habituer au gouvernement de l'Etat socialiste à venir.
 La commission vous propose à l'unanimité l'adoption
@@ -6721,17 +6721,17 @@ de toutes ces résolutions (1).
 Le citoyen PRÉSIDENT. — S'il y a une chose sur
 laquelle nous sommes d'accord, c'est la lutte à outrance
 pour le suffrage universel. Je mets la résolution aux
-Je donne la parole au citoyen Vinck, rapporteur sur s
+Je donne la parole au citoyen Vinck, rapporteur sur
 la question du socialisme municipal. Je lui demande de
 donner l'exemple en montrant qu'en peu de mots On
-peut dire beaucoup de choses. (Rires) 21
+peut dire beaucoup de choses. (Rires)
 Le citoyen Vivcx (Belgique). — Je vous donnerai
 seulement deux ou trois explications, pour vous faire
 saisir la portée des discussions que nous avons eues à la
-() Dans un livre traduit en français, Parlementarisme et Socia= 4
+() Dans un livre traduit en français, Parlementarisme et Socia=
 lisme, Kautsky a montré que l'application des institutions de réfé=
 rendum n'est pas sans danger dans certains pays. — Au congrès de
-Londres on avait voté que le peuple devrait être appelé à se pro= 11
+Londres on avait voté que le peuple devrait être appelé à se pro=
 noncer sur la déclaration de guerre; le citoyen Belfort-Bax avait
 montré cependant le danger possible d'une pareille procédure: LR
 
@@ -6786,7 +6786,7 @@ pas aux communes d'entrer dans cette voie tous les élus
 
 ae l'indépendance suffisantes pour réaliser ces desiderata.
 
-Le Congrès socialiste international de Paris décide qu'il u
+Le Congrès socialiste international de Paris décide qu'il
 
 y a lieu de convoquer un Congrès international des »
 
@@ -6809,8 +6809,8 @@ qui ont fait partie de la Commission avec moi seron
 
 Du: d'accord pour faire la suppression que je demande. Or
 
-dit, dans l'ordre du jour qu'on vous propose : « Ce Ÿ.
-Congrès aurait un double but : .….b) Constituer un ÿ
+dit, dans l'ordre du jour qu'on vous propose : « Ce
+Congrès aurait un double but : .….b) Constituer un
 bureau national dans chaque pays et un bureau international chargés de centraliser tous les renseignements
 et documents », etc. Je ne vois pas du tout l'utilité de
 ce bureau international, d'autant plus que vous avez
@@ -6839,8 +6839,8 @@ masse de produits bien plus grande qu'il n'était possible
 aux détenteurs de moyens de production de vendre, devait
 rendre la concurrence l'ennemi du profit, devait donc dans
 
-Re le système actuel éliminer la concurrence, la remplacer par k
-l'entente et la coopération des maîtres de la production, 4
+Re le système actuel éliminer la concurrence, la remplacer par
+l'entente et la coopération des maîtres de la production,
 3ù Ainsi les trusts sont inévitables. Ils sont en partie une
 forme plus haute de la production pour autant qu'ils renpd dent la production avec le profit pour but et la distribua tion plus rationnelle, plus économique, évitent le gaspil-
 lage de la surproduction, mènent à une réduction des
@@ -6849,19 +6849,19 @@ transport, des frais de réclame et de vente, en général des
 Mais, d'un autre côté, les trusts ont la tendance de faire
 à la longue la hausse des prix partout et toujours où
 l'intérêt des capitalistes coalisés le demande, d'empêcher la « baisse de prix qui proviendrait d'une production améliorée.
-Is ont, en outre, sinon comme but, souvent pour effet, 3
+Is ont, en outre, sinon comme but, souvent pour effet,
 d'augmenter l'oppression des travailleurs, en opposant
 leurs unions et leurs tentatives d'organisation, la puissance
 compacte des patrons unis.
 Les pools et les coalitions n'ont absolument pas le carac-
-tère d'une organisation impérieuse des trusts et cartels, F
+tère d'une organisation impérieuse des trusts et cartels,
 mais opèrent uniquement l'élévation des prix des nécessités ]
 de la vie, sont tout spécialement désastreux pour l'intérêt
 général de la population et méritent d'être rigoureusement
 Toutefois, en démontrant aux travailleurs la pression
 laquelle les trusts les assujettissent, le Congrès socialiste
 international ne recommande pas d'essayer d'empêcher la
-formation de ces coalitions, leur formation étant le résultat « *e
+formation de ces coalitions, leur formation étant le résultat «
 logique du système de production, une législation répres- Ki
 sive pouvant tout au plus en modifier la forme, mais ne
 pourrait sérieusement entraver l'action. Les partis SOCialistes, toutefois, ne s'opposent pas à ce que les lois rendent
@@ -6876,7 +6876,7 @@ liorer une organisation de classe politiquement et Éécon0=
 
 miquement, ces deux actions étant renforcées par l'action
 coopérative, afin de préparer et de rapprocher de l'expro-
-priation publique des grandes branches de production, V0
+priation publique des grandes branches de production,
 complètement organisee par les trusts, sera devenue pos- Ge:
 Ainsi se transformera graduellement la production privée ;
 ayant le profit comme but, en production sociale qui aura
@@ -6885,7 +6885,7 @@ Un des membres de la commission m'a, après que la
 séance était close, remis un amendement d'une section
 
 belge pour proposer au Congrès une conclusion; j'ai
-fait remettre cet amendement au bureau; malheureu- i
+fait remettre cet amendement au bureau; malheureu-
 sement il ne se retrouve pas ; je ne puis donc en donner
 lecture. La seule chose que je puisse dire, c'est qu'en
 principe il n'y avait pas de différence entre l'opinion de
@@ -6896,7 +6896,7 @@ ce que nous avons indiqué dans notre exposé.
 La résolution, mise aux voix, est adoptée à l'unani- .
 Le citoyen Présipexr. — Nous avons, comme dernier
 article à l'ordre du jour une question très grave, celle
-de la grève générale, et il ne nous reste pas beaucoup s
+de la grève générale, et il ne nous reste pas beaucoup
 de temps.
 Le citoyen Legien, rapporteur de la majorité de la
 douzième commission, aura la parole pendant “s
@@ -6905,4 +6905,4 @@ commission, qui désire combattre la résolution de la
 Le citoyen LEGIEN (Allemagne). — La discussion sur
 la grève générale n'a pas été longue, et par une raison
 fort simple, c'est que la plupart des membres de cette a:
-commission étaient des représentants de syndicats, É
+commission étaient des représentants de syndicats,

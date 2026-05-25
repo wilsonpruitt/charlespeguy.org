@@ -36,7 +36,7 @@ Le nom du jeune philosophe commence par un H et finit
 par une. Cherchez...
 
 Je ne puis savoir et je n'ai pas demandé si cette note
-a été fabriquée par un ami maladroit de M. Herr ou par q
+a été fabriquée par un ami maladroit de M. Herr ou par
 premier cahier de la deuxième série
 un trop adroit ennemi. Les mœurs de la presse contemFat poraine sont si bizarres que je n'y entends rien.
 . J'ai travaillé longtemps avec M. Lucien Herr et j'aimerai toujours la mémoire que j'ai de l'action que nous

@@ -368,7 +368,7 @@ l'institution. « Ce qui paraissait devenir impraticable
 Et les gens ne donneraient pas d'argent pour dans dix
 
 Le remède vint. Pour donner à l'institution commune
-la surface de base qui lui manquait, il fallait un comité. j
+la surface de base qui lui manquait, il fallait un comité.
 Seul je ne présentais pas une suflisante garantie. Mais
 un comité garantirait l'institution auprès des personnes
 éloignées. Ce comité ferait la mutation de confiance, la
@@ -445,7 +445,7 @@ Elle passionnait le monde quand la librairie put commencer à fonctionner, à tr
 un tort considérable, au commerce parisien. En particulier elle nuisit au commerce des livres, parce que les .
 gens gardaient tout leur temps et toute leur finance pour
 lire les journaux multipliés. Singulièrement elle nuisit
-la librairie Bellais qui s'affichait dreyfusiste, qui fut rapidement notée, devant qui les antisémites manifestèrent, É
+la librairie Bellais qui s'affichait dreyfusiste, qui fut rapidement notée, devant qui les antisémites manifestèrent,
 où les dreyfusistes fomentaient leurs manifestations.
 Le temps et la force employée à manifester pour Dreyfus ]
 était dérobée au travail de la librairie. La fatigue en- )
@@ -505,7 +505,7 @@ dessinait peu à peu autour de M. Lucien Herr. Je me
 permets de citer ce nom parce que le Cri de Paris l'a
 cité avant moi, parce que cette signature a été imprimée
 jadis dans /a Volonté, parce que ce nom figure aux
-Notes Critiques, parce que la Société Nouvelle de li- È
+Notes Critiques, parce que la Société Nouvelle de li-
 brairie et d'édition annonce de M. Herr un volume
 
 Je ne cacherai pas la grosse et souvent la profonde
@@ -516,11 +516,11 @@ sans doute universelle et totale et, sur tout, sa brutale
 sincérité me donnèrent pour lui un profond attachement
 fidèle. Je fus en un sens vraiment son élève. Il n''ensei-
 gna parfois comme on travaille et souvent comme on
-agit. Il me fournit beaucoup de renseignements sincère- f
+agit. Il me fournit beaucoup de renseignements sincère-
 ment exacts sur tout un monde que j'ignorais, monde
 littéraire, scientifique, politique. Sur tout il débrouilla
 pour moi les insincérités et les conventions où je me Lo
-serais empêtré. Il me mit au courant de l'affaire Drey- Ë
+serais empêtré. Il me mit au courant de l'affaire Drey-
 fus, me donna les indications sans lesquelles on ne pou-
 vait pas suivre intelligemment.
 Cette fidélité dura jusqu'à la fin de l'affaire. Comme
@@ -618,8 +618,8 @@ pourquoi nous ne publions pas comme avant l'état nu-
 mérique de nos abonnés et l'état de notre situation
 financière. Un tel recensement n'aurait aucun sens.
 Nous tirons à quatre mille environ depuis le douzième
-et dernier cahier de la première série inclus. Nous en- : J
-voyons à quatre mille destinataires sérieusement choi- l
+et dernier cahier de la première série inclus. Nous en-
+voyons à quatre mille destinataires sérieusement choi-
 sis. Combien de ces quatre mille destinataires nous res-
 teront abonnés ? Nous le saurons quand la poste aura
 présenté nos reçus. Combien de nos anciens abonnés
@@ -630,13 +630,13 @@ ture du premier cahier, s'est violemment désabonné
 pour sept raisons. Charles Guieysse, qui a éprouvé plu- À
 sieurs publications, veut bien m'assurer que le désabonnement, quand on n'en abuse pas, est un indice de
 vitalité. Le fait est que nous recevons régulièrement
-plusieurs abonnements par jour. Un mouvement de dés- Ë
+plusieurs abonnements par jour. Un mouvement de dés-
 affection s'accentue parmi mes anciens camarades et
 quelques-uns de mes anciens amis. Un mouvement
 d'abonnement se continue parmi les personnes éloignées. Il paraît que cela aussi est habituel aux publications libres. Chez nous le mouvement d'abonnement
 est beaucoup plus fort que le mouvement de désaffec-
 tion. C'est tout ce que nous pouvons dire. L'établissement de quatre mille abonnements éventuels a réclamé
-tout le temps et toutes les forces de l'administration. k
+tout le temps et toutes les forces de l'administration.
 Bourgeois a fourni douze heures par jour depuis trois
 mois, sans repos hebdomadaire. Nous sommes en contravention à la loi Millerand-Colliard.
 
@@ -670,11 +670,11 @@ existent entre les Pages libres et les publications similaires
 
 troisième cahier de la deuxième série
 2° Nous n'avons pas de frais de rédaction : les articles de “0h
-la revue sont écrits par des camarades de bonne volonté; è
+la revue sont écrits par des camarades de bonne volonté;
 3° Nous n'avons pas de frais de loyer; À
-4° Nous ne mettons pas la revue en vente chez les libraires k
+4° Nous ne mettons pas la revue en vente chez les libraires
 et marchands de journaux : cela nous forcerait à faire des
-remises que notre situation financière ne peut supporter; 4
+remises que notre situation financière ne peut supporter;
 5° Nous ne voulons avoir que des abonnés.
 Tout cela fait que nos frais sont réduits au minimum. Par
 6° Nous ne publierons pas d'annonces payées : il n'est pas
@@ -687,7 +687,7 @@ tendre plusieurs années avant de joindre les deux bouts. IL ‘4
 faut que tout de suite nous joignions les deux bouts.
 Tarif B. — Quand l'abonnement est versé directement en
 nos mains, aux mains d'un camarade qui nous l'apporte, LE
-ou bien quand il nous est envoyé en mandat ou en timbresposte : ÿ
+ou bien quand il nous est envoyé en mandat ou en timbresposte
 Adresser le montant de l'abonnement à M. Charles
 Les abonnements que nous préférons sont ceux de trois
 mois et de six mois.
@@ -738,7 +738,7 @@ auditeurs, mais ce ne sont pas les camarades avec lesquels tu causes qui peuvent
 la classe des travailleurs.
 Je la connais, moi qui ai fondé des groupes politiques,
 qui aiaussi fondé une coopérative, et aussi une Université
-Populaire ; et je te dis que c'est bien difficile de faire quel- L
+Populaire ; et je te dis que c'est bien difficile de faire quel-
 que chose avec ces gens-là. Ils aiment les grands mots, ils
 crient dans les réunions publiques, ils beuglent Vive la
 Sociale et puis c'est tout. Ils se plaignent de leur misère, .
@@ -755,7 +755,7 @@ rien le mal que tu dis.
 Je contai comment nous comptions lancer les Pages
 libres, comment nous avions reçu des noms et adresses de
 camarades, comment nous avions aussi dépouillé des annuaires; — à tous ceux dont nous avons les noms et
-adresses, nous allons envoyer gratuitement plusieurs nu- s
+adresses, nous allons envoyer gratuitement plusieurs nu-
 méros, ét ils verront alors eux-mêmes s'ils doivent
 — Et tu penses, Charles Gé, que ceux qui recevront plu-
 Moi, je crois qu'ils liront ce que tu leur enverras, mais
@@ -763,7 +763,7 @@ qu'après ils ne s'ahbonneront pas. Je suis très sceptique.
 — Moi je crois que si nous pouvons leur envoyer assez
 de numéros pour qu'ils nous connaissent, tous ceux qui
 peuvent dépenser quelques sous s'abonneront. Ce que je
-crains seulement, c'est que nous ne puissions pas nous k
+crains seulement, c'est que nous ne puissions pas nous
 
 faire connaître assez, parce que nous n'avons pas assez
 
@@ -871,7 +871,7 @@ ma rectification. Mais je suis en droit de vous reprocher de
 n'avoir pas usé à mon égard du même procédé. Vous auriez
 pu, vous auriez dù vérifier l'assertion mensongère de votre
 On n'accuse pas des militants comme nous de duperie
-sans preuves. — Vous trouverez bon que je me réserve la e
+sans preuves. — Vous trouverez bon que je me réserve la
 faculté de publier notre correspondance si M. Louzon ne
 me donne pas satisfaction.
 Bien à vous.
@@ -996,7 +996,7 @@ congrès de Paris que les officiers et les soldats de )
 troupe avaient souvent manifesté dans les grèves ou
 des sentiments humains ou même des sentiments de
 bons citoyens. Le crime du François est beaucoup plus Fe
-un crime militaire que le crime de Chalon. Mais tous u
+un crime militaire que le crime de Chalon. Mais tous
 les deux sont avant tout des crimes bourgeois si l'on
 veut les qualifier en général, et si l'on veut spécifier
 des crimes patronaux, en un sens des crimes g'ouver-
@@ -1110,11 +1110,11 @@ fois spontanée et cultivée. Si le public n'aimait pas les
 saletés, labsinthe et les courses, administrateur d'un
 journal s'opposerait à ce qu'on y mît des saletés, de
 l''absinthe et des courses. Il faut donc agir sur l'opinion
-publique, sur l'esprit public. s
+publique, sur l'esprit public.
 
 troisième cahier de la deuxième série
 Ces cahiers n'ont pas été institués pour le zèle ni pour
-le vain plaisir de dire leurs quatre vérités aux camarades. j
+le vain plaisir de dire leurs quatre vérités aux camarades.
 Nous ne sommes pas des cuistres. Nous ne sommes pas
 de vains polémistes. Nous ne sommes pas amateurs de
 scandales. Ceux qui savent beaucoup nous reproche-
@@ -1194,11 +1194,11 @@ Cela devient insupportable. M. Herr me dit textuelle-
 ment un matin : Aussi longtemps que vous avez attaqué
 Guesde et tout ça dans la revue blanche, vous alliez ,
 en franc-tireur, c'était bien. Mais à présent qu'on a fait -
-l'unité sosialiste, il ne faut plus les attaquer. — Pardon, Û
+l'unité sosialiste, il ne faut plus les attaquer. — Pardon,
 ce que je dis de Guesde est-il moins vrai aujourd'hui
-qu'hier. — Il ne s'agit pas de cela. Il faut laisser tout ça k
+qu'hier. — Il ne s'agit pas de cela. Il faut laisser tout ça
 
-Je refusai de marcher. Tout est venu de là. Je refu- ï
+Je refusai de marcher. Tout est venu de là. Je refu-
 sai de faire marcher les quelques amis que j'ai. Cette
 insubordination m'a coûté assez pour qu'au moins on
 la respecte.
@@ -1228,14 +1228,14 @@ programme est composite, mêlé. Il est difficile de composer un spectacle pour 
 On voit que les deux gros morceaux de ce programme
 étaient la conférence de Jaurès et la représentation de
 Mais quelqu'un troubla la fête. La pièce de Louis Mar-
-solleau a été publiée chez Stock, 27, rue de Richelieu, 3
+solleau a été publiée chez Stock, 27, rue de Richelieu,
 en une brochure mince de 36 pages pour un franc.
 
 Nous publions la conférence de Jaurès.
 
 Nous n'avons pas soumis la sténographie de cette
 conférence à l'auteur, en particulier parce que nous
-pensons qu'elle a été bien prise, et parce que nous pré- ï
+pensons qu'elle a été bien prise, et parce que nous pré-
 férons, autant que nous le pouvons et sauf erreur,
 donner l'image, l'écho de la parole même.
 

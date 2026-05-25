@@ -41,7 +41,7 @@ OMPRENDS-MOI, j'ai rêvé qu'en hiver je frappais,
 
 J'arrive par un train du soir, de loin, j'apporte
 Le trouble en ta maison de prière et de paix.
-La servante a des yeux effarés, je la laisse 3
+La servante a des yeux effarés, je la laisse
 La lanterne à la main, tremblante sur le seuil,
 Et j'entre, et te voici pale dans ton fauteuil,
 
@@ -52,7 +52,7 @@ Un désespoir de grand enfant tendre à l'excès.
 Nous nous taisons. Assis près de l'âtre, j'écoute
 Le silence des chambres closes où les lits
 
-4 Ont amorti chacun l'effort d'une agonie,
+Ont amorti chacun l'effort d'une agonie,
 Cependant qu'en mon cœur s'apaisent le roulis
 Du voyage et, lointaine, tout au fond, honnie
 
@@ -62,8 +62,8 @@ Tous ces meubles soignés, en ordre, aux mêmes places,
 Fixent sur moi des yeux de tranquille clarté, } ;
 . Et la pendule, loin des passions, abrite * WC
 Les longues heures sous son globe... :
-Comprends-moi, ÿ
-Dans mon sang, ce sang tien pourtant, je ne sais quoi Ÿ
+Comprends-moi,
+Dans mon sang, ce sang tien pourtant, je ne sais quoi
 D'impatient, d'insatisfait couve et s'irrite.
 Je me lève. Pardonne à ton orgueilleux fils.
 Lui si faible, il repart déjà, plein de défis.
@@ -120,7 +120,7 @@ textes, communiqué des aperçus qui m'ont paru si intéressants,
 el si importants, si capitaux même que je les retiens pour les
 énoncer dans quelque cahier de commentaires.
 
-4 Je ne remercierai point Gillet, puisqu'il est et demeure
+Je ne remercierai point Gillet, puisqu'il est et demeure
 
 2 entendu qu'entre nous tous collaborateurs des cahiers nous ne
 
@@ -167,7 +167,7 @@ nous avons eu en mains, pour préparer ce cahier de Noël, un
 
 É introduction par M. Georges Lafenestre, membre de l'Institut,
 
-conservateur des Peintures au Musée du Louvre; œuvres exposées 3
+conservateur des Peintures au Musée du Louvre; œuvres exposées
 au Palais du Louvre, peintures, dessins, émaux, tapisseries ;
 œuvres exposées à la Bibliothèque nationale, manuscrits à
 Nous avons eu également en mains le deuxième ouvrage édité
@@ -260,7 +260,7 @@ Justice lui-même s'est dessaisi de son mystérieux Calvaire.
 Chacun, par une sympathie honorable également pour tous, à
 voulu nous aider à récrire une page de notre histoire.
 
-15 Bruges. On se rappelle de quel éclat l'Exposition organisée
+Bruges. On se rappelle de quel éclat l'Exposition organisée
 alors dans la cité défunte illustra l'art primitif flamand. Ne pouvaiton en France tenter quelque entreprise semblable ? Réunir tout ce
 qu'on pourrait des ouvrages de nos plus vieux maîtres, des restes
 d'un lointain passé ; rechercher au fond des fabriques, dans les
@@ -290,7 +290,7 @@ condamne presque au néant. « Père des arts, père des lettres »,
 
 c'est, sur Francois Premier, le mot de toutes les histoires : ce
 
-mot a-t-il tort ou raison et l'histoire sur ce point est-elle faite ou Ë
+mot a-t-il tort ou raison et l'histoire sur ce point est-elle faite ou
 à refaire ? À toutes ces questions pressantes, formelles et graves,
 
 M. Henri Bouchot vient de faire une réponse éclatante et sans
@@ -352,8 +352,8 @@ k e moins prompt à recevoir. On trouve à la cour, en 1304, sous des
 Sainte-Marie Majeure. Les amateurs commencent à estimer les *
 œuvres italiennes, qu'ils appellent L « ouvraige lombard » ou à
 l « ouvraige de Rome ». Et quand Philippe le Bel, avant de faire #l
-souffleter le Pape par le comte de Nogaret, lui dépêche un ambas- 3
-sadeur, cet ambassadeur, Étienne d'Auxerre, est un peintre. ï
+souffleter le Pape par le comte de Nogaret, lui dépêche un ambas-
+sadeur, cet ambassadeur, Étienne d'Auxerre, est un peintre.
 Lequel à cette date est le plus admirable, du peinire qui devance y
 de trois siècles Rubens chargé d'affaires à Mantoue, ou du roi qui, F :
 comme plus tard Louis XIV, pensionne un artiste à Rome ? "4
@@ -393,7 +393,7 @@ Ce qui parait presque incroyable, même après le répit du
 repose, c'est que, vingt ans plus tard encore, en pleine folie de
 Charles VI, Paris conserve son éclat, son prestige, ses plaisirs.
 C'était déjà la Ville unique. « Partout ailleurs, écrit quelqu'un, on
-existe relativement; ce n'est qu'ici qu'on vit simpliciter, absolument. » On a, dès cette époque, des « tableaux de Paris » intarissables sur ses merveilles. Ce lieu incomparable surpassait toute ÿ
+existe relativement; ce n'est qu'ici qu'on vit simpliciter, absolument. » On a, dès cette époque, des « tableaux de Paris » intarissables sur ses merveilles. Ce lieu incomparable surpassait toute
 invention pour les délicatesses, les fêtes, les superfluités, la joie.
 C'étaient les délices du monde. « Et y souloient venir solacier
 l'empereur de Grèce, l'empereur de Rome et autres roys et princes
@@ -449,10 +449,10 @@ même parti pris. On le retrouve dans les vingt-quatre figures de
 prophètes peintes par André Beauneveu dans les Æeures du duc
 
 de Berry. Il se montre jusque sur les vitraux. La peinture est alors ; &
-si savante, si délicate, si blasée, qu'elle se lasse d'elle-même et, :4
-pour distinction suprême, en vient à se décolorer. N'est-ce pas à K
-peu près ce qu'on observe de nos jours dans les poétiques s
-ouvrages de M. Eugène Carrière ? 1
+si savante, si délicate, si blasée, qu'elle se lasse d'elle-même et,
+pour distinction suprême, en vient à se décolorer. N'est-ce pas à
+peu près ce qu'on observe de nos jours dans les poétiques
+ouvrages de M. Eugène Carrière ?
 Dans le dessin, même recherche. Le trait, d'une pureté
 exquise ; les finesses, les longueurs excessives, les statures trop
 élancées, toutes ces grèles figures à l'air de roseaux, trahissent à |
@@ -468,13 +468,13 @@ expressions vraies. Le mème souci est lisible dans les deux
 pelites figures, si laides et si charmantes, si vivantes et si bien
 écrites, de Charles V et de sa femme. A côté du portrait si fort,
 mais sommaire et abrupt, de Jean le Bon, on n'attendrait guère,
-à moins de vingt ans d'intervalle, dans une manière toute opposée, ï
+à moins de vingt ans d'intervalle, dans une manière toute opposée,
 un ouvrage si accompli. L'art a baissé de ton, changé de méthode.
 Le premier fait violence à son modèle et s'en empare : le !
 second en observe les moindres traits, s'y soumet et les reproduit. Le Roi Jean est-il, comme on le dit, de Girard d'Orléans, le
 Parement de Jean son fils? S'il en était ainsi, on trouverait malaisément deux générations si différentes de princes et de peintres.
 Ce naturalisme naissant, de lout point défini, pathétique
-avec mesure, véridique sans vulgarité, très libre en son esprit, ÿ
+avec mesure, véridique sans vulgarité, très libre en son esprit,
 très sévère en ses habitudes, contenu dans la dignité par une
 tradition presque religieuse, et le goût d'un publie à qui l'on peut
 
@@ -484,7 +484,7 @@ tradition presque religieuse, et le goût d'un publie à qui l'on peut
 de l'École de Paris. Que les artistes, par la naissance, appard: tiennent à d'autres pays, leurs modèles, leur entourage, leur
 £ éducation, leurs vraies origines sont ici. C'est le cas de ce Jean
 à Bandol, dont il nous reste deux chefs-d'œuvre : la Bible de La
-5 Haye offerte à Charles V, et l'immense tapisserie dite l Apocass lpse d'Angers, dont les vieillards trônants, d'une majesté grandiose, copiés dans vingt endroits, répétés par les van Eyck sur
+Haye offerte à Charles V, et l'immense tapisserie dite l Apocass lpse d'Angers, dont les vieillards trônants, d'une majesté grandiose, copiés dans vingt endroits, répétés par les van Eyck sur
 leur tableau de Gand, devinrent pour cinquante ans un des lieux
 communs de la peinture. Ce Jean Bandol ou de Bandolf, souvent
 ; appelé Jean de Bruges, est-il Flamand ? est-il Français? La question, ainsi posée, est mal posée. D'abord, dans la géographie du
@@ -502,7 +502,7 @@ ceux qui ne les obtiennent pas, pour qu'on doute de leur importance. N'eussions-
 | fait autre chose que de former chez nous tant de talents étrangers,
 sans en avoir donné une foule d'originaux, il suffirait à notre
 4 gloire d'avoir su, seuls depuis les Grecs, faire de la vie une œuvre
-ÿ d'art, et de notre sociélé un chef-d'œuvre. é
+ÿ d'art, et de notre sociélé un chef-d'œuvre.
 
 inst définie, quel est l'esprit de notre école? Qu'y chercheA ton? et qu'y fait-on? Les choses seront plus claires à
 considérer la statuaire, où nous excellons, toujours comme les
@@ -651,7 +651,7 @@ ses facettes? La petite Pietà ronde, qu'on suppose du même
 auteur, est d'un beau sentiment lyrique. Le corps parfait du Christ,
 d'une peinture fluide, d'un abandon, d'une lassitude, d'une pitié
 infinis, repose sur les genoux de son Père. La Vierge se précipite
-vers lui en se tordant les mains. Des anges se lamentent d'un ! ï
+vers lui en se tordant les mains. Des anges se lamentent d'un !
 air désespéré. Le vol blanc du Saint-Esprit, sous la figure d'une
 colombe, sort des lèvres de Dieu, et le battement de ses ailes
 caresse les cheveux du mort.
@@ -751,7 +751,7 @@ honneur aux van Eyck. Le paysage naît avant eux. Il est déjà tout
 entier dans les frères de Limbourg. Le malheur veut que leur histoire ne soit guère moins obseure que celle des van Eyck. On sait,
 et c'est ce qui nous touche, qu'ils ont fait leur apprentissage à
 Paris. On sait encore, chose plus importante, qu'ils travaillent
-pour le due de Berry. Enfin, ce qui vaut mieux que tout, nous 5
+pour le due de Berry. Enfin, ce qui vaut mieux que tout, nous
 possédons un de leurs ouvrages : c'est le chef-d'œuvre de l'enluminure, les Très Riches Heures de Chantilly. Au reste, qui sontils? d'où viennent-ils? Mystère. Voici les quelques bribes qu'on a
 
 pu arracher aux textes : ils s'appelaient Paul, Hermann et Jean
@@ -780,7 +780,7 @@ donateur que son plus grand disciple, Roger de la Pasture, à
 peint le Jugement dernier de l'hôpital de Beaune, on conçoit que
 les Italiens, qu'émerveillaient ces beaux ouvrages, les considé-
 rassent comme Français; et la France peut s'enorgueillir de cette
-renaissance des Flandres, dont l'école a été Paris, et dont la gloire s
+renaissance des Flandres, dont l'école a été Paris, et dont la gloire
 ne lui fut ravie que par les désastres des armes et la trahison du ;
 
 RUSTRÉS du fruit de nos travaux, dont le profit désormais
@@ -956,7 +956,7 @@ d'or en dessous, d'une telle sonorité, que l'on n'a pas manqué
 d'en faire hommage à la Flandre.
 
 A Vierge de Charonton est de 1453; le Buisson, de 1476.
-15 Pendant ce temps, que fait le reste de la France ?
+Pendant ce temps, que fait le reste de la France ?
 
 Chose étrange, après la tempête qui a dispersé notre école,
 compromis et certainement changé les destinées de notre art, les
@@ -975,7 +975,7 @@ sa mort en 1480. Un seul événement considérable, un voyage à
 Rome, avant 1447, vers la trentaine : à quelle occasion, impossible de le préciser. Ses lalents devaient être dès ce moment fort
 estimés, puisque le Pape se fit peindre par lui. Ce portrait d'Eu-
 
-gène IV, conservé autrefois dans l'église de la Minerve, ne nous è
+gène IV, conservé autrefois dans l'église de la Minerve, ne nous
 est plus connu que par une gravure incomplète et fort inexpressive, qui témoigne, mais n'explique pas, que l'original passa en
 
 : Italie pour un ouvrage incomparable. Pendant une centaine
@@ -1036,14 +1036,14 @@ mot ne tourne à la formule? On ne peut s'empêcher, devant les
 Alpes de van Eyck, de frémir en pensant à celles de Berghem :
 rien n'est plus affreux que l'italianisme mâché par ces bouches
 
-49 1
+49
 
 flamandes. Fouquet aussi a vu les Alpes, l'Italie : elles ne lui ont Et
-appris qu'à bien voir sa Touraine. Son sentiment exquis des choses 4
+appris qu'à bien voir sa Touraine. Son sentiment exquis des choses
 naturelles, en limitant sa poétique, lui a permis de l'enrichir d'une :
-foule d'expréssions heureuses. Ses paysages de son pays sont 4
-déjà d'une âme toute moderne : pour tout dire par un seul ê
-exemple, sait-on que de tous les peintres il est le premier qui ait 2
+foule d'expréssions heureuses. Ses paysages de son pays sont
+déjà d'une âme toute moderne : pour tout dire par un seul
+exemple, sait-on que de tous les peintres il est le premier qui ait
 osé représenter la nuit?
 
 Mais ce qui frappera surtout et surprendra l'opinion peut-être
@@ -1051,7 +1051,7 @@ un peu mesquine qu'on s'était formée de ce grand homme, c'est la
 rangée de sept grands portraits de sa main, qui est le trait de lumière
 de cette Exposition. Deux pourtant appartiennent au Louvre et y
 étaient visibles tous les jours. Ceux de Berlin, d'Anvers étaient
-célèbres. On connaissait au moins par ouï-dire celui du prince f
+célèbres. On connaissait au moins par ouï-dire celui du prince
 Lichtenstein. Un seul était presque inconnu. Mais leur réunion en
 corps leur donne une force nouvelle. Et le peintre de petites choses, !
 que nous vantions faute de mieux comme un auteur de fabliaux,
@@ -1179,7 +1179,7 @@ de Bruxelles, ressemble à la grande comme une sœur à sa sœur
 ou comme une première pensée à son expression parfaite. La
 moins parfaite est parfois préférable : elle est plus vive. Il arrive
 
-dans l'exécution que la main un peu refroïidie fige les traits et 4
+dans l'exécution que la main un peu refroïidie fige les traits et
 guinde l'idée. C'est, à mon gré, l'aventure du maître de Moulins
 dans son œuvre la plus célèbre. Peu accoutumé au travail dans
 ces proportions, il ne s'y retrouve lui-même que dans les petites
@@ -1188,7 +1188,7 @@ détails accomplis : ainsi la main ouverte de sainte Anne, tendue
 avec une élégance sublime dans un raccourci impossible. Je recommande comme un morceau de choix l'ombre portée du pouce sur
 la paume : c'est le dernier mot de l'art.
 Mais les chefs-d'œuvre de l'artiste sont deux tableaux de
-taille moyenne, la Nalivilé de la cathédrale d'Autun, et le tableau è
+taille moyenne, la Nalivilé de la cathédrale d'Autun, et le tableau
 de donatrice, de l'ancienne collection Somzée, qui figurait à
 Bruges, et devant qui chacun se récria. Le tableau d'Autun fut
 ; exécuté pour le fils du chancelier Rolin, lequel devait tenir de
@@ -1234,10 +1234,10 @@ Je le rapproche malgré moi du Donateur au saint Jérôme, de la
 collection Morell, dont la peinture n'est pas d'une moindre
 richesse. Le dessin, il est vrai, en est trop rigoureux; mais l'auteur
 a pu l'adoucir plus aisément que le maitre de Moulins n'aurait
-poussé le sien à tant d'énergie. ë
+poussé le sien à tant d'énergie.
 
 La fin du quinzième siècle est marquée par cette douceur
-universelle, cet assouplissement du style qu'on retrouve à la fois 2
+universelle, cet assouplissement du style qu'on retrouve à la fois
 partout, dans la Déposilion du Louvre, ou le Calvaire du Parlement, au nord et au midi, dans les provinces de l'est, et dont les
 miniatures de Jean Bourdichon, le peintre d'Anne de Bretagne,
 
@@ -1248,11 +1248,11 @@ circonstances, pendant le cours du siècle, que la France en avait \
 souffert, l'Italie avait acquis sur nous une incomparable avance.
 Elle nous charma. Elle nous conquit. Notre originalité en fut
 compromise pour longtemps. Le délicieux portrait en blanc de À
-Charles Orland, dauphin de Charles VIIT, résume assez bien cette 1
+Charles Orland, dauphin de Charles VIIT, résume assez bien cette
 histoire. Cette œuvre exquise et si française, emportée par le roi
 dans sa conquête, à la bataille de Fornoue, où notre armée ne put #
 rompre l'ennemi qu'en abandonnant ses bagages, tomba aux mains |
-des Italiens. On la retrouve un peu plus tard chez un amateur j
+des Italiens. On la retrouve un peu plus tard chez un amateur
 ; de Venise. Quand le roi revint de sa vaine aventure, rempli à
 d'idées ultramontaines, l'enfant, âgé de vingt-six mois, élait mort. |
 Ce que son père avait laissé en Italie, avec cette petite image,
@@ -1303,11 +1303,11 @@ peinture ses chartes d'origine. Elle montre notre esprit à l'œuvre
 au moment décisif de la formation de l'art moderne. A la fin du
 
 quatorzième siècle, nous sommes assez savants pour devenir les hé
-maîtres des van Eyck. Plus tard, après tous nos revers, notre É
+maîtres des van Eyck. Plus tard, après tous nos revers, notre
 incorrigible besoin de beauté éclate dans les chefs-d'œuvre À
-d'Enguerrand Charonton, de Nicolas Froment, de Jean Fouquet. È
-Et dans toutes ces œuvres d'il y a tant de siècles, est sensible une É
-âme, un accent, un génie qui est déjà le nôtre, qui fait qu'on les 4
+d'Enguerrand Charonton, de Nicolas Froment, de Jean Fouquet.
+Et dans toutes ces œuvres d'il y a tant de siècles, est sensible une
+âme, un accent, un génie qui est déjà le nôtre, qui fait qu'on les
 comprend sans peine, qui est d'hier et d'aujourd'hui, et qui est ;
 l'âme de la France. à
 
@@ -1328,7 +1328,7 @@ collection de M. Ch.-L. Cardon, Bruxelles.
 
 VI. — Le Christ mort, par Jean Malouel, musée du Louvre
 
-NII — L'adoration des Mages, école du Midi, vers 1 320,
+NII — L'adoration des Mages, école du Midi, vers
 collection de madame Lippmann, Berlin.
 
 VIII. — La Vierge et l'enfant, par Jean Malouel,
@@ -1338,8 +1338,6 @@ IX. — Le cardinal Pierre de Luxembourg en extast
 école d'Avignon, vers 1440,
 
 XI. — Saint Siffrein. par Nicolas Froment (?).
-
-| 1
 
 | -
 
@@ -1358,9 +1356,9 @@ Pt 74 : ne | ST enter Miles FREE nue )
 XVL — Étienne Chevalier, trésorier des finances du roi Charles VIT,
 présenté par saint Étienne, son patron, — par Jean Fouquet,
 
-' L sig l'aetre É
+' L sig l'aetre
 
-17 1.
+17
 
 XVII. — Jean Fouquet, — portrait de Guillaume Jouvenel des Ursins,
 
@@ -1807,7 +1805,7 @@ nous fimes jadis dans Césarée? J'étais bien jeune alors : mes sens
 s'ouvraient au sentiment de la beauté. Quand nous approchâmes
 de Césarée, — te rappelles-tu, — c'était déjà le soir, à peu près
 l'heure où nous sommes en ce moment. Rien n'a changé que
-nous-mêmes. La vie était belle alors : le monde avait ma k
+nous-mêmes. La vie était belle alors : le monde avait ma
 jeunesse. Depuis ce temps, il me semble qu'il a vieilli. La nature et
 l'âme des hommes sont ainsi liées que le vieillard emporte dans
 la tombe l'image d'un monde fané comme lui. Te souviens-tu ?
@@ -1865,7 +1863,7 @@ le puissant Jupiter, Vénus glorieuse, Dionysos gonflé des sèves
 de l'automne, Apollon à la lyre d'or.
 L'empereur courroucé et soucieux ne dit plus une parole jusqu'au moment où son cheval entra dans l'ombre des murailles de
 Un grand vieillard mitré tenant d'une main une crosse, de
-l'autre un plateau d'argent sortit de la ville. Derrière lui venaient 1
+l'autre un plateau d'argent sortit de la ville. Derrière lui venaient
 des prêtres. L'empereur éclata d'un rire contraint.
 
 — Oh! Libanius, l'admirable théorie de belles filles et de
@@ -1925,7 +1923,7 @@ invocation à la Vierge :
 — Protège ta ville, défends-toi ! Ne permets pas qu'un soldat
 ivre soufllèle tes joues bénies !
 Le lendemain, Libanius, blanc de poussière, entrait dans
-Césarée. Il annonça que Julien César était mort, au milieu de son d
+Césarée. Il annonça que Julien César était mort, au milieu de son
 armée, le cœur traversé d'une flèche lancée par un bras invisible.
 — Notre Dame a frappé l'impie ! s'écria le peuple d'une seule
 Libanius haussa les épaules :

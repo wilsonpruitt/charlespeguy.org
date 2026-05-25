@@ -8,20 +8,20 @@ isAvertissement: false
 wordCount: 8386
 ---
 Vient de paraître à la Société Nouvelle delibrairieet
-_ d'édition, dans la Bibliothèque Socialiste, numéro 11,
+_ d'édition, dans la Bibliothèque Socialiste, numéro
 36 “ à en vente à la librairie des cahiers : TT
-$ a x Wiczram Morris. — Nouvelles de nullepart.(News F é v.
+$ a x Wiczram Morris. — Nouvelles de nullepart.(News
 _ from nowhere) — Extraits traduits par P. La Chesnais. £ Le.
 I. une brochure o france 50 RE
-7 La deuxième partie de ces extraits sera le numéro 12 PSS
-# de la Pibliothèque. 1e
-35 Édité par la Société Nouvelle de librairie et d'édition,
+La deuxième partie de ces extraits sera le numéro 12 PSS
+# de la Pibliothèque.
+Édité par la Société Nouvelle de librairie et d'édition,
 Fe en vente à la librairie des cahiers : AT
 Fr Hexri-CHaRLes LEA. — Histoire de l'Inquisition #4
 % au Moyen-Age, ouvrage traduit sur l''exemplaire revu *
 Fe et corrigé de l'auteur, par SALOMON REINACH, précédé $ Me
-É* d'une introduction historique de Paul Fredericq, pro- M.
-L. fesseur à l'Université de Gand. s
+É* d'une introduction historique de Paul Fredericq, pro-
+L. fesseur à l'Université de Gand.
 É 4 Tome premier. — Origines et procédure de Fes
 EX l'Inquisition, un fort volume de 632 pages très denses
 F Tome II. — L'Inquisition dans les divers pays
@@ -33,17 +33,17 @@ di: Mêmes éditeurs, en vente à la librairie des cahiers : “1 fa
 vaux récents, un volume in-18 de 144 pages 1frane Ne:
 Le Vient de paraitre chez Alcan, dans la Bibliothèque ; ER
 a générale des Sciences sociales. en vente à la librairie à
-: des cahiers : 400
-30 Paur BUREAU. — Le contrat de travail, le rôle rs
+: des cahiers
+Paur BUREAU. — Le contrat de travail, le rôle rs
 | des syndicats industriels, un volume inoctavo carré
 He de 276 pages, cartonné à l'anglaise 6 francs ”
 
 - Vient de paraître chez Schleicher, en vente àla
-librairie des cahiers : Ÿ j
+librairie des cahiers
 FERNAND PELLOUTIER. — Histoire des Bourses du
 ; posthume. Fernand Pelloutier était secrétaire général
 de la Fédération des Bourses du Travail de France et
-des colonies. Préface par Georges Sorel. Notice biogra- e
+des colonies. Préface par Georges Sorel. Notice biogra-
 phique par Victor Dave. Un volume de 232 pages
 Ceux de nos abonnés qui travaillent aux sciences ou
 à la philosophie liront utilement dans la Revue géné-
@@ -77,7 +77,7 @@ pour quatre mille exemplaires de ce huitième cahier le
 
 …_ 7 tour à tour et nous inquiètent sur la santé de Tolstoi.
 
-2 Nous ne pouvons aujourd'hui considérer l'ensemble de é
+Nous ne pouvons aujourd'hui considérer l'ensemble de
 
 | sa vie et l'ensemble de son œuvre, l'ensemble de son
 4 action. Mais nous ne pouvons laisser passer sans pro_ tester l'incroyable détournement que l'on a fait, en
@@ -96,7 +96,7 @@ quand elle veut tomber sur les œuvres véritables,
 
 . ne retombait pas toute toujours de tout son poids sur les
 contrefaçons; mais les politiques ont trouvé ingénieux
-d'utiliser Tolstoi aux fins de leur fausse propagande. 1e
+d'utiliser Tolstoi aux fins de leur fausse propagande.
 
 _ + Si Tolstoi était né parmi nous, il n'eût pas eu de plus
 
@@ -114,20 +114,20 @@ contresens inouï, redoutable en tout cas, voulu ou non . …
 l voulu, et béte surtout, que nos antimilitaristes militaristes, nos anticléricaux cléricalistes, nos démocrates
 autoritaires vont chercher dans Tolstoi des excitations
 qui n'y sont pas, vont voler dans Tolstoi des encouragements qui ne sont pas faits pour eux, des exhortations
-chrétiennes, et qui ne sont pas faites pour eux. l
+chrétiennes, et qui ne sont pas faites pour eux.
 Si ce grand chrétien était né parmi nous, si nous
 avions sur nous l'inépuisable poussée de son génie, si
-dans nos affaires mêmes, au cœur de nos passions, dans ù
+dans nos affaires mêmes, au cœur de nos passions, dans
 ù nos peines et dans nos misères nous avions non pas son .
-intervention lointaine et traduite, mais son intervention H
+intervention lointaine et traduite, mais son intervention
 immédiate, mais sa présence même, la présence de son
 amour et la présence de sa charité, par dessus tout si
 nous avions parmi nos luttes et parmi les haines et
 parmi les envies et la jalousie envieuse la présence
 encombrante, la présence réelle de sa paix réelle, de sa À
-paix morale, de sa paix avertie, de sa paix première, n
+paix morale, de sa paix avertie, de sa paix première,
 : antérieure, savante et naïve, désabusée mais pleine et
-mener au Luxembourg, avait affaire à la Chambre et L:
+mener au Luxembourg, avait affaire à la Chambre et
 \ au Sénat, comme il aurait affaire à Antoine et à ‘4
 * Mounet-Sully, d'abord nous saurions ce qu'est un
 chrétien véritable, et nous saurions que c'est beaucoup
@@ -170,7 +170,7 @@ d'hypothèse. Le christianisme est au fond de Tolstoi.
 C'en est la charpente et la moelle. Écarteler cet homme,
 ) tronquer sa pensée, distribuer ses actes, pour usurper
 ceux qui nous plaisent ou que l'on croit qui nous
-Jlattent, c'est mentir à la morale, c'est mentir à la Î
+Jlattent, c'est mentir à la morale, c'est mentir à la
 ee science, mentir à l'histoire. C'est un amusement faux,
 ï. c'est un jeu déloyal. à
 : Quand un grand chrétien nous oppose toute la grande
@@ -179,15 +179,15 @@ coupant des pans de robe que nous lui donnerons la
 ; réponse attendue. C'est nous-même en dressant, face à
 w la charité blanche, toute la saine santé de la solidarité Ki
 £ que nous aimons. Cela est difficile. Mais cela vaut. Et
-k ce qui ne vaut pas, c'est de se déguiser ên cordicole pour L:
-cs espionner les misérables cordicoles. ; h
+k ce qui ne vaut pas, c'est de se déguiser ên cordicole pour
+cs espionner les misérables cordicoles.
 Ge ne sont ni les cabotinages, ni les grouillements de
 Æ , bas-fonds qui décideront de l'humanité. Les débats ne
 È se poursuivent efficaces que dans les hauteurs. Celle des
 RS deux qui en définitive sera capable de réaliser le monde “4
 le melleur, de la charité chrétienne où de la solidarité -
-À moderne, celle donc qui vaudra le mieux, sera celle N.
-« aussi qui vaudra le plus. h
+À moderne, celle donc qui vaudra le mieux, sera celle
+« aussi qui vaudra le plus.
 
 . La lettre que nous publions ici pour la première fois
 : date d'un temps déjà ancien, où Tolstoy n'avait encore
@@ -201,7 +201,7 @@ _ ce que l'Art? n'avaient paru, la violente antipathie de
 É travers de tous ses écrits.
 J'aimais profondément — comme je n'ai jamais cessé
 l d'aimer — Tolstoy. Depuis deux ou trois ans, je vivais
-« enveloppé de l'atmosphère de sa pensée ; j'étais certai- g
+« enveloppé de l'atmosphère de sa pensée ; j'étais certai-
 f nement plus familier avec ses créations, avec la Guerre £
 et la Paix, Anna Karénine, et la Mort d'Ivan Iliitch, SHC
 qu'avec aucune des grandes œuvres françaises. La :
@@ -210,27 +210,27 @@ qu'avec aucune des grandes œuvres françaises. La :
 . l'anarchie morale de notre temps. À no:
 > Mais, d'autre part, j'aimais l'art avec passion ; depuis ‘2
 l'enfance, je me nourrissais d'art, surtout de musique ; £
-k je n'aurais pu m'en passer ; je puis dire que la musique Î
+k je n'aurais pu m'en passer ; je puis dire que la musique
 . me semblait un aliment aussi indispensable à ma vie .
 
 que le pain. — Aussi, combien fus-je troublé, en lisant
-chez celui que j'étais habitué à respecter et à croire, i
+chez celui que j'étais habitué à respecter et à croire,
 
 F ces violentes invectives contre l'immoralité de l'art! Je .
 
 à sentais bien pourtant que rien n'était plus pur que
 l'impression qui vient de l'œuvre d'un grand artiste.
-Dans une symphonie de Beethoven, ou un tableau j;
+Dans une symphonie de Beethoven, ou un tableau
 de Rembrandt, on puise non seulement l'oubli de
 l'égoïsme, mais la force d'intelligence et de bonté, qui
 ruisselle de ces grands cœurs. Tolstoy parlait de la
 corruption de l'art, qui déprave et qui isole les hommes.
-Où m'étais-je mieux retrempé, où avais-je mieux fraternisé avec les hommes, que dans les émotions com- é munes d'un (Ædipe-Roi, ou de la Symphonie avec s
+Où m'étais-je mieux retrempé, où avais-je mieux fraternisé avec les hommes, que dans les émotions com- é munes d'un (Ædipe-Roi, ou de la Symphonie avec
 
 4 chœurs? MaïiS je me défiais de moi-même, et j'avais
 une angoisse profonde à l'idée que je perdais peut-être _
 
-LEA ma vie, qui commençait, au service d'une cause mau- -4
+LEA ma vie, qui commençait, au service d'une cause mau-
 7 vaise, quand mon désir était de la rendre utile aux autres. ,
 
 J'écrivis à Tolstoy. Il me répondit le 4 octobre 1883.
@@ -274,7 +274,7 @@ au nom de la dignité de l'art, que souillent les milliers .
 
 | L'art ne doit pas être une carrière, il doit être une
 vocation. « La vocation ne peut étre connue et prouvée
-que par le sacrifice que fait le savant et l'artiste de son F
+que par le sacrifice que fait le savant et l'artiste de son
 
 | repos et de son bien-être pour suivre sa vocation. » —
 Or dans la civilisation actuelle, il n'y a que les artistes
@@ -293,14 +293,14 @@ du peuple, et pour éviter des travaux plus pénibles.
 Le monde n'a pas besoin, bon an mal an, des dix
 mille œuvres d'art (ou prétendues telles) des Salons de
 Paris, de ses centaines de pièces de théâtre, de ses
-milliers de romans. Il a besoin de trois ou quatre génies 1e
+milliers de romans. Il a besoin de trois ou quatre génies
 par siècle, et d'un peuple où soit répandue la raison, ra
 la bonté, et le sens des belles choses, — un peuple qui Hu
 ait un cœur sain, une intelligence saine, un regard sain, À
 qui sache voir, sentir, comprendre tout ce qu'il y a de
 beau et de bon dans le monde, et qui travaille à en
 orner la vie. %
-Il ne me déplairait pas, je l'avoue, qu'on pût obliger L
+Il ne me déplairait pas, je l'avoue, qu'on pût obliger
 les artistes à rentrer dans la condition commune, qu'on
 [ parvint à répartir entre tous les hommes sans excep-
 
@@ -310,7 +310,7 @@ ne serait pas assez écrasante pour empêcher les vrais
 artistes de faire leur art par surcroît ; mais elle suffirait nn !
 
 | à enlever aux faux artistes tout désir de prendre su
-leurs heures de loisir pour se livrer à une occupation i
+leurs heures de loisir pour se livrer à une occupation
 intellectuelle. — Et combien l'art y gagnerait en
 
 \ Goethe a dit quelque part: « À force d'écrire ou de lire des livres, on devient soi-même un livre. » — Le ®#
@@ -361,8 +361,8 @@ de savoir éviter le mal et de produire le bien avec le
 
 Nous avons conservé scrupuleusement l'orthographe
 de la lettre, écrite en français par Tolstoy. J'espère
-qu'on ne songera pas à sourire de quelques fautes de e.
-| style, mais qu'on trouvera dans ces gaucheries mêmes î
+qu'on ne songera pas à sourire de quelques fautes de
+| style, mais qu'on trouvera dans ces gaucheries mêmes
 quelque chose de touchant, à la pensée de ce vieux
 grand homme, qui s'applique laborieusement pour À
 répondre, dans une langue étrangère, à un petit Français dans la détresse. Pour moi, voici bien longtemps
@@ -387,7 +387,7 @@ sciences et des arts qui vous paraissent incompatibles avec le travail manuel?
 A ces questions j'ai répondu comme je l'ai pu
 
 dans le livre intitulé Que faire ? qui, à ce qu'on
-m'a dit, a été traduit en français. Je n'ai jamais Ë
+m'a dit, a été traduit en français. Je n'ai jamais
 envisagé le travail manuel comme un principe, !
 mais comme l'application la plus simple et naturelle
 du principe moral, celle qui se présente la première
@@ -406,7 +406,7 @@ les esclaves du vieux monde.
 La première preuve de la sincérité des gens de
 cette société, qui professent des principes chrétiens,
 philosophiques ou humanitaires, est de tâcher de
-sortir autant que possible de cette contradiction. t
+sortir autant que possible de cette contradiction.
 
 Le moyen le plus simple et qui est toujours sous El
 main pour y parvenir, est le travail manuel qui
@@ -438,17 +438,17 @@ homme moral et sincère à préférer aux travaux
 scientifiques et artistiques le travail manuel : l'ouvrage que j'écris, pour lequel j'ai besoin du travail
 des imprimeurs; la symphonie que je compose, « pour laquelle j'ai besoin des musiciens; les expériences que je fais, pour lesquel j'ai besoin du
 travail de ceux qui fontles instruments de nos labo-
-| @) Raturé : « Et voilà l'avantage qu'a sûrement un homme æ
+| @) Raturé : « Et voilà l'avantage qu'a sûrement un homme
 
-ratoires:; le tableau que je peins, pour lequel j'ai t
+ratoires:; le tableau que je peins, pour lequel j'ai
 besoin de ceux qui font les couleurs et la toile : —
 tous ces travaux peuvent être des choses utiles aux
 + hommes, mais peuvent être aussi — comme elles le
 sont pour la plupart — des choses complètement
 inutiles et même nuisibles. Et voilà que pendant
 que je fais toutes ces choses dont l'utilité est fort
-| douteuse, et pour produire lesquelles je dois encore d
-faire travailler les autres, j'ai devant et autour de f
+| douteuse, et pour produire lesquelles je dois encore
+faire travailler les autres, j'ai devant et autour de
 moi des choses à faire sans fin, et qui toutes sont il
 indubitablement utiles aux autres, et pour produire
 lesquelles je n'ai besoin de personne : — un fardeau
@@ -466,7 +466,7 @@ noble de l'homme. À
 La vocation d'un prophète est une vocation haute
 et noble. Mais nous savons ce que sont les prêtres
 
-qui se croient prophètes, uniquement parce que i;
+qui se croient prophètes, uniquement parce que
 c'est leur avantage, et qu'ils ont la possibilité de se
 faire passer pour tels.
 Un prophète n'est pas celui qui reçoit l'éducation
@@ -490,7 +490,7 @@ de soutenir sa vie par le travail de ses mains,
 | et, malgré cela, prends sur les heures de son ‘
 
 repos et de son sommeil pour penser et produire …
-dans la sphère intellectuelle, fait preuve de sa voca- î
+dans la sphère intellectuelle, fait preuve de sa voca-
 tion. Celui qui se libère du devoir moral de chaque
 homme, et, sous le prétexte de son goût pour les
 sciences et les arts, s'arrange (1) une vie de parasite,
@@ -570,7 +570,7 @@ grand bien ».
 {#4 Raturé : « anti-scientifique et anti-artistique ».
 
 _ défini. » Mais ils mentent. De tout temps, l'humanité n'a pas fait autre chose dans son progrès que
-de définir le bien et le beau. Mais cette définition t
+de définir le bien et le beau. Mais cette définition
 ne leur convient pas; elle démasque la futilité, si ce
 n'est les effets nuisibles, contraires au bien et au
 beau de ce qu'ils appellent leurs sciences et leurs
@@ -612,13 +612,13 @@ doit savoir, la principale, c'est la science de vivre
 de manière à faire le moins de mal et le plus de ,
 bien possible ; et de tous les arts, celui de savoir
 éviter le mal et produire le bien_avec le moins
-d'efforts possible. Et voilà qu'il se trouve que parmi î
+d'efforts possible. Et voilà qu'il se trouve que parmi
 tous les arts et les sciences qui prétendent servir au
 bien de l'humanité, la première des sciences et le
 premier des arts par leur importance non seulement n'existent pas, mais sont exclus de la liste des
 sciences et des arts.
 Ce qu'on appelle dans notre monde les sciences
-| et les arts ne sont qu'un immense humbug, une ê
+| et les arts ne sont qu'un immense humbug, une
 (1) Raturé : « cette importance qui n'a aucune explication ». *
 (2) Raturé : « bons pour émoustiller les vieux dépravés, et .
 pour, etc. ».
@@ -651,7 +651,7 @@ raisonner, il n'approchera pas d'un pas de la vérité.
 Son point fixe arrêtera tous les raisonnements et
 les faussera tous. Il y a la foi religieuse, il y a la foi -%
 de notre civilisation. Elles sont tout à fait analo- FE
-gues. Un catholique se dit : « Je puis raisonner, k.
+gues. Un catholique se dit : « Je puis raisonner,
 : mais pas au delà de ce que m'enseigne notre Écri- à
 ture et notre tradition, qui possèdent la vérité
 entière et immuable. » Un croyant de la civilisation
@@ -665,7 +665,7 @@ est le seul art véritable. » — Les catholiques disent: “
 disent les Allemands : c'est l'Église. » Les gens de
 ù notre monde disent : « Ilexiste hors de l'homme
 d une chose en soi:la civilisation. » — Il nous est
-à facile de voir les fautes de raisonnement des superÀ stitions religieuses, parce que nous ne les partageons N
+à facile de voir les fautes de raisonnement des superÀ stitions religieuses, parce que nous ne les partageons
 | pas. Mais un croyant religieux, un catholique
 même, est pleinement convaincu qu'il n'y a qu'une
 seule vraie religion (1) — la sienne; et il lui paraît
@@ -706,18 +706,18 @@ comme moi à la recherche de leur bonheur indivi-
 
 | dans notre croyance superstitieuse à notre civilisation, etc. »
 à III, duel vont m'écraser : — c'est clair. Je ne peux pas
-posséder le bonheur que je désire ; mais la recherche $ é
+posséder le bonheur que je désire ; mais la recherche $
 du bonheur, c'est ma vie. Ne pouvant posséder le
 bonheur, ne pas y tendre, ce n'est pas vivre. %
 Le raisonnement me dit que dans l'ordre du
-monde où tous les êtres ne désirent que leur bien à Æ
+monde où tous les êtres ne désirent que leur bien à
 eux, moi, un être désirant la mème chose, ne peux
 avoir de bien : je ne peux vivre. — Mais malgré ce
 raisonnement si clair, nous vivons et nous cher- chons le bonheur. Nous nous disons : Je n'aurais pu ?
 avoir le bien, être heureux, que dans-le cas où tous
 ë les autres êtres m'aimeraient plus qu'ils ne s'aiment
 eux-mêmes. C'est une chose impossible. Mais mal- _
-gré cela, nous vivons tous; et toute notre activité, L
+gré cela, nous vivons tous; et toute notre activité,
 notre recherche de la fortune, de la gloire, du À
 pouvoir, ne sont que des tentatives de se faire
 aimer par les autres plus qu'ils ne s'aiment eux- !
@@ -726,7 +726,7 @@ donnent les semblants de cet état de choses; et nous
 somimnes presque contents, nous oublions par moments que ce n'est qu'un semblant, mais non la
 à réalité. Tous les êtres s'aiment eux-mêmes plus
 qu'ils ne nous aiment, et le bonheur est impossible. *
-Il y a des gens, — et leur nombre augmente de jour é
+Il y a des gens, — et leur nombre augmente de jour
 en jour, — qui, ne pouvant résoudre cette difficulté, À
 
 : se brûlent la cervelle, en se disant que la vie n'est À
@@ -768,9 +768,9 @@ se de l'histoire et par l'expérience personelle. Mais
 F plus libre, le plus heureux, est celui de l'abnégation
 val et de l'amour. La raison découvre à l'homme la
 \ seule voie du bonheur possible, etle sentiment l'y
-36 Si les idées que je tâche de vous communiquer È
+Si les idées que je tâche de vous communiquer
 X ne vous paraissent pas claires, ne les jugez pas trop +:
-“ sévèrement. J'espère que vous les lirez un jour k
+“ sévèrement. J'espère que vous les lirez un jour
 exposées d'une manière plus claire et précise. J'ai
 : voulu vous donner seulement une idée de ma ma- Fi
 je * nière de voir, \a
@@ -782,5 +782,5 @@ TRS vendons un franc. : ei
 13 photographie de Tolstoi et Gorki se promenant ensemble .
 f à lasnaia Poliana. Cette photographie a été prise par
 HN une des filles de Tolstoi. Elle a été communiquée à
-124 Deshairs par le docteur Schlepianoff. Nous l'avons fait
+Deshairs par le docteur Schlepianoff. Nous l'avons fait
 gi reproduire à trois cents exemplaires. Nous la vendons

@@ -18,21 +18,21 @@ Eee” | Il a été tiré de ce cahier vingt exemplaires sur ie RS
 RU Done ment. Les cinq autres exemplaires ont été sou
 LPS scrits par la librairie Camille Bloch, 146,boulevard
 
- - à la mémoire de notre vieux maître M. Humbert F4
+ - à la mémoire de notre vieux maître M. Humbert
 : ‘4 qui nous enseignait au lycée d'Orléans à
 We. une si bonne philosophie |
 
 |: É: ces débats qui se livrent depuis
-|: 2 deux ou trois ans sur et pour et . D
+|: 2 deux ou trois ans sur et pour et
 | 40 contre M. Bergson et la philosophie berg- UE
 Me: sonienne eussent été fort éclairés, (mais A
 
 | Ro voulait-on les éclairer), si on avait consenti
 | à examiner ce que nous entendons par FU
-“e NC intellectualisme. On a feint de croire que 52
+“e NC intellectualisme. On a feint de croire que
 18 la querelle faite à l'intellectualisme était
 Re. une querelle faite à la raison, à la sagesse, CA
-| La philosophie de M. Bergson est presque 120
+| La philosophie de M. Bergson est presque
 
 | note sur M. Bergson é ‘#
 aussi mal comprise par ses adversaires que
@@ -50,30 +50,30 @@ des royaumes par un mouvement exté-
 rieur, par une translation externe, par ;
 une subslitulion extrinsèque, mais à les
 rénover, à les creuser, à les rendre eux- “4
-mêmes en y opérant une interne révolu- 4
+mêmes en y opérant une interne révolu-
 La philosophie bergsonienne n'est point |
 une physique du transfert, une mécanique, |
 
-E: une cinématique de la translation. C'est 3
+E: une cinématique de la translation. C'est
 4 une organique. Et même une réorganique.
-| Et c'est une dynamique. N
-4 d'autres. Et même il faudrait dire qu'il x,
+| Et c'est une dynamique.
+4 d'autres. Et même il faudrait dire qu'il
 1 n'y à pas seulement des royaumes : il y a +
 é des provinces. Et qui sont peut-être autant |
 | 4 séparées que des royaumes. Car il ny a eu
-| peut-être rien qui soit aussi contraire aux 4e
+| peut-être rien qui soit aussi contraire aux
 | ‘à arts plastiques que les arts musiciens. Et
-À 14 il n'y a peut-être rien qui soit aussi contra- É,
+À 14 il n'y a peut-être rien qui soit aussi contra-
 | L rié aux « sciences » mathémaliques que “.
 8 les « sciences » naturelles. Et dans la =
 4 à morale je distinguerais peut-être une pe
-4 civique qui aurait mes préférences. 7
+4 civique qui aurait mes préférences.
 f À 4 Le bergsonisme n'est point une géogra- ÊTE
 | à plie, c'est une géologie. ee
 | NS. Il ne s'agit point que la Bretagne soit A
 
 * note sur M. Bergson
-Fe la Provence et que la reine Anne soit le F2
+Fe la Provence et que la reine Anne soit le
 roi René. Il s'agit que la Lorraine soit
 “ bien la Lorraine et que l'Ile-de-France
 soit encore plus l'Ile-de-France et soit bien
@@ -81,18 +81,18 @@ soit encore plus l'Ile-de-France et soit bien
 ( philosophie de métathèse et de métony mie. rs
 Ou pour parler un langage platonicien
 et anteplatonicien, il ne s'agit pas que
-‘ASS l'un soit l'autre. Il s'agit d'approfondir 1
+‘ASS l'un soit l'autre. Il s'agit d'approfondir
 È l'un, et d'approfondir l'autre.
 | Ÿ Le bergsonisme ne fait pas des cartes
-De même que les révolutions de l'anatomie et de la physiologie dans les sciences È
-naturelles n'ont point consisté à opposer 4
+De même que les révolutions de l'anatomie et de la physiologie dans les sciences
+naturelles n'ont point consisté à opposer
 le règne animal au règne végétal ou réci- ER
 proquement mais à poursuivre parallèle- ;
-% nf ment dans les deux règnes une certaine 4
+% nf ment dans les deux règnes une certaine
 
 [2 resituation de la pensée en face de deux ns
 | réalités parallèles, ainsi la révolution de FES
-É: la philosophie bergsonienne n'a point con- ÿ
+É: la philosophie bergsonienne n'a point con-
 | 4 sisté à opposer ni à déplacer les royaumes ae
 4 de la pensée ni de l'être. Elle a consisté “SP
 | à poursuivre parallèlement dans tous les De
@@ -100,14 +100,14 @@ proquement mais à poursuivre parallèle- ;
 |: toutes les disciplines une certaine resitua- Fa
 4 tion de la pensée en face de ces réalites ES
 le Il ne faut donc pas dire que le bergso- Fe
-0 nisme soit une philosophie pathétique ni F3
+0 nisme soit une philosophie pathétique ni
 TA une philosophie du pathétique ni qu'elle SR
 
-“à ni qu'elle essaie ni qu'elle se propose de É
+“à ni qu'elle essaie ni qu'elle se propose de
 
 |: substituer le pathétique à tout cela. C'est &
 
-1 2 à l'intérieur même du pathétique qu'elle 1ù
+1 2 à l'intérieur même du pathétique qu'elle
 
 | opère, comme c'est parallèlement à l'inté- à
 Le rieur du logique ou du mathématique. "4
@@ -118,39 +118,39 @@ K les autres. Et, partout, c'est le même.
 _ Il faut renoncer à cette idée que le
 pathétique forme un royaume inférieur.
 Il est comme les autres, il est comme dans
-1 Molière, il est inférieur quand il est infé-
+Molière, il est inférieur quand il est infé-
 : rieur, el il n'est pas inférieur quand il
 n'est pas inférieur. Il ne fait pas excepLÉ lion à ces règles générales de niveau.
-4 Il n'est point inférieur en lui-même, parce
+Il n'est point inférieur en lui-même, parce
 qu'il est le pathétique. Il est inférieur
 quand il est de mauvaise, de basse qualité. Quand il est du bas pathétique. Il |
 n'est pas inférieur quand il n'est pas de .
-” basse qualité. On ne me fera jamais dire k
+” basse qualité. On ne me fera jamais dire
 que le comique est un genre inférieur.
 -_ Quant au tragique j'avoue que je ne vois
-rien d'humain qui soit supérieur au pathé- k.
-tique de Sophocle et que pour un demi- Ë
+rien d'humain qui soit supérieur au pathé-
+tique de Sophocle et que pour un demi-
 chœur d'Antigone je donnerais les trois
-Critiques précédées d'un demi-quarteron 4
-22 1
+Critiques précédées d'un demi-quarteron
+22
 
 _& pas dire seulement, ce qui est entendu, a
 | que je les donnerais en beauté, sub specie A
-14 pulchri, mais que je ne les donnerais pas * 6
+14 pulchri, mais que je ne les donnerais pas
 E tique infiniment plus et autrement que Én à
 4 dans cette critique une connaissance, un #
 
-|: 2 IL faut renoncer à cette idée que la É
-Ï 2 passion soit trouble (ou obscure) et que 4
+|: 2 IL faut renoncer à cette idée que la
+Ï 2 passion soit trouble (ou obscure) et que
 3 la raison soit claire, que la passion soit +
 1 4 confuse et que la raison soit distincte. ‘#50
 É Nous connaissons tous des passions qui CA
 | 4 sont claires comme des fontaines et des 2, “
-‘4 raisons au contraire qui courent loujours k
+‘4 raisons au contraire qui courent loujours
 
-4 après les encombrements de leurs trains 14
-…._O de bagages. On ne peut même pas dire F,
-3 que la passion est riche et que la raison x
+4 après les encombrements de leurs trains
+…._O de bagages. On ne peut même pas dire
+3 que la passion est riche et que la raison
 É et que la sagesse est pauvre, car il y a :
 | 8 des passions qui sont plates comme des A
 
@@ -185,19 +185,19 @@ de mérite, de clair, de trouble, de distinc- |
 tion, de profondeur. Des hiérarchies parallèles,comparables, correspondantes, et sans |
 
 Ici encore les uns et les autres se trom- :|
-pent, ou plutôt les uns et les autres abusent. 1
+pent, ou plutôt les uns et les autres abusent.
 
 _ Mais de la même erreur et du même abu- ; En
-passions profondes et des passions super- |: 14
+passions profondes et des passions super- |:
 “ Jicielles les romanciers veulent que ce soit ae
-45 La passion, comme telle, qui soit elle-même, 4
+La passion, comme telle, qui soit elle-même,
 FE en son essence, profonde. Ils veulent qu'elle ; “0 ;
 Ée n'ait qu'à se montrer, à être la passion, LS
 % pour être profonde. Parce qu'ils veulent Lo
 c traiter et même à parler de la passion TITRE
 4 pour être des profonds et des mystérieux. ER
 É Et par contre et encontre les antiroman- : RARES
-Bi ciers, les critiques veulent que ce soit la * 4
+Bi ciers, les critiques veulent que ce soit la
 _  crilique, comme telle, qui soit, elle-même, # je
 | en son essence, claire. Ils veulent qu'elle BA
 _ nait qu'à se montrer, à être la critique, A.
@@ -222,11 +222,11 @@ criliques voudraient n'avoir qu'à être des
 Il faut, en outre, être des critiques clairs.
 Au fond c'est partout le même débat. |
 C'est le secret de la situation faite à l'histoire et à la sociologie et surtout aux
-historiens et aux sociologues dans les 1
+historiens et aux sociologues dans les
 temps modernes. Les historiens veulent |
 n'avoir qu'à être des historiens pour con- 1 |
 naître le- passé. Les sociologues veulent |
-n'avoir qu'à être des sociologues pour con- 1
+n'avoir qu'à être des sociologues pour con-
 naître les sociétés de l'homme. Un instant, |
 messeigneurs. Il y faut aussi la connais- |
 
@@ -243,13 +243,13 @@ C'est comme si il suffisait de s'habiller 2-54
 4 en soldat pour être brave. Ainsi il ne LR
 Le: suffit pas de s'habiller en romancier et en RES
 É. pathéticien pour être profond. Et il ne 5%
-% suffit pas de s'habiller en critique pour F2
+% suffit pas de s'habiller en critique pour
 Re Il faut donc renoncer à attacher des + ER
 ne qualités et des hiérarchies comme des nr .
-4 tuniques toutes faites à certains ordres, “+ 00
+4 tuniques toutes faites à certains ordres, “+
 sl mais poursuivre parallèlement la recherche LOS
 
-F de ces qualités et de ces hiérarchies, 50
+F de ces qualités et de ces hiérarchies,
 _ comme elles sont, sans idée toute faite, TUTO
 7 comme elles sont données, à l'intérieur ee.
 ‘4 des différents ordres. Et pour ainsi dire LS
@@ -259,23 +259,23 @@ j en montant le long à l'intérieur des diffé- ‘a
 à Il faut être bête, il ne faut pas être SA
 à systématique, et ceci aussi est indispen- ;
 S'PE sable pour ne pas faire de carrière : il |
-: faut dire ce que l'on voit. Je vois que le s
-c pathétique des Grecs et des Français, F
+: faut dire ce que l'on voit. Je vois que le
+c pathétique des Grecs et des Français,
 étant classique, est infiniment plus clair à
-# que la critique allemande, qui est roman- 4
-5 tique. Ou plutôt le pathétique des Grecs s
+# que la critique allemande, qui est roman-
+5 tique. Ou plutôt le pathétique des Grecs
 ; : et des Français est clair et la critique À
 dr allemande ne l'est pas. Et la critique des
 “à Grecs et des Français, étant classique, est |
 à profonde, et le pathétique allemand, étant |
 fu romantique, ne l'est pas. à
-Rien n'est aussi clair que les invocations 14
+Rien n'est aussi clair que les invocations
 ou que les lamentations d'Antigone. Rien |
 n'est aussi clair que les stances de à
-Polyeucte. Par contre rien n'est plus pro- D
+Polyeucte. Par contre rien n'est plus pro-
 fond qu'une analyse et une critique plato- |
 | nicienne, rien n'est plus profond qu'une ke
-: analyse et une critique de Pascal. É
+: analyse et une critique de Pascal.
 
 Cessons donc d'attribuer certaines qualités à certains ordres comme des pardessus. Mais poursuivons parallèlement à
 l'intérieur des différents ordres et sachons
@@ -298,7 +298,7 @@ nature de la grâce. Homère, qui est la
 | plus grande profondeur. Le vieux Priam
 aux pieds d'Achille, qui est si l'on me
 
-| note sur M. Bérgson be ï
+| note sur M. Bérgson be
 | permet de parler ainsi le maximum du
 pathétique et du classique et pour ainsi
 dire le maximum de l'antique, étant le
@@ -306,7 +306,7 @@ maximum de la supplication antique, ne
 donne-t-il pas ensemble le maximum de
 clarté dans le maximum de profondeur.
 Ce sont les romantiques qui ont inventé
-qu'il fallait être trouble pour être profond s
+qu'il fallait être trouble pour être profond
 et qu'il y avait une ligature, un habille-
 ; ment tout fait du trouble ou de l'obscur à
 7 la profondeur. Et leurs troubles appris, |
@@ -314,7 +314,7 @@ leurs troubles artificiels, (intellectuels), ne
 leur ont jamais permis d'obtenir que des
 | profondeurs superficielles. Quand Hugo |
 suivait sa nature, son génie classique il /
-était profond et clair. Quand il s'esquin- 1
+était profond et clair. Quand il s'esquin-
 tait pour être et à être romantique il se |
 donnait un mal de chien pour obtenir un |
 (Je ne veux point, comme ils disent,
@@ -326,37 +326,37 @@ is nous avons, aux cahiers même, un critique LE
 À vois pas, quand il est romancier, qu'il se FA A
 > dévête de sa clarté, et, quand il est # Que
 Comme les romantiques ne pouvaient LCR
-Ë nier que les classiques fassent clairs, ils : 16
+Ë nier que les classiques fassent clairs, ils
 ‘4 ont entrepris de se rattraper sur la pro #2
 4 _fondeur. Ils ont voulu se faire les spécia- 7 |
 B: listes de la profondeur. Mais ceux qui | RS
 à sont profonds ne se sont jamais dit qu'ils È ee
 É. Et ils ne l'ont jamais dit aux autres. ME
-4 Alors les romantiques ont feint qu'il y AUS
-avait une contrarièté de nature entre le D 4e
+Alors les romantiques ont feint qu'il y AUS
+avait une contrarièté de nature entre le
 4 clair et le profond pour que, les clas- 2120
 _  siques étant évidemment clairs, il fàt LES
-he: entendu automatiquement qu'ils n'étaient D.
+he: entendu automatiquement qu'ils n'étaient
 . pas profonds. Comme si les vers de Racine US
 
 5e les plus pleins de lumière n'étaient pas PNA
 aussi les plus mystérieux. \ re
 LES Le profond et le mystérieux n'est pas LE
-| forcément sombre et tourmenté. Rien F4
-er, n'est pur comme le pli du manteau de la 10
+| forcément sombre et tourmenté. Rien
+er, n'est pur comme le pli du manteau de la
 
-FR De toutes les idées qui ont jamais été 4
+FR De toutes les idées qui ont jamais été
 
 he * mises en forme de maximes je crois que ;
 
 Guee. la plus fausse est sans aucun doute celle- nee
-AE . ci, (et elle a ceci de commun avec une … 1
+AE . ci, (et elle a ceci de commun avec une …
 
-5 Dee autre qui viendra que elle aussi elle n'est : 740
-Le pas de Barbey d'Aurevilly), que pour la 4
+Dee autre qui viendra que elle aussi elle n'est
+Le pas de Barbey d'Aurevilly), que pour la
 \ É passion tout le monde est bon. Si je D |
-A voulais parler un langage chrétien je 4
-ste dirais que même pour le péché tout le 14
+A voulais parler un langage chrétien je
+ste dirais que même pour le péché tout le
 
 4 monde n'est pas bon. Il y a un choix et "4
 
@@ -386,75 +386,75 @@ pacité, de la même stérilité, de la même
 infécondité, ne sont bons ni pour le bonheur ni pour le malheur. El que je nomFr ÿ merai les intellectuels dans l'ordre du
 Bien peu d'êtres sont visés, pour qui ;
 À immense royaume de disgrâce, qui consiste
-à ne pas même savoir de quoi on parle. j
+à ne pas même savoir de quoi on parle.
 Il en est ainsi de la passion. L'amour |
 ; est plus rare que le génie même. Il est
 pe aussi rare que la sainteté. El l'amitié est à
 plus rare que l'amour. Dire que pour la
 passion tout le monde est bon est aussi
-Jaux et je dirai aussi sot et je dirai aussi Ê
+Jaux et je dirai aussi sot et je dirai aussi
 scolaire et aussi vite dit que de dire : :
-Pour la statuaire tout le monde est bon, J
+Pour la statuaire tout le monde est bon,
 ou : Pour l'analyse mathématique tout le
 monde est bon. Il y a des intellectuels |
 partout et il y a des intellectuels de tout. y
 
-23 C'est-à-dire : Il y a une immense tourbe TR
-d'hommes qui sentent par sentiments tout à û
+C'est-à-dire : Il y a une immense tourbe TR
+d'hommes qui sentent par sentiments tout à
 | faits, dans la même proportion qu'il y a De.
-‘ une immense tourbe d'hommes qui pensent 2
-par idées toutes faites, et dans la même F4
+‘ une immense tourbe d'hommes qui pensent
+par idées toutes faites, et dans la même
 | proportion il y a une immense tourbe AT
 : d'hommes qui veulent par volontés toutes Fe
 % faites, dans la même proportion qu'il y a 2 #00
 É une immense tourbe de « chrétiens » qui on,
 e répèlent machinalement les paroles de la Mt.
 É prière. Et l'on pourrait aller longtemps “4
-et passer dans tous les compartiments et 5
+et passer dans tous les compartiments et
 x l'on pourrait dire : Dans la même pro- es,
-À portion qu'il y a une immense tourbe de 20
+À portion qu'il y a une immense tourbe de
 À peintres qui dessinent par des lignes toutes LA
-4 faites. Il y a aussi peu de peintres qui F2
+4 faites. Il y a aussi peu de peintres qui
 ss regardent que de philosophes qui pensent. ÉTAT
-50 Cette dénonciation d'un intellectualisme 1200
+Cette dénonciation d'un intellectualisme 1200
 ee universel c'est-à-dire d'une paresse univer- EC ‘3
 4 selle consistant à toujours se servir du KE FER
 # tout fait aura élé l'une des grandes con- 7280
-F. quêtes et l'instauratio magna de la philo- 24
+F. quêtes et l'instauratio magna de la philo-
 
-104 sophie bergsonienne. Il est vrai que l'im re 4
+104 sophie bergsonienne. Il est vrai que l'im re
 208 mense majorité des hommes pense par 1 A
 En: -7 idées toutes faites. Par idées apprises. ‘à
  ENRE Mais il est vrai aussi, de même et partout, |
-4 il est vrai que l'immense majorité des 4
+4 il est vrai que l'immense majorité des
 KR hommes voit par visions toutes faites. Par #0]
-45 : visions apprises. Il y a une paresse uni- 4
-+5 verselle et pour ainsi dire infatigable. 4
+45 : visions apprises. Il y a une paresse uni-
++5 verselle et pour ainsi dire infatigable.
 + C'est le travail qui se fatigue, mais la
 bo. paresse, mais la fatigue ne se fatigue pas. ,
-cie La dénonciation de cette paresse, de cette 2
+cie La dénonciation de cette paresse, de cette
 ME : fatigue, de cet intellectualisme constant
 el est au seuil de l'invention bergsonienne. à
-2 On me dit : Qu'est-ce que c'est que à
+On me dit : Qu'est-ce que c'est que à
 RS celte invention qui ne consiste qu'à dénoncer ‘4
-PR. une vieille habitude. Qu'est-ce que c'est « 4
-SOR que celte nouveaulé qui consiste à dénoncer 2
+PR. une vieille habitude. Qu'est-ce que c'est «
+SOR que celte nouveaulé qui consiste à dénoncer
 el quand même elle consisterait à révéler
 “ une lare héréditaire. Qu'est-ce que c'est 54 |
 x ÿ que ce positif qui consiste à ne point 4) |
 DE tomber dans le négatif. Qu'est-ce que c'est Ne |
-Lo que ce plus qui consiste simplement à ne M:
+Lo que ce plus qui consiste simplement à ne
 
 À point tomber dans le moins. Qu'est-ce que a.
-S c'est que celte acquisition, qu'est-ce que 1
-- | c'est que celte conquête qui consiste à ne M
+S c'est que celte acquisition, qu'est-ce que
+- | c'est que celte conquête qui consiste à ne
 ; pas perdre ses plus anciennes provinces. L ER
 % Et moi je demande : en connaissez-vous ER
 #4 beaucoup d'autres. Empécher l'homme de : SANS
-4 descendre certaines pentes, n'est-ce point M.
+4 descendre certaines pentes, n'est-ce point
 à un travail de géant. Empécher l'homme :< :20 à
 É: de descendre certaines pentes sentimen- } E50RS
-F. pentes de conduite, n'est-ce point le tra- 1
+F. pentes de conduite, n'est-ce point le tra-
 4 pail et la plus grande partie du secret de LATE
 < tant d'arts et des plus grandes morales. Re
 à Empéêcher l'homme, déshabituer, désen- 14006
@@ -462,13 +462,13 @@ F. pentes de conduite, n'est-ce point le tra- 1
 _ pentes mentales, si seulement on y réus- 22 FRS
 _  sissail, cerlaines pentes de pensée, soyons SR
 Ë là matière, objet à une très grande ; ‘V4
-À logique, à une très grande morale, à une 71e
+À logique, à une très grande morale, à une
 be très grande métaphysique. La liberté, 1700
 _ dont on dit qu'elle est le premier des “HT
 
 ‘350 biens, ne s'obtient généralement que par
 2 ù une opération de désentrave. Pourquoi la a
-or. réalité, qui est peut-être un bien plus S
+or. réalité, qui est peut-être un bien plus
 nee profond, ne s'obtiendrait-elle pas aussi par *
 ‘MIE une opération de désentrave. Et pourquoi Fa
 ane opération de désentrave ne serait-elle Fes
@@ -486,40 +486,40 @@ ne: l'habitude pour ainsi dire la plus habi- »
 # Il faut faire attention d'ailleurs que
 
 | cette expression le tout fait, si elle revient
-21° 0 constamment, comme il était naturel, et ; 050
+21° 0 constamment, comme il était naturel, et
 _ comme il fallait sy altendre, dans la As 1108
 Le philosophie de Bergson, est conduite à y RS ne
 ‘4 différents. Et que je ne vois pas que l'on ASS
 1 ait suflisamment distingués. Quand Berg- “40e
-Es. son oppose le tout fait au se faisant, (et je |: 2
+Es. son oppose le tout fait au se faisant, (et je |:
 He voudrais bien savoir comment il pourrait LME sf
-54 dire en d'autres termes), (et il faut tout 10
-DS de même bien de la mauvaise volonté pour 560
+54 dire en d'autres termes), (et il faut tout
+DS de même bien de la mauvaise volonté pour
 __ ne pas reconnaître dans ce participe passé ‘AS
 _ et dans ce participe présent les héritiers AR
 “ de deux beaux participes grecs moyens- :.1008
 Me: _ passifs), il fait une opposition, il reconnaît ne ons
 …_ ane contrariété métaphysique de l'ordre de Cie Fa
-_ l'ordre même de la durée et portant sur se 0e
+_ l'ordre même de la durée et portant sur se
 7 l'opposition, sur la contrariété profonde, SN NES
 :: 1 essentielle, métaphysique, du présent au FA
 _ futur et du' présent au passé. C'est une  .
-| ce distinction de l'ordre de la métaphysique. :170
+| ce distinction de l'ordre de la métaphysique.
 ; À af C'est cette profonde et capitale idée berg- : CN
 
 TE sonienne que le présent, le passé, le fatur
 ‘4 ne sont pas du temps seulement mais de
 CS l'être même. Qu'ils ne sont pas seulement
-RU. chronologiques. Que le futur n'est pas 4
-:14 seulement du passé pour plus tard. Que v4
+RU. chronologiques. Que le futur n'est pas
+:14 seulement du passé pour plus tard. Que
 85 le passé n'est pas seulement de l'ancien ”
 ee futur, du fatur de dedans le temps. Mais ee
 ‘3148 que la création, à mesure qu'elle passe,
-NE qu'elle descend, qu'elle tombe du futur 5h
+NE qu'elle descend, qu'elle tombe du futur
 ‘+ au passé par le ministère, par l'accom- “#4
-ns plissement du présent ne change pas seu- :14
-LES lement de date, qu'elle change d'être. 2
-D, Qu'elle ne change pas seulement de calen- 4
+ns plissement du présent ne change pas seu-
+LES lement de date, qu'elle change d'être.
+D, Qu'elle ne change pas seulement de calen-
 ne drier, qu'elle change de nature. Que le “
 5e passage par le présent est le revêtement À
 78 d'un autre être. Que c'est le dévétement
@@ -532,46 +532,46 @@ Be: d'idées toutes faites, de pensée toute faite,
 confection, au lieu d'un vétement sur à 1:08
 CEE mesure. C'est une distinction de fabrica- IT HER
 + tion, d'opération, de coupe, de technique. RE
-_ La philosophie bergsonienne veut que l'on 0
+_ La philosophie bergsonienne veut que l'on
 E. pense sur mesure et que l'on ne pense pas Tue
 ss tout fait. D Fa
-2 D'autant qu'un vêtement de confection FEES
+D'autant qu'un vêtement de confection FEES
 É est toujours un vêtement d'occasion. C'est FU DIEUNES
 4 un vêtement d'occasion dans le neuf au ne.
 S lieu d'être un vêtement d'occasion dans le “TIC
 1 vieux. Mais c'est toujours un vêtement 7430
 É: d'occasion. C'est par occasion qu'il va, ou L'LSSSS
-_ qu'il est censé aller. Ce n'est point par 40
+_ qu'il est censé aller. Ce n'est point par
 _ une adaptation propre antérieure, par une 153 NT
-« coupe propre antérieure. Ge n'est point par 740
-| É _ une adaptation unique, par une coupe 0
-0 C'est une des plus grandes sources de PR Ph
+« coupe propre antérieure. Ge n'est point par
+| É _ une adaptation unique, par une coupe
+C'est une des plus grandes sources de PR Ph
 sophismes et d'erreurs, ou, pour demeurer : 1388
 LE dans notre comparaison, je dirai : c'est NC
 7% un des plus grands magasins de sophismes ©:
 ‘744 et d'erreurs que cette négligence de consi- LT
 
 165 dérer, cette faute de considérer, ce défi UE COTE
-1 ER de. considérer, je veux dire que 7 NO
+ER de. considérer, je veux dire que 7 NO
 FC | négligence qui consiste à ne pas considérer,
-LT MS à négliger de considérer que du tout neuf : 3
+LT MS à négliger de considérer que du tout neuf
 ‘LS n'est pas forcément du lout nouveau. à
-CR Beaucoup de contre sens viennent de là, 4
-"4 d'erreurs de jugement. On croit généra- = 40
+CR Beaucoup de contre sens viennent de là,
+"4 d'erreurs de jugement. On croit généra- =
 Fa lement qu'il suffit qu'une idée soit neuve RE
-d pour qu'elle soit nouvelle. On croit qu'il n.
+d pour qu'elle soit nouvelle. On croit qu'il
 ES suffit qu'une idée soit neuve pour qu'elle Fire
 Ron n'ait jamais servi. Quelle erreur. Elle a +
 “HER servi au fabricant. Quand un arbre de à
-à SE théâtre, quand un amour de théâtre sort se 70
+à SE théâtre, quand un amour de théâtre sort se
 LEVARES de chez le fabricant, il est tout de même A
 + RONA un vieil arbre, il est tout de même un DA
-à Le arbre tout fait, et il est tout de même de 4
+à Le arbre tout fait, et il est tout de même de
 a "4 théâtre. Il a beau être neuf, il n'est pas ce
 49 pour cela un vrai arbre, un arbre dans a
 4 la campagne. Ce n'est pas pour cela un
 ét nie nouvel arbre dans le monde. Ce n'est pas “5
-130 une question de degrés, c'est une question fe 4
+130 une question de degrés, c'est une question fe
 
 _ d'ordre. Homère est nouveau ce matin, et PHARE Ro
 _ rien n'est peut-être aussi vieux que le | FRA
@@ -581,35 +581,35 @@ la limite le présent ne diffère pas seule- : Ji
 ne ment du passé chronologiquement mais PIONEER
 2 essentiellement et métaphysiquement, de | ARE
 A même une idée toute faite est toute faite 6 eue
-F en elle-même et essentiellement. Elle est : 0
+F en elle-même et essentiellement. Elle est
 _ fabriquée toute faite comme un arbre de
 É théâtre est fabriqué tout fait et arbre de | ‘5e
 ES théâtre. Elle vient au monde idée toute LES
 faite comme un arbre de théâtre vient au % de.
 _ monde tout fait et arbre de théâtre. Elle vi Lot
 __ est en carton-pâte, elle est en papier peint. | 48208 |
-_ Elle est totalement étrangère à la germi- 0e
+_ Elle est totalement étrangère à la germi-
 _ y a des hommes qui réinventent, des étres 11H00
 _ qui revivent, des pensées qui reconçoivent V4 He
-_ à nouveau les plus vieilles idées. Et ü y a -; 15
+_ à nouveau les plus vieilles idées. Et ü y a -;
 _ des hommes qui font des idées toutes faites. TER
 
-1 TS Il y a des idées qui sont toutes faites pen
+TS Il y a des idées qui sont toutes faites pen
 LIRE dant qu'on les fait, avant qu'on les fasse, PQ +
-5 Ù comme les pardessus tout faits sont tout à!
+Ù comme les pardessus tout faits sont tout à!
 Be faits pendant qu'on les fait, comme les Fo
 _ arbres de théâtre sont tout faits et sont Là
 _ arbres de théâtre pendant qu'on les fait. SR
 < F4 : C'est une question de nature ou de factice.
-ES C'est une question de grâce ou de dis- 8
+ES C'est une question de grâce ou de dis-
 : ‘ÂÏSS grâce. Les arbres de théâtre ne sont pas Pas:
-ne. des ‘arbres de nature diminués, usés, 4
+ne. des ‘arbres de nature diminués, usés,
 140 vieillis et qui ne sont plus bons qu'à ça. AS
-740 Ce sont des arbres d'un autre ordre. Ce Es
+Ce sont des arbres d'un autre ordre. Ce Es
 FES sont d'autres arbres. Ce ne sont pas des a
-_ arbres de nature aplatis Sur un portant. e.
-: TRS Ce sont des arbres venus au monde plats. 4
-528 Ainsi une idée toute faite vient au monde "+
+_ arbres de nature aplatis Sur un portant.
+: TRS Ce sont des arbres venus au monde plats.
+Ainsi une idée toute faite vient au monde "+
 4 ne plate et toute faite. LT
 NES que ce soit tout. Mais je dis que quand FA:
 
@@ -622,7 +622,7 @@ ou quatre grandes philosophies du monde.
 Or qu'est-ce qui a fait la fortune de la
 Philosophie cartésienne? Je ne dis pas que -
 | celte fortune est illégitime. Je dis : qu'est-ce
-qui a fait cette fortune. é
+qui a fait cette fortune.
 Laissons de côté les pharisaïsmes de
 l'école, les éditions solennelles de textes,
 ; les réimpressions des œuvres complètes.
@@ -649,9 +649,9 @@ L'UVATEES enfin, c'est lui qui le dit, non des principes ‘à
 __ ou des révélations où des conclusions de ri
 Re système. C'est encore en un sens de la moe
 De désentrave et de la libération. C'est même #4
-0 aussi de la dénonciation. Comme la phi- 4
+0 aussi de la dénonciation. Comme la phi-
 4 losophie bergsonienne a commencé par
-: 510 être une dénonciation du tout fait, ainsi 524
+: 510 être une dénonciation du tout fait, ainsi
 C0 la philosophie cartésienne a commencé $
 
 | par être une dénonciation du désordre. -
@@ -699,23 +699,23 @@ i ne fut bon cartésien. Et je dirai : Il est
 
 aisé de montrer que Bergson est ünfir HE TES
 RES: ment un meilleur bergsonien que Des- si
-4 cartes ne fut un bon cartésien. Je vois F4
+4 cartes ne fut un bon cartésien. Je vois
 +40 _ partout dans Bergson le souci de la con- ne
 4 sidération du réel pur. Et dans Descartes À
 18 je vois de bien grands désordres. Re
-ve fa mieux écrire discours de la méthode pour V5
-4 x bien conduire sa raison et pour chercher É
-558 ou pour trouver la vérité dans les sciences. x
+ve fa mieux écrire discours de la méthode pour
+4 x bien conduire sa raison et pour chercher
+558 ou pour trouver la vérité dans les sciences.
 _ Cest un programme, hélas, et c'est pres- £
 M: que un programme électoral. Et il a été a
 ra . presque aussi peu réaliséqu'un programme
 280 électoral. Quand au lieu de relire le pro- À
-és (4 programme on considère les résultats, : 4
+és (4 programme on considère les résultats,
 ER qu'est-ce qu'on voit. On voit que Descartes à
-Fa a élé un grand philosophe, un grand 4
+Fa a élé un grand philosophe, un grand
 :7 métaphysicien, un grand mathématicien,
-* #40 un grand savant. Mais un grand parmi È
-ME d'autres, à son rang au même rang que 4
+* #40 un grand savant. Mais un grand parmi
+ME d'autres, à son rang au même rang que
 
 E” d'autres, de la même sorte et de la même
 nature que d'autres, dans le même ordre
@@ -726,9 +726,9 @@ que les autres, dans le même ordre de
 : homme à qui une soudaine méthode, brus-
 ; quement apparue dans l'histoire du monde,
 aurait livré un secret d'infaillible et de
-totale certitude. Il en est de ce discours e
+totale certitude. Il en est de ce discours
 4 de la méthode comme des fameuses règles
-3 Les tables de Bacon n'ont jamais fait ù
+Les tables de Bacon n'ont jamais fait
 É faire une invention ni une découverte. Il
 i n'y a pas d'exemple qu'une invention ni
 s une découverte ait été faite par un ofjik ciel. Les inventeurs et les découvreurs
@@ -740,28 +740,28 @@ ue Bacon n'ont jamais servi qu'aux pt os
 DA __ seurs à montrer comment une invention, à FRS
 LUE (et une découverte, mais c'est toujours une RATES
 ‘3 qu'elle avait été faite. Quant à Bacon, ül GS
-De n'a jamais rien inventé, que les tables 12
+De n'a jamais rien inventé, que les tables
 si 2 pour que les autres inventent. Il n'a ex &
 OS jamais rien découvert, que les tables pour 4°
 > LE que les autres découvrent. : PR
 1e L Ou plutôt les tables pour que les autres “10
 FTP aient inventé, les tables pour que: les Fo
 1 | Les tables de Bacon n'ont jamais servi
-1 RES u'aux historiens des inventions à expli- æ
+RES u'aux historiens des inventions à expli-
 LES quer comment les inventions avaient été RES
 DS. faites, après qu'elles avaient été faites. "41
 ae Et même comment il était fatal qu'ellesse
-+ , Jissent: et qu'elles se fissent ainsi. Ce 4
++ , Jissent: et qu'elles se fissent ainsi. Ce
 à % n'était pas ça du tout. Mais l'essentiel, &
 ï $ c'est qu'il y ait une histoire. El surtout #4
-‘ra peut-être c'est qu'il y ait des histo- S
+‘ra peut-être c'est qu'il y ait des histo-
 
-4 Les tables de Bacon sont peut-être faites EI
+Les tables de Bacon sont peut-être faites EI
 À pour le contrôleur. Et pour l'inspecteur
 du contrôleur. Elles ne sont certainement pe
 È pas faites pour le wattman.
 Je n'en dirai point autant de Descartes.
-6 IL a inventé lui-même. Il a découvert lui4 même. Mais le Descartes qui a invente,
+IL a inventé lui-même. Il a découvert lui4 même. Mais le Descartes qui a invente,
 le Descartes qui a découvert, le Descartes
 : physicien, physiologiste, psychologue, et
 ; autres, était un philosophe et un géomètre
@@ -784,16 +784,16 @@ ne méthode, soudainement surgi dans l'his- EN
 0 bilité promise à l'extérieur. Et je vois
 TO aujourd'hui que dans l'astronomie et la “EU
 ‘1188 mécanique et la physique célestes on  .
-DEEE revient à l'hypothèse des tourbillons e
-NU cartésiens, et j'en suis fort heureux, car 14
-6 Le AR c'aura été un beau coup de génie, (mais 2
+DEEE revient à l'hypothèse des tourbillons
+NU cartésiens, et j'en suis fort heureux, car
+Le AR c'aura été un beau coup de génie, (mais
 % S F plus heureux encore quand on y sera Es.
-HSE) revenu pour la physique générale. Mais 2
-SR reviendra), ce ne sera point parce que 5
-F4 l'idée de tourbillon est claire et distincte, ÿ
+HSE) revenu pour la physique générale. Mais
+SR reviendra), ce ne sera point parce que
+F4 l'idée de tourbillon est claire et distincte,
 ER ce sera et parce qu'elle sera plus commode
-“3 et parce qu'elle épousera de plus près de 3
-Le. nouveaux aspects de la réalité physique. ë,
+“3 et parce qu'elle épousera de plus près de
+Le. nouveaux aspects de la réalité physique.
 Ÿ 44 Ce n'est pas en fonction du discours de la ‘24
 
 méthode que l'on réadoptera l'hypothèse
@@ -828,22 +828,20 @@ e et bientôt deux siècles et demi on à fini
 
 7 l'attraction à distance et de la gravitation  :
 
-| 53
-
 -100s à distance était parfaitement impensable, Qi
 : SITE c'est-à-dire enfin que Newton est métaphy- de À
-et siquement impensable). (Car on voit mal b 54
+et siquement impensable). (Car on voit mal
 4 ae _ comment un éther serait un conducteur Le
 LV tion, comment un éther conduirait instan- 1554
 De lation à distance, comment un éther ferait Ne
 à des transports. instantanés de forces qui EE,
-RER gravitation). On ne reprendra donc point 4
+RER gravitation). On ne reprendra donc point
 LS l'hypothèse des tourbillons cartésiens pour 22°
-DR assurer l'ordre ni pour assurer la pensée Ë
-Me ni pour assurer le discours ni pour 3
-ts assurer la méthode. On la reprendra 4
+DR assurer l'ordre ni pour assurer la pensée
+Me ni pour assurer le discours ni pour
+ts assurer la méthode. On la reprendra
 no. À parce que la réalité sera plus comme nn:
-vu. ça;ouqu elle paraîtra plus comme ça, où 158
+vu. ça;ouqu elle paraîtra plus comme ça, où
 # qu'on la trouvera plus comme ça. EE
 (4) On ne reprendra pas l'hypothèse des .
 Pa tourbillons cartésiens parce qu'elle sera
@@ -873,28 +871,28 @@ rience alläât au devant de la déduction. Il
 4 philosophique pouvait aboutir et aboutis- és
 4 sait quelquefois (ou souvent) à des cas
 he doubles ou multiples, à des cas que
-4 Leibnitz eût nommés indifférents, c'est-à-
-4 55
+Leibnitz eût nommés indifférents, c'est-à-
+4
 
 . dire à des cas tels que la dernière solu- FUI
 à Cr tion déduite, la solution qui se trouve la
 4808 & dernière dans la voie de la filiation Le
-LPO déductive nous laisse pour ainsi dire en 5
+LPO déductive nous laisse pour ainsi dire en
 suspens devant deux ou plusieurs solutions SU.
 
 Jo ET _ effectives égales, devant deux ou plusieurs AL
 5 solutions réalisées ou réalisables égales, te
-D devant deux ou plusieurs solutions de réali- Æ
+D devant deux ou plusieurs solutions de réali-
 HU salion du détail. C'est pour arbitrer entre <s
 _ ces deux ou plusieurs solutions égales, c'est- Ep
 ‘4 ES É: à-dire qui satisfont également aux condi- « PATE
 mie | tions de la dernière solution déductive, on
-4 % que Descartes fait réintervenir l'expé- 54
+4 % que Descartes fait réintervenir l'expé-
 nu 2 rience. Il admet, il veut que marchant à >
 nee “ l'envers, recurrens, regrediens, l'expé- 1%
 A: rience remonte, (partant des faits, des ne
-1 154 phénomènes, des observations, des expé- 4
-118 riences), qu'elle aille au devant de cette k
+1 154 phénomènes, des observations, des expé-
+118 riences), qu'elle aille au devant de cette
 3x voie déductive qui était restée pour ainsi
 4 dire sur le tranchant du sort. +
 4e La réalité, en chacun de ses points, est %
@@ -932,37 +930,37 @@ d On me permettra d'ouvrir ici une note ;
 “cR pas considérer, avec un saisissement com + “Voie
 _ bien cette théorie cartésienne est fidèle tes
 ie Rue ment apparentée, combien elle est paral_  lèle à la théorie chrétienne et catholique ir
-“8 _ de la grâce, à ce que nous avons le droit 4
+“8 _ de la grâce, à ce que nous avons le droit
 CA Comme il faut que l'expérience vienne au TAN
 | Arr devant de la raison, ainsi et par un mou- +155
 _ sement parfaitement comparable et par- Re
 : 200 Jfaitement parallèle il faut que la liberté De
 424 vienne au devant de la grâce. L'homme ‘+4
 NCIS aussi est celte ville assièégée. Le péché De,
-eee aussi est ce blocus parfaitement réglé. 4
+eee aussi est ce blocus parfaitement réglé.
 ts & La grâce aussi est celte armée royale qui
-: vient au secours. Mais il faut aussi que 5
+: vient au secours. Mais il faut aussi que
 "5 la liberté de l'homme fasse une sortie, ee
 à: erumpat, e{ qu'elle aille au devant de +
-À celte armée de secours. C'est ce que Péguy 2
+À celte armée de secours. C'est ce que Péguy
 14 disait quand il disait que par la création +20
-‘4 de la liberté de l'homme et par le jeu de 74
+‘4 de la liberté de l'homme et par le jeu de
 2 celte liberté Dieu s'est mis dans la dépen- TEE
 
 OR dance de l'homme. Car il ne faut pas con- "124
 
-5 sidérer seulement la place frontière. I
+5 sidérer seulement la place frontière.
 Fe faut considérer « Versailles et Saint.
 p. Denis ». Si la place n'est point secourue vo:
-E elle se perd. Mais si elle ne se secourt :, 260
+E elle se perd. Mais si elle ne se secourt :,
 à point elle-même par celte sortie, elle se SEE
-3 C'est un désastre double. Si au point de RTE
+C'est un désastre double. Si au point de RTE
 & connexion la sortie de la place ne donne 151108
 à pas la main à l'armée de secours, l'armée vs Le
 de secours aussi ne donne pas la mair à
-la sortie de la place. ! 0
+la sortie de la place. !
 : Si l'une armée ne trouve pas l'autre AE
-7 venue au devant d'elle, l'autre aussi ne D.
+7 venue au devant d'elle, l'autre aussi ne
 & trouve pas l'une. Me
 É ‘Quand on se manque, on se manque à RE « À deux. La faute de l'homme fait manquer RSS
 W. Dieu méme. Quand la grâce ne trouge
@@ -970,16 +968,16 @@ W. Dieu méme. Quand la grâce ne trouge
 % liberté aussi ne trouve pas la gräce. Le OR
 _ ‘ manquement est forcément double. Quand ONE
 “4 l'homme manque Dieu, Dieu manque
-_ l'homme. Quand la place se perd, Ver- ; 1
+_ l'homme. Quand la place se perd, Ver-
 
 1:50 sailles aussi, le royaume aussi perd une
 RE: « Même je remarquais, touchant les |
-#4 te expériences, qu'elles sont d'autant plus 2
+#4 te expériences, qu'elles sont d'autant plus
 -e Fi: nécessaires qu'on est plus avancé en FA
 1 connaissance; car, pour le commence- >
 0 menti, il vaut mieux ne se servir que de ja
-144 ; celles qui se présentent d'elles-mêmes à : 54
-3h Ris. j nos sens, et que nous ne saurions ignorer 4
+144 ; celles qui se présentent d'elles-mêmes à
+3h Ris. j nos sens, et que nous ne saurions ignorer
 
 LL pourvu que nous y fassions tant soit peu
 
@@ -992,7 +990,7 @@ Re ne sait pas encore les causes les plus ‘
 4 ï particulières et si petites, qu'il est très à
 114 malaisé de le remarquer. Mais l'ordre que 2%
 
-Fr cipes ou premières causes de tout ce qui 15
+Fr cipes ou premières causes de tout ce qui
 È est ou qui peut être dans le monde... mi 2:50
 4 .… De tout ce qui est ou qui peut étre, CURE
 M là est exactement la fissure. ; RU
@@ -1013,46 +1011,46 @@ D minéraux, et quelques autres telles choses, ‘: EN
 _ et les plus simples, et par conséquent ESS
 
 4 ! k note sur. f, Bengéon | ET EUR |
-ÿ: Fe les plus aisées à connaître. Puis, lorsque 14
+ÿ: Fe les plus aisées à connaître. Puis, lorsque
 RU j'ai voulu descendre à celles qui étaient et
 RU plus particulières, il s'en est tant présenté
 nie à moi de diverses, que je n'ai pas cru |
 \ | qu'il fùt possible à l'esprit humain de
-re distinguer les formes ou espèces de corps 1
+re distinguer les formes ou espèces de corps
 Me. qui sont sur la terre, d'une infinité d'au- “54
 ER tres qui pourraient y être si c'eût été le ‘3
-1) vouloir de Dieu de les y mettre, ni par 4
-M conséquent de les rapporter à notre usage, 0
-De | si ce n'est qu'on vienne au devant des h
+1) vouloir de Dieu de les y mettre, ni par
+M conséquent de les rapporter à notre usage,
+De | si ce n'est qu'on vienne au devant des
 VA ; causes par les effets, et qu'on se serve de à
-FE de quoi, repassant mon esprit sur tous les ‘ 4
-Dee objets qui s'étaient jamais présentés à j
-; mes sens, j'ose bien dire que je n'y ai 4
-x remarqué aucune chose que je ne pusse d
-assez commodément expliquer par les prin- ÿ
+FE de quoi, repassant mon esprit sur tous les ‘
+Dee objets qui s'étaient jamais présentés à
+; mes sens, j'ose bien dire que je n'y ai
+x remarqué aucune chose que je ne pusse
+assez commodément expliquer par les prin-
 cipes que j'avais trouvés. Mais il faut aussi
 2 que j'avoue que la puissance de la nature :
-ë est si ample et si vaste, el que ces prin- 4
-* cipes sont si simples et si généraux, que je 4
+ë est si ample et si vaste, el que ces prin-
+* cipes sont si simples et si généraux, que je
 
 #4 ne remarque quasi plus aucun effet particu- ‘0
 4% lier que d'abord je ne connaisse qu'il peut ; si
 14 et que ma plus grande difficulté est d'or- nn
-4 dinaire de trouver en laquelle de ces 0
+4 dinaire de trouver en laquelle de ces
 à façons il en dépend; car à cela je ne sais fie
 1 point d'autre expédient que de chercher a
 
 he. derechef quelques expériences qui soient Us
 “ telles que leur événement ne soit pas le Fos
-4 même si c'est en l'une de ces façons 1
-à qu'on doit l'expliquer que si c'est en ; 7
+4 même si c'est en l'une de ces façons
+à qu'on doit l'expliquer que si c'est en
 4 l'autre. Au reste, j'en suis maintenant là pt.
 ñ: que je vois, ce me semble, assez bien de Dr
-4 quel biais on se doit prendre à faire la 1
+4 quel biais on se doit prendre à faire la
 
 | plupart de celles qui peuvent servir à cet. nue
 ne effet : mais je vois aussi qu'elles sont A
-4 telles, et en si grand nombre, que ni mes 4 1
+4 telles, et en si grand nombre, que ni mes
 24 mains ni mon revenu, bien que j'en eusse ii
 he mille fois plus que je n'en ai, ne sauraient “a
 4 suffire pour toutes; en sorte que, selon ‘4
@@ -1061,64 +1059,64 @@ _ que j'aurai désormais la commodité d'en à
 
 _ faire plus ou moins, j'avancerai aussi plus “a
 
-5 Ÿ ce que je me promettais de faire connaître “
-2 Fe par le traité que j'avais écrit, et d'y mon a
+Ÿ ce que je me promettais de faire connaître “
+Fe par le traité que j'avais écrit, et d'y mon a
 360 trer si clairement l'utilité que le publie si
-“2 en peut recevoir, que j'obligerais tous 3
-4 $ ceux qui désirent en général le bien des E
+“2 en peut recevoir, que j'obligerais tous
+4 $ ceux qui désirent en général le bien des
 TE hommes, c'est-à-dire tous ceux qui sont
-4 ; en effet vertueux, et non point par faux 4
+4 ; en effet vertueux, et non point par faux
 ‘4 Ë S semblant, ni seulement par opinion, tant à
 D. à me communiquer celles qu'ils ont déjà vi
-13) faites, qu'à m'aider en la recherche de 4
-fs he celles qui restent à faire. » 4
-14 Qui ne voit que par une telle brèche o
-FE tout le non-déduit peut rentrer. (Si à F
-‘À chaque fois il faut quitter la voie déduc- 3
+13) faites, qu'à m'aider en la recherche de
+fs he celles qui restent à faire. »
+Qui ne voit que par une telle brèche
+FE tout le non-déduit peut rentrer. (Si à
+‘À chaque fois il faut quitter la voie déduc-
 7 tive à un certain point de suspense, faire :
-‘1 un saut, (où, dans quelle direction, et | 4
-pe ï comment sait-on que c'est dans cette direc- É
+‘1 un saut, (où, dans quelle direction, et
+pe ï comment sait-on que c'est dans cette direc-
 :1 lion), et trouver le point de réalité d'où il
 
 -æ faut revenir à ce point de suspense). Mais a AE
-Re ane grande philosophie n'est pas celle qui | “70 ï
+Re ane grande philosophie n'est pas celle qui | “70
 ; n'a pas des brèches. C'est celle qui a des ne
 É: Une grande philosophie n'est pas celle ; ‘ra
 . qui n'est jamais battue. Mais une petite = 04 *
 4 philosophie est toujours celle qui ne se LAS:
 É Singulier voyage que nous propose ne
-E Descartes. (Mais il est bien forcé). Singu- | 100 ÿ
-à lier voyage que le voyage cartésien. C'est ; ‘4 1e
+E Descartes. (Mais il est bien forcé). Singu-
+à lier voyage que le voyage cartésien. C'est ; ‘4
 ke proprement le voyage interrompu. C'est
-L le voyage discontinu. On descend, on 170
+L le voyage discontinu. On descend, on
 É. s'arrête (ou on est arrêté), on saute (où, "20
-4 et comment), on touche un point qui sera « 55
-4 le point d'arrivée définitif et qui pour 17
-__ l'instant est un point de départ momen- 4 7 È
+4 et comment), on touche un point qui sera «
+4 le point d'arrivée définitif et qui pour
+__ l'instant est un point de départ momen-
 4 tané, on remonte, on revient au point 0 fé
-‘4 d'arrét, on redescend au point d'arrivée 2
+‘4 d'arrét, on redescend au point d'arrivée
 3% _ définitif. On part, on descend, on s'arrête, Le Pi
 
 D reoa. Qu'importe. Parce qu'un voyage est Fa
-_ singulier, parce qu'il est interrompu, parce 4
+_ singulier, parce qu'il est interrompu, parce
 : FR qu'il est discontinu et même parce qu'il Fi -
 ESS est partiellement rétrograde ce n'est pas Me
-BR ane raison pour ne pas le faire. Qu'im- 13
+BR ane raison pour ne pas le faire. Qu'im-
 JS porte, si le voyage est hardi, si la tenta- à
 LE tive est féconde, si l'aventure est récom- TS
 5:00 pensée. Ce qui revient à dire qu'une “4
 D RAS grande philosophie n'est point une philo- ee
-2 sophie qui n'est pas contestée. C'est une 4
+2 sophie qui n'est pas contestée. C'est une
 : Br philosophie qui vainc quelque part. Une És
-LR grande philosophie n'est point une philo- 4
+LR grande philosophie n'est point une philo-
 ARS sophie sans reproche. C'est une philosophie ii
 OS sans peur. Frs
 “A Bt Une grande philosophie n'est pas une
 De dictée. La plus grande n'est pas celle qui à
-ji n'a pas de faute. ” 22
+ji n'a pas de faute. ”
 Re. Une grande philosophie n'est pas celle
 4 contre laquelle il ny a rien à dire. C'est
-200 celle qui a dit quelque chose. 4
+200 celle qui a dit quelque chose.
 
 Et même c'est celle qui avait quelque
 chose à dire. Quand même elle n'aurait
@@ -1146,22 +1144,22 @@ de son adversaire et des autres en face
 Et cela, même le véritable physicien
 k . aussi le sait. Qu'il n'est pas institué en
 
-4 Jace du contraire physicien, mais à côté du
+Jace du contraire physicien, mais à côté du
 
 "50 contraire physicien, en face d'une nature EL SENTE
 2140 toujours plus profonde et plus mystérieuse. ‘14
 Ro Assister à un débat de philosophie ouy ne
 RS | participer avec cette idée qu'on va convainMU cre ou réduire son adversaire ou que l'on pe
 Je va voir un des deux adversaires confondre Me
-_ l'autre, c'est montrer qu'on ne sait pas E
+_ l'autre, c'est montrer qu'on ne sait pas
 % LPS de quoi on parle, c'est témoigner d'une 3)
 410 grande incapacité, bassesse et barbarie. “4
-DA: C'est témoigner d'un grand manque de 21
+DA: C'est témoigner d'un grand manque de
 Te culture. C'est montrer qu'on n'est pas de ne
 Pa: ce pays-là. Fe
-| ASE c'est bien qu'il faut aller pas à pas et avec 4
+| ASE c'est bien qu'il faut aller pas à pas et avec
 ‘75 une extrême prudence. Là-dessus il aboutit Pi
-Re « à une marche, à un progrès, à une s 3
+Re « à une marche, à un progrès, à une
 D démarche qui exige que l'on saute entre
 __ le point de suspense et le point d'arrivée.
 40 c'est bien qu'il faut que la démarche de à
@@ -1169,24 +1167,24 @@ __ le point de suspense et le point d'arrivée.
 Be l'esprit à l'objet soit une déduction, un Es er
 Be dégrès continu. Un aller continu. Là- “ Re.
 : dessus le voyage cartésien réel est un | ‘0e
-É aller, puis un retour et aller. : 714
-! Quand j'étais enfant, dans les provinces 198
-4 . du Centre, toutes les fois qu'il y avait de « 168
+É aller, puis un retour et aller.
+! Quand j'étais enfant, dans les provinces
+4 . du Centre, toutes les fois qu'il y avait de «
 & dans les jeux à mesurer une distance sur Pa Fe
-À le terrain, par exemple pour les « prison 508
-4 niers » aux « barres », on se gardait 08 F
+À le terrain, par exemple pour les « prison
+4 niers » aux « barres », on se gardait
 3 bien de mesurer par enjambées, parce De:
 _ qu'on pensait que même involontairement +: ni Eau
-$ des enjambées pouvaient être inégales. D.
-; On mesurait, (et on comptait), pied à pied, d # É.
+$ des enjambées pouvaient être inégales.
+; On mesurait, (et on comptait), pied à pied, d #
 c'est-à-dire le derrière du talon du pied ë ‘4
-È droit juste et modérément appuyé à la 120
-E pointe de la semelle du pied gauche. Et 55
-- ainsi de suite alternativement. C'était 1
-J l'ancien paille, foin des régimes déchus, à 4
+È droit juste et modérément appuyé à la
+E pointe de la semelle du pied gauche. Et
+- ainsi de suite alternativement. C'était
+J l'ancien paille, foin des régimes déchus, à
 4 devenu sous la République et depuis le 1048
 2 droite. Et c'était paille qui était devenu le à ‘5
-“2 pied gauche, et foin qui était devenu le 108
+“2 pied gauche, et foin qui était devenu le
 
 11 pied droit. Mais autrefois on comptait et DRE
 :5#E mesurait par paille, foin et non par
@@ -1194,13 +1192,13 @@ J l'ancien paille, foin des régimes déchus, à 4
  . qui dans la deuxième partie du Discours
 Dot. de la Méthode veut que l'on n'avance que QE
 4 pied à pied el qui dans la quatrième __ ©#
-nègre partie, se plaçant, allant se placer par le 4
-ne Je pense au cœur même de l'être et du 21
+nègre partie, se plaçant, allant se placer par le
+ne Je pense au cœur même de l'être et du
 À D. moi et de la pensée, procède pour partir au Sà
 14 ne bond le plus prodigieux qu'il y ait peut- PE |
 FR étre dans l'histoire des métaphysiques. ne |
 
-150 Dirai-je qu'il se l'est donné bonne et F
+Dirai-je qu'il se l'est donné bonne et
 1508 que peut-être il a eu besoin plus tôt qu'il “à
 ‘20 ne le dit que l'expérience vint au devant ni
 + de lui pour lui faire voir quel serait son “4
@@ -1208,7 +1206,7 @@ ge événement. Il croit qu'il a déduit les cieux, an.
 nn les astres, une terre. Il croit qu'il a
 “0 déduit de l'eau, de l'air, du feu, des miné- ke
 “16000 raux et quelques autres telles choses.
-Re Peut-être que s'il n'eût jamais vu les cieux n.
+Re Peut-être que s'il n'eût jamais vu les cieux
 
 _ ü ne les eût point aussi aisément déduits.
 | Peut-être que s'il n'eût jamais vu les cieux je Ro
@@ -1220,7 +1218,7 @@ aisément une telle connaissance de l'évé- Mas ne
 besoin que l'expérience vint au devant de
 | lui que quand il a voulu descendre aux
 choses qui étaient plus particulières. Il est
-n'est point venue au devant de lui jusqu'au ‘3 58e
+n'est point venue au devant de lui jusqu'au ‘3
 commencement du ciel. Il est presque ‘8 a
 | permis de se demander si l'expérience LAS
 n'est point venue au devant de lui jusqu'au g a où
@@ -1232,48 +1230,48 @@ Fe: Nous qui avons ou tout le progrès et les
 Xe que pouvons-nous penser d'une telle qua ste]
 ‘HE lification et, par suite, d'une telle afhir- se
 *TMeN malion que les cieux, les astres, une terre, A.
-‘5 et même sur la terre de l'eau, de l'air, du 4
+‘5 et même sur la terre de l'eau, de l'air, du
 # FT Jeu, des minéraux et quelques autres telles à
-: 40 choses seraient les plus communes de toutes x
-M à. et les plus simples, et par conséquent les 2
+: 40 choses seraient les plus communes de toutes
+M à. et les plus simples, et par conséquent les
 “740 plus aisées à connaître. Bien peu de phy-
-1088 à connaître. Æt dans Descartes n'avais-je D
-nr UE point raison de parler d'un certain pro- u
+1088 à connaître. Æt dans Descartes n'avais-je
+nr UE point raison de parler d'un certain pro-
 RS granune électoral, et d'un certain ton d'un |
-HA er “ » ® » « 4 M programme électoral. Mais qu'est-ce à 4
-À 3 ie dire, sinon que je trouve ici un renforce- D
-148 ment de ce que j'avançais au commence- 4
-Re ment de cette note, que ce n'est pas 4
-Ne parce que la méthode de Descartes est 4
-; bonne qu'elle a eu une aussi haute for- M
-Es tune, mais parce qu'elle est une méthode. 4
+HA er “ » ® » « 4 M programme électoral. Mais qu'est-ce à
+À 3 ie dire, sinon que je trouve ici un renforce-
+148 ment de ce que j'avançais au commence-
+Re ment de cette note, que ce n'est pas
+Ne parce que la méthode de Descartes est
+; bonne qu'elle a eu une aussi haute for-
+Es tune, mais parce qu'elle est une méthode.
 “4 C'est pour cela qu'elle s'est inscrile dans #2
 4 l'histoire éternelle. | À |
 
 Ce n'est point parce qu'elle est victo- ‘à
 rieuse, c'est parce qu'elle se bat. Ce n'est +1
-point parce qu'elle arrive, c'est parce 4
+point parce qu'elle arrive, c'est parce
 qu'elle part. | ‘3
-C'est uniquement, au fond, parce qu'elle 3
+C'est uniquement, au fond, parce qu'elle
 est résolue. On suit ceux qui marchent. de.
-Et c'est parce qu'elle marche à la fran- à S
-çaise. « Ma seconde maxime, (c'est une É
-| maxime de sa morale, mais ce que je É:
-prétends, c'est que sa méthode aussi est 4
+Et c'est parce qu'elle marche à la fran- à
+çaise. « Ma seconde maxime, (c'est une
+| maxime de sa morale, mais ce que je
+prétends, c'est que sa méthode aussi est
 une morale, une morale de pensée ou #3
 une morale pour penser ; ou si l'on veut Le
 tout est morale chez lui. Parce que tout À
 J est conduite et volonté de conduite. | ‘4
-Sa morale provisoire est une morale pro- F
+Sa morale provisoire est une morale pro-
 visoire pour la conduite de la conduite *
 (ordinaire, personnelle et sociale). Sa ne
 méthode est une morale instauratoire pour de
-la conduite de la pensée. Mais l'une et é Ë
+la conduite de la pensée. Mais l'une et
 l'autre sont conjointes et ont exacte- ki
-ment le même procédé) : « Ma seconde 4
+ment le même procédé) : « Ma seconde
 maxime était d'être le plus ferme et le Re.
 
-5 Et plus résolu en mes actions que je pour- : ee
+Et plus résolu en mes actions que je pour- : ee
 
 # Au fond sa grande maxime de méthode
 
@@ -1286,7 +1284,7 @@ e nouveauté et son plus grand coup de FE)
 
 % | génie et de force est-il d'avoir conduit sa
 
-74 pensée délibérément comme une action. 4
+74 pensée délibérément comme une action.
 e. .… « et de ne suivre pas moins les }
 1 , opinions les plus douteuses lorsque je m'y ]
 
@@ -1297,19 +1295,19 @@ e. .… « et de ne suivre pas moins les }
 Ÿ plus douteuses lorsqu'il s'y serait une fois » déterminé, voilà qui scandalisera tout :
 
 ÈS homme qui n'est pas philosophe et tout Tee
-+ homme qui n'a pas de culture. C'est que 508
++ homme qui n'a pas de culture. C'est que
 És des deux pôles de cette phrase, des deux / 1808
 à temps de cette maxime c'est déterminé LS
 3 qui est plus fort que douteuses, c'est déter- PET
 ; miné qui est plus important que douteuses, OR
 Se c'est déterminé qui l'emporte. Vim patitur, en.
-ne C'est la détermination, l'assurance, la D
-É résolution qui vainc. Sa résolution n'est 0
+ne C'est la détermination, l'assurance, la
+É résolution qui vainc. Sa résolution n'est
 pas moins mentale que morale. Elle n'est LR
-É pas moins de conduite mentale que de j 720
+É pas moins de conduite mentale que de
 à conduite morale. Elle ne joue pas moins Fe
-Ë dans l'un que dans l'autre. Dans la morale 0
-: . elle est censément provisoire. Dans le S 8
+Ë dans l'un que dans l'autre. Dans la morale
+: . elle est censément provisoire. Dans le
 ; mental elle est liminaire et instauratoire. Feb
 _ Partout elle est le plus profond de sa .
 1 race et de son génie. .
@@ -1323,7 +1321,7 @@ d'un côté, tantôt d'un autre, ni encore
 moins s'arrêter en une place, mais mar-
 . cher toujours le plus droit qu'ils peuvent
 vers un même côté, et ne le changer
-point pour de faibles raisons, encore que l
+point pour de faibles raisons, encore que
 ce n'ait peut-être été au commencement |
 que le hasard seul qui les ait déterminés
 à le choisir; car, par ce moyen, s'ils ne |
@@ -1332,29 +1330,29 @@ ront au moins à Ja fin quelque part où
 vraisemblablement ils seront mieux que
 dans le milieu d'une forêt. » |
 
-Toute la question est précisément de j
+Toute la question est précisément de
 savoir si la pensée aussi n'est pas mieux |
 n'importe où que dans le milieu d'une |
 Jorêt. Ce que je dis, c'est que justement
 parce que sa morale élail provisoire, jus- |
 
 j tement parce qu'elle n'entrait pas dans :
-È son système, parce qu'elle n'était pas L
+È son système, parce qu'elle n'était pas
 . arrêtée, parce que pour ainsi dire elle :
 È n'était pas officielle, justement parce qu'il a
 : sy est moins défendu, moins observé, 3 $
-L c'est elle qui nous livre son secret. Son 3
+L c'est elle qui nous livre son secret. Son
 k secret c'est bien d'aller toujours dans le \
 ; même sens et, le soir, d'arriver quelque À
-; Toute la question est en effet de savoir ÿ
+; Toute la question est en effet de savoir
 } si la pensée elle-méme n'entre point dans ;
 1 de certaines conditions, si elle n'est point :
-soumise à de certaines conditions géné- î
+soumise à de certaines conditions géné-
 
 È rales de l'homme et de l'être, qui sont des à
 | conditions organiques, et dont l'une pré- À
 Ë _ cisément serait que tout vaut mieux que |
-E de tourner en rond. 2
+E de tourner en rond.
 
 ; part. Arriver ailleurs plutôt que de ne |
 
@@ -1364,69 +1362,69 @@ plutôt que de ne pas arriver. Avant tout |
 | arriver. Tout, plutôt que de vaguer. Et
 que la plus grande erreur c'est encore
 d'« errer » : voilà sa nature méme et la
-race de son secret. È
+race de son secret.
 ù Je ne voudrais point le rendre suspect :
 ; reproché à la philosophie bergsonienne,
-(à turt, selon moi, et un jour je le mon- 5
-trerai), mais enfin il est évident que la 1
+(à turt, selon moi, et un jour je le mon-
+trerai), mais enfin il est évident que la
 philosophie cartésienne est un système de |
 pensée où arriver est d'un prix éminent, il
 et même d'un prix unique. Tout, plutôt !
-que de n'avoir pas de gîte ce soir. 4
+que de n'avoir pas de gîte ce soir.
 L'espoir d'arriver tard dans un sauvage lieu. |
 Si la méthode de Descartes avait été ;
 bonne, au sens où lui-même l'entendait,
 c'est-à-dire si elle avait eu en elle, si elle
 
-‘4 avait conduit automatiquement à une 0
+‘4 avait conduit automatiquement à une
 1 certaine certitude qu'il annonçait et qui ce
 | était à vrai dire une authentique infail- .
-libilité, elle ne l'eût point conduit immé- F2
+libilité, elle ne l'eût point conduit immé-
 É diatement et presque dans le même temps ;
-; à des propositions qui nous paraissent “ k
+; à des propositions qui nous paraissent “
 1 aujourd'hui aussi scandaleuses. (Que de .
-4 déclarer que des cieux et une terre sont 0
+4 déclarer que des cieux et une terre sont
 aisés à connaître). Où est cette évidence a
 | qui devait tout régler. Et qu'est-ce que Lt
 cette évidence qui devait étre universelle à a
-el qui ne dépasse pas son auteur, qui 3
+el qui ne dépasse pas son auteur, qui
 F devait être éternelle et qui ne survit pas à ”
 b: son auteur, qui même ne vécut pas peut- +
 4 être autant que son auteur. Qu'est-ce donc è #
 1 à dire sinon qu'une grande philosophie ‘4
-1 n'est point celle qui règle les questions k
+1 n'est point celle qui règle les questions
 
 4 une fois pour toutes mais celle qui les ‘3
 4 pose; qu'une grande philosophie n'est .
 # point celle qui prononce, mais celle qui ne
-4 Descartes promet une méthode de certi- x
+Descartes promet une méthode de certi-
 
 note sur M. Bergson |
 tude et aussitôt après et presque en même |
-temps il tombe dans des propositions qui R
+temps il tombe dans des propositions qui
 bientôt nous paraissent scandaleuses. Ou
-plutôt il parvient à des proposilions qui 4
+plutôt il parvient à des proposilions qui
 bientôt nous paraissent scandaleuses. Mais |
 
-une grande philosophie n'est pas celle qui 4
+une grande philosophie n'est pas celle qui
 
 rend des arrêts. C'est peut-être celle qui
 
 : rend des services. C'est en tout cas celle |
 qui introduit des instances. |
 
-Une grande philosophie n'est pas celle È
+Une grande philosophie n'est pas celle
 
 : qui prononce des jugements définitifs, qui à
 : installe une vérité définitive. C'est celle \
-qui introduit une inquiétude, qui ouvre 1
+qui introduit une inquiétude, qui ouvre
 un ébranlement. {
 Le monde n'a peut-être pas suivi la |
 méthode cartésienne et Descartes certai-
 
 nement ne l'a pas suivie. Mais Descartes
 
-et le monde ont suivi l'ébranlement carté- H
+et le monde ont suivi l'ébranlement carté-
 
 Une grande philosophie n'est pas celle {
 
@@ -1441,12 +1439,12 @@ qui est invincible en raisonnements. Ce à
 Jois, s'est battue.
 Et les petites philosophies, qui ne sont
 pas même des philosophies, sont celles qui SET
-font semblant de se battre. ù
+font semblant de se battre.
 Il s'agit bien de confondre et de con ee |
 ; vaincre. Quand c'est fini nul n'est confondu, |
 l nul aussi n'est convaincu. Mais les uns
 sont enregistrés, les uns sont incorporés. :
-Les autres ne le sont pas. x
+Les autres ne le sont pas.
 Cette proposition de Descartes que les
 | cieux, les astres, une terre, de l'eau, de
 l'air, du feu, des minéraux et quelques ;
@@ -1462,51 +1460,51 @@ point d'origine d'un immense ébranle- |
 ment, d'une onde, d'une immense vague
 circulaire dans l'océan de la pensée. Sur
 la face de l'océan de la pensée.
-| Une grande philosophie n'est pas celle Î
+| Une grande philosophie n'est pas celle
 qui est le premier en composition. Ce n'est
 À pas celle qui est le premier en disserta-
 ë tion. C'est dans les classes de philosophie
-« que l'on vainc par des raisonnements. 1
+« que l'on vainc par des raisonnements.
 Mais la philosophie ne va pas en classes |
 de philosophie. $
 Une philosophie aussi n'est point une $
 chambre de justice. Il ne s'agit pas d'avoir | |
 raison ou d'avoir tort. C'est une marque |
-de grande grossièreté, (en philosophie), 4
+de grande grossièreté, (en philosophie),
 que de vouloir avoir raison; et encore |
 plus, que de vouloir avoir raison contre “4 |
 - quelqu'un. Et c'est une marque de la
-même grossièreté que d'assister à un L
-débat de philosophie avec la pensée de D.
+même grossièreté que d'assister à un
+débat de philosophie avec la pensée de
 voir un des deux adversaires avoir tort
-ou avoir raison. Contre l'autre. Parlez- 4
+ou avoir raison. Contre l'autre. Parlez-
 
-} moi seulement d'une philosophie qui est 3
+} moi seulement d'une philosophie qui est
 É-- plus délibérée, comme celle de Descartes, EN
 
 ou plus profonde, ou plus attentive, ou ; $
 
-| plus pieuse. Ou plus déliée. Parlez-moi n
+| plus pieuse. Ou plus déliée. Parlez-moi
 | d'une philosophie sévère. Ou d'une philo- s' Re NA
 sophie heureuse. Parlez-moi surtout d'une AS
 | certaine fidélité à la réalité, que je mets *
-E au dessus de tout. 4
+E au dessus de tout.
 Ë Une grande philosophie n'est pas enfin nus
 E celle qui couche, et à la fois, sur toutes les ”
 : positions sur tous les champs de bataille.
-É C'est seulement celle qui, un jour, s'est 5
+É C'est seulement celle qui, un jour, s'est
 4 bien battue au coin de ce bois : FUN
-4 Heureux ceux qui sont morts pour quatre coins de terre. ÿ
+Heureux ceux qui sont morts pour quatre coins de terre.
 
-4 Napoléon n'occupe plus le cimetière 4
+Napoléon n'occupe plus le cimetière
 À pied des Pyramides. Mais il y a eu La #0
 
 à campagne d'Égypte, la campagne de ra
 
 Russie, les guerres d'Allemagne, et il y CA
 
-É note sur M. Bergson À ù
-Je ne veux point dans cette simple note F
+É note sur M. Bergson À
+Je ne veux point dans cette simple note
 entrer dans le fond du débat bergsonien. ;
 chrétien et en catholique. Je parlerai sans
 autorité mais je ne parlerai pas sans
@@ -1515,13 +1513,13 @@ entente et sans entendement. Que la
 ù soit à ce point furieuse, c'est dans l'ordre. :
 Mais qu'elle soit à ce point livrée à l'en- à
 _ vers, c'est une véritable gageure. On .
-aurait beaucoup fait, on aurait peut-être L:
-tout fait si seulement on forçait les com- 4
-de bataille. Acies suas, non alienas, non E
+aurait beaucoup fait, on aurait peut-être
+tout fait si seulement on forçait les com-
+de bataille. Acies suas, non alienas, non
 Ê Aujourd'hui je ne veux que marquer à |
 des temps. De même que Hugo est clas- à
-sique au premier temps et romantique au 1
-deuxième, de même une philosophie peut J 1
+sique au premier temps et romantique au
+deuxième, de même une philosophie peut
 
 $ être à plusieurs temps et elle est généra- à
 
@@ -1559,7 +1557,7 @@ Elle revient essentiellement à remonter
 
 violemment une pente et à la faire remon-
 
-À ter à l'esprit. Je dirai à la faire remonter 3
+À ter à l'esprit. Je dirai à la faire remonter
 
 à l'homme. Et la méthode bergsonienne
 
@@ -1568,44 +1566,44 @@ revient essentiellement à remonter vivement une pente et à la faire remonter |
 5 vivement à l'homme et à l'esprit. ;
 | Dans le sens où le cartésianisme a |
 consisté à remonter la pente du désordre, <
-; dans le même sens le berg'sonisme a con- l
+; dans le même sens le berg'sonisme a con-
 | sisté à remonter la pente du tout fait.
 Toute grande philosophie a un premier
-”. temps, qui est un temps de méthode, et 4
+”. temps, qui est un temps de méthode, et
 : un deuxième temps, qui est un temps de À
-: métaphysique. Quand on dit que le plato- 1
+: métaphysique. Quand on dit que le plato-
 - nisme est une philosophie de la dialec-
 | tique, et le cartésianisme une philosophie
-de l'ordre, et le bergsonisme une philoso- 1
+de l'ordre, et le bergsonisme une philoso-
 phie du réel, on les prend tous les trois ;
 dans leur temps de méthode. Quand on
 f dit que le platonisme est une philosophie à
-de l'idée, et le cartésianisme une philosophie de la substance, et le bergsonisme i
+de l'idée, et le cartésianisme une philosophie de la substance, et le bergsonisme
 une philosophie de la durée, on les prend ‘
 tous les trois dans leur temps de méta- |
 
-4 Le cartésianisme a été une rupture 0
+Le cartésianisme a été une rupture
 ; violente. Le bergsonisme a été une rup- RES
-E: ture, une déliaison vive et comme acharnée. 4 F
+E: ture, une déliaison vive et comme acharnée.
 | Il y a certainement dans le bergsonisme ;
-. dans le cartésianisme. Mais c'est que 0e
+. dans le cartésianisme. Mais c'est que
 peut-être la rupture, la déliaison qu'il | !
 . . s'agissait d'opérer dans le bergsonisme "4
 à était encore plus menacée, plus précaire, PE
 | et d'autre part plus indispensable encore NE à ;
 que celle qu'il s'agissait d'opérer dans le % Ps
-44 cartésianisme. Nous sommes infiniment 0
+44 cartésianisme. Nous sommes infiniment
 | plus liés à l'esclavage du tout fait que 16 =
 É- nous ne sommes liés à l'esclavage du sa
 É. désordre. L'esclavage du tout fait est ‘:
 ‘% infiniment plus prét à nous reprendre que % #
-l'esclavage du désordre. Et il a des con- 2
+l'esclavage du désordre. Et il a des con-
 # séquences infiniment plus désastreuses. ke ”
-) Dans le désordre méme il peut y avoir 0
-5 des coups de fortune et méme des coups : 4
-4 d'ordre. Dans ce qui est fatigué il n'y a 13 4
+) Dans le désordre méme il peut y avoir
+5 des coups de fortune et méme des coups
+4 d'ordre. Dans ce qui est fatigué il n'y a
 | plus ni grâce ni jaillissement. De tout ce on.
-| 87 4
+|
 
 note sur M. Bergson CNE - |
 qu'il peut y avoir de mauvais, l'habitude |
@@ -1613,7 +1611,7 @@ ne remontait, ne refoulait qu'une habitude, qui était l'habitude du désordre. 
 bergsonisme a entrepris de refouler toute |
 | l'habitude comme telle, toute l'habitude
 organique et mentale. |
-Et cela dans tous les ordres, dans É
+Et cela dans tous les ordres, dans
 toutes les disciplines que nous avons éche- À
 | lonnées au commencement de cette étude.
 On a ou des batailles gagnées dans le
@@ -1627,17 +1625,17 @@ lissement essayent en vain de faire le À
 jeune homme. |
 C'est ça qu'on nomme une révolution, |
 
-; ce grand effort momentanément couronne. 4
+; ce grand effort momentanément couronne.
 | L'homme dans son fauteuil qui voit une
 : révolution, fût-ce une révolution mentale, #
 ; et qui dit : C'est pas malin, lui-même n'a |
 : rien dit. La question, dans cet ordre, n'est
-| pas que ce soit malin. C'est que ce soit, è
+| pas que ce soit malin. C'est que ce soit,
 | à un certain moment de l'histoire du
 monde, entré dedans. Les plus grandes
 révolutions, dans tous les ordres, n'ont
 point été faites avec et par des idées
-extraordinaires et c'est même le propre L
+extraordinaires et c'est même le propre
 { du génie que de procéder par les idées les
 ; plus simples. Seulement en temps ordi- |
 naire les idées simples rôdent comme des
@@ -1654,39 +1652,39 @@ qu'il y a de plus contrarié au salut même,
 R ce n'est pas le péché, c'est l'habitude. Des | |
 milliers de créanciers répètent machina- |
 È lement les effrayantes paroles : Et dimitte
-4 nobis debita nostra, sicut et nos dimittimus debitoribus nostris. Qu'un seul tout È
-à coup, soudainement éclairé, les prenne D
+4 nobis debita nostra, sicut et nos dimittimus debitoribus nostris. Qu'un seul tout
+à coup, soudainement éclairé, les prenne
 au sérieux, ces paroles, les laisse comme
-lui entrer dedans, c'est instantanément 4
+lui entrer dedans, c'est instantanément
 la plus grande révolution qu'il puisse” à
 actuellement y avoir, car c'est une révo- |
 lution dans le règne de l'argent, c'est à
-une subversion du règne de l'argent. Et i
+une subversion du règne de l'argent. Et
 c'est encore un homme de sauvé.
-Tout est dans l'incorporation, dans j
-l'incarcération, dans l'incarnation. Et ici Ë
-encore el en ceci même nous sommes l
-forcés de parler le langage bergsonien et d
+Tout est dans l'incorporation, dans
+l'incarcération, dans l'incarnation. Et ici
+encore el en ceci même nous sommes
+forcés de parler le langage bergsonien et
 en ceci on n'en parlera jamais d'autre. ,
 Tout est dans l'insertion et l'insertion est :
 
 | qu'une incarnation, et des idées même il we
-‘4 ÿ à bien peu d'incorporations. Quand au 54
+‘4 ÿ à bien peu d'incorporations. Quand au
 4 | lieu de regarder une idée en l'air, tout à 1 .
-| coup elle est prise au sérieux, c'est cela 4
+| coup elle est prise au sérieux, c'est cela
 ; qui est, et qui fait, une révolution. Et Pe
 É l'histoire ne compte que trois ou quatre ‘ue
-de ces grands ébranlements. 2 0
-0e Discours de la méthode pour bien con- 4
-duire sa raison et chercher la vérité dans é L.
+de ces grands ébranlements.
+0e Discours de la méthode pour bien con-
+duire sa raison et chercher la vérité dans
 
-Ë les sciences. Le bergsonisme aussi est une de 4
-| méthode pour bien conduire sa raison. Le 4
+Ë les sciences. Le bergsonisme aussi est une de
+| méthode pour bien conduire sa raison. Le
 
 bergsonisme aussi a une raison. Le berg- L sa
 É sonisme aussi est un parti de la raison. à
 
-. On ne voit pas ce que serait une philoso- 4
+. On ne voit pas ce que serait une philoso-
 
 4 plie qui ne serait pas un parti de la LA
 
@@ -1711,8 +1709,8 @@ recherche de la vérité dans les sciences,
 : nommons métaphysique, et au moins les
 métaphysiques des sciences). Le bergsonisme a été dans son principe un effort |
 pour conduire La raison à l'étreinte de la :
-réalité. (Dans les sciences, dans les méta- Ë
-physiques des sciences, dans la métaphy-- E
+réalité. (Dans les sciences, dans les méta-
+physiques des sciences, dans la métaphy--
 sique). Déjà le platonisme avait été dans $
 son principe un effort pour conduire la
 raison par la dialectique idéale ou si l'on
@@ -1728,7 +1726,7 @@ irrationalisme ni un antirationalisme. Il
 J a été un nouveau ralionalisme et ce sont
 les grossières métaphysiques que le berg- &
 L sonisme « a déliées (métaphysiques maté- ;
-| rialistes, métaphysiques médico-légales, É
+| rialistes, métaphysiques médico-légales,
 à physiques sociologiques et tant d'autres)
 qui étant des durcissements, des scléroses,
 | des raidissements, des ankyloses, étaient
@@ -1742,19 +1740,19 @@ vieilles articulations de la raison mais qu'il |
 en a fait jouer des articulations nouvelles. %
 
 a Les fameuses règles de Bacon n'ont ;
-ë L à introduit dans l'histoire du monde aucune 1
-1 fécondité. Nous ne leur devons rigoureu- û
+ë L à introduit dans l'histoire du monde aucune
+1 fécondité. Nous ne leur devons rigoureu-
 x | sement rien. Ni une invention, ni une
 : Tous ceux qui depuis les premiers balbu- ke.
 “54 tiements de la pensée grecque avaient fait _
-êr une invention, une découverte, un mou- x
+êr une invention, une découverte, un mou-
 “ vement avaient sans y penser appliqué les . +
-Ke - règles de Bacon. Tous ceux avant Bacon. : L
-S: Mais depuis Bacon tout homme qui se 4
-| lèverait de bon matin avec le ferme proE | pos d'appliquer les règles baconiennes, et 4
-ne. qui n'aurail que ce ferme propos, qui ne 1
+Ke - règles de Bacon. Tous ceux avant Bacon.
+S: Mais depuis Bacon tout homme qui se
+| lèverait de bon matin avec le ferme proE | pos d'appliquer les règles baconiennes, et
+ne. qui n'aurail que ce ferme propos, qui ne
 l ferait jouer que ce ferme propos, ce tout *
-homme ne ferait pour cela ni une inven- 4
+homme ne ferait pour cela ni une inven-
 ; lion, ni une découverte, ni un mouvement ‘
 ke invention, une découverte, un mouvement :
 de de pensée sortir de la contemplation des ‘&
@@ -1770,13 +1768,13 @@ E pauvre moraliste. Quand donc ü y en
 avait un, au 13r°" de l'arme, qui se tra-
 | vaillait trop ostensiblement (à faire un |
 ! avait toujours un autre qui disait froide5 ment : Surtout n'oublie pas de respirer.
-1 Tous ceux qui ont fait quelque chose dans
+Tous ceux qui ont fait quelque chose dans
 : le monde sont des types qui n'ont pas
 oublié de respirer. Mais on n'a rien fait ;
 dans le monde uniquement parce qu'on
 s'élait proposé de ne pas oublier de respirer.
 
-note sur M. Bergson FL 1
+note sur M. Bergson FL
 Discours de la méthode pour bien conduire, c'est vraiment, c'est littéralement
 une méthode pour éviter l'inconduite, la
 mauvaise conduite. Et alors, si l'on veut,
@@ -1821,16 +1819,16 @@ la raison souple. C'est un préjugé qui a
 note sur M. Bergson RE &
 méme préjugé qui veut qu'une logique ES
 x raide soit plus une logique qu'une logique ; |
-souple. Et qu'une méthode scientifique k E
+souple. Et qu'une méthode scientifique
 raide soit plus une méthode, et plus scien- |
 tifique, qu'une méthode scientifique souple. ;
 Et surtout qu'une morale raide soit plus |
 une morale, et plus de la morale, qu'une
 morale souple. C'est comme si on disait À
 que les mathématiques de la droite sont \ |
-plus des mathématiques que les mathéma- L
+plus des mathématiques que les mathéma-
 | tiques de la courbe. “4
-Il est évident au contraire que ce sont 1
+Il est évident au contraire que ce sont
 les méthodes souples, les logiques souples,
 + les morales souples qui sont les plus
 sévères, étant les plus serrées. Les logiques raides sont infiniment moins sévères :
@@ -1838,8 +1836,8 @@ que les logiques souples, étant infiniment à
 moins serrées. Les morales raides sont
 infiniment moins sévères que les morales
 ‘ Une logique raide peut laisser échapper ;
-des replis de l'erreur. Une méthode raide 3
-98 4
+des replis de l'erreur. Une méthode raide
+98
 
 peut laisser échapper des replis de l'igno-
 | rance. Une morale raide peut laisser
@@ -1861,7 +1859,6 @@ ce que l'on croit, à tout ce que l'on
 | enseigne communément, c'est la raideur
 LS qui triche, c'est la raideur qui ment. Et
 | | c'est la souplesse non seulement qui ne
-| 99
 
 | - note sur M. Bergson
 triche pas, non seulement qui ne ment pas,
@@ -1881,7 +1878,7 @@ sur le classique et le romantique tomberait si l'on voulait bien une fois décla
 le raide du ferme et du dur. Ce sont les . }
 morales raides où il peut y avoir des |
 niches, à poussières, à microbes, des moi- s |
-sissures et des creux de pourriture, dans 4
+sissures et des creux de pourriture, dans
 des coins dans les raideurs, des dépôts, .
 lues, et ce que nos Latins nommaient
 situs, une moisissure, une saleté venant
@@ -1904,5 +1901,5 @@ ne pardonnent pas. Ce sont les morales
 14 souples, les méthodes souples, les logiques
 ' 4 souples qui exercent les astreintes impeccables. C'est pour cela que le plus honnéte
 . homme n'est pas celui qui entre dans des
-É règles apparentes. C'est celui qui reste à 1
+É règles apparentes. C'est celui qui reste à
 Ed sa place, travaille, souffre, se tait.

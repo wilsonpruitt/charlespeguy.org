@@ -10,7 +10,7 @@ wordCount: 47984
 _ périodique paraissant tous les deux dimanches
 8, rue de la Sorbonne, au rez-de-chaussée
 
-7 62
+7
 
 Sur la mort de mon frère, 1 volume petit in-8, 1904.
 La tragédie d'EÉlectre, 1 volume grand in-18, 1905.
@@ -31,7 +31,7 @@ Les bourdons sont en fleurs, drame, 1° octobre 1907.
 dans VERS ET PROSE, 15, rue Racine :
 Achille vengeur, drame, tome XI de la Revue.
 
-| 115 5
+|
 
 Le 10 septembre, Tolstoï a eu soixante-dix ans. Le
 monde se fût honoré, en faisant de celui-là son jour de
@@ -48,34 +48,34 @@ aujourd'hui, dans le monde; et ce vieillard est Le seul
 
 __- exemple qui nous ait été donné d'une vie sublime. Que £a a
 14 sa vieillesse puissante nous est chère : elle est encore la | “TE
-2 plus belle œuvre d'un poète, à qui l'on en doit de si 480 É
+2 plus belle œuvre d'un poète, à qui l'on en doit de si
 AVE grandes ; elle est un témoignage merveilleux du cœur es
 ie en faveur de l'esprit. Celui qui pouvait vivre de gloire L Be
-F n'a plus voulu vivre que de charité. Et celui à qui le . 522
+F n'a plus voulu vivre que de charité. Et celui à qui le
 2 génie eût dû suffire n'a pu se contenter à moins de
 “2 l'amour parfait. Ainsi l'homme, qui était allé le plusloin à
 7 dans la connaissance des autres, n'a pas désespéré de ie
-à - l'humanité; mais, au contraire, il y a guéri les doutes … 3
+à - l'humanité; mais, au contraire, il y a guéri les doutes …
 de conçus de soi-même. C'est le plus beau triomphe de
 ns l'imagination. Il ne sera pas dit qu'elle tue le cœur sous #
-k elle, car plutôt elle le ressuscite. Médiocre, elle rune 4
-son homme, et le réduit à la misère, en le forçant à lui = 7
+k elle, car plutôt elle le ressuscite. Médiocre, elle rune
+son homme, et le réduit à la misère, en le forçant à lui =
 | tout tourner en pâture, pour la soutenir. Mais, grandeet
 - . vive, qu'elle est féconde! En tout, l'essentiel est d'avoir Er
-beaucoup plus d'imagination que les autres, et de 4
-| connaître quel abîime sépare la médiocrité de la pléni- 4
-tude. Il est admirable, enfin, que le même homme ait 2
-| fait voir qu'il lui a dû d'être l'un des premiers parmi 4
+beaucoup plus d'imagination que les autres, et de
+| connaître quel abîime sépare la médiocrité de la pléni-
+tude. Il est admirable, enfin, que le même homme ait
+| fait voir qu'il lui a dû d'être l'un des premiers parmi
 les saints, après avoir été un des premiers entre les À
-| Qu'elle est touchante la vieillesse consacrée par un ngrand homme à la sainteté : même débile et presque F
+| Qu'elle est touchante la vieillesse consacrée par un ngrand homme à la sainteté : même débile et presque
 déchue, au déclin de lintelligence, elle nous touche. à
 - Combien ne nous ravit-elle pas, quand elle est robuste, . €
-verte, riche en action, pleine d'œuvres? Aucun homme. D
+verte, riche en action, pleine d'œuvres? Aucun homme.
 ne fait plus honneur à l'homme que Tolstoi. Il est $
-sublime avec simplicité : point d'effort; c'est l'élan de 4
+sublime avec simplicité : point d'effort; c'est l'élan de
 sa nature qui le porte. Peut-être y en a:t-il eu de plus
-profonde : de plus large, de plus vaste, il n'en fut pas. 4
-| Cette nature d'homme est à l'image de son pays : elle g K
+profonde : de plus large, de plus vaste, il n'en fut pas.
+| Cette nature d'homme est à l'image de son pays : elle
 
 2 _ n'a ni montagnes perdues dans les nuées, ni océans en ;
 … tempête, ni profonds abîmes. Mais son horizon est à
@@ -99,11 +99,11 @@ passionné pour y gagner les autres hommes, ni ne se
 _flatte de faire sur eux une pêche miraculeuse, — ni
 ._ — surtout ne se plaint de ne rien prendre dans ses filets.
 En pareil cas, il est plus beau de ne pas se croire sans
-action que de se flatter d'en avoir une irrésistible. ÿ
-* Tolstoï ne désespère point. Il n'est pas de ces enthou- j
+action que de se flatter d'en avoir une irrésistible.
+* Tolstoï ne désespère point. Il n'est pas de ces enthou-
 _ siastes qui se nourrissent d'espérances. Sa vie est triste.
 | Mais il a Dieu pour lui. Il pense que le jour du Seigneur “
-ne peut manquer de venir. Il a cette force incalculable 6
+ne peut manquer de venir. Il a cette force incalculable
 ; d'une foi qui parle à la raison des hommes. Comme on
 ne l'eût pu convaincre en dehors d'elle, il s'assure qu'il
 È la convaincra tôt ou tard en eux. Il ne fait pas grand
@@ -114,7 +114,7 @@ recherche les jeunes gens, les âmes fraîches, les cœurs ;
 
 Tolstoï humilie de trop près ses voisins, ses parents,
 ses proches. Un homme si puissant est difficile à vivre:
-on ne peut l'accepter qu'en l'aimant. L'amour semble une ù
+on ne peut l'accepter qu'en l'aimant. L'amour semble une
 servitude à des âmes trop petites. On croit garder son
 indépendance, en l'armant contre lui. On ne voit point
 que se débattre contre la tyrannie d'une force supérieure,
@@ -127,7 +127,7 @@ de s'être créé un monde, est qu'il y peut vivre.
 Tolstoï ne raisonne jamais sur des idées pures; il les :
 qe ramène toutes à des faits. Sa religion est impossible à :
 
-entendre, si on la sort du fait. La théorie n'est à ses F
+entendre, si on la sort du fait. La théorie n'est à ses
 yeux que l'ensemble de la pratique. Il-n'est pas facile
 
 d'en repousser les conséquences. Au temps où j'ai cru }
@@ -152,7 +152,7 @@ petits enfants. Jésus est le Dieu d'un peuple d'enfants
 
 passionnés, qui met une violence de feu à vouloir cette
 
-vie heureuse, — et ne l'a jamais crue impossible un seul ù
+vie heureuse, — et ne l'a jamais crue impossible un seul
 
 moment. Ce peuple même est mort avec son Dieu, — je
 
@@ -173,12 +173,12 @@ ns Grecs; César éternel à Rome; enfin, prêcheur du libre ? pe
 ë e droit de la conscience chez les Saxons. Mais s'il était … EL
 possible d'imaginer Jésus chez les Grecs, esclave athé
 Mes nien, il serait peut-être une façon d'Épicure ; esclave ES
-_ romain, un stoïque à la manière d'Épictète. Or, Tolstoi, ES ë
+_ romain, un stoïque à la manière d'Épictète. Or, Tolstoi, ES
 7 pour évangéliste qu'il soit, ne peut s'empêcher d'avoir
 AR du grec et du romain, comme tous les modernes. Quoi
-| qu'il fasse, il connaît l'immense ressort de l'État et de 5
+| qu'il fasse, il connaît l'immense ressort de l'État et de
 de la Science. Quoi qu'il veuille, il ne ressuscite le Messie + "0
-Ee d'un peuple d'enfants violents et passionnés, que dans 43
+Ee d'un peuple d'enfants violents et passionnés, que dans
 | le monde moderne, qui est romain par la forme, et grec _ iS
 par la pensée. De là, que le ciel de Tolstoï paraît si loin.
 Be I1 a beau le montrer dans la volonté affranchie et dédai- Es
@@ -187,7 +187,7 @@ continents en lutte, d'un bout de la terre relié à l'autre, _
 É des sciences et de l'art. Tolstoï est forcé de s'en 5 ;
 Le principe d' « être comme des enfants » n'est doux
 s que dans un monde enfantin. Là, même, il a du péril. 2208
-; Ce monde court le risque de se noyer dans un fleuvede 30
+; Ce monde court le risque de se noyer dans un fleuvede
 lait. Mais si cet Éden peut se défendre de sa propre
 innocence, il ne le pourra contre la méchanceté d'autrui. #
 Une horde de Turcs aura bientôt fait, ici, de tout
@@ -220,7 +220,7 @@ Souvent, j'ai réfléchi sur la grande tristesse des livres
 de Tolstoï. Son accent n'était pas si désolé quand il ne
 savait où est la voie du salut, que depuis qu'il l'a trou- ,
 vée. IL annonce le bonheur d'une voix sombre. Est-ce
-lhorreur du mal présent qui lui donne ce ton? — A la 3
+lhorreur du mal présent qui lui donne ce ton? — A la
 vérité, il semble plutôt que ce bonheur soit désespéré.
 Jésus est le dernier mot de la sagesse humaine, — faute,
 peut-être, qu'il y en ait un autre. Ce monde d'enfants
@@ -239,32 +239,32 @@ roi, amant, père, avant de devenir un sage. La résigna-
 Ru tion à la mort est le grand prix de la vie. Accepter ae >: :
 #3 mort, pour l'oublier. Oublier la vie, dans l'attente, sans PS
 _ pensée, de la mort. Les enfants font l'un et l'autre, et”
-non par principe : en quoi ils ont un avantage incalcu- 0
+non par principe : en quoi ils ont un avantage incalcu-
 : 6 lable. Cette ignorance est la caution du bonheur. Et, en ‘Ss +4
-À … effet, un enfant innocent, de bonne santé, de bon carac- 104
-Éi ca: * tère, est à la fois un épicurien modèle, — et un parfait : 4
-FE stoïcien : il accepte, il croit tout; — et il jouit de tout N
+À … effet, un enfant innocent, de bonne santé, de bon carac-
+Éi ca: * tère, est à la fois un épicurien modèle, — et un parfait
+FE stoïcien : il accepte, il croit tout; — et il jouit de tout
 selon ses facultés. : 1240
-. lamertume. Il ne veut pas vivre seulement : il veut 170
+. lamertume. Il ne veut pas vivre seulement : il veut
 4 ne lui suffit pas de jouir de l'heure : il veut jouir de TR
-toutes ; et il se compose un Moi, l'horloge où elles son- Le 4
-| nent infiniment. Il veut même jouir de ses douleurs, par 4
+toutes ; et il se compose un Moi, l'horloge où elles son- Le
+| nent infiniment. Il veut même jouir de ses douleurs, par
 | contraste. Non; l'homme n'est pas un enfant. Celui quiy ES
-; prétend le plus, souvent le peut le moins. Il ne peut? E : 4
+; prétend le plus, souvent le peut le moins. Il ne peut?
 | s'il le pouvait, il ne le voudrait plus, peut-être. L'homme Ds
 7 plein, comme il est tout volonté, tout acte et toute pas- Se
 pas, de ce qu'il craint. L'enfant n'est plus heureux, que ne:
 ; 1 parce qu'il est à peine. Qu'est un enfant? Quasi rien. — rs, ds
-ps Alors, je dis à Tolstoi : « Dans le fond, votre Evangile, 24
-; à fin de nous rendre heureux, veut que nous soyons 532
+ps Alors, je dis à Tolstoi : « Dans le fond, votre Evangile,
+; à fin de nous rendre heureux, veut que nous soyons
 4 enfants, — pour être à peine. Mais il s'y cache une LR
 He : autre pensée, et la tristesse, selon mon goût, s'en étend n NE
 à toute chose : Le vrai bonheur, pour l'homme, est de 5 Re
 2 n'être point. L'idéal de la vie, — s'il n'est pas le non- se
 % être, difficile à concevoir, ou absurde, pour qui est — me
-# est, du moins, une mort paisible : un ruisseau qui coule, à M
+# est, du moins, une mort paisible : un ruisseau qui coule, à
 eu sans quitter un sable uni, — et s'y perd lentement. » Es
-A Une profonde horreur flotte parfois sur un calme rêve. # E
+A Une profonde horreur flotte parfois sur un calme rêve. #
 
 Les Églises, nées du christianisme, ne sont pas tou-
 
@@ -286,11 +286,11 @@ Cet amour continuel du Christ, dans la personne ou la
 
 doctrine, il est en saint Bernard comme en saint à
 
-François, dans le moine de l'Imitation si tendre, comme l
+François, dans le moine de l'Imitation si tendre, comme
 
 . dans Pascal si terrible, et dans cet enfant fra Giovanni
 de Fiesole, comme dans Tolstoï, le plus mâle des esprits.
-Le grand amour de Dieu a rendu tous ces hommes é
+Le grand amour de Dieu a rendu tous ces hommes
 
 | également amateurs de tâches difficiles. Le royaume A a à
 du ciel est le seul où il vaille la peine de vivre : et,
@@ -302,50 +302,50 @@ ae jamais trop cher, quelque prix qu'on y mette. Le lieu e Hé.
 ” joindre? Considérez que vous ne mesurez votre peine gant
 re qu'à vos misérables joies. Pensez un peu à ce que la
 en vie veut dire. Et mesurez donc votre peine à la Mort, … IE
-ie ee — voilà le juste étalon de la vie. - 78
-4 Ne Toujours, et partout, Tolstoï a regardé fixement la Fu Le.
+ie ee — voilà le juste étalon de la vie.
+Ne Toujours, et partout, Tolstoï a regardé fixement la Fu Le.
 RCE mort. Il Va éprouvée dans tous les êtres, dans le prince DU
 4 et dans le mendiant, dans l'arbre, dans la bête. Nul
-Fe homme ne connaît rien, qui ne voie chaque objet, avec D:
+Fe homme ne connaît rien, qui ne voie chaque objet, avec
 __ lui-même, obstinément dans la mort. Les esprits valent …
 à pour la vie à proportion de la vue qu'ils ont de la
 4 mort. Pénétrez les pensées de la mort, vous qui voulez Es
 $ vivre. Il n'est point de chrétien qui n'accole étroitement 5120
-4 la mort, à la vie, en sorte qu'il fiance et marie de bonne Fes É
+4 la mort, à la vie, en sorte qu'il fiance et marie de bonne Fes
 : heure sa vie à sa mort, à fin d'en concevoir une vie ne
 | nouvelle, qui dure, celle-là, qui soit certaine, et qi
 puisse un peu remplir le vide affreux de nos cœurs.
 Le Malheur à l'idéal qui est sans difficulté : il n'a rien de "0
 solide pour l'âme. Tolstoï n'accepte point tous ceux qui / A
-vont à lui. Comme tous les fondateurs de religion, ll M
-à veut des preuves ; il demande la plus rare, — une Fe 2
-longue sincérité avec soi-même. Il faut craindre les : 24
+vont à lui. Comme tous les fondateurs de religion, ll
+à veut des preuves ; il demande la plus rare, — une Fe
+longue sincérité avec soi-même. Il faut craindre les
 fidèles d'un jour. Ceux qui sont aisés à gagner sont
 aisés à perdre. Que chacun se gagne, et s'obtienne de
 soi. Jésus-Christ demande beaucoup. C'est qu'il promet tte
 tout et le donne : Voilà comme pense Tolstoï. : pi
 . Les mots, et même les élans non durables du cœur,
-| ne sont point assez pour entrer dans le Royaume de N
+| ne sont point assez pour entrer dans le Royaume de
 Dieu. Et, il est dès ici, selon que l'a dit Jésus et que
-Tolstoï le montre. Le véritable amour est la fleur la 4
+Tolstoï le montre. Le véritable amour est la fleur la
 plus rare de l'âme. Il la faut labourer longtemps, pour me €
-20 5
+20
 
 à | que la semence prenne et que la tige croisse. Comme
-_ François d'Assise se fiance à Pauvreté, sa Dame, 2
+_ François d'Assise se fiance à Pauvreté, sa Dame,
 Ft _ Tolstoï s'est uni à Humanité, la triste délaissée de tous ;
-… les hommes. Et il a recueilli cette veuve pleine de w
+… les hommes. Et il a recueilli cette veuve pleine de
 larmes, pour l'amour de Dieu. DO:
 à S'il interprète bien ou mal l'Évangile, nul ne peut le :
-_ dire : car l'Évangile recommande le premier de s'in- é
-spirer de l'esprit, et de ne point se dessécher sur la É
+_ dire : car l'Évangile recommande le premier de s'in-
+spirer de l'esprit, et de ne point se dessécher sur la
 lettre. Que Tolstoï en ait la pensée, il suffit bien de cet
 - amour infini, qu'il y puise, pour s'en convaincre, et des ;
 conséquences qu'il en tire pour la vie. C'est la grâce de ;
-l'Évangile, que la perfection du sentiment y est toute 6
+l'Évangile, que la perfection du sentiment y est toute
 simple. Les passions, par où l'homme se ruine, n'y sont S $
 pas méconnues ; mais il semble aller de soi, selon Hé
-l'Évangile, de les vaincre. Tolstoi donne une impres- 4
+l'Évangile, de les vaincre. Tolstoi donne une impres-
 - sion pareille; il propose à l'homme une vie qui
 ne paraît ardue que si, dit-il, l'on n'a pas ouvert les LE
 yeux sur l'horreur et l'absurdité de la vie du monde, à
@@ -357,9 +357,9 @@ autour de la table fraternelle, en frères également
 aimés, s'ils se portent un égal amour, et pour qui le
 pain blanc et le sel sont préparés.
 
-L'Évangile a les couleurs de l'Orient. Il est naturel j
+L'Évangile a les couleurs de l'Orient. Il est naturel
 que Tolstoï, oriental comme un poète de la Bible, ait
-plus que personne le ton et le goût de l'Évangile. Mais, Ë
+plus que personne le ton et le goût de l'Évangile. Mais,
 
 - au lieu de l'horizon étroit de la Palestine, il a l'imagi- “
 nation des espaces sans borne de la Russie. Si donc il
@@ -369,27 +369,27 @@ nation des espaces sans borne de la Russie. Si donc il
 # - Tolstoi vivant de Ft +
 : caractère de perfection, à la fois voisine et inaccessible, qu'on remarque aux préceptes de Jésus-Christ: | Ai À
 
-Leur sublime innocence est, en même temps, ce qu'il. = E
+Leur sublime innocence est, en même temps, ce qu'il. =
 y a de plus naïf et de plus profond : chaque esprit y 3 $
 e reconnaît la plénitude de ce que lui-même y porte, Le
 ou naïveté, ou profondeur. Et quiconque médite cet ER.
 enseignement y découvre une vue insondable sur le #ÿ
 Une philosophie qui ne laisse pas de place au doute $ #
 est une religion. À
-Si Et toute religion, où s'exerce la critique, cesse même + 4
+Si Et toute religion, où s'exerce la critique, cesse même +
 d'être une philosophie. LS
 La foi est grande, en ce qu'elle oblige. Et par là, en à
-dépit de tout, il y a une religion dans toute philosophie © É
+dépit de tout, il y a une religion dans toute philosophie ©
 où le doute n'a plus de place. Elle aussi crée à l'homme La
 des devoirs. Vous avez, sur toutes choses, besoin de
 vous connaître des devoirs. On ne vous a que trop ME
 entretenus de vos droits. Il n'en est de véritables, qu'à Fr
 ceux qui les découvrent eux-mêmes, dans les nécessités .
-de leur nature, et qui les obtiennent de leurs souffrances k N
-et de leurs combats. Voilà des droits que ceux qui les ô x
-ont n'ont pas peu payé pour avoir. La vertu en est 7
+de leur nature, et qui les obtiennent de leurs souffrances
+et de leurs combats. Voilà des droits que ceux qui les
+ont n'ont pas peu payé pour avoir. La vertu en est
 universelle, mais à titre d'exemple seulement; elle ne ;
-suflit pas à donner une prérogative égale à ceux qui 4
+suflit pas à donner une prérogative égale à ceux qui
 n'ont pas également souffert pour elle. 5%
 Tolstoï est muet sur les droits de l'homme. Il ne lui LE
 
@@ -400,34 +400,34 @@ gion, car cette philosophie a la foi : elle en porte le carac-
 
 tère capital, qui est de fixer entre l'individu et l'univers,
 
-entre l'amour-propre et l'amour de Dieu, un rapport 1
+entre l'amour-propre et l'amour de Dieu, un rapport
 immuable, où le doute n'est plus permis et où au ke
 
 : _ regard de l'infiniment grand, le moi est un infiniment ‘00
 ie petit, une quantité négligeable, un pur rien.
-Toutes les religions sont venues de l'Orient, parce que È
+Toutes les religions sont venues de l'Orient, parce que
 5 âme orientale immole entièrement le moi humain à . à
-l'infini : soit qu'elle l'en accable, soit qu'elle l'y absorbe ; 4
+l'infini : soit qu'elle l'en accable, soit qu'elle l'y absorbe
 
 7 qu'elle l'y mesure ou qu'elle l'y perde. La foi est à ce ‘a
  … prix : c'est le point où toute philosophie, digne de ce a
 -_ nom, rencontre la religion; quelles que soient leurs ‘à
-trajectoires, le terme des forces est unique, et elles y E
+trajectoires, le terme des forces est unique, et elles y
 
 Le Bien est cet infini où Tolstoï ne conçoit même pas \
-que le néant de l'homme résiste, car il ne prend quelque RS » réalité que par rapport à lui. Tous les Russes, à cet égard, k
+que le néant de l'homme résiste, car il ne prend quelque RS » réalité que par rapport à lui. Tous les Russes, à cet égard,
 ont l'imagination orientale. L'individu leur semble un #
 
-point, et sa prétention de compter par lui-même une 4
+point, et sa prétention de compter par lui-même une
 vanité absurde. La politique slave est une expression £
 concrète de cet esprit. La vie universelle hante leur !
 pensée; et leur foi n'élude jamais cette toute-présence. ;.
 
 De là, leur grandeur morale et leur rôle dans le monde; ns
 
-- elle en doit être l'espoir contre le génie automate des ÿ
+- elle en doit être l'espoir contre le génie automate des
 
-\ peuples saxons : si tant est qu'il ne soit pas illusoire É
+\ peuples saxons : si tant est qu'il ne soit pas illusoire
 
 | de nourrir une espérance quelconque pour le genre
 humain. Il ne vous est pas mauvais, en tout cas, de à
@@ -439,7 +439,7 @@ Les Russes savent souffrir; ils l'aiment cette souf-
 un amour si singulier. La mesure qu'ils font de toutes “A
 choses à l'étalon unique du bien, les engage à les toutes à
 
-u dédaigner. Ils pratiquent, de nature, cette vie éter- 4e
+u dédaigner. Ils pratiquent, de nature, cette vie éter-
 | nelle, qui rend misérables les promesses de l'autre. De :
 Ê la sorte, ils ne daïgnent, ou ne savent pas vouloir. sr
 
@@ -449,14 +449,14 @@ X6A assions. Il ne laisse à l'homme que celle du bien. LENS
 BA? Comme il semble en avoir eu, lui-même, beaucoup
 ‘ra d'autres, On incline à lui accorder que Sa vérité est SaDS En.
 11 doute vraie pour l'homme de soixante ans; mais ne peut Ée ee
-3 Vêtre pour celui de trente. SR
+Vêtre pour celui de trente. SR
 1e Toutefois, ce n'est PAS bien raisonner : OU, du moins, “es
 Er cette philosophie n'est pas d'un vieillard, pOur les rai- <e
 de. se sons qu'on dit. — Quand même homme et le chrétien Fe À
 Pré pe pourraient mener une vie bonne qu'à condition
 ne ee de la dépassionner; Tolstoi ne dit point qu'on ne soit
 
-ME bon et juste, que purge de toutes passions. j1 ne donne 14
+ME bon et juste, que purge de toutes passions. j1 ne donne
 He pas davantage Sa religion pour facile; et il revendique
 :10 justement la difficulté de son idéal comme une preuve Fa
 2 de la bonté de cet idéal même. Un esprit est trop
@@ -465,38 +465,38 @@ Me? médiocre, en effet, qui g'attache à un idéal aisé, et Fa
 Le la plus jrréparable est de croire à un idéal sans
 ER difficulté. IL vaut infiniment mieux n'y pas croire : ED
 à ces matières, le pire parti est de se plaire à s'abuser- bc
-4 Tolstoï, jeune et passionné, aurait lutté pour sa reli- gà |
+Tolstoï, jeune et passionné, aurait lutté pour sa reli- gà |
 
 .  gion, s'il n'avait dû la chercher; il aurait combattu de
-“ contre lui-même, au lieu de s'égarer en vains efforts. ÿ
+“ contre lui-même, au lieu de s'égarer en vains efforts.
 Où est l'homme un peu noble, qui ne se livre d'inces- “3
-. sants combats? — Le malheur est de perdre sa force, s
-on ne sait au profit de quoi. Avec une humilité admi- 5e
+. sants combats? — Le malheur est de perdre sa force,
+on ne sait au profit de quoi. Avec une humilité admi-
 pe rable, cet orgueilleux Tolstoï confesse qu'il ne sera CE
-.… jamais un parfait chrétien, — et qu'il ne l'ignore pas. k
-Mais quoi ? dit-il : faites ce que je dis; ne faites pas ce ë
-É que je fais. Pour moi-même, je fais ce que je peux; ë
+.… jamais un parfait chrétien, — et qu'il ne l'ignore pas.
+Mais quoi ? dit-il : faites ce que je dis; ne faites pas ce
+É que je fais. Pour moi-même, je fais ce que je peux;
 faites tout ce que vous pouvez. Ne dites donc point de ai
-: ma doctrine, qu'elle est bonne seulement à un vieillard ; x
+: ma doctrine, qu'elle est bonne seulement à un vieillard
 _ dites seulement qu'il est plus aisé au vieillard de la bien ‘à
 …_ suivre. Il est vrai, pourtant, qu'un vieillard sain, robuste a
 . et vertueux est un modèle d'homme admirable à imiter. à
 - I n'y a même rien de meilleur que lui, quand sa bonté à
 - … est forte, qu'elle ne sent pas la faiblesse d'esprit, et ne 70740
 peut aucunement passer pour un effet de la décrépitude. #3
-Si les jeunes gens ne peuvent être des sages dépas- 0
+Si les jeunes gens ne peuvent être des sages dépas-
 _  sionnés, il leur est du moins possible de tendre à la pe
 ï: sagesse; encore. mieux de l'aimer, et de n'être pas fe
-. indulgents à leurs passions, surtout aux plus viles, ë
+. indulgents à leurs passions, surtout aux plus viles,
 _ comme il leur arrive souvent, — et comme il arrive tou- à
 ' jours aux hommes dans la force de l'âge, quand ils s'y Es
 …_ livrent. Toute vertu suppose une victoire. Il est bon de j à
 î . s'en proposer sur soi-même. Le vieillard l'obtient peut- me
-À être avec moins d'effort, et c'est sans doute parce qu'il a F
+À être avec moins d'effort, et c'est sans doute parce qu'il a
 3 * aussi moins de force. Mais en faut-il conclure que le st
 …_ jeune homme ne le puisse pas ? |
 - Tolstoi aura toujours le droit de répondre que ladul- ss
-tère n'est pas seulement un crime à l'homme vieux, e
+tère n'est pas seulement un crime à l'homme vieux,
 . mais au barbon et au jeune homme. Il n'est peut-être À
 pas fatal à la nature humaine que les jeunes gens ne
 
@@ -519,31 +519,31 @@ naturellement immoral; et de même que la religion
 naturelle n'a rien à faire ni avec la religion, ni
 avec la nature, la morale de la nature se moque de la
 
-Ils sont unis dans Tolstoï; il ne peut pas en être au- 10
-trement. Toute la philosophie de Tolstoï est sociale. C'est. 54
+Ils sont unis dans Tolstoï; il ne peut pas en être au-
+trement. Toute la philosophie de Tolstoï est sociale. C'est.
 . … l'ennemi né de la métaphysique, le moins allemand des “1
-- esprits. Le jeu des abstractions lui inspire un dégoût 4
+- esprits. Le jeu des abstractions lui inspire un dégoût
 _ invincible. Il ne voit rien à considérer hors de l'homme. ASE
 Il appelle vrai ce qui est humain, et concerne l'homme °a
-en société : car aucun philosophe n'a eu, plus que lui, 4 ô
+en société : car aucun philosophe n'a eu, plus que lui,
 la conviction que l'homme est l'animal social par excel- LA
-lence. De là, qu'il est injuste pour les anciens, lui qui 100
+lence. De là, qu'il est injuste pour les anciens, lui qui
 raisonne à leur manière. Toutefois, à la cité des citoyens, Î à
 il substitue la cité de Dieu. Il en croit l'heure proche; #4
 et il en est partial contre Athènes. Le petit cercle qui ‘4
-enferme la cité antique lui semble d'un horizon si e
+enferme la cité antique lui semble d'un horizon si
 restreint qu'il l'appelle barbare. C'est qu'il n'est pas Fe
-sensible à la beauté en elle-même. On le voit bien, : 7
+sensible à la beauté en elle-même. On le voit bien,
 - dans sa théorie de l'art : il nie la beauté, et n'en fait "
-qu'une relation sociale. 1e
-| Quiconque n'est pas sensible à la beauté ne peut l'être K 4
-au monde antique. Tolstoï veut qu'on lui définisse la 4
+qu'une relation sociale.
+| Quiconque n'est pas sensible à la beauté ne peut l'être
+au monde antique. Tolstoï veut qu'on lui définisse la
 beauté : il a raison de tourner en ridicule toutes les %
 
 mes 4 _ Tolsioi pivant DR
-SA _ défend de définir la bonté : elle se sent de soi; n la" x02
-#4 _ connaît en conscience; elle passe toute formule. Onen 4
-< Je pourrait dire autant du beau. Mais Tolstoï mérite qu'on #0 k
+SA _ défend de définir la bonté : elle se sent de soi; n la"
+#4 _ connaît en conscience; elle passe toute formule. Onen
+< Je pourrait dire autant du beau. Mais Tolstoï mérite qu'on #0
 _ fasse un effort plus généreux. La beauté est la perfec- En
 4 tion vivante du moi. Elle est la révélation d'une vie sen
 s suelle et parfaite, le plaisir suprême du moi en équilibre, Fo
@@ -552,30 +552,30 @@ qui jouit pleinement de l'harmonie entre sa volonté et PT
 effets. L'art est égoïste. Tolstoï ne le purifie pas du
 ; moi, ou bien il doit le sacrifier. Fe
 ; Sans opposer une esthétique à une esthétique, il faut Nr.
-< reconnaître que Tolstoi juge de l'art selon des règles … 5
+< reconnaître que Tolstoi juge de l'art selon des règles …
 . morales, comme il juge de la philosophie. C'est toujours 4 es
 selon le canon social; c'est toujours selon la norme de Et
 l'utilité publique. Or, il arrive au véritable artiste de ne Ne
 ; pas s'en soucier, Si on accorde à Tolstoi son principe,
 ; il faut tout lui accorder. On ne peut vivre humainement :
 que si l'on fait du bien à tous les hommes; on ne le peut ee
-que si l'on vit pour tous, et ne vit pas pour soi. — 1
+que si l'on vit pour tous, et ne vit pas pour soi.
 Tolstoï fonde là-dessus son édifice. Ainsi, le sens de Re
-la vie, pour lui, n'est pas une recherche de l'ordre 4 Ë
+la vie, pour lui, n'est pas une recherche de l'ordre
 spéculatif ni de celui des sciences. C'est une recherche +
 éthique, et l'explication d'un ordre de faits capital “4
-pour l'homme en société. De la même manière, le sens £. 73
-de l'art est un problème, en quelque sorte politique. À 4
-Il parle souvent de l'art, comme un paysan chaste, 2
+pour l'homme en société. De la même manière, le sens £.
+de l'art est un problème, en quelque sorte politique. À
+Il parle souvent de l'art, comme un paysan chaste,
 égaré dans un musée. Il a de cette âme naïve, quise
 prend d'abord au sens réel des images; il se l'est donnée,
 peut-être : sa volonté accorde, sans cesse, la théorie LÀ
 avec la vie. Il trouve un principe juste, que le malheur ‘e je
-| des temps a seul pu rendre douteux : à savoir que 2
+| des temps a seul pu rendre douteux : à savoir que
 l'œuvre d'art doit être intelligible. Ce qui n'est pas clair “3h
 
 _ pour l'esprit n'est pas humain, et n'est ni de l'art, ni de |
-"la beauté. L'art a toujours été une révélation du cœur v
+"la beauté. L'art a toujours été une révélation du cœur
 - par la pensée, et de la pensée au cœur. L'émotion qu'il
 donne est universelle, — parce qu'il s'adresse à l'esprit
 
@@ -601,7 +601,7 @@ _ ferveur : dans son œuvre, le véritable artiste met tout
 . Je sien. La simplicité est ce qu'il y a de plus grand,
 — car elle contient tout Je reste. L'ambigu et le recherché
 LE n'ont qu'un faux mystère. Un poème, simple et clair
-comme une fleur, est incommensurable ; mais il semble Ë
+comme une fleur, est incommensurable ; mais il semble
 « tion de chaque homme eût voulu trouver pour s'expripor elle-même. Horatio, qui n'a pourtant pas l'âme
 — d'Hamilet, devine l'infini de ses troubles : qu'est-ce
 … davantage qu'un cimetière à traverser? Quoi de plus
@@ -610,7 +610,7 @@ LÉ _ vulgaire que de heurter du pied, dans la te re brune, |
 Es __ fraîchement remuée, un ossement déjà verdi? Que diraiSIDE je plus, d'un poème admirable, qu'il est une fleur des :
 Fa _ champs, comme la rose dans le pré ? Ou, moins et mieux
 __ encore, une herbe verte dans la prairie? — Qui ne sait
-2 combien cet humble brin d'herbe est infini et mystér ux 4
+2 combien cet humble brin d'herbe est infini et mystér ux
 A en son être? — Maïs sa forme est ce que l'esprit le plus
 5 simple conçoit sans aucune peine et ce qu'il connalt 168 :
 Be, mieux. Ce qui n'est pas un objet de pensée n'est rien.
@@ -646,16 +646,16 @@ grands apôtres, d'être chrétiens parfaits, comme les TS
 dE Ée solitaires. Ils ont l'épée de saint Paul; et même quand <
 Fe _ils en détestent l'usage, — bien plus, quand le doute RES
 RS les prend de son utilité, — c'est sur le glaive qu'ils LE:
-_ s'appuient, comme on voit, selon la profonde pensée … h.
-ne re de Raphaël, saint Paul méditer, la main sur son arme, 31
+_ s'appuient, comme on voit, selon la profonde pensée …
+ne re de Raphaël, saint Paul méditer, la main sur son arme,
 _ aux mérites singuliers de sainte Cécile, à la victoire de
-ne … la musique et de la seule douceur. Les apôtres sont 2 2e
+ne … la musique et de la seule douceur. Les apôtres sont
 _ nés pour combattre; et la lutte porte en soi la dureté.
 : Il est douteux qu'il y ait jamais eu une grande âme
 - sans orgueil, — ou une petite sans vanité. Toute la diffé … Da a.
 _ rence de l'orgueil des unes à l'orgueil des autresestde
 __ savoir où on l'a placé. Dans tous ses livres, Tolstoï est”: # SR
-| orgueilleux : il accuse son amour-propre d'enfant, 3
+| orgueilleux : il accuse son amour-propre d'enfant,
 comme son entêtement d'homme fait, qui s'opiniâtre ne.
 z dans ses vues, et les préfère à celles d'autrui.Toutefois, #4
 - plus lorgueil de Tolstoï est sûr de lui et se déclare sans Ne. “à
@@ -664,24 +664,24 @@ lieu de s'en étonner, comme d'une singularité morale er
 | tout à fait contraire à l'idée qu'on se fait d'un saint,
 _, d'un chrétien, ou seulement d'un sage, si cetrait m'était 4 ee
 précisément le plus propre à marquer le véritable carac
-tère de cet orgueil. 3
-Au début de sa vie, Tolstoï rougit de son amour- 4
-propre. Plus tard, il en souffre. Il est si loin de la vanité, à Ex N
+tère de cet orgueil.
+Au début de sa vie, Tolstoï rougit de son amour-
+propre. Plus tard, il en souffre. Il est si loin de la vanité, à Ex
 qu'il ne craint pas, souvent, d'en avoir l'apparence. En
-quoi il fait bien : il n'y a qu'un petit homme, pour se £ 3
+quoi il fait bien : il n'y a qu'un petit homme, pour se £
 tromper si grossièrement, et trouver de sa vanité dans TT
-ces grands orgueilleux. Jamais on ne surprend Lévine, =: 723
+ces grands orgueilleux. Jamais on ne surprend Lévine, =:
 ni Bésoukhow, satisfaits d'avoir raison. Ils sont déter- “ES
 minés critiques, et ruinent les opinions des autres, par Sa
-besoin d'y voir clair et d'être sincères avec eux-mêmes. 32 k
+besoin d'y voir clair et d'être sincères avec eux-mêmes.
 
 _  Maisils ne se savent point de gré de le faire. Ils en soufe  frent plutôt; et même, quand ils semblent intraitables
 - aux gens de leur société, fiers de penser à l'encontre de
 “tout le monde, ils n'en sentent en secret aucun conten_ tement. On les tient orgueilleux; et, se défendant de
-“ … l'être, ils souffrent surtout de ne l'être pas. 4
+“ … l'être, ils souffrent surtout de ne l'être pas.
 | Est-ce donc que Tolstoï aime tant l'orgueil? — En
-| rien : il en sait la malice; il en a éprouvé les doulou- 1
-reuses chances, et ces maux qui vont jusques auxfureurs 3
+| rien : il en sait la malice; il en a éprouvé les doulou-
+reuses chances, et ces maux qui vont jusques auxfureurs
 - convulsives; son esprit enfin, avant d'en être purifié par à
 l'Évangile, ne lui laisse ignorer aucun inconvénient de |
 cette passion. Mais il voudrait la sentir en lui, pour (
@@ -690,11 +690,11 @@ qui, en un homme de sa sorte, n'est qu'un effet de la
 certitude d'avoir raison. Pour tout dire, l'orgueil de à à:
 Tolstoi se réduit à la conscience nette de la vérité. Cet \
 orgueil étrange est un témoin de la foi. “
-Voilà pourquoi Tolstoï se reprochaït ce qui y res- ÿ
+Voilà pourquoi Tolstoï se reprochaït ce qui y res-
 semble, et combattait l'amour-propre en lui; — et voilà
 pourquoi il lui donne carrière dans toute sa force, et ne ;
 semble pas se soucier d'en modérer seulement l'éclat.
-_… Il n'est pas facile aux hommes, aujourd'hui, d'entendre ï
+_… Il n'est pas facile aux hommes, aujourd'hui, d'entendre
 un orgueil, d'autant plus violent, que l'orgueilleux croit
 y mettre moins de lui-même. La foi conseille l'humilité,
 et même la commande. Mais cette foi est celle qui :
@@ -709,26 +709,26 @@ manie pas corrompre le présent limpide qui leur est fait \
 ER que l'orgueil est la force que la raison met dans ses
 preuves, et dont elle poursuit le contraire de la vérité,
 ss _ soit par le sarcasme, soit par le dédain. Il »'y a, pour
-à _ ainsi dire, dans cet orgueil, rien de l'homme ni dd 20
-; caractère : il est tout de l'esprit. È 13
+à _ ainsi dire, dans cet orgueil, rien de l'homme ni dd
+; caractère : il est tout de l'esprit.
 | La vérité est, de soi, aussi violemment orgueilleuse
 vis-à-vis de l'erreur, qu'elle est humble avec elle:
-même — car il n'importe rien autre à la vérité que 50
+même — car il n'importe rien autre à la vérité que
 se d'être vraie. Considérez que tout l'orgueil est dans ce Pen
 ÿ que nous mettons de notre personne en nos actes €t
 : nos paroles. Mais, pour orgueilleux qu'ils fussent dans
 & le fond de leur cœur, Descartes, ni Spinosa n'ont me.
 point d'orgueil dans leurs théorèmes. On ne peut Es.
-reprendre Spinosa sur son orgueil qu'en n'écoutant 4
-: point ce qu'il dit, et qu'en donnant toute son attention 4
+reprendre Spinosa sur son orgueil qu'en n'écoutant
+: point ce qu'il dit, et qu'en donnant toute son attention
 Tolstoï est un homme de ce temps-là, — et je veux Mi:
 dire d'il y a vingt siècles. Comme Descartes, il me fait u ee
 l'effet d'un ancien. Leur orgueil, comme tout le reste, De.
 5 tient au pouvoir capital qu'ils accordent à la raison.
-Dès lors qu'ils croient tenir la vérité, ils en accablent 10
+Dès lors qu'ils croient tenir la vérité, ils en accablent
 le mensonge et l'erreur : et c'est bien fait. La vérité
 sera toujours plus dure et plus résolue, plus ferme en
-son propos contre l'erreur, que le bien et la vertu 4
+son propos contre l'erreur, que le bien et la vertu
 contre le vice et le crime même. Rien n'est terrible pour NA
 l'erreur, comme la vérité démontrée : elle ne la. Si
 condamne pas seulement, — elle l'anéantit. De la sorte, 2 ;
@@ -763,34 +763,34 @@ en parfait mépris tous les auteurs, moins deux, et les
 œuvres qu'il jette au néant. Mais il en a une raison, ;
 qui le dispense de toute autre. Il mesure les objets Fe
 humains sur le rapport qu'ils ont à une quantité ;
-divine, — qui est la vérité. Et l'instrument de la mesure, 3
-cette intelligence, qui ravale à néant ce qui lui échappe, ë
+divine, — qui est la vérité. Et l'instrument de la mesure,
+cette intelligence, qui ravale à néant ce qui lui échappe,
 
-… n'est pas, pour Tolstoi, l'esprit de Tolstoï même : maïs, i
+… n'est pas, pour Tolstoi, l'esprit de Tolstoï même : maïs,
 te seulement, la faculté mise en tout homme d'atteindre ;
-- cette divine réalité, et de la reconnaître. L
+- cette divine réalité, et de la reconnaître.
 
 Tolstoi est le centre de chacun de ses grands
 ouvrages. Il en fait l'unité, que l'esprit léger ne leur :
 voit pas d'abord. Ces tableaux immenses de toute une ;
-époque, de toute une société, sont le cadre d'un drame É
+époque, de toute une société, sont le cadre d'un drame
 particulier, où le sort d'une conscience se joue. Il y va ”
-toujours de la vie, pour ces héros; et, comme pour k
-Tolstoï, leur vie n'a point de sens, que dans son étroite k
+toujours de la vie, pour ces héros; et, comme pour
+Tolstoï, leur vie n'a point de sens, que dans son étroite
 union avec la vie universelle.
 
-Dans Guerre et Paix, il s'agit, avant tout, de savoir 2
+Dans Guerre et Paix, il s'agit, avant tout, de savoir
 quel effet les catastrophes de la patrie ont sur Pierre *
 Bésoukhow, et le rapport de cette vie à celle de tout LS
 le peuple. Bésoukhow est le raccourci de toute sa %
-race, l'homme de grande famille où, grâce au mélange œ
+race, l'homme de grande famille où, grâce au mélange
 du sang et au hasard d'une naissance irrégulière, la À
 nature du moujik prend conscience d'elle-même; il Lx
-arrive que cette histoire d'un seul, loin d'être un épisode 4
+arrive que cette histoire d'un seul, loin d'être un épisode
 du poème, en est le sujet véritable. Les immenses à
 proportions d'une épopée nationale cachent ce dessein »
 avec un art infini. La colère d'Achille se mêle, à peu” à
-près de la même manière, à la guerre des Grecs contre 3
+près de la même manière, à la guerre des Grecs contre
 Troie, qui est l'Iliade. à
 
 Anna Kharénine est l'occasion, pour Tolstoi,
@@ -945,7 +945,7 @@ d'emprunt, comme on le fabrique à Pétersbourg, laisse
 paraître le Moscovite. Ce bon géant vainement a forcé
 sa nature ; il se redresse : on a eu beau courber
 l'arbre, on ne l'a pas mutilé, et il tient à ses racines.
-Bésoukhow paraît aussitôt ce que le monde ne croyait é
+Bésoukhow paraît aussitôt ce que le monde ne croyait
 pas qu'il fût : d'intelligence vaste ; d'une force et d'une
 pureté de cœur incorruptibles ; d'une candide bonté,
 qui ne craint pas de verser dans la faiblesse. Il ne lui
@@ -1005,7 +1005,7 @@ ne continue à se nuire, s'il sert ses paysans, — et qu'il ne
 peste sociale qui règne en Occident et dans les villes.
 
 Il ne voit pas avec moins de clarté quels maux rongent
-la Russie. Les remèdes qu'on y propose lui paraissent f
+la Russie. Les remèdes qu'on y propose lui paraissent
 dangereux et ridicules. Il ne se paye pas de panslavisme ou de philanthropie. La famille, qu'il crée à son
 tour au foyer même où il est né, ne le satisfait pas
 davantage. La vanité universelle de tous les efforts, de
@@ -1042,7 +1042,7 @@ figure n'est pas belle; mais un air sombre, en partie voulu, et
 comme décidé à n'être point confondu avec les autres. Derrière
 eux, il semble plutôt garder ces gens de lettres que faire partie
 de leur société : on le dirait prêt à les reconduire en prison.
-2 Un portrait de 1872, avec toute la barbe. Aucune recherche, ou
+Un portrait de 1872, avec toute la barbe. Aucune recherche, ou
 si quelqu'une, celle du contraire de l'élégance. La barbe épaisse
 couvre le visage jusqu'aux yeux. Les cheveux, coupés ras, font
 paraître le front plus sec et plus réduit qu'il n'est. Les yeux et la
@@ -1118,7 +1118,7 @@ a la vue basse. Il n'avait rién pour plaire, et il n'a pas |
 plu aux femmes : elles n'ont pas trouvé en lui l'espèce
 de cavalier à la française, ou d'Anglais homme de |
 salon, fin, correct, précis et flatteur à porter au bras,
-comme un objet de la bonne fabrique, — où vont toutes ÿ
+comme un objet de la bonne fabrique, — où vont toutes
 leurs préférences, quand elles ne les réservent point à
 
 quelque animal piaffant et lustré, qui tient le milieu
@@ -1188,7 +1188,7 @@ leur sainteté réprouve. Et ceux qui les suivent sont ces
 | tièdes et ces indifférents, qu'ils détestent quand ils n'en
 sont pas suivis. La même force, qui s'égare et fait le
 “mal, anime le juste, le pousse dans la voie droite, et
-; lui fait faire le bien. k
+; lui fait faire le bien.
 Pour ne parler que de la guerre, si Tolstoï n'avait
 pas été capable de s'y livrer, comme à la chasse, avec
 ; toute l'ardeur de l'homme prêt à sacrifier sa vie, il ne
@@ -1228,17 +1228,17 @@ contrée, pour rompre ses digues. Il est fâcheux qu'il
 les arrache; il l'est plus encore qu'on ne les lui ait pas
 mises. Mais le point capital est que ce fleuve coule, et
 qu'il existe. Personne, même de ses victimes, ne préfé-
-rerait qu'il ne fût pas. On ne peut persuader aux É
-Siciliens de Catane de ne point planter leurs vignes, d
+rerait qu'il ne fût pas. On ne peut persuader aux
+Siciliens de Catane de ne point planter leurs vignes,
 cent fois détruites par la lave, sur les flancs enchantés
-qualité du vin qu'elle nourrit de son feu, font pardonner î
+qualité du vin qu'elle nourrit de son feu, font pardonner
 au volcan, et oublier ses fureurs, quand il est dans son
 bumeur de précipiter le ravage et la misère.
 Le mal est qu'on ruine la force, le plus souvent, en
 1 faisant procès à La violence. Les forts, je le sais, y
 mettent toute la leur, — et c'est une de leurs marques
 les plus certaines. On dirait qu'ils se défient de toute à
-* force, en dehors de celle qu'ils ont, — ou qu'ils la vou- Ÿ
+* force, en dehors de celle qu'ils ont, — ou qu'ils la vou-
 lussent toute pour eux.
 Le préjugé contre la guerre vient de là. Elle révolte
 une âme pensante, qui éprouve largement les souffrances ,
@@ -1262,7 +1262,7 @@ et accomplit ses autres travaux.
 Tolstoï ne pourra, lui-même, nier que les peuples font
 la guerre en raison de leur force. Quand ils ne la font
 plus, ils la subissent. Ils cèdent, — et Tolstoi le trouve
-bon. Il oublie de peser la rançon de cette bonté pré- È
+bon. Il oublie de peser la rançon de cette bonté pré-
 caire, à quel prix elle s'achète. Rome conquérante est
 terrible; mais Rome conquise est pourrie. Dans cette
 Rome corrompue, voici que l'on s'assassine beaucoup
@@ -1353,7 +1353,7 @@ décidé: maïs le probable, dont il s'accommode, paraît
 hommes surtout sensibles sur l'article de la morale, et
 qui n'en acceptent une que par relations avec l'ordre » universel. Il leur faut la foi, à toute force; car, sans la
 foi, il leur semble n'avoir rien. Tel est l'inconvénient,
-pour l'intelligence, d'être plus passionné qu'intelligent, Ÿ
+pour l'intelligence, d'être plus passionné qu'intelligent,
 ou, du moins, de laisser les passions gagner le seuil de |
 l'entendement. Rousseau et Tolstoïi se ressemblent le
 Tolstoï ne conçoit qu'une foi humaine, directe aux
@@ -1422,7 +1422,7 @@ de la charité commune, des aumônes et de la philanthropie. Il a touché du doi
 
 monde : car où en est-il une plus fausse, plus riche en
 j erreur, plus satisfaite d'errer ? Elle nuit à celui qui la |
-fait, comme elle déprave celui à qui elle est faite. Elle 4
+fait, comme elle déprave celui à qui elle est faite. Elle
 est ce comble de mensonge, où il se crève les yeux pour
 ne point voir. Elle agit au nom de l'amour, et n'engendre que la honte et la haïne. Peu s'en faut que la phi-
 ; lanthropie d'habitude ne soit la maîtresse erreur de ce
@@ -1433,7 +1433,7 @@ Tout au moins, Tolstoï a bien raison de soutenir que
 la meilleure aumône est la moins calculée. Et, quant à .
 en faire un moyen social, il n'a pas tort d'y démasquer
 une hypocrisie trop forte. Il est vain, en effet, de se id
-flatter qu'une société malade, où l'aumône est mise à Ë
+flatter qu'une société malade, où l'aumône est mise à
 nu de la sorte dans ses infirmités, puisse se guérir par
 l'aumône. Mais si Tolstoi était plus sensible à la dou- . %
 ceur du cœur humain, s'il goûtait mieux les pleurs de ;
@@ -1446,12 +1446,12 @@ homme, on ne l'aperçoit jamais. Sage parfait, il enferme
 des vérités parfaites en quelques paroles. — « Qu'enseigne-t-il? — Qu'a-t-il pour nous ? » — Voilà ce que |
 l'Orient demande d'un prophète. Le Russe n'adore qu'en
 esprit : quel qu'il soit, un homme ne compte que pour
-un homme; ce peuple se soumet volontiers à une foi; R
+un homme; ce peuple se soumet volontiers à une foi;
 
 il ne semble pas se soucier de celui qui la lui donne. Il |
 est rebelle au Moi.
 Ainsi, Jésus est absent de l'œuvre de Tolstoiï, ce grand
-chrétien. Quoi de plus inattendu ? — Pour les hommes 14
+chrétien. Quoi de plus inattendu ? — Pour les hommes
 de l'Occident, ce paradoxe est presque incompréhensible. Ils seraient tentés de s'en plaindre. En France,
 en Italie, en Angleterre, Jésus a toujours été le grand
 vainqueur des âmes chrétiennes, et tout leur amour.
@@ -1461,7 +1461,7 @@ tianisme ; son attente fit leur patience; ses promesses
 firent leur salut. Ce nombre infini de larmes, de cris,
 de prières, de confidences ; ces appels de la mort et de
 la vie; ces joies détachées de tout, et ces douleurs,
-détachées de soi-même; tous ces mouvements du cœur, l
+détachées de soi-même; tous ces mouvements du cœur,
 | depuis deux mille ans, ne sont pas allés à quelques À
 paroles, fussent-elles les plus sages du monde. La force
 leur est venue de Celui qui les a fait entendre le premier. Le charmant François d'Assise imite son Maître
@@ -1553,7 +1553,7 @@ en mépris ce qu'ils ne connaissent pas. Quand ils s'en
 vont, à Athènes, casser les statues à coups de marteau, il est fort heureux que l'horreur des idoles,
 comme ils disent, occupe torte leur pensée : car, s'ils .
 avaient quelque idée de Phidias et de Praxitèle, ils en
-comprendraient à demi les dieux, et ils ne les briseraient pas. L
+comprendraient à demi les dieux, et ils ne les briseraient pas.
 .
 
 - Souvent Tolstoï renverse son ennemi par le ridicule.
@@ -1563,16 +1563,16 @@ d'une volonté méchante; et quand le monde entier me
 ferait calomnie de lui str calomnie, j'en croirais Tolstoi
 et n'en croirais pas le monde entier. Tolstoï a pu être
 mauvais, comme tout homme : encore y a-til des
-abimes entre la méchanceté d'un homme et celle d'un k
+abimes entre la méchanceté d'un homme et celle d'un
 autre. Nul ordre ne compte plus de degrés, depuis les
 infiniment petits de la mauvaise conscience, qui la ;
 trompent elle-même, jusqu'aux élans divins de la bonne.
 Il va de soi que la bonne volonté de l'esprit et le bon
-mouvement du cœur sont tout. Fît-il le mal, en Tolstoï j
+mouvement du cœur sont tout. Fît-il le mal, en Tolstoï
 la volonté est bonne. Il est admirable qu'elle le demeure, |
-avec une vue si impitoyable des vices, des fautes et des 1
+avec une vue si impitoyable des vices, des fautes et des
 ridicules humains. Mais c'est que Tolstoiï ne voit pas
-moins au fond de la misère humaine : il a plus de raison 4
+moins au fond de la misère humaine : il a plus de raison
 même que de verve. Il est beau que sa charité dépende \
 _ étroitement de sa raison. La sotte idée d'en faire un
 précheur de pitié! Tolstoï est un des esprits le plus
@@ -1608,9 +1608,9 @@ cherche toujours le vrai, s'attache au vrai seul, et
 n'omet aucun des éléments du vrai. La plupart des
 hommes accepte une vérité pour vraie, ou une erreur
 pour fausse, sans aller au delà. Tolstoï en démembre |
-les réalités une à une ; et comme souvent ce qui passe Ë
+les réalités une à une ; et comme souvent ce qui passe
 pour vérité de fait est un mensonge à ses yeux,
-l'humeur éclate de tous les points de la découverte. 5
+l'humeur éclate de tous les points de la découverte.
 
 Il faut haïr le moi; mais, d'abord, il faut le connaître,
 et qu'on le haït. On se trompe sans cesse sur ce fond de
@@ -1647,15 +1647,15 @@ l ou moins de cœur ou d'esprit. Mais, d'un enfant plein
 L corps; et la volonté propre comme le rôle marqué par
 le destin, on ne peut dire justement qu'il est égoïste. IL
 accroît et développe sa force. S'il n'en avait une,qui
-le défend contre la masse de lunivers, il ne pourrait M
+le défend contre la masse de lunivers, il ne pourrait
 jamais la porter à ce point de grandeur où quelques
 | hommes ont atteint, et où ils ont su en faire le sacrifice |
 à cet univers même. Ce qui est vrai de l'enfant l'est de
 certains hommes, et du génie. On appelle égoïsme ce À
-qui n'est, en eux, que l'effet de la force, sans quoi ils ne 4
+qui n'est, en eux, que l'effet de la force, sans quoi ils ne
 seraient pas ce qu'ils sont ; ni capables surtout, le jour
 venu, d'un parfait sacrifice. En quelque sorte, on ne ;
-peut immoler que ce qu'on a le plus. On n'est prodigue L
+peut immoler que ce qu'on a le plus. On n'est prodigue
 que de sa fortune. Il faut un moi bien plein, grand et À
 fort, pour un amour des autres grand, et plein et
 fort. Et, enfin, il faut être égoïste, ou le pouvoir, pour
@@ -1667,25 +1667,25 @@ l'égoïsme est l'objet d'un jugement moral ; et le moi ne
 l'intelligence ne peut blämer ce qu'elle sait être le puis
 
 - sant ressort de toute force pour le bien et pour le mal. &
-Puis, l'esprit qui connaît véritablement ne condamne i
+Puis, l'esprit qui connaît véritablement ne condamne
 point. Condamner, c'est ne connaître pas. 1150
 Le Moi est le nœud de la force. Sans le moi, l'homme ‘1
-est une faible créature, qui n'a rien pour elle-même ni Ü
+est une faible créature, qui n'a rien pour elle-même ni
 pour les autres. Sans un moi puissant, l'homme ne peut
 rien. La foule des hommes n'est que faible : et leur à
-égoisme confesse les faibles. N
+égoisme confesse les faibles.
 Ils n'ont que de petits intérêts ; et il est naturel que IN
 ce soit uniquement les leurs. Ils ne sont capables que
-d'un très pauvre amour ; — et c'est celui-là qui est 4
+d'un très pauvre amour ; — et c'est celui-là qui est
 l''amour-propre. Ils ne sont pas égoïstes, parce que leur
-moi est grand ; mais il faut dire que leur moi est tout ï
+moi est grand ; mais il faut dire que leur moi est tout
 égoiste, à cause que leur moi est petit. Si l'égoïste était
 celui dont le moi est puissant, il faudrait croire que de il
 tous les hommes le grand égoïste est le moins sujet à ce À
 qu'on nomme égoïsme. Apprenez à réconcilier la grandeur de l'âme avec le cœur :iln'y faut, peut-être, qu'une !
 L'amour de soi et la force du moi ne se doivent donc
 pas confondre. Il est d'un dommage continuel, pour la de
-raison, de ne point distinguer des objets si contraires. 1
+raison, de ne point distinguer des objets si contraires.
 . Que faire d'une âme sans force? — Encore bien moins
 le meilleur que le pire des hommes. On n'aura jamais
 assez la crainte de la médiocrité du cœur. Il est vrai :
@@ -1739,7 +1739,7 @@ qu'ils ne sont pas sûrs qu'elle ne tend pas uniquement
 auprès de tous les moindres. S'il l'est, c'est en ce qu'il
 n'est pas grand. Encore préfèrent-ils se voir contraints
 d'y céder, à pressentir qu'ils devront le suivre. Il les
-humilie ; mais l'humiliation imposée à tous n'est plus si f
+humilie ; mais l'humiliation imposée à tous n'est plus si
 dure et à la fin c'est une gloire subie. |
 
 Qu'ils s'en fient pourtant à ce moi qui les domine,
@@ -1796,18 +1796,18 @@ rougir à tout propos: cette rougeur fait leur supplice. Image de
 leur disparité avec le monde : ils sont hors de lieu, et le sentent.
 \ On rougit, on pâlit, ou l'on se tait, selon les tempéraments.
 
-Ils n'en voient que les apparences, sans le connaître f
-est le même, et il est admirable qu'on n'en puisse pas q
+Ils n'en voient que les apparences, sans le connaître
+est le même, et il est admirable qu'on n'en puisse pas
 : douter. De tout le fer qu'il avait pour le mal et pour la |
 guerre, il a fait une charrue pour le bien etpour la paix.
-Ce Moi puissant enfin a trouvé sa vérité. La volonté R
+Ce Moi puissant enfin a trouvé sa vérité. La volonté
 seule fixe le sens de la force. DA
 Tolstoi était sans cesse irrésolu et indécis. Sa volonté
 m'avait pas d'emploi. L'immense labeur qu'elle pouvait ë |
 fournir dépendait de la raison, qui devait seule en régler
 Vusage. Il lui fallait la vérité, ou, comme on dit, une
 Il Va eue. Dès lors, en lui tout a eu sa règle. Ce que |
-cette force avait d'unique pour le bien et pour la vie î
+cette force avait d'unique pour le bien et pour la vie
 s'est révélé.
 Sa critique ruinait toute créance. La vie et la pensée
 lui semblaient justement inutiles ; l'action et l'amour,
@@ -1875,7 +1875,7 @@ Tolstoï, encore une fois, en juge comme Descartes et pi
 A anciens : c'est une bonne tête; mais qui veut être la |
 servante, sans repos, de l'amour : Marie a choisi la
 bonne part, qui ne lui sera point ôtée. Il veut selon
-son cœur enfin, et non selon ses habitudes, ou celles l
+son cœur enfin, et non selon ses habitudes, ou celles
 que le monde a pour nous. Il nie qu'il soit bon, comme
 tous les moralistes ; et il en est sûr, comme bien peu :
 cette idée ravit. A l'égal de chaque grande conscience,
@@ -1886,14 +1886,14 @@ La religion de Tolstoï tue le moi : elle l'a d'abord
 . | meurtre est-il tout à fait nécessaire ? — Plus Tolstoi le
 dit, plus je vois combien le sien est grand. Les petits
 
-4 T'olstoï vivant ne:
+T'olstoï vivant ne:
 ui égoïstes ne pensent jamais à tuer le moi : tous les.
 nt hommes sont de petits égoïstes. Cr, c'est à eux de
 di tuer le moi, et de s'instruire à perpétrer ce suave
 ui meurtre. Quant à Tolstoï, il est un maître en cet enseiji gnement : ne vous inquiétez pas s'il le suit, pourvu
 À qu'il vous apprenne à le suivre. Si Tolstoï et ceux de
 Es sa sorte accomplissaient ce meurtre.du moi, ce serait
-EE briser le nerf du monde. j
+EE briser le nerf du monde.
 fe : j Les Saints conduisent l'homme. Aussi, ils s'en méfient
 ie et le méprisent. Il ne leur reste qu'à l'aimer. Et infiniNE ment mieux qu'il ne s'aime. Ils le mènent donc à tuer le
 moi. En effet, les petits n'ont rien de mieux à faire. Ils .
@@ -1907,7 +1907,7 @@ l'incendie et la mort. Si c'est le dieu, le char parcourt
 la belle carrière : il l'a en main. Le dieu ne pense plus,
 un seul instant, que Pégase ne lui ait été donné que
 } pour lui-même.
-1 Guidant le soc, derrière le bœuf patiemment courbé
+Guidant le soc, derrière le bœuf patiemment courbé
 ! sous le joug dé la vie, Tolstoï s'avance le long d'une
 semblable route. Ni la mort, ni le désespoir de la vie
 ne l'occupent plus :. il n'a pas le temps. Il a des
@@ -1953,11 +1953,11 @@ n'a pas laissé là un portrait de ce Pape, mais le pape
 dominatrice : il n'est pas croyable qu'il en fasse autant :
 de soi-même. Le génie de Montaigne, qui décompose et
 qui analyse sans cesse les éléments d'une vie, est tout !
-opposé, dirait-on, au génie de Shakspere, qui ne se 1
+opposé, dirait-on, au génie de Shakspere, qui ne se
 _ lasse pas de créer des êtres vivants, par un prodige de ;
-force et de sensibilité, où la raison jugeante semble ne x
+force et de sensibilité, où la raison jugeante semble ne
 pas avoir de part. Le fait est que Montaigne était ee
-le philosophe de Shakspere : il le lisait assidûment. ÿ
+le philosophe de Shakspere : il le lisait assidûment.
 Et le fait est encore qu'il n'y a point de portrait |
 de Shakspere par lui-même. Tolstoï, qui n'intervient É |
 jamais dans son récit, pour le compte de ses person- ;
@@ -1966,7 +1966,7 @@ uniquement la vie; il ne paraîtrait pas devoir s'être |
 pris pour modèle. Or, il l'a, au contraire, toujours fait. |
 I1 a le don extraordinaire de se voir dans tous les <
 . détails, ét dans les plis les plus secrets de l'âme, |
-sans jamais se reconnaître. Il ne se quitte, pour ainsi 4
+sans jamais se reconnaître. Il ne se quitte, pour ainsi
 dire, point, et n'est pas à soi-même attaché. De là,
 cet air incomparable de vérité mis en tout. Les Anciens
 nous peignent ainsi la simplicité grecque, Œdipe, ‘
@@ -1979,7 +1979,7 @@ tracé peu à peu, avec le temps, au cours d'un demi- :
 - siècle. Rousseau vieillard parle de Rousseau jeune
 homme. Mais c'est Tolstoi jeune homme, qui peint
 _ Tolstoi adolescent. Outre les dons d'une mémoire
-admirable, Tolstoi, s'observant sans relâche, n'a pas j
+admirable, Tolstoi, s'observant sans relâche, n'a pas
 remis à plus tard de fixer ses impressions.
 
 ne * Ses Souvenirs d'Enfance sont le seul livre, au monde,
@@ -1994,22 +1994,22 @@ LE k Un tel ouvrage, avec le charme du chef-d'œuvre, a la
 ea de l'être enfantin, que nul enfant ne fait, parce qu'il …
 44 } manquerait précisément à l'enfance, s'il pensait à la
 ER faire, Tolstoï l'a faite. Qui veut connaître les idées de
-Ÿ : É ce raccourci d'homme, tout barbouïillé encore du laït de - Ê
+Ÿ : É ce raccourci d'homme, tout barbouïillé encore du laït de
 Li È la femme, sa méthode sentimentale, sa logique propre,
 e . absolue et instinctive, son être passionné et léger, où
 ta les pensées mêmes se jouent à l'état d'émotions, — n'a
 : à qu'à lire ce livre, et n'a, du reste, à lire que celui-là"
 dE Dès le début, on voit une nature puissante, rebelle
 si ; à toute contrainte, sinon l'amoureuse, qui porte à
-| L l'extrême limite les forces mises en elle : avant toutes, M
+| L l'extrême limite les forces mises en elle : avant toutes,
 î une sensibilité en continuel mouvement, une sincérité
 di ? de cœur qui n'a d'égale que la sincérité de l'esprit. LM
-°\ 7 éprouve, avec une rare plénitude, les alternatives de la é
-Re vie sentimentale, et d'abord les sentiments tendres. ù
-#. Mais il paraît les juger avec non moins d'ardeur, qu'il M
+°\ 7 éprouve, avec une rare plénitude, les alternatives de la
+Re vie sentimentale, et d'abord les sentiments tendres.
+#. Mais il paraît les juger avec non moins d'ardeur, qu'il
 de. les sent : enfant ou homme, il applique tout ce qu'il à
 (4 de réflexion aux intrigues, par où son cœur et son àme
-ps passent. Il est curieusement avide de se rendre compte, M
+ps passent. Il est curieusement avide de se rendre compte,
 # de lui-même et des autres. Le goût de la vérité lui est,
 EN de bonne heure, si intime, qu'il se confond entièrement
 4 ÿ avec le goût de la justice; êt, si cette disposition est
@@ -2018,10 +2018,10 @@ fe enfantine, il n'a pas cessé d'être un enfant sur ce point.
 | Il souffre, jusque dans l'âge mûr, de cette timidité
 _ombrageuse, presque maladive, qui est comme la peau ;
 presque toujours à nu, d'un amour-propre toujours
-… blessé. Il semble n'avoir jamais été content de lui. ù
+… blessé. Il semble n'avoir jamais été content de lui.
 - Sa manie de raisonner l'a éloigné de tout le monde : \
 car, dans une âme violente, raisonner c'est vouloir avoir pi
-raison. Bientôt, les autres hommes nous font l'effet de j Ë
+raison. Bientôt, les autres hommes nous font l'effet de
 ne vivre que d'à peu près, et de n'aller au fond ni des {
 i idées, ni de ce qu'ils sentent. S'il arrive qu'on attache ;
 une valeur morale à l'examen de sa pensée, le peu Du
@@ -2034,19 +2034,19 @@ vérité ne va pas avec l'indulgence : il faut la laisser aux AA
 : âmes molles, ou à celles qui sont revenues de tout, et de
 _ la vérité même. Tolstoï ne s'abandonne de bon gré qu'à
 la terrible innocence de la nature : il ne discute pas !
-…_ avec elle; de là, que les plus simples créatures l'ont s
-| conquis et retenu : les enfants, les hommes du peuple, : t
+…_ avec elle; de là, que les plus simples créatures l'ont
+| conquis et retenu : les enfants, les hommes du peuple,
 = les paysans, les bêtes, les arbres, et les femmes pures. | |
 Sa mère est la seule personne de sa famille, avec une
-. vieille servante, qu'il n'ait jugée que du fond de son 4
+. vieille servante, qu'il n'ait jugée que du fond de son
 | amour. Son esprit démonte les ressorts de tous les autres
 êtres, de ceux-là même qu'il aime le plus : un frère, une
 femme, sa sœur, ses enfants. Il ne les flatte point
 ÿ parce qu'ils lui tiennent; mais plutôt il les dessert, parce
 qu'il les connaît mieux. Sa sincérité brutale le pousse à if
-montrer cette cruelle connaissance, qu'il pourrait cacher. 3
+montrer cette cruelle connaissance, qu'il pourrait cacher.
 Il est bien diflicile, ayant une vue perçante des hommes, ; !
-et un cœur assez entier pour ne pas les ménager, de ne J
+et un cœur assez entier pour ne pas les ménager, de ne
 
 A pas se faire, à la longue, une espèce de mérite d'être |
 j . sans ménagement. L'orgueil nous dupe où il veut. Puis,
@@ -2095,7 +2095,7 @@ par rapidité d'imagination; plein d'amour-propre, et
 ne s'aimant pas; d'une vivacité extrême d'esprit, de |
 cœur, de parole, de geste, mais non de résolution; non
 moins timide que violent, selon que son amour-propre !
-le bride, ou qu'il en rompt l'entrave; insatiable curieux 1
+le bride, ou qu'il en rompt l'entrave; insatiable curieux
 des sentiments et des mobiles humains; malgré lui, :
 juge absolu de ce qu'il analyse; témoin défiant qu'on
 _ ne trompe, ni ne corrompt pas; raison toujours armée » contre la vanité de l'homme, et qui se désarme elle- ‘
@@ -2106,7 +2106,7 @@ sans patience; uni au monde entier des créatures sans
 pouvoir accepter le commerce des hommes comme ils
 sont; fort jaloux de tendresse; implacable au mensonge ; |
 épris sur toutes choses de pureté : telle est la riche
-substance de ce caractère redoutable, dont l'équilibre é
+substance de ce caractère redoutable, dont l'équilibre
 ne s'est établi que dans la sainteté.
 
 oi L'amour de la vérité a fondé cet établissement. Ceux
@@ -2129,16 +2129,16 @@ A en est allé de la sorte. Il a commencé par être tout à
 # soi. Il s'est dégoûté de soi-même, et du reste, après s'en
 a être épris par instinct, par devoir, par compassion.
 Fe Enfin, quand il lui semblaït que le monde fût vide, la,
-te vérité, qui ne l'avait point laissé se satisfaire d'une w
+te vérité, qui ne l'avait point laissé se satisfaire d'une
 A réponse médiocre, lui a découvert que le Bien était le
 Î ÿ plan réel de la compassion universelle. Elle l'a persuadé
 a que ce Bien seul donne une réalité, à ce qui n'en am
 x PE pas; qu'il la crée incessamment; qu'il est par là le
-à M divin, ou la réalité même; et que, n'y ayant rien autre 1
+à M divin, ou la réalité même; et que, n'y ayant rien autre
 pi . de vrai que lui, c'est pour lui seul qu'il faut vivre, …
 di puisque lui ôté, il n'est point de vie. ‘
 
-45 4 3
+45
 Il y à une solitude plus profonde que la nuit arctique,
 u plus étendue que la banquise du pôle. Il y a un désert
 ) plus vaste et plus immobile que la glace sur le toit de
@@ -2146,7 +2146,7 @@ J VAsie, quand la lune de l'hiver lillumine. C'est :
 homme parmi les hommes; et la volonté d'un seul
 homme, aux prises avec le monde durable et les jours
 éphémères, voilà l'abime de Pathmos, où la solitude est
-N. Qui doit le savoir mieux que Tolstoi? Le grand i
+N. Qui doit le savoir mieux que Tolstoi? Le grand
 … vieillard a voulu le règne de Dieu sur la terre, — ét ce
 … n'est pas d'aujourd'hui. Il a mis toute la force d'une
 … logique puissante, au service de ce grand dessein. Il
@@ -2173,7 +2173,7 @@ se répandent, ou ils attirent les environs, ou ils y font
 peuple à Tolstoï. Puis il est rebuté d'eux; il s'emporte |
 contre leur mauvaise volonté : dans la Guerre et la
 SR Paix, dans Anna Kharénine, et aïlleurs, Tolstoi passe
-: aussi souvent pour misanthrope que pour dévoué et ÿ
+: aussi souvent pour misanthrope que pour dévoué et
 charitable. Il leur demande trop, dit-on. — Non : bien
 moins qu'à lui. Il ne leur demande que de le croire,
 Il leur fait un faux reproche, dit-on encore, de ne pas
@@ -2184,11 +2184,11 @@ Tolstoï parle au monde entier, selon le mot de sa
 compagne. Mais c'est qu'il ne peut enseigner son
 peuple, ses voisins, ni même sa compagne. Que je le
 vois isolé! Son isolement est aussi vaste que lui. Nul
-homme ne peut se vanter d'avoir été compris d'un seul L
-autre homme, durant cette si courte et si longue Ë
-existence. Que sera-ce de l'homme qui en vaut une L
+homme ne peut se vanter d'avoir été compris d'un seul
+autre homme, durant cette si courte et si longue
+existence. Que sera-ce de l'homme qui en vaut une
 infinité d'autres ? IL n'aura pas seulement l'ennui de ne {
-pouvoir se faire comprendre. Il aura la sombre tristesse î
+pouvoir se faire comprendre. Il aura la sombre tristesse
 de savoir jusqu'où il n'a pas été compris. Allons plus
 outre : de savoir qu'il ne pouvait pas l'être. Or, cette
 , certitude n'ôte rien à la passion de se communiquer,
@@ -2213,7 +2213,7 @@ leur faut qu'une foi définie : alors, ce qu'elles ont de |
 puissance pour agir se révèle. À peine agit-il, Tolstoï
 se trouve plongé dans cette solitude sans fin, comme la
 passion d'excellence qui l'anime. Il y a tant de vérité
-dans son âme, qu'on ne lui fait pas un moindre tort de L
+dans son âme, qu'on ne lui fait pas un moindre tort de
 ! la méconnaître toute, que de la décomposer en vérités
 particulières, et d'y choisir la sienne entre mille. Aïnsi,
 | quand il est compris sur un point, il sent encore bien
@@ -2227,7 +2227,7 @@ veut être apôtre; et l'on daigne lui pardonner ses
 rougit, ladmirable vieillard, de cet éloge! Ici, il y a un
 
 | : homme, —et l'on veut un auteur. Pascal leût pris d'une |
-se Voilà bien l'isolement profond, celui dont on ne peut l
+se Voilà bien l'isolement profond, celui dont on ne peut
 sortir, où il faudrait amener les autres, n'y ayant point
 | d'autre moyen de s'unir à autrui, et n'y servant de rien
 . d'aller aux autres. Isolé par les pensées mêmes qu'on
@@ -2239,24 +2239,24 @@ k dans sa prison. Jésus peut douter de tous les hommes.
 L Socrate peut douter de la Cité. Pourtant, Socrate a ses {
 amis, et il sourit à la cigué, en faisant vœu à Esculape:
 c'est pourquoi Socrate meurt si sereinement. Il est à
-\ admirable de sagesse; mais déjà en lui perce Épicure, M
+\ admirable de sagesse; mais déjà en lui perce Épicure,
 si triste, selon moi, étant tout raison, et le plus résigné !
-de tous les hommes : mieux vaut encore une vie, qui k
+de tous les hommes : mieux vaut encore une vie, qui
 est agonie, qu'une vie qui est la mort même. Mais vous, © |
-Jésus, pour tout ami vous avez l'éponge et le vinaïgre È
-| sur la bouche, et vos lèvres sont brûülées par la dérision; 1
+Jésus, pour tout ami vous avez l'éponge et le vinaïgre
+| sur la bouche, et vos lèvres sont brûülées par la dérision;
 l'ironie amarifie votre soif agonisante. Il m'est point <
 permis de vous rien comparer. Cependant, la puissante
-solitude suce aussi son vinaigre, et en rend sa soif L
-| plus acide. Point d'amis : car l'ami est celui qui nous 4
-* comprend assez pour nous chérir, et je le trouve plus 1
-: sûr que celui-là même qui nous aime assez pour nous 1
-L comprendre. Nos cœurs sont de viande : ils se gâtent, ÿ
+solitude suce aussi son vinaigre, et en rend sa soif
+| plus acide. Point d'amis : car l'ami est celui qui nous
+* comprend assez pour nous chérir, et je le trouve plus
+: sûr que celui-là même qui nous aime assez pour nous
+L comprendre. Nos cœurs sont de viande : ils se gâtent,
 ils se corrompent ; ils se déchirent aussi. à
 Tolstoï est donc seul, en dépit de sa gloire. IL vit
-retiré. Il n'a pas même conquis ceux de son sang : k
+retiré. Il n'a pas même conquis ceux de son sang
 quelques-uns lui résistent. L'admiration l'accompagne, à
-qui croit bon de se corroborer de blâme : car ce qu'elle ÿ
+qui croit bon de se corroborer de blâme : car ce qu'elle
 
 . admire surtout en lui, c'est qu'il lui reste incompréhenJ  sible. Les puissances de la terre honorent en lui une
 | puissance, mais ne l'aident pas. Il avait un compagnon :
@@ -2299,7 +2299,7 @@ tromper sur ce qu'on affirme, que nier à bon escient, |
 et par principe. Une grande pensée, qui n'agit pas, |
 solitaire par contrainte, après l'avoir été par goût, |
 faute de l'affirmation d'autrui, devient insupportable à
-elle-même : car il lui semble qu'elle nie. — Tolstoi a 4
+elle-même : car il lui semble qu'elle nie. — Tolstoi a
 longtemps connu ce supplice; peut-être, le connaît-il {
 encore.
 
@@ -2310,7 +2310,7 @@ Vous avez senti sa violence; elle ne périra qu'avec
 lui ; il le sait bien ; et il la fait servir à l'évangile de la
 doctrine la plus douce. Les grands violents sont doux.
 C'est ce qui les distingue des autres. Les hommes,
-entraînés par leurs appétits, inclinent à la violence; et 4
+entraînés par leurs appétits, inclinent à la violence; et
 s'ils craignent de s'y livrer, s'ils n'ont pas la force de
 braver cette crainte, ils honorent en autrui cette violence, même s'ils la détestent, même si elle leur nuit.
 Car ils ont la superstition maladive de la force. Telles }
@@ -2327,7 +2327,7 @@ rougit de la douceur. Combien différente par là des
 
 Peut-être aussi les hommes sont-ils plus doux en
 Orient qu'ailleurs, et plus paisibles. Ils ont beaucoup
-q souffert, et depuis plus de temps. Ils sont encore prêts 1
+q souffert, et depuis plus de temps. Ils sont encore prêts
 à subir toute sorte de tortures. La même force les soutient dans les supplices, et dans l'amour de ceux qui
 les y arrachent. Là-bas, ni l'innocence ni la douceur ne
 sont tout à fait un objet de mépris. Mâis on y voit des
@@ -2340,10 +2340,10 @@ et aux épines, que par le mot unique d'une douceur « unique : « Tu l'as dit. 
 La douceur est un don de soi à la beauté du monde.
 Elle triomphe comme on s'humilie. On le fait beau, on
 Vaime divin, ce monde, pour qu'il le soit. Humiliation
-incomparable, où par amour tout l'être s'incline. ! 4
+incomparable, où par amour tout l'être s'incline. !
 La douceur naît dans le cœur des grands violents par M |
 une vue de la vanité de toutes choses. En ce peu, qu'est:
-ce que le plus? ou la victoire? ou l'empire? — Le grand 1
+ce que le plus? ou la victoire? ou l'empire? — Le grand
 homme n'arrive point au terme de son œuvre, sans un
 k $ amer sourire. Car il ne touche point au terme de son
 désir. Un dégoût, profond comme le repentir, voilà sa
@@ -2357,23 +2357,23 @@ larmes, après celni de les avoir épargnées? Quelle Di
 . grandeur approche la bonté, dont la caresse chaste ‘a
 | arrête la plainte sur les lèvres, et retient sur les yeux ‘à
 les pleurs qu'ils allaient répandre. “à
- _  « L'innocence seule peut connaître le bonheur; car 4
+ _  « L'innocence seule peut connaître le bonheur; car
 elle ignore le mal. Voilà des enfants rieurs, comme ‘4
-… l'herbe au soleil; et leur vue passe toute science. 48
+… l'herbe au soleil; et leur vue passe toute science.
 « Ma grandeur, dit ce héros, ira jusqu'aux étoiles; né
 .) mais elle n'ira pas jusqu'au bonheur. Je verrai Dieu, é A
 \ peut-être ; mais, comme Moïse a vu les jardins de We
 Chanaan : — du sein de sa propre mort, et sans mettre #
 
-… le pied sur la terre promise. Je serai grand. Et toujours 4
+… le pied sur la terre promise. Je serai grand. Et toujours
 l'tiste. We
 « Maïs la créature innocente vivra dans le cœur de nl
-. Dieu, sans peine, et en riant. Toutes les bénédictions 4
+. Dieu, sans peine, et en riant. Toutes les bénédictions
 . sont pour les doux. C'est à eux que vont les béatitudes. ‘1
 Heureux les pacifiques, est-il dit : la paix est douce. ‘t
-.. Heureux les pauvres d'esprit : ils ont la douceur, étant ? L
+.. Heureux les pauvres d'esprit : ils ont la douceur, étant ?
 sans vanité. Heureux les afiligés : s'ils souffrent, c'est pl
-qu'ils sont doux. Heureux les débonnaires : la douceur L
+qu'ils sont doux. Heureux les débonnaires : la douceur
 
 … est en eux, au lieu de l'intérêt. Heureux les miséricor- PRE ?
 “dieux : le pardon est doux. Heureux les affamés du .
@@ -2382,13 +2382,13 @@ purs : toute leur force vient de leur douceur; heureux (+00
 
 … donc seuls les doux. » ie
 
-1 0
+1
 Ainsi les grands violents, sans cesser de l'être, À
-mettent toute leur violence, à la fin, dans l'admiration 4
+mettent toute leur violence, à la fin, dans l'admiration
 
 et l'amour des âmes douces. Une étrange envie, qui n'ose
 
-s'en croire elle-même, s'y mêle encore : ils chérissent « 1
+s'en croire elle-même, s'y mêle encore : ils chérissent «
 
 dans la douceur la perte infinie qu'ils ont faite, —
 l'innocence et la joie de la vie. |
@@ -2400,15 +2400,15 @@ les moins vertes, ni les moins joyeuses. Ils jettent un |
 regard passionné sur tous ces êtres qui sont passés en |
 faisant le bien, — Transivit nulli faciendo : car, ne
 faire que le bien, c'est n'avoir rien fait, selon l'honneur
-du monde. La plupart des hommes ne connaît la vie 1
+du monde. La plupart des hommes ne connaît la vie
 que par l'abus qu'ils en font sur les autres, ou celui que À
 la vie des autres fait d'eux. |
 Il n'y a point de mère que le rire d'un enfant pénètre
 comme il fait le cœur de cet homme, où il ressuscite un
-monde, dont l'innocence fait le délice. La plus pure des J
+monde, dont l'innocence fait le délice. La plus pure des
 choses, et la plus heureuse, est celle qui connaît le
 moins sa pureté et son bonheur. Cette grande âme est
-donc pleine de tristesse : elle enseigne une joie, qu'elle 1
+donc pleine de tristesse : elle enseigne une joie, qu'elle
 sait comme personne, et qu'elle ne peut plus goûter
 à l'égal de la connaître. Et, sans doute, le plus grand ]
 des hommes se surprend à sentir le remords de sa
@@ -2437,9 +2437,9 @@ ou d'un drame parfait, cette vie admirable s'embrasse
 d'un seul regard, où tous les détails et toutes les proportions s'équilibrent dans un calcul unique. Qu'une telle
 
 | vie adopte ou répudie l'art, elle en est elle-même FE
-L un chef-d'œuvre; et sa candeur apparente m'est M
+L un chef-d'œuvre; et sa candeur apparente m'est
 qu'une grâce de plus, où l'Artiste divin a mis sa
-marque. La pensée, que n'entrave plus le lien des 1
+marque. La pensée, que n'entrave plus le lien des
 | apparences, retrouve la même vérité, où l'illusion de ‘
 l'univers est suspendue : tel un pendule oscille d'un
 k bord du rêve à l'autre bord : et ce point fixe est, qu'en
@@ -2450,21 +2450,21 @@ et la contemple. Se
 LAS Les plus beaux monuments de l'art, comme les plus 4 .
 4 belles vies, ne se font pas toujours en vue de Part
 même. Ici, l'on peut voir un rapport admirable de l'art
-avec l'action. Ces chefs-d'œuvre de l'art ne sont qu'un M
+avec l'action. Ces chefs-d'œuvre de l'art ne sont qu'un
 9 résultat de l'action. Tolstoï n'a, pour ainsi dire, écrit
-t qu'au soir des journées qu'il a dû vivre. Ses poèmes É
+t qu'au soir des journées qu'il a dû vivre. Ses poèmes
 sont la réflexion de sa vie. Il était fatal, en son pays et.
 , en son temps, qu'il passât du livre à la nature, et qu'il
 finit par la charité. Le peuple russe cherche continuelle- A
-Les hommes de l'Occident, las d'agir ou sans force, M
-j se font des théories de l'action, pour en distraire un M
+Les hommes de l'Occident, las d'agir ou sans force,
+j se font des théories de l'action, pour en distraire un
 P vague désir. Ils en ont d'incertaines, et de singulières;
 où lon sent l'impuissance des gens de lettres, et la « +
-décrépitude où mène la littérature. Pour la plupart, ils 1
+décrépitude où mène la littérature. Pour la plupart, ils
 opposent la pensée et l'action. Ils finissent par ne plus
 entendre l'action que sous l'espèce brute, la plus maté-
 rielle. IL leur semble qu'un homme d'action soit celui
-qui donne des coups de poing par métier; à tout le 1
+qui donne des coups de poing par métier; à tout le
 moins, celui qui fait le tour du monde, ou traverse |
 l'Afrique. Qui les en croirait, ne serait pas loin de
 
@@ -2475,23 +2475,23 @@ elle en peut passer. J'imagine que ces esprits énervés, à
 dans leur inquiétude de ne point agir comme il faut par
 la pensée, confessent surtout la vanité de leur littérature. Et, il est vrai, que ce qu'ils écrivent, n'importe
 en rien; mais il n'importerait pas davantage qu'ils
-L… fussent planteurs paresseux sous les tropiques, ou acro- 1
+L… fussent planteurs paresseux sous les tropiques, ou acro-
 “ pates. Ils ne sont pas raisonnables, là-dessus, de s'en
 je prendre à Descartes. L'action n'est point dans les ;
-&e formes de l'acte : elle dépend de la force de l'âme. Que L
+&e formes de l'acte : elle dépend de la force de l'âme. Que
 à les âmes soient capables d'agir, voilà le point.
-(é Où le mieux voir qu'en Toistoï? — Art, foi, ou reli- k
+(é Où le mieux voir qu'en Toistoï? — Art, foi, ou reli-
 \4 gion; peintures de la guerre et de la paix; œuvres
 à . didactiques ou apostolat parmi les paysans en proie à ;
 14 la famine, c'est toujours la même bonté qui agit.
-3 C'est la force d'un peuple. Toute la vie de la Russie |
+C'est la force d'un peuple. Toute la vie de la Russie |
 14 est dans cette âme. Elle doute de soi; elle cherche
 Vi Dieu; elle le découvre, et s'y consacre. Les états
 … diffèrent, et c'est tout. L'action reste la même : Tolstoi ,
 : a révélé la Russie à la Russie, Comme elle, à la pour- À |
 £ … suite du pain de vie, il est allé quérir, sans pouvoir le
 _ rencontrer, ce grain inestimable sur l'aire, où les autres
-races ont battu leur blé, — et il ne l'a trouvé qu'en 5
+races ont battu leur blé, — et il ne l'a trouvé qu'en
 LL Il précède le peuple russe, dont l'action se déroulera,
 dans l'avenir, selon les époques de la sienne. On entend |
 pr dire, parfois, que Tolstoï n'a pas de style. Un étranger
@@ -2508,48 +2508,48 @@ race. Tolstoï a laissé les épopées d'une nation inquiète,
 curieuse d'analyse et de vérité, héroïque dans le combat
 
 La théogonie d''Homère ne répondait plus à rien,
-qu'Homère était toujours le père nourricier de la vie è
+qu'Homère était toujours le père nourricier de la vie
 grecque. Tel est le miracle de l'art, où une action éternelle a pris sa forme. Quand nul ne se souciera si
-Tolstoï a traduit bien ou mal les mots de l'Évangile, sa M
-pensée, son sentiment, sa morale, ne cesseront point de 1
+Tolstoï a traduit bien ou mal les mots de l'Évangile, sa
+pensée, son sentiment, sa morale, ne cesseront point de
 vivre dans l'âme de son peuple et d'y fructifier. Son art
-et sa religion se seront confondus dans l'amour de ce 1
+et sa religion se seront confondus dans l'amour de ce
 peuple, comme le témoignage le plus complet qu'il ait À
 reçu du divin, qui lui soit propre. Une nation ne produit ;
-qu'une fois l'homme, où elle prend conscience de son d
+qu'une fois l'homme, où elle prend conscience de son
 génie. L'honorât-elle du nom d'un Dieu, il faut toujours |
-y voir un artiste. H
+y voir un artiste.
 
 C'est un tel homme, qui aura vécu sous nos yeux, — {
 ce Tolstoï, l'Homère et le Luther du monde slave. ;
 
 Rite En de
 
-4 4
+4
 
 0 _ On me demande assez souvent pourquoi Tolstoi me Fire
 … semble d'un si grand prix; et depuis qu'il ne publie plus DR.
 W | des romans admirablés, en quoi lui trouvé-je tant DA.
 … Voilà quelques années, un jour j'ai dû me dire : je VAE
 * me sépare de Tolstoi. C'est ma seconde enfance que je. ©
-. laisse. Combien j'aurais voulu, enfant, me donner tout ut 1
+. laisse. Combien j'aurais voulu, enfant, me donner tout ut
 “ Adieu donc au grand vieillard. Et en lui, adieu à DA
 … l'enfant que j'étais. Il faut toujours tout quitter. Toute ‘Ho
 … morale fuit et fait eau. L'art reste. Les systèmes sont LH ES
 “des jeux. La vraie partie, c'est la vie. LUE
 4 … Le désir chrétien me parut d'abord combler toutes les ) 1 }
-… passions et toutes les voies de l'homme. C'était la pas- 4
-a sion de la sainteté. Mais si naïve, qu'elle espérait trouver | 14
+… passions et toutes les voies de l'homme. C'était la pas-
+a sion de la sainteté. Mais si naïve, qu'elle espérait trouver
 k sa fin dans l'amour de tous les hommes. J'ai vraiment fo
 connu par l'ardeur intérieure la charité du genre Tor
 ( hf umain. Mais qui y fut sensible, sinon ceux-là seuls qui a
 là pu Mpimaient déjà, et qui depuis n'aimèrent? À étre bon, LUC
 4 faut être un saint. tn
-LOS En se donnant, en s'offrant même, contre une secrète L
-trahir au point de la faire partager aux autres. Quand | 1
+LOS En se donnant, en s'offrant même, contre une secrète
+trahir au point de la faire partager aux autres. Quand
 
 k Je voulais le plus me donner à tous les hommes, j'avais
-‘ le plus l'air d'aspirer à les dominer et à les asservir. 1
+‘ le plus l'air d'aspirer à les dominer et à les asservir.
 $ J'ai écrit à Tolstoï, en ce temps-là. IL n'a rien compris
 à ma fureur d'amour. Au fond, je voulais être un saint à
 ) comme lui pour étre, comme lui, un père d'œuvres ;
@@ -2559,18 +2559,18 @@ discerner à quelles actions la sainteté engage, et à quel
 | sacrifice l'art oblige. Ce sont les mémes, et dans la |
 même solitude : mais l'art n'exige pas le silence, où la :
 sainteté se retranche. En art, les passions ne peuvent
-s pas se iaire. 1
+s pas se iaire.
 Alors, je croyais l'homme bon! j'ai su, depuis, que la
-bonté est aussi une œuvre, et qu'elle n'est point si natu- 4
+bonté est aussi une œuvre, et qu'elle n'est point si natu-
 relle à l'homme que la digue au castor. Je croyais à la
-Joie. À quoi ne croyais-je pas ? J'avais tant de foi à tout 6
+Joie. À quoi ne croyais-je pas ? J'avais tant de foi à tout
 ce qui compose la vie, que je parus douter de la vie
-seule. Ainsi, quand tous les moments sont d'or pur, le ÿ
+seule. Ainsi, quand tous les moments sont d'or pur, le
 temps n'a plus de prix. -
 Mais j'ai vu que rien n'est bon que la puissance victo- ;
-rieuse dé soi, qu'elle seule est amour, elle seule est ï
-Tout ce qui me fit horreur, tout ce qui me fait mal et j
-dégoût, je l'admets en soi-méme, à présent. Ce n'est pas k
+rieuse dé soi, qu'elle seule est amour, elle seule est
+Tout ce qui me fit horreur, tout ce qui me fait mal et
+dégoût, je l'admets en soi-méme, à présent. Ce n'est pas
 que je l'accepte. Mais le Destin n'a pas de plus intime
 confident. Je le réforme dans mon cœur; au fond du
 C'est là ma fatalité propre et ma mission. |
@@ -2581,9 +2581,9 @@ celles qu'il crée.
 
 | Je vois Tolstoi tel qu'il fut, et non tel que je l'aimai. ‘1
 Je sais bien qu'il n'est pas mon homme. Il n'est plus si
-bon que je le portais dans ma crédulité. Mais il est plus h
+bon que je le portais dans ma crédulité. Mais il est plus
 puissant : il a plus d'ombres; il respire toute la force de
-son œuvre; et lui-méme, sa religion, ses actes et ses f
+son œuvre; et lui-méme, sa religion, ses actes et ses
 livres, tout ici est une œuvre de la volonté. Tolstoi n'est
 pas un saint; et il n'aime pas les artistes. fo
 … Si je lui suis sévère, je ne sais. Il n'a fait beaucoup .
@@ -2591,42 +2591,42 @@ de bien, et nva beaucoup fait de mal. Il m'a troublé,
 sans me tirer de mes troubles. Toula n'est pas l'univers, }
 et tout le monde ne peut pas étre moujik. Il m'eût fait
 perdre quatre ou cinq ans, si l'on pouvait perdre des
-… années. Mais rien n'est perdu, au contraire, puisque je Ë
+… années. Mais rien n'est perdu, au contraire, puisque je
 l'ai bien aimé, et me suis mieux connu moi-même. Il ne
 ma pas guéri de la Croix, qui est le triomphe de
 l'amour dans la mort même, et dans les plus affreux
 supplices. Mais il m'a guéri des hommes.
 
-mn me semble que Tolstoi offre à nos yeux toute la ‘y si 4
-politique chrétienne. C'est en lui qu'on peut voir ce que É 4
+mn me semble que Tolstoi offre à nos yeux toute la ‘y si
+politique chrétienne. C'est en lui qu'on peut voir ce que
 . vaut l'Évangile pour la vie. Ni Jésus, ni la croix n'y sont 1 mi
-rien, pas même des symboles. Quand Tolstoï parle de Ru 6
+rien, pas même des symboles. Quand Tolstoï parle de Ru
 “Dieu, on ne sait ce qu'il dit. Pour lui, ce n'est qu'un : AE:
 “mot ; mais il arrive qu'il s'y laisse prendre. De là ces tr.
 doutes sur la personne, cette incertitude sur la volonté & a |
-d e Dieu, cette piété obscure, ces commandements au ; 4
+d e Dieu, cette piété obscure, ces commandements au
 nom d'une vérité tantôt abstraite, et tantôt vivante, ce ) ‘06
 m élange qui donne aux raisons de Tolstoï une odeur pl fl
 “religieuse et une espèce de fausseté, qui font enfin DA
 penser à un mensonge enveloppé d'encens. ne.
-D On dirait, parfois, que si un homme ne pense pas, 0
+D On dirait, parfois, que si un homme ne pense pas,
 Me est lui. Il n'a point de pensées véritables, tout en fai- “4
 sant un magnifique usage de la raison : rien ne s'offre ( ‘à
 “à ses yeux ou à son esprit, qu'il n'y imprime le tour ‘1
-sin gulier de son système. Il est même admirable qu'il 440
+sin gulier de son système. Il est même admirable qu'il
 _cesse de voir directement la vie, quand il veut penser, "4
 “lui qui, d'ailleurs, a une vue si forte et si vive des (EN
-ii ommes vivants, et de leurs actes. Ce qui lui manque AVE F
+ii ommes vivants, et de leurs actes. Ce qui lui manque AVE
 
 . le plus, sans quoi on ne pense réellement jamais, il ne :
 doute plus de la vérité qu'il enseigne : j'entends qu'ilne
 considère pas le monde sous l'œil du destin, ni en lui
-ni au compte des autres. Partout présente dans son M
-œuvre, la nécessité est partout absente de sa morale. Il N
-possède la vérité, il a pensé une fois pour toutes. Il n'a M
-point d'autre tort que de s'adresser toujours à la raison, 4
+ni au compte des autres. Partout présente dans son
+œuvre, la nécessité est partout absente de sa morale. Il
+possède la vérité, il a pensé une fois pour toutes. Il n'a
+point d'autre tort que de s'adresser toujours à la raison,
 et d'être persuadé qu'il prouve. Car, d'être comme il est,
-et d'agir comme il fait depuis qu'il est prophète en M
+et d'agir comme il fait depuis qu'il est prophète en
 , Israël, qui lui en ferait le reproche? Tolstoï est le plus |
 beau vieillard qu'il y ait en Europe. =
 Il répond, sans le vouloir, à tous ceux qui opposent
@@ -2634,13 +2634,13 @@ la société chrétienne à la société catholique, et qui
 triomphent si aisément de ce que la société catholique
 n'est pas celle de l'Évangile, ni Rome la véritable image
 du Christ. Or, il est maudit lui-même, en son pays, par
-une Église qui se vante d'être la véritable église du 1
+une Église qui se vante d'être la véritable église du
 Christ, contre Rome. Et comme lui, toutes ces églises
 sont sûres d'avoir la vérité, et la seule. Et elles aussi
 le prouvent.
 
 Tolstoi est un objet pathétique. Tolstoï est un grand à
-… spectacle. Il est déjà pour nous, comme s'il n'était plus. j:
+… spectacle. Il est déjà pour nous, comme s'il n'était plus.
 On n'attend plus rien de lui qu'on ne connaisse. On a Nr.
 tant parlé de sa mort, il y a six ou sept ans, qu'on . <
 … souhaitait d'en finir. Mais il est. d'une fibre puissante, à
@@ -2660,12 +2660,12 @@ Sa grandeur vient de sa conscience. Elle est pure, elle
 est forte comme le diamant; et si elle n'en a pris que %
 peu à peu l'eau étincelante, elle n'en est que plus belle.
 Elle cherche ce qu'elle appelle le bien, comme le seul
-air qui lui soit respirable. Le mal, pour cette conscience M
+air qui lui soit respirable. Le mal, pour cette conscience
 avide, est le contraire de la vérité. Tolstoï n'a vécu que
 pour le vrai, sans le séparer de l'idole morale. Le bien
 est une logique sensible au cœur. Ah, pourquoi Tolstoï
 ne parle-t-il pas uniquement au sentiment? Il s'en défie,
-bien loin qu'il s'y borne. j
+bien loin qu'il s'y borne.
 Beauté de cette vie : elle est une. Si diverse qu'elle soit,
 elle a l'unité en dépit de toutes les contradictions. Il faut
 être un avec soi-même. Plus on est riche en éléments « contraires, plus la profonde unité est belle : elle est à
@@ -2689,15 +2689,15 @@ Quand je commençais de connaître Tolstoï, dans
 mon admiration de Guerre et Paix et d Anna Kharénine,
 cette Iliade et cette Odyssée du roman, je déplorais
 l'abandon de l'art par un si grand artiste. Tolstoï lui- "
-même semblait dire que l'art n'est rien, et que le violon e
+même semblait dire que l'art n'est rien, et que le violon
 de Crémone ne vaut pas les boyaux du chat, dont on
 fait les cordes. Mais quoi, il fallait l'honorer de renier
 ses dieux : au sommet de son'art, il voulait davantage.
-J'ai bien vu, depuis, qu'il n'a pas cessé d'être artiste : M.
+J'ai bien vu, depuis, qu'il n'a pas cessé d'être artiste
 ne le voulût-il pas, il le serait malgré lui. Et enfin qu'a:t-il
 fait de toute sa vieillesse? Il sculpte sa propre statue, dl
 … dépuis plus de vingt ans ; et sa plus belle œuvre d'art,
-_ c'est lui-même. 1
+_ c'est lui-même.
 IL a des avantages incomparables, qu'il abdique. Il
 est grand seigneur, et se fait paysan. Riche de tous
 biens, il se prive; et même s'il joue au pauvre, c'est un
@@ -2723,16 +2723,16 @@ que pour Wagner et Shakspere. Il n'est très doux
 k qu'aux petits. Serait-il, malgré tout, plus sensible en art
 ; qu'en politique? Dans sa querelle avec Tourguénev, il
 a eu tous les torts; et combien alors, et depuis, le sage
-Ivan Sérguéiévitch a montré un esprit serein et Mmagnanime, x
+Ivan Sérguéiévitch a montré un esprit serein et Mmagnanime,
 Et j'aime Tolstoï pour toutes ses injustices : il en est
 plein. Sa verve en est faite. Il est farci de passions, et
 beaucoup sont mauvaises; ou du moins, elles le seraient
 dans un autre; mais la force, du mal même, fait une
-espèce de bien. Rien n'est misérable que la faiblesse. 1
+espèce de bien. Rien n'est misérable que la faiblesse.
 Toute la vie de Tolstoï est un essai à la domination.
 Comme tous les vrais conquérants, il tend à la conquête |
 la plus dure. La victoire la plus difficile est la plus
-belle. Aimer les tâches difficiles. j
+belle. Aimer les tâches difficiles.
 D'abord, c'est un moi féroce. Entre toutes ses passions, l'orgueil est la plus forte. Il n'y a point d'homme |
 plus entêté de ses propres raisons. Partout où il est, il |
 veut être le maître. L'instinct de dominer est en lui, :
@@ -2762,7 +2762,7 @@ Juifs, les hommes d'étude ni les savants. Il est poète,
 Lpour ne pas dire auteur, sans cesser d'être le parfait À
 bârine. Et qu'importe la blouse? Il faut, malgré lui, |
 qu'il fasse sentir sa force, qu'il domine sur les autres et |
-moins il se fera craindre. Irrité dans son amour-propre, 4
+moins il se fera craindre. Irrité dans son amour-propre,
 et sachant qu'il fait mal, il est méchant et cruel avec A:
 … Tourguénev; il prend plaisir à l'abaisser. Ce sont ses
 idées qu'il entend faire prévaloir, et à présent l'Évan- nl
@@ -2771,32 +2771,32 @@ De dix ans en dix ans, jusqu'à ce qu'il se fixe dans la
 vérité chrétienne, Tolstoi a répudié l'action de son |
 … temps, et la sienne, qu'elle y fût ou non contraire. Il a '4
 le don russe des recommencements. Nouvelle idée, |
-- nouvelle vie. Mais le centre est toujours le même : pour 1
+- nouvelle vie. Mais le centre est toujours le même : pour
 . diverses qu'il les croie, toutes ces vies de Tolstoï ont le
-même pivot : qu'il soit le maître. IL veut humilier le Î
+même pivot : qu'il soit le maître. IL veut humilier le
 monde entier, dès là qu'il s'humilie, et dans le lieu ,
 même de sa chère humiliation. Il he veut prendre leçons
 que du moujik; et il se plaît à transmettre cet humble
 
 enseignement aux superbes. Or, que de superbe dans
-son humilité, à lui! J
+son humilité, à lui!
 
-Voilà la raison de ses jugements les plus étranges. 1h
+Voilà la raison de ses jugements les plus étranges.
 
 L'art lui est ennemi, sitôt qu'il dédaigne d'être artiste.
-, Il se déguise en croquant pour tourner Wagner en ridi- M
-cule; il passe la charrue sur Beethoven et il analyse M
+, Il se déguise en croquant pour tourner Wagner en ridi-
+cule; il passe la charrue sur Beethoven et il analyse
 Shakspere, Gæthe et Ibsen avec une bêche pour les
-chasser de sa république, qu'il appelle le Royaume de 4
+chasser de sa république, qu'il appelle le Royaume de
 Dieu. IL fait table rase de tous les sommets, pour ne |
-5 plus laisser sur la plaine que le ciel des bambins, M
+5 plus laisser sur la plaine que le ciel des bambins,
 éclairé de son évangile. Parsifal n'est rien : une chan-
 | son populaire est tout. Et sur tout ce désert, au nom
 incertain de Jésus, rien ne reste que le nouvel apôtre.
 
 Je ne le déteste pas pour ses excès, qui sont ceux du
 sens propre : je l'en aime plutôt. J'admire ces forces
-qui sont prêtes à tout, si la volonté n'y met un frein. M
+qui sont prêtes à tout, si la volonté n'y met un frein.
 
 Nous sommes pleins de crimes, qu'il faut qu'on bride. à
 Tolstoï tourne l'énergie de son instinct en actions bienfaisantes, et en pensées meilleures encore. Pourtant, il
@@ -2852,16 +2852,16 @@ assassins pourra bien les porter au crime. Shakspere
 
 complice ? Quelle folie. Les grandes œuvres sont toutes. *
 bonnes, pourvu qu'elles soient fortes. La sphère supé-
-( rieure de l'artiste est toujours la bonté, et même la M
+( rieure de l'artiste est toujours la bonté, et même la
 bonté parfaite, le renoncement absolu à soi-même : la À
 communion avec l'univers. Voilà jusqu'où les grandes
 œuvres exaltent ceux qui les produisent, et mgme ceux
-qui les admirent : en les aimant, ils sont placés dans k
+qui les admirent : en les aimant, ils sont placés dans
 cette sphère d'amour parfaite, d'entier délaissement de
 soi, où ils n'eussent jamais été par leurs propres forces,
 * où jamais même ils n'eussent rêvé de s'élever.
 L'injustice de Tolstoï est fanatique. Sans doute, elle
-n'est pas volontaire; elle est la volonté de son tempé- i
+n'est pas volontaire; elle est la volonté de son tempé-
 rament. Y a-t-il rien de plus fanatique qu'une raison
 sûre d'elle-même? Nous en sommes tous là. Heureux « “
 les faibles : ils sont sans passion. A l'ordinaire des
@@ -2900,18 +2900,18 @@ satiété est-elle si cruelle ?
 Ah! de quoi m'inquiété-je? Tolstoi me remet en
 mémoire que le bonheur, ce soleil domestique, ne luit
 jamais sur le bord de la terre, où l'homme ouvre les
-yeux. Possible, le bonheur ne l'est pas. Il n'y a point 3
+yeux. Possible, le bonheur ne l'est pas. Il n'y a point
 de vrai bonheur à vivre : car la durée y manque; et la
 conscience est là. Rien ne comble le désir de la vie. Le
 bonheur serait divin, s'il pouvait se connaître. Ce n'est
 jamais du bonheur que l'on peut médire; ce n'est même à
 pas de lui qu'on doute, puisqu'il n'est point. À
 
-Ce qui ne vaut donc rien, et qui doit faire le tourment « du cœur, c'est l'illusion du bonheur. Voilà la vérité que « Tolstoi fait sentir. La maladie mortelle est admirable M
+Ce qui ne vaut donc rien, et qui doit faire le tourment « du cœur, c'est l'illusion du bonheur. Voilà la vérité que « Tolstoi fait sentir. La maladie mortelle est admirable
 
 à pour dépouiller l'illusion, et rendre l'homme à sa nudité
-fatale. Tel est le secret de Tolstoi, et le terrible renon- « cement qu'il propose de la sorte à toute vie. Il n'est pas 4
-si chrétien qu'il ne soit encore plus asiatique et gorgé 7
+fatale. Tel est le secret de Tolstoi, et le terrible renon- « cement qu'il propose de la sorte à toute vie. Il n'est pas
+si chrétien qu'il ne soit encore plus asiatique et gorgé
 de néant. Erlever l'illusion de la vie aux malheureux
 
 * mortels, quel présent à leur faire! Il leur sied bien
@@ -2955,7 +2955,7 @@ lui lance des pierres au nom du Christ. La pesante
 
 ironie! Que ces cailloux ont de tristesse!
 
-Tolstoï est puni par là d'avoir eu tant de patience j
+Tolstoï est puni par là d'avoir eu tant de patience
 
 avec les puissants du monde. Il aime la louange. Il la
 
@@ -2997,20 +2997,20 @@ passion de la morale. Toute vraie morale est ascétique,
 
 en son fond. Ils sont nés dans la haine de la chair. +
 
-Toute joie sensuelle leur est une débauche. Ils n'ont pas M
+Toute joie sensuelle leur est une débauche. Ils n'ont pas
 
 l'âme légère. Il y a du délire et des tortures dans leur
 
-volupté. Le Russe s'enivre d'idées comme d'eau-de- M
+volupté. Le Russe s'enivre d'idées comme d'eau-de-
 
 vie blanche. Sa démence est logique. Même s'il délire,
 
-il ne se délivre pas de la morale. La Russie entière ë
+il ne se délivre pas de la morale. La Russie entière
 
 | parle pour l'éternité, désormais, du sentiment chrétien. {
 Point de société, point de morale, selon le Russe, à %
 
-moins de l'idée chrétienne. ÿ
+moins de l'idée chrétienne.
 
 Après tout, Tolstoï est le seul anarchiste qui ne
 
@@ -3020,7 +3020,7 @@ révolte pas la raison. Lui, du moins, ayant ruiné l'État, À
 nature et l'État. \
 
 Dans Tolstoi, je discerne le vieux levain de l'orthodoxie contre l'Occident catholique. A quarante ans, …
-Levine tient encore pour son église, et il en suit les M
+Levine tient encore pour son église, et il en suit les
 pratiques. Tolstoï est plus orthodoxe que lui-même
 ne croit.
 
@@ -3074,7 +3074,7 @@ selon lui il y a là une cruauté et une imposture si
 horribles, qu'elles sont contraires à la nature humaine.
 Comme si rien de ce que fait l'homme pouvait n'être
 
-, 121
+,
 
 pas de sa nature! Maïs tout ce qui passe pour inhumain est humain au même titre que le reste. Quand on
 fait honneur à l'humanité d'un acte ou d'un sentiment,
@@ -3267,9 +3267,9 @@ avons vécu comme il allait finir de vivre, nous savons
 bien qu'en Tolstoï, il y a plus grand même que son
 œuvre, et c'est lui.
 
-14 00
+14
 
-25 03
+25
 
 | | 12400
 
@@ -3304,7 +3304,7 @@ qui a eu des passions jusqu'à l'âge de la retraite, ou le
 vieillard qui ensevelit les passions de toute sa vie sous
 
 la glace de la morale et la neige des cheveux blancs? - |
-Le vieil homme d'ailleurs ne meurt pas dans le nouveau: È
+Le vieil homme d'ailleurs ne meurt pas dans le nouveau:
 on le retrouve en toutes contradictions : il voit un
 
 à crime dans la propriété de la terre; mais toute sa
@@ -3335,7 +3335,7 @@ vérité, ou du droit, ou du poing, c'est toujours la force.
 La même puissance pousse des étendards divers et des
 bataiïllons diversement habillés. Quand Tolstoï prêche,
 il veut être le plus fort, comme au temps, où il mettait
-tant de colère et tant de verve à saper Napoléon : le ê
+tant de colère et tant de verve à saper Napoléon : le
 
 | moujik avait vaincu l'Empereur; la faux en mains,
 Tolstoï faisait alors le moujik dans les champs.
@@ -3357,7 +3357,7 @@ dans le néant. Voilà les saints d'Orient.
 cl Et l'autre moyen de la sainteté est de faire son
 | bonheur dans la souffrance : là-bas, le rêve; ici, l'action.
 
-4 Non pas souffrir en soi et pour soi, comme les ascètes,
+Non pas souffrir en soi et pour soi, comme les ascètes,
 
 qui sont tous d'Orient, il me semble. Souffrir dans les
 
@@ -3383,15 +3383,15 @@ LA ne s'y peut tenir. Les grandes âmes aiment mieux se
 Ki contredire que de se résigner au néant. Le néant aussi
 
 est une idée. La pensée est nihiliste; mais le cœurne - ‘a
-peut l'être. Ceux qui ne sont rien, peuvent seuls accepter k 4
+peut l'être. Ceux qui ne sont rien, peuvent seuls accepter
 qu'il n'y ait rien, et de ne rien être. Tolstoi, lui, se fixe
 dans une religion morte. Il fuit ; il ne sait où donner de \
 la tête dans les ténèbres : une froide logique le recueille. JE
-Qu'est-ce qu'une logique morale, sinon une religion ou D
+Qu'est-ce qu'une logique morale, sinon une religion ou
 morte? C'est un code, après tout; on y obéit par con- |
-trainte, on ne l'aime pas. Non pas même si on l'appelle i
-l'amour. Il n'est moyen plus odieux de me faire violence, 1 1
-que de m'imposer les règles d'une morale que je ne 6
+trainte, on ne l'aime pas. Non pas même si on l'appelle
+l'amour. Il n'est moyen plus odieux de me faire violence,
+que de m'imposer les règles d'une morale que je ne
 sens pas. |
 En vain, cet amour qui est dieu, travaille de ses
 mains et nourrit le premier venu, qui a faim et qui
@@ -3429,14 +3429,14 @@ pour ces quelque deux, trois, dix ou cent hommes, qui
 fa arbre dans un champ. Et sans doute, il vaudrait mieux
 ‘#7 que je le fusse; mais je ne le suis pas.
 
-4 Tolstoi et les autres, pour qu'il n'y ait plus de
+Tolstoi et les autres, pour qu'il n'y ait plus de
 2" maîtres, c'est leur'vœu que tous les hommes soient de
 
 . bons esclaves, les serfs honnêtes de la miche. Je ne vis
 
 4 pas pour votre morceau de mie.
 
-4 Ce qu'on est a droit sur ce qu'on veut être. Ainsi
+Ce qu'on est a droit sur ce qu'on veut être. Ainsi
 (4 l'humilité : qu'elle paraît belle et vertu dans le trou
 N peau, quand le berger l'enseigne! Mais il se trouve
 ù __ que les grands docteurs et les prophètes ne sentent
@@ -3446,19 +3446,19 @@ N peau, quand le berger l'enseigne! Mais il se trouve
 : Il est bien absurde de faire le procès des Églises au
 ni. nom de l'Évangile. Les églises sont les formes de l'état
 
-On ne peut opposer les Églises à Jésus, sans mettre F
+On ne peut opposer les Églises à Jésus, sans mettre
 Jésus en conflit avec les hommes. Il y a Pierre, et il y Là
-a Paul; et quoi qu'on fasse, tant qu'il y a des hommes, e
+a Paul; et quoi qu'on fasse, tant qu'il y a des hommes,
 il y a toujours Pierre et Paul. Ils ne consentent de rien,
 sinon qu'ils veulent vivre.
 
-Et pourquoi Tolstoi parle-t-il tant de Jésus, s'il ne, 1
-pense qu'à la morale? L'Église apaise le conflit entre 1
+Et pourquoi Tolstoi parle-t-il tant de Jésus, s'il ne,
+pense qu'à la morale? L'Église apaise le conflit entre
 Jésus et les hommes, parce qu'elle ne prétend pas le
 résoudre : elle n'invoque pas la morale, mais la propre
-autorité d'un Dieu. Là, du moins, la raison est hors de È
+autorité d'un Dieu. Là, du moins, la raison est hors de
 
-Si même l'Église de Nicée ment à l'Évangile, il s'agit 4
+Si même l'Église de Nicée ment à l'Évangile, il s'agit
 de savoir si tous les hommes n'y eussent pas beaucoup EUR
 plus menti sans l'Église. L'homme se peint dans les
 églises et les états. Il n'en vient pas : elles viennent de
@@ -3482,7 +3482,7 @@ Quelle sanction? Pour Tolstoï, la question ne se pose
 
 pas : la conscience répond à tout. Et je réponds que la A
 
-conscience à la Tolstoï est un dogme. ë
+conscience à la Tolstoï est un dogme.
 
 La force est la reine du monde, non l'opinion. Et si
 ÿ l'opinion règne, c'est qu'elle parle pour la force. A
@@ -3493,7 +3493,7 @@ L'état est toujours fondé sur l'église, quelle qu'elle
 À de robe ou de rabat. Le costume ne fait rien à l'affaire;
 7 mais il amuse les peuples. Ils ont vécu et ont tué pour
 beaucoup moins. Et pour quoi enfin? Toujours pour
-4 L'église est le corps de l'esprit qui domine. Car le
+L'église est le corps de l'esprit qui domine. Car le
 | peuple charnel veut un esprit visible. On ne sépare pas |
 ù plus l'église de l'état, qu'on ne fait le corps de la
 ? pensée. Maïs on change peu à peu de corps et de
@@ -3505,17 +3505,16 @@ beaucoup moins. Et pour quoi enfin? Toujours pour
 f La foi n'a rien à faire avec l'église. La foi est de
 % l'individu; l'église est de la société. Église ou État, il
 2 s'agit toujours d'avoir le pouvoir, de le garder, et
-| 139
 
-d'exercer seul la puissance. Toute la question est dans â
-les formes. Une belle forme n'est pas à dédaigner. IL M4
+d'exercer seul la puissance. Toute la question est dans
+les formes. Une belle forme n'est pas à dédaigner. IL
 s'en faut bien, puisque le plus souvent tout leffort ES
 humain consiste à démolir une maison délabrée pour :
 en rebâtir une neuve, des mêmes pierres, des mêmes |
 débris; et parfois le plan de la nouvelle demeure est
-celui de la plus ancienne, qu'on avait oublié. Mais où 7
-il n'y avait plus qu'une façade inhabitable, on a fait un 4
-logis où l'on se réjouit d'habiter. J
+celui de la plus ancienne, qu'on avait oublié. Mais où
+il n'y avait plus qu'une façade inhabitable, on a fait un
+logis où l'on se réjouit d'habiter.
 
 Supposé que la religion de Tolstoï devint celle d'un |
 peuple ou d'une ville, dix ans après Tolstoï, il faudrait |
@@ -3527,7 +3526,7 @@ L'Église est la réunion de ceux qui veulent en |
 commun. Ils veulent comme ils sont; et ils sont ce que |
 leurs intérêts veuleñt qu'ils soient. L'Évangile de Jésus |
 est le propre des saints. Si la raison faisait des saints,
-il y a longtemps que le monde serait purgé d'hommes. 2
+il y a longtemps que le monde serait purgé d'hommes.
 La raison est bonne à tout usage, et à déraisonner
 
 Tolstoï ne laisse pas d'irriter l'esprit par une perpé- {
@@ -3537,9 +3536,9 @@ mots crus de la raison. On ne sait que penser de son $
 Dieu. Tantôt, il le donne pour une idée, à la façon
 abstraite des philosophes; tantôt, il l'entend comme un à
 être. Moins ce Dieu, il ferait bon ménage avec les '
-athées à système, les plus dogmatiques des hommes. ï
+athées à système, les plus dogmatiques des hommes.
 Tolstoï a sa religion, et ils ont leur politique; mais la À
-politique des uns sera demain une religion; et la reli- j
+politique des uns sera demain une religion; et la reli-
 gion de Tolstoï sera une politique, dès qu'il aura des Là
 
 4 fidèles : bref une église. Ils ont enfin les mêmes idoles :
@@ -3566,7 +3565,7 @@ _ punissant, en usant de violence elles-mêmes.
 ‘4 Toute l'histoire est un abîme de violences. Le point
 4 est de vivre; et la ville vit avec la peste, la guerre,
 ‘4 linondation et le saint synode; faute de mieux. Les
-1 Églises vivent donc de violence, comme les États. Et,
+Églises vivent donc de violence, comme les États. Et,
 e pour en finir, comme tous les hommes. Oui, Léon
 ‘4 Nikolaïévitch, comme vous.
 hi: Vous, Tolstoï, en cédant à la plus ignoble des vio1 lences, qui multiplie tous les crimes par l'infamie, vous
@@ -3575,13 +3574,12 @@ hi: Vous, Tolstoï, en cédant à la plus ignoble des vio1 lences, qui multiplie
 Ne: laver de tout ce sang dans la cuvette des ballerines.
 La La violence du prince, en Russie, plus noire que la
 ne à peste, plus meurtrière que le choléra, plus enragée que
-| 141
 
-Tolstoï vivant ni 1
+Tolstoï vivant ni
 la famine, ne ménage que vous, Tolstoi, depuis vingt À (Al
 ans. Seul, on vous épargne, dans le pays où le massacre 3 |
 est un jeu que la police offre au peuple pour le repos he |
-du dimanche, où l'espion est le chevalier du roi, où l'on 14
+du dimanche, où l'espion est le chevalier du roi, où l'on
 adjuge l'emploi du bourreau à la moindre enchère, où L |
 ce n'est pas encore assez de trois cent mille pendus ni |
 d'un tel monceau de meurtres pour rassurer la lâcheté À
@@ -3613,14 +3611,14 @@ qui les subissent? C'est prendre le parti du bourreau
 que d'arrêter le bras levé des victimes. Je sais pourquoi
 Tolstoï laisse peser sur lui ce soupçon d'être pour le
 _ crime et la force, en les détestant : il ne veut pas se
-1 143
+1
 
 contredire; il veut avoir raison. Sa morale le tient; et #
 par elle, il veut tenir les autres. Je dis que la violence
 est au noyau de toute volonté. nn
 Rentrons dans la violence, pour rentrer dans laïvie. à }
 Aux yeux de Tolstoï, tout le mal du monde et tous les il
-crimes de l'histoire viennent de la force. Elle est 1
+crimes de l'histoire viennent de la force. Elle est
 toujours l'abus. Elle est toujours la guerre. Car elle est
 la violence, sous quelque forme que le mensonge des
 violents la dissimule. (
@@ -3629,18 +3627,18 @@ guerre, elle est entre les sexes par la volupté et le
 désir ; elle est éntre les hommes de la même ville par |
 le fait de la fortune. Les riches sont les bourreaux des |
 pauvres, qu'ils le sachent ou non; et les hommes sont
-les bourreaux des femmes. Les gens des villes enfin sont j
+les bourreaux des femmes. Les gens des villes enfin sont
 les bourreaux des paysans. Celui qui possède, qu'il ie |
 veuille ou non, avilit l'objet de sa possession, ou le ÿh
 ruine, ou le tue. La propriété, c'est la violence. |
 La richesse est ainsi le signe de la violence, à tous M |
 les degrés. C'est l'or qui fait les maîtres : l'or, le second |
 âge du fer; c'est la misère qui fait les esclaves : la À
-misère, l'âge second de la servitude. 114
+misère, l'âge second de la servitude.
 Au total, la violence est la loi inhumaine qui pèse sur À |
 les multitudes depuis les siècles des siècles, et toujours
-davantage. Ce monde ne serait pas l'enfer des pauvres, l Î
-s'il ne portait le joug des violents. Il faut donc arracher M
+davantage. Ce monde ne serait pas l'enfer des pauvres,
+s'il ne portait le joug des violents. Il faut donc arracher
 
  N ce monde à la violence. On ne peut supporter la vue
 _ de la misère qui y règne; et le cri des pauvres est un
@@ -3673,32 +3671,32 @@ connaît pas la mort; ou la loi d'un monde stoïque, qui
 
 vaincre en comtnun : qui est de réduire à presque rien ne
 Tolstoi travaille à constituer le genre humain. Tout a
-son effort est à ne faire qu'un seul homme de tous les” M
-hommes. Il a horreur de la différence; il n'aime que. 1 4
+son effort est à ne faire qu'un seul homme de tous les”
+hommes. Il a horreur de la différence; il n'aime que.
 l'unité. Tout ce qui sépare lui est l'ennemi. Toute sa VEN
 morale et toute sa politique tiennent dans l'amour fra ss |
 ternel. Un seul homme, une seule famille. Un seul droit, | A
 une seule vie entre tous. Il n'est pas d'autre justice. ER
-La force de Tolstoï est, à son insu, dans l'image : M
+La force de Tolstoï est, à son insu, dans l'image
 cruelle qu'il nous donne des classes. Plus il appelle les y
 hommes à se confondre dans le même amour, plus il
 leur montre avec crudité les raisons qu'ils ont de sen …
-haïr, les uns les autres. Qui a mieux opposé les riches” 4
+haïr, les uns les autres. Qui a mieux opposé les riches”
 aux pauvres, et les maîtres aux esclaves? Les riches … |
 sont des dieux sans pitié, qui vivent dans la paresse,
 qui se nourrissent du sang humain, en fermant les yeux, |
 et qui, d'ailleurs, s'en trouvent très mal. Les pauvres, "A
-sont les victimes éternelles. Au fond, à bien suivre 4
-Tolstoï et tous les Russes, on ne voit pas ce que le w 4
-moujik gagnerait à n'être plus la bête de somme que M
+sont les victimes éternelles. Au fond, à bien suivre
+Tolstoï et tous les Russes, on ne voit pas ce que le
+moujik gagnerait à n'être plus la bête de somme que
 le riche tourmente : car toutes ses vertus, toute son |
-humanité est dans ses tourments. Sa souffrance fait sa Î
+humanité est dans ses tourments. Sa souffrance fait sa
 vertu; sa misère, sa bonté. Le paysan se corrompt #4 A
 depuis qu'il s'émancipe. Si Tolstoi affirme que les (à
 riches sont punis de leur méchanceté par :la folie et le à
 désespoir où ils finissent, crevant de pléthore et d'ennui « 4 ÿ :
-à croupir sur leur indigestion, il ne paraît pas conclure 4
-que la richesse soit le châtiment même des riches: x
+à croupir sur leur indigestion, il ne paraît pas conclure
+que la richesse soit le châtiment même des riches:
 Dans tous ses livres, la misère du commun peuple L ni
 
 } _ pousse un grand cri à la justice; mais parfois elle
@@ -3715,7 +3713,7 @@ j pire violence que la guerre des classes; et pourtant, de :
 À Tolstoi, c'est la morale des classes en guerre qu'on est
 . induit à tirer. Elle est fondée uniquement, et dans
 “_  Tolstoi même, sur la violence.
-4 La violence est le seul rapport de deux classes
+La violence est le seul rapport de deux classes
 mil. refus de toute violence : sa conclusion n'est qu'à lui.
 . On peut conclure de Tolstoi à l'usage de toute violence.
 nn Il en est de cette morale comme d'un chiffre qu'on
@@ -3728,18 +3726,17 @@ A même, on convient qu'il n'y a pas trois partis possibles
 ka joue droite au soufllet, dont brûle encore la joue gauche;
 | ‘À ou, si l'on n'est pas chrétien, il faut recourir à la
 % violence : car la violence sans frein, sans borne, sans
-| 147
 
 merci, est la seule loi d'un monde sans lois, où une
 classe d'hommes opprime l'autre. La violence est la
-seule arme de ceux qui n'en ont pas. Premièrement, elle H
-est l'épée du nombre. La violence prendra toutes les F4
+seule arme de ceux qui n'en ont pas. Premièrement, elle
+est l'épée du nombre. La violence prendra toutes les
 formes, depuis l'union des ouvriers contre le patron, À
 jusqu'à la guerre civile. Elle ne s'arrêtera pas devant \
 les petits jeux des artistes; elle pourra s'amuser aussi À
-à l'incendie des bibliothèques et des musées : en quoi d
+à l'incendie des bibliothèques et des musées : en quoi
 elle retrouve Tolstoï, moins la conclusion. Quelle est la À
-l'Évangile? Moins un Dieu, l'Évangile même n'est que 4
+l'Évangile? Moins un Dieu, l'Évangile même n'est que
 la loi de Tolstoï. Beaucoup pour lui, sans doute; pas
 assez pour les autres.
 
@@ -3753,14 +3750,14 @@ et non divines qu'il tient la morale, son épouse. Jamais
 on ne mit tant de foi dans l'abstraction. De là, ces ;
 doutes sur la volonté de Dieu, cette incertitude sur la
 personne, cette piété obscure, ces commandements au ;
-nom d'une vérité tantôt abstraite, tantôt vivante, qui K
+nom d'une vérité tantôt abstraite, tantôt vivante, qui
 donnent aux enseignements de Tolstoï une odeur religieuse et une espèce de fausseté, qui font penser
 parfois à un mensonge enveloppé d'encens. Je ne puis ‘
 me résoudre à voir un tel homme satisfait d'embrasser
 le vide. Une prise si puissante sur la vie et sur les
 caractères se desserrer ainsi? Mieux vaut croire qu'il a HE
 un Dieu, sans le dire, qu'il le connaît, qu'il lui parle
-cœur à cœur, qu'il le nomme. L'homme qui a la force 1
+cœur à cœur, qu'il le nomme. L'homme qui a la force
 
 . de créer, a peut-être celle de se créer aussi un Créa_ teur.
 | Sans la haine de Rome, comment concevoir que
@@ -3772,8 +3769,8 @@ savait, de plus, la vanité de la raison. Elle ne l'empé-
 F- chaït pas de se donner entier. La force du sentiment, à
 | ce degré de feu, c'est que tout y est acte. Pourquoi
 È Tolstoï n'adore-t-il pas, dans le Petit Pauvre d'Assise,
-1 la parfaite pauvreté et la loi d'amour parfaite? Le ë
-4 Russe montre l'oreille : il repousse tout ce qui vient de
+1 la parfaite pauvreté et la loi d'amour parfaite? Le
+Russe montre l'oreille : il repousse tout ce qui vient de
 : À Rome : il exècre dans l'Église de Rome, non seulement
 la mère entre toutes les Églises, mais la reine et
 l'exemple de toutes. Le Saint-Synode n'est pas plus dur
@@ -3796,13 +3793,13 @@ souffleur. On ne saurait expliquer autrement tels juge- |
 ments de Tolstoï, pleins de mépris à l'encontre des plus |
 Le mépris de Tolstoï pour Shakspere est une feinte : |
 il cache beaucoup d'envie démocratique. L'envie évan- |
-gélique est du même ordre, ou si l'on préfère, cette 1
-humble superbe si sûre d'elle-même; elle s'alimente à 4
+gélique est du même ordre, ou si l'on préfère, cette
+humble superbe si sûre d'elle-même; elle s'alimente à
 Le prince de l'art est le prince de la différence. | ‘4
-Shakspere, prince et confident de la vie, a pour la | J
-divine variété de la nature, le même amour que la M 14
-nature. La morale repose sur un lit d'égalité. Qu'importe t \ F
-la morale à Shakspere, au prix de la vie? Il n'est pas 1: Le L,
+Shakspere, prince et confident de la vie, a pour la
+divine variété de la nature, le même amour que la
+nature. La morale repose sur un lit d'égalité. Qu'importe t \
+la morale à Shakspere, au prix de la vie? Il n'est pas 1: Le
 
 plus peuple, ni moins, qu'il n'est prince, ou femme, ou
 _ fleur, ou forêt. Il ne sera pas facile de faire comprendre
@@ -3824,7 +3821,7 @@ le: 1 le monde. Dès qu'un homme est supérieur, il voudrait
 % fils; mais s'il a eu quelques amis de son âge, ou il les a
 F …  dévorés, ou il les a perdus. On ment sur l'amitié et sur
 l'admiration, comme sur le reste.
-2 Quand nous sommes vraiment nés pour être des
+Quand nous sommes vraiment nés pour être des
 $ ! _ maîtres, nous mesurons la part, avec rigueur, à toute
 1 autorité en pied et en vie, près de nous. Une force
 “à voisine est une force contraire; elle nous porte ombrage,
@@ -3834,15 +3831,15 @@ $ ! _ maîtres, nous mesurons la part, avec rigueur, à toute
 : sl : trahir la simple amitié. Nous nous faisons, alors, deux
 .__ ou trois idoles dans le passé, parfois même le plus
 
-proche, il n'importe, pourvu que ce soit le passé. La à ï
+proche, il n'importe, pourvu que ce soit le passé. La à
 parenté des esprits gouverne ce choix : il est des A
 familles pour le génie même, et guère plus de trois ou
 quatre sortes. C'est là qu'on se retranche et qu'on LA
 s'arme contre ses anciens amis. À |
-L'Évangile à la main, Tolstoi déteste la supériorité. 5 D
+L'Évangile à la main, Tolstoi déteste la supériorité.
 Il faut que tout rival lui cède. Et combien j'en sais, à ‘à
 mille lieues de le valoir, qui font comme lui, l'un sous À]
-le couvert de l'humanité, cette vache à lait, l'autre armé M
+le couvert de l'humanité, cette vache à lait, l'autre armé
 du peuple, celui-ci du progrès, et du bien celui-là.
 Tolstoï, toujours moral, a d'abord été cruel sans excuse |
 et dur sans aucun égard pour Tourguéniev, son aîné; |
@@ -3851,18 +3848,18 @@ et qu'il fut mort, Tolstoï a été bien juste.
 Il a parlé d'Ibsen et de Wagner en termes outra- . |
 geants. Wagner ignorait sans doute jusqu'au nom de
 Tolstoï. Quant à Ibsen, s'il l'a connu, il était trop intel- à
-ligent pour en rien dire. La grande politique d'Ibsen a 4
+ligent pour en rien dire. La grande politique d'Ibsen a
 toujours été de se taire. Au reste, plus que personne, 1")
 Ibsen a vécu enseveli dans le rêve de l'homme qui crée. |
-Si jamais pourtant il y eut un poète puissant en morale, 1
-et terrible en pureté, c'est lui. Tolstoï, bien plus impur, 4
+Si jamais pourtant il y eut un poète puissant en morale,
+et terrible en pureté, c'est lui. Tolstoï, bien plus impur,
 est bien plus vivant. Mais il a toujours un moujik dans
 sa poche, pour se donner saintement raison. 1. UN
 On renvoie ce moujik au diable, d'où il vient : car il L ‘4
-sort du plus bas enfer qu'il y ait au monde, une hutte | 4
+sort du plus bas enfer qu'il y ait au monde, une hutte
 de rustre, une bauge sordide, dans le désert d'esprit ke
-qui va de la Vistule au Pacifique, où le seul art qui 4
-vaille est de s'enivrer, et de chanter sur la guitare à 3
+qui va de la Vistule au Pacifique, où le seul art qui
+vaille est de s'enivrer, et de chanter sur la guitare à
 
 deux cordes une chanson mélancolique, née de la souffrance et de l'eau-de-vie. Le moujik! Voilà-t-il pas un
 ._ bon juge en art et en pensée? Schopenhauer ne sera
@@ -3878,7 +3875,7 @@ la logique morale. Trop de rois, trop de princes dans
 ( Shakspere, trop de héros pour Tolstoi. à
 Dans les guerres, le soldat compte plus que le
 À capitaine; le vainqueur est l'éternel moujik, non pas
-1 Alexandre ou Napoléon. L'humanité est faite de
+Alexandre ou Napoléon. L'humanité est faite de
 paysans, et non de princes.
 h Les forêts sont dangereuses, tous les enfants le
 à savent : ils tremblent de sortir seuls, le soir, dans le
@@ -3891,12 +3888,12 @@ humaine, la bonne paix, l'espoir de l'universelle bouillie
 | au lait; et tout le genre humain est assis autour de la
 j. pâtée; et la planète, l'histoire, la vie ne font qu'une
 
-écuelle où, d'un doigt égal, égalernent pieux, également. M.
+écuelle où, d'un doigt égal, égalernent pieux, également.
 taillé, et bien rogné du bout, qu'il n'y aït plus trace 0 ;
-d'ongle, ni de phalange s'il se peut, tous les vivants  h
+d'ongle, ni de phalange s'il se peut, tous les vivants
 repaissent un égal appétit d'une goulée égale. Ni chaude, E +
-ni froide, que la bouillie soit tiède, surtout. Qu'elle aït L: L
-la juste chaleur du sein : nous sommes dans le paradis l
+ni froide, que la bouillie soit tiède, surtout. Qu'elle aït
+la juste chaleur du sein : nous sommes dans le paradis
 des nourrices. L'homme vivra sous l'œil des femmes ; il “1 k |
 tendra la patte jusqu'à ce que la férule en ait fait une ke
 menotte. La chiourme sera recrutée parmi les femelles Ds je |
@@ -3911,12 +3908,11 @@ une pitié créatrice, pour qu'elle s'exerce, il faut que la n |
 douleur règne sur le nombre. Et les puissances célestes |
 y veillent, ou les dieux, ou les lois fatales, de quel nom |
 qu'on les veuille nommer. Dans le paradis des nour- À |
-rices, les nourrissons mâles feront une révolte; et 1
+rices, les nourrissons mâles feront une révolte; et
 d'abord ils violeront les squaws, pour leur apprendre à 4 |
-se servir des verges, tant les mâles sont grossiers! 1
+se servir des verges, tant les mâles sont grossiers!
 Les optimistes ne vont pas assez loin. Les optimistes MES
 restent à la surface de toutes les passions. Î : |
-| 4
 
 if Après tout, Tolstoi n'est optimiste qu'en désespoir de
 | _ cause. Mais personne ne l'est plus, de nature, que
@@ -3943,10 +3939,10 @@ er aussi le Christ.
 4 à Dans Tolstoi et Kropotkine, on saisit l'impuissance
 
 du Russe à penser librement; et quand il pense, son #
-impuissance à l'action. Ils ne pensent que religieusement ; 4
-ils n'agissent qu'en religion. Les Russes ne sont pas Ê,
+impuissance à l'action. Ils ne pensent que religieusement
+ils n'agissent qu'en religion. Les Russes ne sont pas
 encore un peuple, mais une race. un
-Kropotkine optimiste jusqu'à supposer que la nature M
+Kropotkine optimiste jusqu'à supposer que la nature
 enseigne la charité, on ne peut comprendre qu'il ne soit { |
 pas chrétien. De croire à l'Évangile, seul lui manque. | |
 Car enfin, il est chrétien jusqu'à la nausée : j'entends \ ar
@@ -3957,7 +3953,7 @@ conclure : là, il tombe dans la religion. À eux deux, D |
 Kropotkine et Tolstoï, ils feraient un optimiste parfait .
 ou un parfait pessimiste, à la condition de conclure l'un |
 pour l'auire. : |
-11 paraît que le livre de Kropotkine passe pour pro- 4
+11 paraît que le livre de Kropotkine passe pour pro-
 fond. J'y vois une œuvre des plus vaines. Elle a l'incu- |
 rable puérilité des naturalistes qui se permettent de |
 conclure, et d'étendre leurs conclusions à la morale. Ils |
@@ -3965,11 +3961,11 @@ prennent un fait; ils en font un principe; puis ils |
 cherchent dans la nature et parmi le nombre infini des |
 faits contraires, quelques poignées d'exemples qui coïn- "4
 cident à leur principe. Et il ne leur en faut pas plus pour À |
-offrir des lois au monde moral. Ils rient de toute reli- Û L.
-gion; mais ils trouvent très légitime la religion d'une f Î
+offrir des lois au monde moral. Ils rient de toute reli-
+gion; mais ils trouvent très légitime la religion d'une
 seule idée, sur la base d'un seul fait. | à
-Oui, dans la nature, il est un petit nombre de cas où A: Ÿ
-les êtres vivants se donnent de l'aide les uns aux autres; 3 4
+Oui, dans la nature, il est un petit nombre de cas où A:
+les êtres vivants se donnent de l'aide les uns aux autres;
 
 ' et il est clair que si les mères ne venaient pas au
 . secours de leurs petits, y allant de leurs soins, de leur
@@ -4000,12 +3996,12 @@ la science, s'il en est une, c'est le sceptique à l'infini.
 Il n'y a de pitié véritable, il n'y a d'amour que dans
 k la conscience de l'homme. Et c'est, peut-être, que
 
-l'homme est chargé de mettre fin à la nature. Ou bien, 1 ? ï
+l'homme est chargé de mettre fin à la nature. Ou bien, 1 ?
 qu'en lui elle y aspire. a, |
 Tout est possible dans le rêve, pour l'esprit. Il n'est. “4 ‘4
 salut que dans l'art, ou dans l'action. La nature, qui
 enseigne le néant aux savants, enseigne la beauté aux ‘
-artistes. Les chefs-d'œuvre de Tolstoïi me persuadent 10
+artistes. Les chefs-d'œuvre de Tolstoïi me persuadent
 infiniment plus que ses raisons. Dans la matière, tout … |
 est fatal, et tout est fatalement impitoyable. La fatalité î |
 est la propre négation de l'amour. Il faut que cette roue ‘a
@@ -4014,19 +4010,19 @@ broyer encore. Est-ce sans fin? est-ce là ce qui vous \ il
 J'ai déjà dit que les religions ne sont toutes que des |
 essais à la vie. La religion est un ordre, où la foi per- |
 suade l'homme qu'il vit réellement, et qu'il peut vivre. À |
-Si la religion n'est qu'un mirage, elle l'est au désert de nn M
-Comme il est contre les religions, Tolstoï est contre 4
-la vie. Il fait ce qu'il peut pour ne pas l'être; mais il L' M
+Si la religion n'est qu'un mirage, elle l'est au désert de nn
+Comme il est contre les religions, Tolstoï est contre
+la vie. Il fait ce qu'il peut pour ne pas l'être; mais il L'
 l'est. Et qu'il soit contre les religions, étant lui-même si ki À
-religieux, c'est une preuve. « La mort bénie, bénie, 1
+religieux, c'est une preuve. « La mort bénie, bénie,
 bénie! » dit-il, avec la triple bénédiction des prières. {18
 Il ne fonde rien. Mais il donne le moyen de mettre fin |
 à toute l'intrigue : Que le monde entier vive selon la loi LR |
 de l'Évangile, et c'en est fait du monde. La grande loi En. |
 ; d'amour est divine : elle est contre l'homme et contre la n M A
 
-nature. L'amour humain est un appétit : il dévore. Il ne 1
-cède sa part qu'à un très petit nombre d'êtres, qu'il | 1
+nature. L'amour humain est un appétit : il dévore. Il ne
+cède sa part qu'à un très petit nombre d'êtres, qu'il
 
 garde pour sa faim. L'amour humain est une loi pleine
 ( d'injustice et de violence, comme les autres.
@@ -4069,7 +4065,7 @@ billon, et reposer au cœur du soleil comme un |
 
 atome de bourre! C'était là votre vœu, dès avant 1"
 la naissance, je le sais. Le grand désir d'Élie, qui
-fit au terrible Crieur de l'Heure ces yeux de w pe 4
+fit au terrible Crieur de l'Heure ces yeux de w pe
 tisons, ce désir est le vôtre. Vous avez ob&, |: "M
 pénérable lecteur du Livre, suivant d'un doigt
 
@@ -4115,7 +4111,7 @@ YA elle, vous avez descendu sans bruit l'escalier de
 
 bois, entre les murs douillets, qui virent passer les +
 nouveaux époux et tous les cercueils de la famille :
-et vous avez ouvert la porte. D:
+et vous avez ouvert la porte.
 Après votre temps de patience, c'est que le temps
 est venu de la sainteté : le temps qui toujours |
 presse, le temps de rester face à face avec Dieu '
@@ -4128,11 +4124,11 @@ trempent une main de bronze dans le Gange, et
 ceux qui ont passé la mer d'Irlande dans une
 auge de granit, les vieux muets, vêtus de brume,
 Ronan le thaumaturge et Tugdual coiffé de houx,
-Herbot avec ses queues de vache, et Thégonnec l:
+Herbot avec ses queues de vache, et Thégonnec
 qui se couvre de mousse, entre les chênes, tant .
 il est immobile et taciturne. :
 Ils vous font grand accueil dans leur silence et |
-dans leurs antires. Jérôme lève la tête, avec le lion 4
+dans leurs antires. Jérôme lève la tête, avec le lion
 
 qui le sert, comme un bon chien répond à son nom,
 qui est le vôtre; et remuant la queue, un jour,
@@ -4167,24 +4163,24 @@ _ avez entendu le cri du monde : Si tu veux être
 bon, vends tout ce que tu as et donne tout aux
 pauvres. Enferme-toi dans'ta cellule. La solitude
 
-l'enseignera Moïse et les Prophètes. Dans le 3
-silence enfin, tu pourras écouter la poix unique : 1
-Tu veux être avec Dieu, Dieu veut être avec toi. » M M
+l'enseignera Moïse et les Prophètes. Dans le
+silence enfin, tu pourras écouter la poix unique
+Tu veux être avec Dieu, Dieu veut être avec toi. »
 \ Le Vieux aux gros sourcils (qu'ils soient buis  [K
 sons à la Saint-Yves, pour que les bouvreuils y
-nichent) cherche dans la forêt un coin pour sa … Æ
+nichent) cherche dans la forêt un coin pour sa …
 hutte d'ermite. Ses cheveux blancs sont plus
 blancs, et plus blanche sa barbe blanche; et plus
 gris ses yeux d'eau sur le sable, comme l'écorce
 du bouleau par la pluie d'avril, ou comme les
 prunelles de la lionne caressante. Déjà, le visage
 du saint anachorète s'illumine; et les ailes des
-* anges fleurissent dans ses rides. F
+* anges fleurissent dans ses rides.
 Tel Alexis à Edesse, débarquant sur le port À
-plein de figues et d'oranges : Avant de faire un * M
-pas, il a donné tout son argent aux, pauvres, et | Ë
-les titres de ses biens, et tout son or, ce blé qui # P
-luit. Il tenait la main gauche sur ses yeux, pour à M
+plein de figues et d'oranges : Avant de faire un
+pas, il a donné tout son argent aux, pauvres, et
+les titres de ses biens, et tout son or, ce blé qui #
+luit. Il tenait la main gauche sur ses yeux, pour à
 
 ; ne pas voir les dons de la main libérale; et tous
 
@@ -4224,21 +4220,21 @@ ans qu'il attend à la porte. Gar il m'a bien servi,
 malgré tous et malgré lui.
 
 « Mon fils, vieux fils, as-tu vraiment cru que je « "4
-jamais été loin de moi. Jamais tu ne m'as trahi. M
-Tu m'as toujours cherché. Viens, toi qui veux être M Û
-seul avec moi. Je t'attendais. Je savais que tu ne 1 î
+jamais été loin de moi. Jamais tu ne m'as trahi.
+Tu m'as toujours cherché. Viens, toi qui veux être
+seul avec moi. Je t'attendais. Je savais que tu ne
 me défaudrais pas. Te voici donc, mon fils, etje
 Cher Toistoï, dans la forêt, vos yeux d'argent
 natif rayonnent une gloire, dont le lingot n'est
 pas visible, mais qui, pour vous, coule en fusion
 au creuset du paradis. La dureté du muscle ni
 l'âpre cilice du corps n'étouffe plus votre âme.
-La parole opère en vous, et vous ouvre à pous- D
+La parole opère en vous, et vous ouvre à pous-
 même, comme un livre bien relié, à la page \
 Vous étiez trop grand pour ne pas être pur, à
-pour ne pas être orai. Trop grand pour mentir. M 4
-Elle a fleuri, maintenant, sur votre face, la joie M 1
-surhumaine du sourire qui jamais ne s'éteint, &# M
+pour ne pas être orai. Trop grand pour mentir.
+Elle a fleuri, maintenant, sur votre face, la joie
+surhumaine du sourire qui jamais ne s'éteint, &#
 comme une rose sur un berceau, le sourire des 4 &
 
 O, comme vous désirez la mort, qui est le
@@ -4259,13 +4255,13 @@ f, Que je voudrais, grand-père, avoir été la mèche
 Ï crèche! Quand vous vous êtes dressé pour sortir,
 
 avant le réveil des servantes, la vieille jument “30 #
-pie dormait la hanche sur le bat-flanc, les veaux A4S
-soufflaient en tas contre les vaches fauves, et vous 44
+pie dormait la hanche sur le bat-flanc, les veaux
+soufflaient en tas contre les vaches fauves, et vous
 
 Être seul avec Dieu ! Vous portiez une besace À
 et la lampe. Vous êtes parti, comme le pèlerin Li
 d'Arkhangel et de Kalouga, pour les saints lieux "|
-de Sion, qui sont : un chemin montant dans les 1
+de Sion, qui sont : un chemin montant dans les
 pierres brûlantes ; un tombeau; et tels oliviers,
 
 sur la colline, dont les olives au pressoir ont sué
@@ -4276,12 +4272,12 @@ Vous n'avez plus depant vous que la route des
 épines, si douces au front qu'elles déchirent, enfin
 tirées de la rose du cœur. Vous n'avez plus que
 le sépulcre, l'immense berceau vide, où la chair se à
-purifie en trois jours, et qui dévore la chrysalide 4
+purifie en trois jours, et qui dévore la chrysalide
 pour le jet éternel, si pur, si vif, si haut, si libre, |
-lys de l'ascension, jusqu'au parfait soleil d'amour. k
+lys de l'ascension, jusqu'au parfait soleil d'amour.
 
 5-3
-Vous avez donc quitté la demeure du père et de 1
+Vous avez donc quitté la demeure du père et de
 la mère; la chambre de l'épouse, où vous la fites
 
 ; mère, où vous fûtes père aussi; et vous n'avez pas
@@ -4302,14 +4298,14 @@ levée de l'écrou, et le paraphe du Seigneur, pour
 sortir de prison. »
 Le sourire de tout oubli est sur vos lèvres. L'inefJable contentement de la mesure enfin remplie
 
-déborde votre front. Dans vos mains luit la lan- D.
+déborde votre front. Dans vos mains luit la lan-
 terne, le feu de route. Vous avez tiré la lampe de #
 la huche aux ténèbres; et la lumière prise, comme ji
 un rossignol sans plumes, au boisseau où elle était  \
 ensepelie, palpite de vous guider. EE: |
 
-La porte est ouverte, à présent, et ne sera plus 1
-fermée. Vous êtes, à présent, dans l'avenue solitaire qui mène où le char de feu porta, d'un trait, 114
+La porte est ouverte, à présent, et ne sera plus
+fermée. Vous êtes, à présent, dans l'avenue solitaire qui mène où le char de feu porta, d'un trait,
 Élie, telle une idée, telle une flamme.
 Avancez dans l'allée. }
 
@@ -4320,50 +4316,50 @@ derriere vous, la Mort n'est plus qu'une ombre. nn
 
 Et, au bout de l'allée, une lumière sublime vous à +4
 
-fait signe; et, brûlant pour vous, cet appel veut F4
+fait signe; et, brûlant pour vous, cet appel veut
 dire : Le Seigneur est avec lui. | he
 
-HAbuesœnores de Suares ttes 3
-l DRRTOESTOL: rss rane ModaNINee 49
-Ki On me demande assez souvent pourquoi Tolstoï .. 103
-À 1 me semble que Tolstoï offre à nos yeux........ 107
+HAbuesœnores de Suares ttes
+l DRRTOESTOL: rss rane ModaNINee
+Ki On me demande assez souvent pourquoi Tolstoï ..
+À 1 me semble que Tolstoï offre à nos yeux........
 
 _ Septième cahier de la dousième série KE
 $. — Je le vois toujours à la poursuite du bien xxx $
 $: — Je ne le déteste pas pour ses excès." Of OS
 $ —Tolstoi est excommunié.. 7... OTIS RS
-$. — Dans Tolstoï, je discerne le vieux levain 120 2. 08
+$. — Dans Tolstoï, je discerne le vieux levain
 Tolstoï et les Églises .......:...)10 LU ONE
-$. — Qui parle de bonheur, ruine la morale.. 135 ; 3
+$. — Qui parle de bonheur, ruine la morale..
 $. — Il est bien absurde de faire le procès des À
-$. — L'état est toujours fondé sur l'église .... 139
+$. — L'état est toujours fondé sur l'église ....
 $. — La foi n'a rien à faire avec l'église...... 139 Ms à
-$. — Rentrons dans la violence, pour rentrer F à p:
-$. — La richesse est ainsi le signe de la L 23 F
-$. — Tolstoi travaille à constituer le genre 4 1
+$. — Rentrons dans la violence, pour rentrer F à
+$. — La richesse est ainsi le signe de la
+$. — Tolstoi travaille à constituer le genre
 $. — La violence est le seul rapport de deux A |
 $. — Sans la haine de Rome, comment conce-. LÀ |
 
 Ë i $. — Le prince de l'art est le prince de la dif-
 $. — Quand nous sommes vraiment nés pour
 3 $. — Dans les guerres, le soldat compte plus
-LA I. — O! je vous salue, saint prophète...... 165
+LA I. — O! je vous salue, saint prophète......
 8 no II. — Être seul avec Dieu! être seul avec
-# III. — Ils vous plaindront, les uns........... 166
-V. — Après votre temps de patience ........ 168
+# III. — Ils vous plaindront, les uns...........
+V. — Après votre temps de patience ........
 L VI. — Ils vous font grand accueil dans leur
-f silence et dans leurs antres..:.... 168
+f silence et dans leurs antres..:....
 * IX. — Tel vous étes, et c'est vous, à présent,
 $ X. — Mon fils, vieux fils, as-tu vraiment cru
-ré Ë XI. — Cher Tolstoï, dans la forêt........... 172
+ré Ë XI. — Cher Tolstoï, dans la forêt...........
 
-septième cahier de la douzième série N 2:
-XII. — O, comme vous désirez la mort...... 158 4
+septième cahier de la douzième série
+XII. — O, comme vous désirez la mort......
 XIII. — Je loue le patriarche, qui a pris la clé
 XIV. — Que je voudrais, grand-père, avoir été SR
 la mèche... RCE
 XV. — Être seul avec Dieu! Vous portiez une ER
 besace et la lampe... "OT
 XVI. — Vous avez donc quitté la demeure du ES
-XVII. — « Je suis libre! avez-vous dit......... 195
+XVII. — « Je suis libre! avez-vous dit.........
 XIX. — La porte est ouverte, à présent, et ne ue.

@@ -86,7 +86,7 @@ aux lois les plus simples de l'hygiène morale, quand il
 a renié la justice pour la faveur, la sincérité pour la
 complaisance, et la vérité pour l'unité factice, quand il ”
 abandonne la réalité des mœurs pour la vanité des
-phrases, quand il renie son idéal pour des manies politiques, il est inévitable que des empestements pour- M
+phrases, quand il renie son idéal pour des manies politiques, il est inévitable que des empestements pour-
 rissent les organes.
 La révolution sociale sera morale, ou elle ne sera pas.
 
@@ -193,7 +193,7 @@ diants sont tous de cœur avec vous.
 
 Nous souffrons de ne pouvoir combattre à vos côtés pour
 la liberté des études et de la pensée. Mais recevez tout au
-moins notre encouragement fraternel ; soyez sûrs de l'admi- Ï
+moins notre encouragement fraternel ; soyez sûrs de l'admi-
 ration et de l'ardente amitié des Etudiants de France.
 
 Î (1) Permanence, 16, rue de la Sorbonne, au second, de deux
@@ -218,7 +218,7 @@ que l'on fera très utilement circuler dans les Facultés
 de province à la rentrée de Pâques.
 
 Les feuilles imprimées ont reçu à Paris plus de
-sept cents signatures. Elles continuent à circuler. e
+sept cents signatures. Elles continuent à circuler.
 
 Nous ne saurions trop engager nos amis à envoyer
 leur signature.
@@ -261,7 +261,7 @@ contre un professeur qu'ils accusaient d'ignorance, ie Re
 général gouverneur de la ville intervint pour révoquer
 ce professeur. Les étudiants, estimant qu'une question
 universitaire devait être réglée par l'autorité universi- VO
-täire, ne trouvèrent pas qu'une telle mesure füt de nature L) È
+täire, ne trouvèrent pas qu'une telle mesure füt de nature L)
 à leur donner satisfaction. : 3 À
 Sur ces entrefaites, un incident d'un autre ordre vint
 augmenter le mécontentement ; un étudiant, en compa- =.
@@ -316,7 +316,7 @@ vous attendons ; mettez-vous au fauteuil, nous avons
 des demandes à vous soumettre. » Le général, après
 quelques pourparlers, somme les étudiants de sortir
 
-Louis Lapicque 4le
+Louis Lapicque
 trente par trente pour qu'on prenne leurs noms; cet
 ordre est exécuté sans résistance.
 Le lendemain, les trois cent quatre-vingt-douze étudiants dont on avait ainsi constaté la présence étaient
@@ -328,7 +328,7 @@ service militaire des élèves des écoles supérieures exclus
 pour désordres collectifs.
 Article 1. — Les élèves des écoles supérieures, pour l'or- à
 ganisation collective des désordres à l'intérieur des écoles
-ou au dehors, ou pour l'excitation à ces désordres; pour V4
+ou au dehors, ou pour l'excitation à ces désordres; pour
 l'abstention organisée des exercices scolaires, ou pour ps
 l'excitation à cette abstention, seront exclus des écoles et
 incorporés dans les régiments, même lorsqu'ils ont une li
@@ -372,7 +372,7 @@ plus sage comme la plus juste était une large indulgence.
 Mais les mesures étaient déjà prises indépendamment de ce rapport; l''oukase du 29 juillet avait été promulgué.
 
 Cet oukase n'avait pas encore été appliqué ; on le
-considérait généralement en Russie comme devant res- j
+considérait généralement en Russie comme devant res-
 ter à l'état d'épouvantail. Le Ministre de l'Instruction
 publique trouva nécessaire d'y recourir contre les étudiants de Kiev.
 
@@ -402,7 +402,7 @@ le procureur militaire et le procureur civil.
 
 1.4 _ Le ministre confirma le jugement pour les 2 étudiants de la première catégorie et les 5 étudiants de la
 deuxième ; de plus, pour 176 étudiants de la troisième ;
-les 209 autres eurent leur peine commuée. l
+les 209 autres eurent leur peine commuée.
 
 On dit que huit d'entre eux, à l'arrivée au régiment,
 
@@ -494,7 +494,7 @@ que pour une signature d'homme. Mais les individus
 
 ont subi loyalement la poussée de leur conscience.
 Marc Sangnier, du Sillon, à signé l'affiche commune
-côté de Ludovic Marchand, des Socialistes Révolutionnaires internationalistes. L'officielle et timorée Asso1 19
+côté de Ludovic Marchand, des Socialistes Révolutionnaires internationalistes. L'officielle et timorée Asso1
 
 ciation générale des étudiants avait, elle, courageusement, pour une fois, décidé en Comité de prendre part
 au meeting; ce n'est que devant le refus des groupes
@@ -582,7 +582,7 @@ la Russie.
 
 Pleins de terreur et d'angoisse devant l'avenir
 réservé à notre pays livré aux fouets de cosaques et
-aux sabres de sbires; f
+aux sabres de sbires;
 
 Convaincus que notre indignation est partagée
 par tous nos confrères russes dont nous n'avons pas
@@ -597,7 +597,7 @@ passe chez nous,
 Nous faisons appel à la presse du monde entier
 pour donner le plus de publicité possible à la constatation des faits lamentables dont nous avons été
 
-Marie WATSON, PIERRE WEINBERG, exprofesseur à l'Université de Pétersbourg; G.
+Marie WATSON, PIERRE WEINBERG, exprofesseur à l'Université de Pétersbourg;
 
 dixième cahier de la deuxième série ‘4
 l'Université de Pétersbourg; Gorky (ALExXIS
@@ -723,11 +723,11 @@ réciproque. Aussi ai-je montré cette connexité, toutes
 les fois que c'était nécessaire. J'ai tâché de faire voir
 que ces phénomènes divers n'étaient séparés que dans
 mon livre, et non dans la réalité, que c'étaient les
-aspects d'une même évolution. — — 1
+aspects d'une même évolution. —
 thode ni de mon plan, j'espère qu'on aura du moins,
 quant à ma documentation, une sécurité, qui vient de
 la nature de mon sujet. Je veux dire qu'on n'aura pas
-à craindre qu'il m'ait été matériellement impossible de j
+à craindre qu'il m'ait été matériellement impossible de
 connaître toutes les sources essentielles. Il n'en est pas
 de même pour d'autres sujets. L'histoire économique et
 sociale de la Révolution, par exemple, est dispersée en
@@ -743,7 +743,7 @@ si on la réduit aux faits que j'ai choisis, il est possible di
 à un homme, en une vingtaine d'années, de lire les lois
 de la Révolution, les journaux influents, les correspondances, les délibérations, les discours, les procèsverbaux d'élection, la biographie des personnages qui
 ont joué un rôle. Or, voilà un peu plus de vingt ans que
-j'ai entrepris cette lecture. J'ai commencé, en 1879, par ÿ
+j'ai entrepris cette lecture. J'ai commencé, en 1879, par
 étudier les discours des orateurs, et, depuis quinze ans, he
 dans mon cours à la Sorbonne, j'ai étudié les insti- is
 tutions, les partis, la vie des grands individus. J'ai donc
@@ -753,7 +753,7 @@ recherches ont été lentes et je les crois complètes dans
 l'ensemble. Je ne pense pas avoir omis une source
 importante, ni avoir émis une seule assertion quinesoit
 directement tirée des sources. — — — pa
-— — Quant à l'état d'esprit où je me suis trouvé en j
+— — Quant à l'état d'esprit où je me suis trouvé en
 écrivant ce livre, je dirai seulement que j'ai voulu, dans
 la mesure de mes forces, faire œuvre d'historien, et non
 pas plaider une thèse. J'ai l'ambition que mon travail
@@ -787,18 +787,18 @@ la Cour de cassation (7 février-23 février; 31 marsavril 1898). Compte rendu s
 et documents annexes. Deux volumes 10 francs
 l''Affaire Dreyfus. — La revision du procès à la Cour
 de cassation (27, 28 et 29 octobre 1898). Compte rendu
-sténographique in extenso. Un volume 2 francs; 5
-l'Affaire Dreyfus. — La revision du procès. Enquéte s
+sténographique in extenso. Un volume 2 francs;
+l'Affaire Dreyfus. — La revision du procès. Enquéte
 de la Cour de cassation. Instruction de la Chambre cri- Fe
 minelle. Instruction des Chambres réunies. Pièces an-
 l'Affaire Dreyfus. — La revision du procès. Débats
 de la Cour de cassation. Rapport de M. Ballot-Beaupré,
 conclusions de M. le procureur général Manau, mémoire ie
 et plaidoirie de maître Mornard, arrêt de la cour (29,30
-et 31 mai, premier juin 1899). Compte rendu sténogra- i
-phique in extenso. Un gros volume 3 francs 50; ù
+et 31 mai, premier juin 1899). Compte rendu sténogra-
+phique in extenso. Un gros volume 3 francs
 l''Affaire Dreyfus. — Le procès de Rennes (7 août- di
-les Preuves, de l'ancien Jaurès 1 franc 50; k
+les Preuves, de l'ancien Jaurès 1 franc
 Histoire des Variations de l'État-Major, par quatre
 Joseph Reinach. Histoire de l'affaire Dreyfus
 Les douze volumes, dans nos bureaux ou franco
@@ -815,7 +815,7 @@ services que le compte rendu sténographique non officiel
 de la version française en préparation aux cahiers.
 
 Vient de paraître à la Société nouvelle de librairieet
-. Pris dans nos bureaux ou franco à n
+. Pris dans nos bureaux ou franco à
 Franco à domicile en province ou à l'étranger : -
 Seul ou dans une commande inférieure
 Dans une commande égale ou supérieure
@@ -859,12 +859,12 @@ L'action des Journaux pour tous est nouvelle ence
 sens qu'au lieu de propagander en vase clos elle atteint
 sans cesse de nouveaux citoyens soigneusement choisis
 parmi les non convertis convertissables.
-Enfin elle est d'administration et non de gouvernement. Des jeux de fiches bien tenus sont sa seule puissance. Elle ne sert qu'à donner la communication entre k
+Enfin elle est d'administration et non de gouvernement. Des jeux de fiches bien tenus sont sa seule puissance. Elle ne sert qu'à donner la communication entre
 des citoyens libres.
 
-Le seul défaut de l'œuvre n'est pas de sa faute. Les f
+Le seul défaut de l'œuvre n'est pas de sa faute. Les
 journaux qu'elle envoie ne sont pas parfaits. Mais ils
-valent beaucoup mieux que les journaux qu'ils sup- : ù
+valent beaucoup mieux que les journaux qu'ils sup-
 
 L'œuvre des Journaux pour tous présente l'occasion
 d'un exercice exact aux républicains sincères qui
@@ -914,22 +914,22 @@ au Cherche-Midi, et que Déroulède passait en cour d'as- À
 l'éducation politique des citoyens par la communication de la vérité, par la libre discussion. Elle ne se
 recommande d'aucun parti politique, mais de ce qu'il
 y a de sincère, de juste et de vrai en chacun d'eux.
-Les socialistes, les radicaux, les républicains collabo- F.
-rent ensemble à l'œuvre des Journaux pour tous, 4
+Les socialistes, les radicaux, les républicains collabo-
+rent ensemble à l'œuvre des Journaux pour tous,
 comme ils ont collaboré à la défense de la justice et .
 de la vérité dans l'affaire Dreyfus. — En fait, l'œuvre
-des Journaux pour tous répand à la campagne le plus l
-grand nombre possible de publications de toutes sortes, 7
+des Journaux pour tous répand à la campagne le plus
+grand nombre possible de publications de toutes sortes,
 tous les journaux, toutes les revues, toutes les brochures,
 pourvu que ces publications soient propres et honnêtes.
 L'œuvre ne sert que de trait d'union entre des per- à
 sonnes; elle donne la communication entre ceux qui
 veulent envoyer leurs journaux après lecture et ceux
-qui veulent ou peuvent lire autre chose que le Petit ÿ
+qui veulent ou peuvent lire autre chose que le Petit
 Journal et la Croix. Elle a donc deux clientèles qu'elle
 A Paris et dans quelques villes de province, elle a
 recruté jusqu'ici 2.300 adhérents. Ces adhérents n'ont
-pas donné leur collaboration par complaisance ou par j
+pas donné leur collaboration par complaisance ou par
 
 _‘ enthousiasme momentané : ce sont des adhérents con__ vaincus et, sauf quelques rares exceptions, opiniâtres
 chaque jour ils font œuvre efficace de collaboration en
@@ -980,8 +980,8 @@ futur destinataire — le plus souvent Le Petit Journal ou
 un journal local, — état d'esprit, journal qu'il conviendrait d'envoyer à titre d'essai. On échoue quelquefois ; à
 souvent on ignore le résultat de la démarche; mais
 presque toujours le journal est accepté ; de là à le lire
-il n'y a qu'un pas; quelquefois on réussit tout à fait : j
-nous avons reçu des lettres d'où il apparaissait que la s
+il n'y a qu'un pas; quelquefois on réussit tout à fait
+nous avons reçu des lettres d'où il apparaissait que la
 lecture des journaux républicains avait été une révé-
 Autant que possible, l'œuvre engage ses collaborateurs à entrer en relations avec leurs correspondants
 c'est le meilleur moyen de rendre agréable et significa- à
@@ -1033,7 +1033,7 @@ tous à Belfort pour le territoire de Belfort, à Saint.
 Claude pour le Jura, et à Chambéry pour la Savoie. ‘14
 L'Œuvre des Journaux pour tous s'est développée .
 lentement, régulièrement; elle a marché pas à pas.
-Nous avons plus de confiance dans cette méthode, — N:
+Nous avons plus de confiance dans cette méthode,
 que les circonstances nous ont d'ailleurs imposée, —que
 dans un essor impétueux et sans lendemain.
 La création du comité la Propagande socialiste est
@@ -1045,7 +1045,7 @@ Petite République ou de l' Aurore envoyant son journal
 d'action de chacune des deux œuvres à l'égard de
 l'autre, et leur complète solidarité. F À
 Nous reproduisons d'après les journaux le programme ‘
-de la Propagande socialiste. k
+de la Propagande socialiste.
 Il importe de faire connaître les principes et la doctrine
 du socialisme, au moment où la lutte économique devient de
 plus en plus äâpre, et où le socialisme grandissant, s'il ne
@@ -1105,12 +1105,12 @@ hommes sont exigeants et n'admettent pas qu'on se donne
 à moitié. Les miséreux lui prirent tout son temps, lui mon- ‘à
 trèrent toute leur misère. Bazin fut épouvanté. Il connut
 alors pourquoi l'instinct, qui ne trompe guère, avait empé-
-ché fes camarades d'École, riches et heureux, de collaborer - 744
+ché fes camarades d'École, riches et heureux, de collaborer
 avec lui. C'est que l'ignorance des misères humaines est le
 plus solide rempart du bonheur, de l'optimisme, et du libé- ‘2
 ralisme économique. Vanterait-on la concurrence si l'on en
 avait vu de près les victimes?
-Ainsi René Bazin devint socialiste, non dans les salons, É
+Ainsi René Bazin devint socialiste, non dans les salons,
 mais dans les mansardes. Mais comme il était venu au
 socialisme par un sentiment profond de solidarité, il ne fut
 jamais un sectaire.
@@ -1118,7 +1118,7 @@ Ses opinions et ses sentiments conduisirent sa vie même.
 Il ne voulut point passer riche parmi les pauvres, et appli- "4
 quant ses principes jusqu'en leurs extrêmes conséquences, He:
 il vécut à peu près comme un ouvrier. Sa famille indignée a
-le combattit, ses chefs le méconnurent, ses amis le raiïllè- e.
+le combattit, ses chefs le méconnurent, ses amis le raiïllè-
 rent. Il ne se laissa pas entamer. Mais c'était un de ces cœurs
 de fabrique trop fine qui ont besoin de l'amitié de ce quiles
 entoure. Il mourut de chagrin le »5 octobre 1900, âgé de
@@ -1195,16 +1195,16 @@ Chaque Groupe tient des séances périodiques pour S'entretenir des besoins des 
 
 dixième cahier de la deuxième série 74 te
 sions et voter les dépenses nécessaires. Il élit son bureau ‘
-et arrête son règlement. : *] 138
+et arrête son règlement. : *]
 Anrice 6. — Chaque groupe désigne des membres char:
 gés spécialement des enquêtes. Ces enquêteurs, conjoin nn
 tement ou non avec ceux des autres groupes, se réunissent
-en une ou plusieurs commissions, qui statuent sur l'admis- : 80e
-sion des familles. AS 44
+en une ou plusieurs commissions, qui statuent sur l'admis-
+sion des familles. AS
 Ne sont enquêtées, en vue de l'admission, que les familles
 présentées par un membre de la Société ou par les œuvres 1%
 
-et associations avec lesquelles elle échange des services, 4
+et associations avec lesquelles elle échange des services,
 
 ARTICLE 7. — Les intérêts communs aux Groupes et la à
 direction générale de la Société sont confiés à un comité
@@ -1214,10 +1214,10 @@ sident, qui représente la Société, un Vice-Président, un Se
 crétaire et un Trésorier. ne:
 
 Il est élu par les Présidents de Groupes pour quatre ans ne
-et renouvelable tous les ans par quart. Les membres sor- 138
+et renouvelable tous les ans par quart. Les membres sor-
 tants sont rééligibles. On ne peut être à la fois Président
 d'un Groupe et membre du Bureau de la Société. ‘5
-Nul ne peut faire partie de ce Bureau s'il n'est Français, “2 j
+Nul ne peut faire partie de ce Bureau s'il n'est Français, “2
 
 majeur, et s'il ne jouit de ses droits civiques, civils et de
 ARTICLE 9. — Le Bureau de la Société, avec l'aide d'ad- “l
@@ -1226,7 +1226,7 @@ de services généraux mis à la disposition de tous les Visi- nn
 teurs en faveur des familles admises et qui sont notam- ‘4
 
 Un service de relations avec les institutions d'assistance
-Un service de renseignements pratiques. 4 v:
+Un service de renseignements pratiques.
 
 Ressources de la Société ps
 1° Les cotisations annuelles ou mensuelles des Visiteurs
@@ -1274,8 +1274,8 @@ Société devra demander de nouveau à la préfecture de police l'autorisation p
 ARTICLE 21. — En cas de dissolution, la liquidation s'effec- +14
 tuera selon les règles du droit commun. RE à
 M. Noyelet, secrétaire, adressera des imprimés de la
-Société à quiconque voudra bien lui en faire la demande. w
-Il se tient au siège social tous les jours, de dix heures & M
+Société à quiconque voudra bien lui en faire la demande.
+Il se tient au siège social tous les jours, de dix heures &
 midi et de deux heures à sept heures, à la disposition des
 personnes qui seraient désireuses d'obtenir des renseigne
 ments oraux sur le fonctionnement de la Société. ne
@@ -1309,7 +1309,7 @@ aumônes des œuvres cléricales, à la déchéance défini-
 
 tive. Elle veut conserver à l'homme sa: dignité d'homme
 
-et avant qu'il ne soit tombé elle l'aide comme un ami 4 3
+et avant qu'il ne soit tombé elle l'aide comme un ami
 aide son ami. Ne.
 Mais, dira-t-on : pourquoi ajouter une œuvre nouvelle
 à tant d'œuvres de charité, impuissantes à résoudre la
@@ -1324,23 +1324,23 @@ efforts à étudier attentivement la vie ouvrière; créez
 des syndicats, des coopératives, demandez l'abolition ‘4
 de la propriété individuelle, vos travaux, pour ne pas  “
 vous donner, comme la charité, des satisfactions immé-
-diates, au moins ne seront pas de nul effet. ‘4 f
+diates, au moins ne seront pas de nul effet. ‘4
 cela je répondrai que les visiteurs ne sont pas des be
-impassibles. Mais il ne leur est pas possible, en atten- M
+impassibles. Mais il ne leur est pas possible, en atten-
 dant la révolution sociale, de déjeuner gaiement, dd
 passer au théâtre une bonne soirée, de causer même
 joyeusement avec des amis, sans être hantés par les
-misères qui à toute minute se sont dressées devant eux, F * s
+misères qui à toute minute se sont dressées devant eux,
 sans avoir le désir d'essayer de sauver au moins celui.
 que le hasard vient de leur jeter à la face, souffrant
 dans sa chair ou dans les siens.
-Ils ont individuellement essayé. L'expérience leur k
+Ils ont individuellement essayé. L'expérience leur
 démontra que de par le monde il existe encore quelques \00
 petits fromages de Hollande; ils y gitèrent leurs amis
 malheureux. Mais ils s'y donnèrent beaucoup de peine,
 car ils avaient rarement dans leurs relations la relation “À y
 utile. Alors ils se syndiquèrent, et quand ils eurent mis
-leurs relations en commun ils réussirent quelquefois ; F
+leurs relations en commun ils réussirent quelquefois
 et quand au lieu de dix ils furent cent, ils furent deux
 cents, ils réussirent presque toujours. Leur tâche est
 donc analogue à celle des syndicats et des coopératives. Ils s'efforcent de tirer, grâce à l'association, le
@@ -1369,23 +1369,23 @@ ont besoin de partager leur pain ou leur cœur avec les
 misérables. Combien de jeunes gens, presque incroyants,
 navons-nous pas vu entrer dans des œuvres confessionnelles parce que les républicains n'avaient pas su orga-
 
-niser des foyers d'amour, et qui, resserrés peu à peu” 4
+niser des foyers d'amour, et qui, resserrés peu à peu”
 ï dans de discrets réseaux, rentraient doucement dans \ #4
 le giron des Églises ; certes, la Société des Visiteurs
 peut se vanter d'avoir conservé à la République bien
 des jeunes gens qui jadis s'en fussent détournés faute
 de pouvoir dépenser leur sensibilité dans une œuvre
-Mais elle fait mieux que de les conserver à la Républi- M
+Mais elle fait mieux que de les conserver à la Républi-
 que. Beaucoup en arrivant à la Société des Visiteurs
 croient à la souveraine efficacité de la philantropie. Ils
 s'imaginent qu'il suflit, pour sauver un monde, de disperser pour autrui un peu de son superflu, un peu de ses.
 loisirs. Mais quand ils ont fréquenté dans les tristes He
-logis des ouvriers, quand ils ont comparé ces doulou- 1 ÿ
+logis des ouvriers, quand ils ont comparé ces doulou-
 reuses existences avec leur vie trop facile, et sans
 insécurité; quand ils ont assisté aux séances de nos ‘12
 commissions d'enquête où nous sommes obligés de
 refuser les familles nombreuses parce que seul l'Étatou
-des établissements publics pourraient soulager de telles 54 3
+des établissements publics pourraient soulager de telles
 infortunes, ils s'inquiètent, s'irritent, etc.; de grands
 problèmes sociaux, ignorés jusqu'alors, se dressent
 impérieux et menaçants devant eux. Ils sont conquis.
@@ -1395,9 +1395,9 @@ C'est pourquoi nous disons aux socialistes : Entrez
 la Société des. Visiteurs ; vous y trouverez le moyen
 d'aider vos amis malheureux; envoyez-nous surtout
 ceux de vos amis que vous n'aurez pu convaincre par fe:
-vos plus habiles arguments: Nous en ferons des … M
+vos plus habiles arguments: Nous en ferons des …
 
-Paraissant le premier et le 15 de chaque mois Ÿ
+Paraissant le premier et le 15 de chaque mois
 BELGIQUE : Bruxelles, 14, rue du Béguinage
 Le Mouvement Socialiste paraît deux fois par mois,
 en une forte livraison de 64 pages. Il est avant tout une
@@ -1437,7 +1437,7 @@ Monod (Paris). — Anatole de Monzie (Paris). — A. Morizet
 (Paris). — Francis de Pressensé (Paris). — Ponard (SaintClaude). — P. Poux (Paris). — Docteur Rappoport (Paris).
 
 dixième cahier de la deuxième série
-bart (Paris).— Georges Sorel (Boulogne-sur-Seine). — Sopgue j
+bart (Paris).— Georges Sorel (Boulogne-sur-Seine). — Sopgue
 (Bruxelles). — Louis de Brouckère (Bruxelles). — Auguste
 (Bruxelles). — Emile Vandervelde (La Hulpe). — Gaston a
 Max Quark (Francfort-sur-le-Mein). — Paul Singer (Berlin).
@@ -1596,7 +1596,7 @@ Manrivs-Ary LeBLoxp : Résurrection, de Tolstoi. — La char-
 pente, de J.-H. Rosny. — Maurice MAGRE : L'adieu du wer- À
 rier (vers). — Le mineur (vers). — Octave MIRBEA& : Scru- $L
 pule (nouvelle). — Wiczram Morris : Une lecon de roi és
-(nouvelle). — CHaRLes PÉGux : Les récentes œuvres de Zola. j
+(nouvelle). — CHaRLes PÉGux : Les récentes œuvres de Zola.
 GxAUD : De la constitution d'un théâtre populaire. — Hymne
 au jour (vers).
 
@@ -1740,7 +1740,7 @@ et le syndicat professionnel.
 
 7° 15 avril III. Les buts syndicaux.
 nu 822 avril IV. Les méthodes syndicales.
-9° 29 avril V. La fonction syndicale dans la démocratie d
+9° 29 avril V. La fonction syndicale dans la démocratie
 
 12° 20 mai IL. Budget communal.
 
@@ -1768,13 +1768,13 @@ Ce cahier a été composé par des ouvriers syndiqués
 ra Nous prions ceux de nos abonnés qui nous envoient ]
 s des documents et des renseignements de vouloir bien
 écrire très lisiblement et d'un seul côté de la page.
-Quand leurs études sont d'ensemble et un peu longues, k
+Quand leurs études sont d'ensemble et un peu longues,
 ils peuvent les rédiger. Mais toutes les fois qu'ils nous
 envoient des renseignements pour ainsi dire instantanés,
 mieux vaut nous écrire privément et laisser au citoyen
 rédacteur le soin d'exercer son métier.
 La rédaction et l'administration des cahiers, la
-librairie des cahiers sont installées 16, rue de la Sorbonne, au second. k
+librairie des cahiers sont installées 16, rue de la Sorbonne, au second.
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous
 les jours de la semaine, le dimanche excepté, — de
@@ -1809,7 +1809,7 @@ pourrions vendre un assez bon prix la publicité de nos
 Mais nous sommes résolus à ne nous vendre sous aucune forme.
 Aussi annonçons-nous les publications, les institutions “4
 et Les œuvres qui nous paraissent bonnes, sans demander
-aux éditeurs, aux initiateurs, aux gérants ni leur avis 2 5
+aux éditeurs, aux initiateurs, aux gérants ni leur avis
 ni leur finance.
 Nous pensions d'abord faire tout un cahier d'annonces;
 mais nous avons dû faire place dans ce dixième cahier

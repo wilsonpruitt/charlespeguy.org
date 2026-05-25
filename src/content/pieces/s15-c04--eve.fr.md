@@ -24,7 +24,7 @@ Pour mieux commémorer leur vigueur éternelle,
 | les tapisseries TEE
 
 Et pour bien mesurer leur force originelle
-Et pour poser leurs pas sur ces moelleux tapis, É
+Et pour poser leurs pas sur ces moelleux tapis,
 Et ces deux beaux coureurs sur soi-même tapis
 Afin de saluer leur lenteur solennelle.
 Et les ravissements de la jeune gazelle
@@ -40,30 +40,30 @@ Et tous ces filateurs et toutes ces fileuses
 Mélant et démélant l'écheveau de leur course,
 Et dans le sable d'or des vagues nébuleuses
 
-4 Sept clous articulés découpaient la Grande Ourse. "1
+Sept clous articulés découpaient la Grande Ourse. "1
 Et tous ces inventeurs et toutes ces brodeuses
 Du lacis de leurs pas découpaient des dentelles.
 Et ces beaux arpenteurs parmi ces ravaudeuses
 Dessinaient des glacis devant des citadelles. &
 
 _ Une création naissante et sans mémoire fe #
-É: .  Tournante et retournante aux courbes d'un même orbe, E
+É: .  Tournante et retournante aux courbes d'un même orbe,
 + _ Plus juteux sous les dents que la prune et la poire.
 : é Vous n'avez plus connu la terre maternelle AE
 É ; Fomentant sur son sein les faciles épis,
 ‘2 ÿ la race pendue aux innombrables pis
 É. 'une nature chaste ensemble que charnelle.
-<a Vous n'avez plus connu ni la glèbe facile, ÿ
+<a Vous n'avez plus connu ni la glèbe facile,
 à Ni le silence et l'ombre et cette lourde grappe,
-23 Ni l'océan des blés et cette lourde nappe, 5
+Ni l'océan des blés et cette lourde nappe,
 Le Et les jours de bonheur se suivant à la file.
-“ Vous n'avez plus connu ni cette plaine grasse, Æ
+“ Vous n'avez plus connu ni cette plaine grasse,
  Nilavoine et le seigle et leurs débordements,
 -  Nila vigne et la treille et leurs festonnements,
 “38 Et les jours de bonheur se suivant à la trace. ;
 D Vous n'avez plus connu ce limon qui s'encrasse sa
 A force d'être épais et d'être nourrissant ; rt
-D. Vous n'avez plus connu le pampre florissant, 3
+D. Vous n'avez plus connu le pampre florissant,
 _ Et la race des blés jaillis pour votre race. "TS
 
 - Vous n'avez plus connu l'arbre chargé de pommes
@@ -75,11 +75,11 @@ __  N'était encor qu'un lourd et plastique limon; 131114 NS
 = Et la Sagesse même et le roi Salomon {.;; LASER
 _  N'eût point départagé l'homme d'avecque l'ange. TRS
 ne Ce qui depuis ce jour est devenu la somme ES:
-__  S'obtenait sans total et sans addition; 47
+__  S'obtenait sans total et sans addition;
 _ Et la Sagesse assise au coteau de Sion LE Rs £
 1 “4 N'eût point dépareillé l'ange d'avecque l'homme. NN
 . Vous n'avez plus connu ni cette plaine rase, A
-10 Ni le secret ravin aux pentes inclinées, / y E (70
+Ni le secret ravin aux pentes inclinées, / y E (70
 ÿ 72 _  Nile mouvant tableau des ombres déclinées, SLT
 à "2 Ni ces vallons plus pleins que le flanc d'un beau vase.
 _ Vous n'avez plus connu les saisons couronnées :
@@ -113,7 +113,7 @@ Vous n'avez plus connu les saisons retournées
 
 $ Vers un égal bonheur et vers le même temps;
 
-4 Vous n'avez plus connu vers le même printemps
+Vous n'avez plus connu vers le même printemps
 
 Le souple enroulement des saisons détournées.
 
@@ -131,7 +131,7 @@ La terre balancée ainsi qu'un beau trois-mâts ;
 Et le renoncement, l'effacement d'épaule Fes
 De la saison qui meurt au retour des frimas.
 Vous n'avez plus connu de l'un à l'autre pôle
-La terre balancée ainsi qu'un bâtiment ; Ê
+La terre balancée ainsi qu'un bâtiment
 Et le détournement et la blancheur d'épaule
 D'une saison qui meurt pour éternellement. ?
 Ce qui depuis ce jour est devenu la boue
@@ -150,7 +150,7 @@ Et se répercutait dans un ciel éclatant. :
 __ Les vapeurs qui montaient faisaient un encensoir. Pa
 Re _ Et les cèdres faisaient de hautes barricades. SES
 Es Et les jours de bonheur étaient des colonnades. Nes
-_ Et tout se reposait dans le calme du soir. 5 4
+_ Et tout se reposait dans le calme du soir.
 E Et la terre n'était qu'un vaste reposoir. pe
 -  Etles fruits toujours prêts sur les rameaux de l'arbre, Lo
 
@@ -159,10 +159,10 @@ es Mt lés jours toujours prêts sur les tombeaux de marbre Fe
 . Ne faisaient qu'un immense et temporel dressoir. "#3
 he Et la terre n'était qu'un jardin bocager. ss à
 É: _ Et les fruits alignés aux étages de l'arbre, Éc
-Et les jours alignés sur les âges de marbre KE » Ne faisaient qu'un immense et temporel verger. 4e
+Et les jours alignés sur les âges de marbre KE » Ne faisaient qu'un immense et temporel verger.
 # Et la terre n'était qu'un vaste potager. RS Re.
 …. Et l'homme accoutumé parmi ces plates-bandes, FER
-…_  Respecté de la bête administrait ces bandes n° 250
+…_  Respecté de la bête administrait ces bandes n°
 …. Ainsi qu'un amiable et naturel berger. ; L'ESNESS
 
 Et Dieu lui-même jeune ensemble qu'éternel 6 SE
@@ -182,7 +182,7 @@ _ Et Dieu lui-même jeune ensemble qu'éternel LASER
 …_…. Et père il regardait d'un regard paternel 7 SE
 _ Le monde rassemblé comme un humble village. RE |
 7 _ Et Dieu lui-même jeune ensemble qu'éternel TER
-70 Regardait ce que c'est que la nuit et le jour. SES
+Regardait ce que c'est que la nuit et le jour. SES
 _ Le monde au coin d'un bois jeté comme un gros bourg.
 Et Dieu lui-même jeune ensemble qu'éternel RP.
 ‘ 2 Répardait pe que c'est que le temps et que l'âge; Es A À
@@ -195,7 +195,7 @@ _ Le monde rassemblé comme un énorme bourg. 1 ESS
 
 : Et Dieu lui-même jeune ensemble qu'éternel
 É Regardait ce que c'est que le temps de l'année.
-3 Immuable il voyait d'un regard paternel
+Immuable il voyait d'un regard paternel
 | Passer parmi ses sœurs la saison couronnée.
 Et Dieu lui-même jeune ensemble qu'éternel
 Regardaït ce que c'est que le temps et le lieu.
@@ -218,7 +218,7 @@ les tapisseries A
 Et Dieu lui-même jeune ensemble qu'éternel Dee.
 Regardait ce que c'est qu'un espace étendu. :
 Fixe il considérait d'un regard paternel
-L'évanouissement d'un monde détendu. s
+L'évanouissement d'un monde détendu.
 Et Dieu lui-même jeune ensemble qu'éternel
 Regardaït ce que c'est que les jeux du jeune âge. $
 Calme et laissant poser son regard paternel
@@ -229,8 +229,8 @@ Provident il voyait d'un regard paternel ;
 Le monde se dresser pour cet appareillage.
 Et Dieu lui-même jeune ensemble qu'éternel
 Regardait ce que c'est qu'enfants du premier âge.
-| Intègre il regardait d'un regard paternel ù
-2 Le monde appareiller le long d'un beau rivage.
+| Intègre il regardait d'un regard paternel
+Le monde appareiller le long d'un beau rivage.
 XPH Et Dieu lui-même jeune ensemble qu'éternel
 Regardait ce que c'est que jeunes nourrissons.
 Père il considérait d'un regardspaternel
@@ -238,13 +238,13 @@ Père il considérait d'un regardspaternel
 
 Et Dieu lui-même jeune ensemble qu'éternel a
 
-3 Regardaït ce que c'est que jeunes jouvenceaux. “
+Regardaït ce que c'est que jeunes jouvenceaux. “
 + Père il considérait d'un regard paternel se
 
 Rs Une mère penchée au bord de deux berceaux. :
 
 ‘206 - Dieu lui-même penché sur l'amour éternelle 4 vos
-La revoyait fleurir dans de pauvres hameaux. 4
+La revoyait fleurir dans de pauvres hameaux.
 
 + Père il considérait une amour maternelle à
 
@@ -252,13 +252,13 @@ La revoyait fleurir dans de pauvres hameaux. 4
 
 ë Dieu lui-même penché sur l'amour solennelle $
 
-| La regardait fleurir au fin fond des hameaux. É
+| La regardait fleurir au fin fond des hameaux.
 
 * Père il considérait une amour fraternelle |
 
 C Déjà communiquée entre deux beaux jumeaux. SES
 
-1 Dieu lui-même penché sur la fleur éternelle ;
+Dieu lui-même penché sur la fleur éternelle ;
 
 _ La regardait fleurir aux pointes des rameaux.
 
@@ -296,7 +296,7 @@ Regardait ce que c'est que le progrès de l'âge.
 D'un regard toujours jeune et toujours paternel
 Il regardait vieillir un monde jeune et sage.
 
-À °° Et Dieu lui-même sage ensemble qu'éternel 2
+À °° Et Dieu lui-même sage ensemble qu'éternel
 .…. Considérait son œuvre et trouvait qu'il est bon. £
 ge - Du premier diamant jusqu'au dernier charbon, Fe
 D 0 enveloppait tout d'un regard paternel. ;
@@ -306,8 +306,8 @@ D 0 enveloppait tout d'un regard paternel. ;
 - Et que tout déroulait un ordre solennel.
 | … Et la création était comme une tour
 _ Quis'élève au-dessus d'un immense palais. ;
-2 Et le temps et l'espace assuraient les relais. gd
-4 Et les jours de bonheur étaient comme un seul jour.
+Et le temps et l'espace assuraient les relais. gd
+Et les jours de bonheur étaient comme un seul jour.
 F3 Et les fidélités étaient comme une tour. #4 |
 | Etle temps et l'espace en étaient les valets.
 Lx Et le temps et l'espace assuraïient les délais. ;
@@ -315,7 +315,7 @@ Lx Et le temps et l'espace assuraïient les délais. ;
 } Un Dieu lui-même auteur ensemble qu'éternel
 L  Considérait son œuvre et disait qu'il est bon. « * 3588
 L De la fleur de pommier jusqu'au dernier chardon, RE
-4 Il enveloppait tout d'un regard paternel. :
+Il enveloppait tout d'un regard paternel. :
 
 les tapisseries AN
 
@@ -338,27 +338,27 @@ Regardaïit ce que c'est que jeune nouveauté.
 ; Père et laissant tomber un regard paternel,
 Il voyait ce que c'est que naissante beauté.
 Un bon Dieu bienveillant ensemble qu'éternel
-Considérait son œuvre et trouvait qu'il est pur, z,
+Considérait son œuvre et trouvait qu'il est pur,
 Un Dieu cultivateur, économe et réel
 Voyait jaunir le seigle et trouvait qu'il est mûr.
 
 . Un beau Dieu statuaire ensemble qu'éternel À ES
- Considérait son œuvre et trouvait qu'il est beau. "a 4
+ Considérait son œuvre et trouvait qu'il est beau. "a
 S Et le premier bercail et le dernier tombeau RAR
 ä N'étaient qu'un même asile égal et fraternel. à
 Re Vous n'avez plus connu ce manteau de bonheur 4 a à
 _ Jeté sur tout un monde et de béatitude, KE à BE
-3 Et ce fleuve et ce flot et cette plénitude, | Let
+Et ce fleuve et ce flot et cette plénitude, | Let
 _ Et ce consentement aux règles de l'honneur. Sex
-; Vous n'avez plus connu ce manteau de tendresse $ 5
+; Vous n'avez plus connu ce manteau de tendresse $
 i _ Jeté sur l'âme même et ce manteau d'honneur. 5 ES +4
 …_ Vous n'avez plus connu cette chaste caresse “sa
-Le Et ce consentement aux règles du bonheur. 2 ï
+Le Et ce consentement aux règles du bonheur.
 : Vous n'avez plus connu ce manteau de bonté +
 . Jeté sur tout un monde et cette bienveillance, £ Le
-” Et cette multitude et l'antique vaillance, 50
-L cette solitude et cette fermeté. + : 2
-Vous n'avez plus connu ce manteau de satin ; 0e
+” Et cette multitude et l'antique vaillance,
+L cette solitude et cette fermeté. +
+Vous n'avez plus connu ce manteau de satin
 Fe Je é sur tout un peuple et dans cette ‘allégresse LEE
 Tout un monde gonflé de la même tendresse ASE
 Depuis le ras du sol jusqu'au dernier gradin. me
@@ -378,7 +378,7 @@ Vous n'avez plus connu cette race féconde
 Et les prés débordant d'un immense bétail. :
 Vous n'avez plus connu qu'un sévère destin.
 
-. Vous n'avez plus connu la terre reposée. 5
+. Vous n'avez plus connu la terre reposée.
 Vous n'avez plus connu qu'un amour clandestin.
 Vous n'avez plus connu la terre déposée.
 
@@ -393,14 +393,14 @@ Et les grappes montant à l'assaut des paniers.
 L Vous n'avez plus connu les pas ineffaçables,
 3 _ Et les moissons montant sous le vol des abeilles.
 
-4 Les vendanges montant à l'assaut des corbeilles. £
+Les vendanges montant à l'assaut des corbeilles. £
 __ Les pas des vendangeurs dans les chemins de sables.
 É. Vous n'avez plus connu les puits intarissables,
 
 Ë _ Etles moissons montant à l'assaut de la meule.
 
 É: …. Vous n'avez plus connu qu'une âme errante et seule
-1 Et des pas soupçonneux sur des chemins de sables.
+Et des pas soupçonneux sur des chemins de sables.
 
 É- Vous n'avez plus connu les jours impérissables,
 
@@ -437,8 +437,8 @@ Et du haut de l'amour des haïnes putrescibles,
 Et du haut du bonheur la mort et l'épouvante,
 Et du haut de l'honneur le travail et la peine.
 Et du haut de l'amour l'amertume et la haïne.
-Et la honte maîtresse et la honte servante. È
-Et du haut de la mort la borne infranchissable, F
+Et la honte maîtresse et la honte servante.
+Et du haut de la mort la borne infranchissable,
 Et la foi toujours pleine et toujours décevante.
 Et du haut du destin le sort inconnaissable.
 Et du haut de l'amour une pitié fervente.
@@ -449,18 +449,18 @@ Que l'énorme Océan sous le regard de Dieu,
 
 ; . Vous n'avez plus connu que des biens périssables, *%
 _ Et la procession des maux ineffaçables. AN
-40 Et le regard voilé d'un appauvrissement. Re
+Et le regard voilé d'un appauvrissement. Re
 _ Et le regard meurtri d'un affaiblissement, pe #
 “Et sous le même front des yeux méconnaissables, RES
 1 3 Et dans les mêmes yeux des pleurs intarissables, ‘ D »
-- Et les marques de mort et d'amortissement. | 200
+- Et les marques de mort et d'amortissement.
 _ Et dans les mêmes yeux un tout autre regard, RS « |.
 — Un regard de détresse et d'amoindrissement. ; Dir
--_ Et sous les mêmes cieux un tout autre hasard. } n.
-Un hasard de tendresse et d'avilissement. 58e
-_ Vous n'avez plus connu ce long désarmement Ÿ 14
+-_ Et sous les mêmes cieux un tout autre hasard. }
+Un hasard de tendresse et d'avilissement.
+_ Vous n'avez plus connu ce long désarmement
 - Et le cœur inondé d'une haute splendeur. en
-_ Et dans cette amplitude et ce contentement 2
+_ Et dans cette amplitude et ce contentement
 - Tout un monde noyé dans sa propre candeur. A -
 _ Et ce repos d'un cœur qui ne manque de rien, PE
 … Et qui se sait servi de toute éternité, à +; Ca
@@ -469,51 +469,51 @@ Dans une solennelle et tremblante unité, FAR
 
 Et je vous aime tant, mère de notre mère,
 #2 408 Vous avez tant pleuré les larmes de vos yeux. nn de
-__ Vous avez tant levé vers de plus pauvres cieux 14
+__ Vous avez tant levé vers de plus pauvres cieux
 ._ Un regard inventé pour une autre lumière. +LTÈERESS
 ._ Vous avez tant pleuré votre force première. FEES
 …__ Vous avez tant voilé le regard de vos yeux. LIFE SIENS
 40 “2 __ Vous avez tant levé vers de plus pauvres cieux EN à : |
-__ Votre voix hésitante au seuil de la prière. ::2,500 D
+__ Votre voix hésitante au seuil de la prière. ::2,500
 LR à Et je vous aime tant, aïeule roturière. Re
 “ASSAR Vous avez tant lavé le regard de vos yeux. en.
 PC Vous avez tant courbé sous le courroux des cieux
 EAN Le Votre nuque et vos reins frissonnants de misère. F51008
-PSS Vous avez tant levé vers une autre tempête x 60
+PSS Vous avez tant levé vers une autre tempête
 : AV Une voix défaillante et tremblante d'amour. …
 
 Fe _ Vous avez tant levé vers une pauvre fête SE LES
-51 Un regard inventé pour un tout autre jour. 11 TPS
+Un regard inventé pour un tout autre jour. 11 TPS
 
 0 _ Vous avez tant levé le front de votre tête RE:
-MT Vers le repensement d'un plus noble séjour. 58
-00 Vous avez tant levé vers le haut de la tour RIT LEE É
+MT Vers le repensement d'un plus noble séjour.
+Vous avez tant levé vers le haut de la tour RIT LEE
 
 __ Vos esprits épuisés d'une éternelle quête. … 0: 11100
 
 _ Et moi je vous salue 6 la première femme
-Et la plus malheureuse et la plus décevante 1
+Et la plus malheureuse et la plus décevante
 È : Et la plus immobile et la plus émouvante, SR
 -  Aïeule aux longs cheveux, mère de Notre Dame. AS
-_ Et moi je vous salue à pleine d'épouvante ÿ
+_ Et moi je vous salue à pleine d'épouvante
 be Et pleine de terreur au seuil des nouveaux jours Ro:
-k Et pleine de retraite au fond des nouveaux bourgs T4
+k Et pleine de retraite au fond des nouveaux bourgs
 Ê Et moi je vous salue à vainement fervente.
 F = Et moi je vous salue à première servante, ai :
 4 _  Aïeule des bergers et des bons serviteurs,
 - _ Aïeule des bouviers et des premiers pasteurs,
-4 N Et moi je vous salue Ô première suivante.
+N Et moi je vous salue Ô première suivante.
 _ Et moi je vous salue 6 vainement vivante
-__ Et vainement offerte à de pauvres malheurs, 4
-_  Etla plus soucieuse et vainement savante 2
+__ Et vainement offerte à de pauvres malheurs,
+_  Etla plus soucieuse et vainement savante
 “_ Et la plus douloureuse après les sept douleurs. EE
-Et je vous aime tant, première soucieuse, 35
-_ Et vainement assise aux jardins de la peur. 64
-“ Et moi je vous salue 6 la plus anxieuse 5e
+Et je vous aime tant, première soucieuse,
+_ Et vainement assise aux jardins de la peur.
+“ Et moi je vous salue 6 la plus anxieuse
 n: _ Et la plus écrasée aux rêves de torpeur. mes
 
 les tapisseries : Nic
-Et la plus immuable aux robes de stupeur s
+Et la plus immuable aux robes de stupeur
 Et la plus enfoncée en des chemins vaseux
 Et ia plus embourbée en des sentiers glaiseux
 Et la plus capturée en un cercle trompeur.
@@ -538,11 +538,11 @@ Vous n'avez plus connu les flots impétueux CAR.
 _  Jaïllis de la fontaine à nulle autre seconde. AA
 Vous n'avez plus connu dans la clarté d'un monde 14e) à.
 - L'image et le reflet d'un soleil fastueux. LS
-- Vous n'avez plus connu les blés impétueux 5
+- Vous n'avez plus connu les blés impétueux
 -_ Se mouvant à l'assaut des plaines infinies. A DSC #
 = Et le blé sur son socle et les moissons bénies. Er
-Et le recensement des blés respectueux. 4
-4 Le Vous n'avez plus connu les blés présomptueux ‘5e
+Et le recensement des blés respectueux.
+Le Vous n'avez plus connu les blés présomptueux ‘5e
 ___  Gouvernant les saisons comme une éternité, Fr PES
 4 73 Anticipant le temps en toute impunité, Fe
 _ Vous n'avez plus connu les blés torrentueux. Le
@@ -553,7 +553,7 @@ Vous n'avez plus connu les enfants fructueux RES
 _ Vous n'avez plus connu les blés tempétueux PUS:
 Soulevant tout un monde en leur énorme vague, 4 LT HAE
 Et l'homme sur son sol, et la senne, et la drague, 72080
-Et le dénombrement des blés affectueux. * 10
+Et le dénombrement des blés affectueux.
 
 les tapisseries
 Vous n'avez plus connu les blés tumultueux
@@ -580,15 +580,15 @@ D'un monde ivre de sève et de vitalité. »
 se _ Vous n'avez plus connu que de l'eau d'un canal. ES
 É: 63 Et le gouvernement sous un si pauvre chef. SE
 -_ Et le lanternement sous un maigre fanal. FR
-302 Vous n'avez plus connu que la parcimonie, ne
+Vous n'avez plus connu que la parcimonie, ne
 D: Et les épargnateurs et les conservateurs, à; RE
 Re Et la petite épargne et cette ignominie, — re
 - 0 Aïeule des bouviers et des premiers pasteurs. ne
 E . Vous n'avez plus connu que des blés vertueux, LES
-. Et les fausses moissons et les imitateurs. Fe Ê
-18 Et les contrefaçons et les contrefacteurs. a
-“#4 Et les fausses maisons chez les infructueux. j 16
-5 Et les fausses raisons chez les talentueux ? Ke
+. Et les fausses moissons et les imitateurs. Fe
+Et les contrefaçons et les contrefacteurs. a
+“#4 Et les fausses maisons chez les infructueux.
+Et les fausses raisons chez les talentueux ? Ke
 Et la dissension chez le pauvre amateur. SE
 "#7 Et la fausse oraison dans le voluptueux. ke “
 - Vous n'avez plus connu qu'une lente agonie Se
@@ -637,25 +637,25 @@ Et le bonheur, promistaux plus graves tourmients,
 
 Ne baissait pas les yeux devant le spectateur.
 
-30 Une foi sans symbole et sans inscription 4
+Une foi sans symbole et sans inscription
 a. __ Remontait toute seule aux pieds du créateur, SE
 —_ Comme une loi sans table et sans description 4 A
 …__ Se courbaïit sous les pieds de son législateur. ss
-2 Quand on avait la foi dans ces premiers moments Eat ÿ
+Quand on avait la foi dans ces premiers moments Eat
 ….  Onne demandait pas des formules astreïntes. HA ne
 [6e Quäând on avait la loi sous ces premiers serments RES
 _ On ne demandait pas des règles de contraintes. FERA
 Le: Et quand on avait Dieu dans ces premiers moments, #0
-: n- On ne demandait pas des formules restreintes. Le 24
+: n- On ne demandait pas des formules restreintes. Le
 . 21 Quand on vivait heureux sous ces premiers tourments,
-_ On ne demandait pas des règles et des craintes. 5
+_ On ne demandait pas des règles et des craintes.
 “à Et quand on avait tout rien ne se querellaït | LG #
-__ Se poursuivait sans hâte et sans dispersion. = 2
+__ Se poursuivait sans hâte et sans dispersion. =
 _ Et quand on avait tout rien ne se morcelait. a. #4
 LE 3: Et quand on avait tout rien ne se harcelait. TS
-…_  Onne regardait pas alors à la dépense. 6
+…_  Onne regardait pas alors à la dépense.
 _ Et tout foisonnement portait sa récompense. < ;
-_ Et quand on avait tout rien ne s'écartelait. F2
+_ Et quand on avait tout rien ne s'écartelait.
 
 les tapisseries
 
@@ -702,17 +702,17 @@ _. Et la plus accointée au coin du soupirail. | FER
 TRÈS Ni l'homme votre époux, ni l'homme votre père, Es
 Le Ni l'homme votre maître à seule ambitieuse. Ne
 _Ft00 Vous n'avez plus mené qu'une vie attentive, HÉRe ‘4
-: 2e à seule curieuse et seule incurieuse. | 14
+: 2e à seule curieuse et seule incurieuse.
 __ Vous n'avez enfanté qu'une horde craintive, HIUUS ESS
 | Et tantôt défaillante et tantôt furieuse. “À
-Ts Vous n'avez plus connu qu'une race hâtive. ST 4
-150 Vous n'avez plus connu qu'un monde qui dit non. à
-117 Des terres de Judée aux terres d'Epernon A 5
+Ts Vous n'avez plus connu qu'une race hâtive. ST
+Vous n'avez plus connu qu'un monde qui dit non. à
+Des terres de Judée aux terres d'Epernon A
 Te Vous n'avez plus connu qu'une race furtive. ie.
 PE Vous n'avez plus connu la race affirmative. Fe à NE
 A. Vous n'avez plus connu qu'un peuple qui dit non. ER
 _ Et des bourgs de Judée au bourg de Maïintenon
-Fe n Vous n'avez plus perçu qu'une voix négative. M
+Fe n Vous n'avez plus perçu qu'une voix négative.
 
 Vous n'avez plus connu la race positive.
 Vous n'avez plus connu qu'un peuple qui ditnon
@@ -721,46 +721,46 @@ Re Vous n'avez plus connu qu'une race inventive. je 1-1
 En Vous n'avez plus connu qu'un peuple qui dit non. 5 #3 >
 _ Vous n'avez plus connu qu'une race fautive. Re Qi ,
 _ Vous n'avez enfanté qu'une race plaintive, ES
-. Tantôt martyre et sainte, et sage ou furieuse, 4
+. Tantôt martyre et sainte, et sage ou furieuse,
 F0 mère et c'est ma race et la race captive : Re: à
-de . Gonstamment accotée aux murs de sa prison D
-PU Et vous seule vivace et seule industrieuse, re EX ü
+de . Gonstamment accotée aux murs de sa prison
+PU Et vous seule vivace et seule industrieuse, re EX
 4° 4 _ Vous vous dépensez toute, ô seule besogneuse, ; L S 100 à
 _ A laver la vaisselle et ranger la maison. : 4 LCR
 so vous qui pourchassez jusqu'au fin fond des coins :
 _ La poussière et l'ordure et toute impureté, ie ae jé
 Toute disconvenance et toute improbité, :
-_ Maîtresse des labeurs, des veilles et des soins, SE ‘4 5
+_ Maîtresse des labeurs, des veilles et des soins, SE ‘4
 
 5 1e Vous qui prenez ce bois pour allumer la lampe 22408
 
 - _ Etla mettre au milieu de la table servie, SA
 - Et qui prenez ce lin pour essuyer la rampe, de
-“_ Et qui rangez les fleurs et qui rangez la vie, 42ù
+“_ Et qui rangez les fleurs et qui rangez la vie,
 | Eee ô femme qui rangez les travaux et Les jours, Re
 - Et les alternements et les vicissitudes, Les
 14e Et les gouvernements et les sollicitudes, s *
-4 Et la vieille charrue et les nouveaux labours, FR
+Et la vieille charrue et les nouveaux labours, FR
 =: à femme qui rangez les palais et les tours, À
 __ Et les retournements et les iniquités, ee.
 D Et la jeune détresse et les antiquités, INTER
-D. Et la vieille tendresse et les nouveaux amours, 0
+D. Et la vieille tendresse et les nouveaux amours,
 NE” Femmes, je vous le dis, vous rangeriez Dieu même, . ru.
 7. S'il descendait un jour dedans votre maison. SE
-2 Vous rangeriez l'outrage, et l'oubli du blasphème, ; 2
+Vous rangeriez l'outrage, et l'oubli du blasphème,
 ES Si Dieu vous visitait dedans cette prison. A
-Femmes, je vous le dis, vous rangeriez Dieu même, é
+Femmes, je vous le dis, vous rangeriez Dieu même,
 #8 S'il venait à passer devant votre maison. à
 &: Vous rangeriez l'offense, et le pouvoir suprême F5 A
 En. __ S'il venait à passer devant votre raison. À “Re
 
-les tapisseries x
+les tapisseries
 Que n'avez-vous rangé la colère divine.
 Que n'avez-vous lavé la grande iniquité.
 Il était temps alors. Que n'avez-vous quitté,
 Quand il en était temps Le creux de la ravine.
 Femmes, je vous le dis, vous rangeriez la foudre,
-4 Si Dieu vous l'envoyait dedans votre maison.
+Si Dieu vous l'envoyait dedans votre maison.
 Vous rangeriez la grâce, et le pouvoir d'absoudre,
 Si Dieu vous visitait dedans celte prison.
 Que n'avez-vous rangé le premier anathème,
@@ -777,30 +777,30 @@ Que n'avez-vous rangé jusque dans sa racine,
 (IL était temps alors), l'arbre intellectuel.
 
 _ Que n'avez-vous rangé l'arbre perpétuel Fe
-s.: _ Cette fois qu'il jaillit au creux de laravine. 7x Ë
+s.: _ Cette fois qu'il jaillit au creux de laravine.
 | 74 Que n'avez-vous rangé l'arbre contractuel ne
 __ Cette fois qu'il jaillit au flanc de la colline. Re
 S. Que n'avez-vous rangé la couronne d'épine FCO
 De: Quand elle était encore un timide bourgeon. SIL
 “ Que n'avez-vous rangé cette blanche aubépine LS VAE
 D Quand elle était encore un candide surgeon. ee
-24 Que n'avez-vous rangé cette rouge églantine Es Re
+Que n'avez-vous rangé cette rouge églantine Es Re
 Quand elle était encore une naissante rose. LAVE GE
-0 Que n'avez-vous rangé la colère latine CUS
-. Quand elle était encore une naissante cause. 1 -V
-1 Que n'avez-vous rangé le sceptre dérisoire CA:
-2 Quand il était encore un fragile roseau. VA
+Que n'avez-vous rangé la colère latine CUS
+. Quand elle était encore une naissante cause.
+Que n'avez-vous rangé le sceptre dérisoire CA:
+Quand il était encore un fragile roseau. VA
 __ Que n'avez vous rangé la couronne illusoire Re
 ._ Quand elle était encore un fragile réseau. È ER
-EE. Que n'avez-vous rangé pour la première fois 1 0
-14 Quand il était encore un fragile arbrisseau Rs
+EE. Que n'avez-vous rangé pour la première fois
+Quand il était encore un fragile arbrisseau Rs
 4 _ L'arbre au double destin, l'arbitre au double sceau, na
 ne - L'arbre de la science et l'arbre de la croix. “+
 
 _ Que n'avez-vous rangé dans un âge absolu »:1, if RRES
 _ Quand il était encore un arbre jouvenceau, CRM
 L'arbre au double destin, l'arbitre au double sceau, mie
-_ L'arbre de la potence et l'arbre du salut. ‘ 4
+_ L'arbre de la potence et l'arbre du salut. ‘
 _ Que n'avez-vous rangé dans un ordre absolu + ie
 __ Avant qu'il fût entré sous la seconde loi, LEURS
 L'arbre au double destin, l'arbitre de la foi, eee :
@@ -812,13 +812,13 @@ _  Lavé ma pâle face et mon auguste flanc. “ hs
 _ Que n'avez-vous alors, ô femme de lessive FRERES
 —  Lavé ma barbe rousse et mes cheveux sanglants. Sets » Que n'avez-vous alors, maternelle et pensive, LL ESS
 _  Soutenu ma faiblesse et mes pas chancelants. ESS
-_ Que n'avez-vous alors, aïeule au chef branlant, TN ER 24
+_ Que n'avez-vous alors, aïeule au chef branlant, TN ER
 ._ Quand j'étais plein d'injure et couvert d'avanie, HN
 5 il ue n'avez-vous alors, aïeule au chef tremblant ‘5 PACE
 13e ra Essuyé cette ordure et cette ignominie. AG ES “
 
-hnN Que n'avez-vous alors, à femme de journée, 2
-…_ Préparé la maison pour la dernière fête. e
+hnN Que n'avez-vous alors, à femme de journée,
+…_ Préparé la maison pour la dernière fête.
 
 …__ Que n'avez-vous alors, Ô laveuse acharnée, si
 50 _ Lavé mes cheveux roux et ma barbe défaite. #
@@ -826,7 +826,7 @@ hnN Que n'avez-vous alors, à femme de journée, 2
 Balayé le château pour mon dernier repas, - " SA
 + Et balayé les fleurs pour mon dernier trépas, fgu
 : 4 Et balayé la mort pour ma dernière Cène. se
-. 18 Que n'avez-vous aussi balayé les soldats, æ
+. 18 Que n'avez-vous aussi balayé les soldats,
 …__ Et l'injustice assise au cœur du tribunal. Û KES
 ::S Et le treizième apôtre et le baiser vénal, à
 1: Et le consentement aux lèvres de Judas. Ne
@@ -836,7 +836,7 @@ _ Que n'avez-vous alors, Ô femme de ménage, LH
 Que n'avez-vous enfin dans votre voisinage ; *
 158 * Accueilli le sauveur avant qu'il fût promis. SEE
 
-_ Que n'avez-vous alors, Ô mon âme, Ô ma mère, 1e
+_ Que n'avez-vous alors, Ô mon âme, Ô ma mère,
 
 -  Essuyé les deux pleurs jaillis des mêmes yeux. TS
 
@@ -866,15 +866,15 @@ Et ce que chacun coûte, et comment, et combien.
 Mais quand on avait tout on ne retranchait rien. ” ‘
 
 RS Vous savez aujourd'hui ce que chacun rapporte, ne
-_ à vainement assise au seuil de l'autre porte: 1e
+_ à vainement assise au seuil de l'autre porte:
 …. Mais quand on avait tout, on ne rapportait rien. MEN
-50 Vous savez aujourd'hui ce que chacun dérobe, Re
-Er. ô pauvrement assise en cette pauvre robe : ; 206
+Vous savez aujourd'hui ce que chacun dérobe, Re
+Er. ô pauvrement assise en cette pauvre robe :
 Mais quand on avait tout, on ne dérobait rien. Le
 À ñ Vous savez aujourd'hui ce que chacun supporte, à
 Rs Ô vainement assise au coin de l'autre porte : ce
 _ Mais quand on avait tout, on ne supportait rien. cs
-Vous savez aujourd'hui ce que chacun détourne, LP î
+Vous savez aujourd'hui ce que chacun détourne, LP
 … Mais quand on avait tout on ne détournait rien. je Ne
 n_ Et vous savez surtout ce que tout homme ajourne: aa
 . Car c'est son sauvetage et son souverain bien. E &
@@ -883,14 +883,14 @@ Vous savez aujourd'hui dans quel four on enfourne ï $
 …_ Et le pain pour hier, et le pain pour demain. k a
 - Et par là vous savez ce que tout homme ajourne : Le #
 
-- Car c'est sa pénitence et c'est son lendemain. 4
+- Car c'est sa pénitence et c'est son lendemain.
 
-les tapisseries RE M:
+les tapisseries RE
 Vous savez aujourd'hui dans quel temple on enfourne #
 Et l'oubli pour hier, et l'oubli pour demain. : DES
 ï Et par là vous savez ce que tout homme ajourne : ;
-ù Et c'est sa pénitence et c'est son examen. $ 5
-5 Vous savez aujourd'hui ce que chacun détourne,
+ù Et c'est sa pénitence et c'est son examen. $
+Vous savez aujourd'hui ce que chacun détourne,
 _ Le fisc et le larron et le voleur de nuit.
 ÿ Et par là vous savez ce que tout homme suit :
 Et par là vous savez où tout homme retourne :
@@ -908,11 +908,11 @@ s Et c'est au vieux château de longue lassitude.
 k Et c'est au pli grossier des lèvres du vainqueur. à
 
 _ Et c'est aux liaisons d'antique servitude. } : 574 1NRESSS
-04 Et c'est aux vieux falots de ses casernements. « À
+Et c'est aux vieux falots de ses casernements. « À
 _ Et c'esx aux vieux cachots de ses internements. mas
 K Et c'est aux courbements de sa décrépitude.
 |_ Et c'est aux vieux genoux de ses prosternements. Les
-“ . Et c'est aux vieux palais de sa sollicitude. :13" 2
+“ . Et c'est aux vieux palais de sa sollicitude. :13"
 - Et c'est aux vieux relais de sa vicissitude. GE
 …__ Et c'est au carrefour de ses gouvernements. Se »…_ Vous savez aujourd'hui ce que chacun détourne, GA
 … Le bourgeois, le vilain, le clerc et le baron, PAS
@@ -920,13 +920,13 @@ K Et c'est aux courbements de sa décrépitude.
 … C'est le cap de la mort et c'est l'oubli de Dieu. +
 Et de la haute mer et du dernier naufrage. fe
 D: _ Et de prendre la foi juste par le milieu. à ;
-_ Vous savez aujourd'hui ce que chacun détourne, s K
+_ Vous savez aujourd'hui ce que chacun détourne,
 
 . L'intendant, le notaire et le même gardien. 4708
 
 … Et par là vous savez comment tout homme tourne : Lie ÉÈ
 
-D Mais quand on avait tout, on ne détournait rien. 4
+D Mais quand on avait tout, on ne détournait rien.
 
 les tapisseries es
 Vous savez aujourd'hui ce que tout homme plaide.
@@ -952,18 +952,18 @@ De la liste des biens qu'il demande au bonheur.
 
 ; Vous savez aujourd'hui ce que tout homme pèse.
 : _ Et c'est un peu de cendre au creux de votre main.. DS
-3 Mais par là vous savez ce que c'est que demain.
+Mais par là vous savez ce que c'est que demain.
 r_ Et c'est la méme argile et c'est la même glaise. AE
 
 “4 Vous savez aujourd'hui ce que tout homme achète :
 
-4 Et ce qu'il veut trouver aux marchés du bonheur. #
+Et ce qu'il veut trouver aux marchés du bonheur. #
 
 h Mais par là vous savez de quel sceau se cachète ir
 
 Fe L'antique obéissance aux règles de l'honneur. #4
 
-| Vous savez aujourd'hui de quoi l'homme se garde. 1
+| Vous savez aujourd'hui de quoi l'homme se garde.
 
 L _ Et c'est de se tourner vers le Seigneur son Dieu. Ré
 
@@ -972,16 +972,16 @@ L _ Et c'est de se tourner vers le Seigneur son Dieu. Ré
 Mn Vous savez aujourd'hui de quoi l'homme se garde.
 « _ Et c'est de se tourner vers le Seigneur son père. ER
 …._ Mais par là vous savez ce que l'homme regarde. ;
-4 C'est la plus tremblotante et caduque lumière. F2
+C'est la plus tremblotante et caduque lumière.
 À - Vous savez aujourd'hui de quoi l'homme se garde.
 — Et c'est de se tourner vers notre unique Dame.
-… Mais par là vous savez ce que l'homme regarde. ù.
+… Mais par là vous savez ce que l'homme regarde.
 … C'est la plus décevante et vacillante flamme. “à
 
 les tapisseries Te
 Le peu qu'il fait de bon, ce n'est que par mégarde. |
 Mais ce qu'il fait de faux et de délictueux,
-2 C'est par sa vigilance et par sa prude garde.
+C'est par sa vigilance et par sa prude garde.
 $ 3 Le peu qu'il fait de bon, c'est pure négligence,
 ; Et c'est qu'il n'a pas su comment faire autrement.
 Mais ce qu'il fait de sot et de dérèglement,
@@ -992,23 +992,23 @@ Mais ce qu'il fait tout seul c'est sa basse rancune,
 Sa tête de carton et son cœur de bazar.
 S Vous savez aujourd'hui de quoi l'homme se garde.
 ) Et c'est de se tourner vers le seuil du tombeau. |
-Mais par là vous savez ce que l'homme regarde. F1
+Mais par là vous savez ce que l'homme regarde.
 C'est la plus pâle flamme et le maigre flambeau. |
 Vous savez aujourd'hui ce que chacun préfère, <
 Et c'est de se ranger dans un illustre port. |
-5 { Mais par là vous savez ce que chacun diffère : Ë
+5 { Mais par là vous savez ce que chacun diffère
 FES Et c'est-de se tourner vers le jour de sa mort. ;
 
 __ Vous savez aujourd'hui ce que chacun préfère. |
 . Et c'est de se ranger sous un illustre sort.
 __ Mais par là vous savez ce que chacun diffère :
 Et c'est de se pencher sur le jour de sa mort,
-4 Vous savez aujourd'hui de quoi l'homme se garde.
+Vous savez aujourd'hui de quoi l'homme se garde.
 L Et c'est de se tourner vers son maïitre et son Dieu.
 . Mais par là vous savez ce que l'homme regarde : “:-
 C'est la plus pauvre flamme et le plus maigre feu.
 Vous savez aujourd'hui de quoi l'homme se garde. £
-L Et c'est de se tourner vers son maître et son père. ê
+L Et c'est de se tourner vers son maître et son père.
 nn Mais aussi vous savez ce qui le désespère.
 … Ce qui fait ses yeux creux et sa face hagarde. \
 | Vous savez aujourd'hui de quoi l'homme se garde.
@@ -1018,7 +1018,7 @@ nn Mais aussi vous savez ce qui le désespère.
 iv ous savez aujourd'hui ce que chacun détourne,
 “Et par là vous savez ce que chacun poursuit.
 Et par là vous savez en quoi tout homme nuit.
-Et par là vous savez où tout homme séjourne : x
+Et par là vous savez où tout homme séjourne
 
 les tapisseries
 
@@ -1041,7 +1041,7 @@ k L'honnête homme et le sot, le fat et le vaurien.
 Vous savez ce que vaut la haute récompense.
 Mais quand on avait tout, on ne compensait rien.
 Vous savez aujourd'hui ce que chacun détourne,
-Et par là vous savez ce que tout homme suit. Î
+Et par là vous savez ce que tout homme suit.
 Et par là vous savez où tout homme conduit
 Ce regret qu'il oppose au remords qu'il retourne.
 
@@ -1113,14 +1113,14 @@ L_ Vous qui savez ranger, vainement horlogère,
 
 …_ Les heures de la nuit et les heures du jour ;
 
-| _ Vous qui savez inscrire en un même pourtour 2
+| _ Vous qui savez inscrire en un même pourtour
 
 . Le robuste poirier et la pâle fougère ;
 
 k. Vous qui savez ranger sur la frêle étagère
 
 Mn Les fleurs du souvenir et les fleurs du regret ;
-4 Vous qui savez ranger dans le creux d'un coffret
+Vous qui savez ranger dans le creux d'un coffret
 
 - La cendre et le débris d'une peine étrangère. .
 
@@ -1145,9 +1145,9 @@ NII Vous qui savez tresser et la paille et le jonc SENTE
 HE Pour le recueillement des plantes maraïîchères. Eu
 RU Vous qui savez compter comme un bien périssable Ro
 1660 Vous qui perdez de vue et le fleuve et le sable 1 EEE
-110 Et ne connaissez plus qu'une pauvre corbeille. __
-Re Ce Vous qui savez compter dans le nombre des fleurs … 1 4
-‘To La rose suspendue au cerceau du rosier. 11
+Et ne connaissez plus qu'une pauvre corbeille. __
+Re Ce Vous qui savez compter dans le nombre des fleurs …
+‘To La rose suspendue au cerceau du rosier.
 pit oi à Vous qui savez compter dans le nombre des pleurs
 : 150 Une enfant suspendue en un berceau d'osier. AS
 
@@ -1157,15 +1157,15 @@ Ne . Vous qui méconnaissez les arceaux et lombrage LÉ
 # Et ne voyez plus rien qu'un malheureux panier. rs
 1e Vous avez pu compter, ô bonne ménagère, LE
 Xe À combien revenait le sang que j'ai versé. re
-É Vous avez pu noter, exacte messagère, 4
-ss À combien revenait ce flanc qu'ils ont percé. 4e
+É Vous avez pu noter, exacte messagère,
+ss À combien revenait ce flanc qu'ils ont percé.
 É Vous avez pu compter, vigilante bergère, LA
-#3 Combien de mes agneaux sont sous la dent des loups. L
-4 Vous avez pu noter, aïeule passagère, 2e
+#3 Combien de mes agneaux sont sous la dent des loups.
+Vous avez pu noter, aïeule passagère,
 ‘10 Combien de mes martyrs sont dans les mains des fous. ÈS
-1 Vous avez pu noter, savante boulangère, PE
-ls. Si le pain que j'ai cuit était cuit pour toujours. 2e.
-4 Et si j'ai pu pétrir une pâte étrangère F2
+Vous avez pu noter, savante boulangère, PE
+ls. Si le pain que j'ai cuit était cuit pour toujours.
+Et si j'ai pu pétrir une pâte étrangère
 Se. Dans le raccordement des travaux et des jours. RU
 _ Vous avez pu compter, inlassable horlogère, ess
 Les heures et les jours d'une lente agonie. Me.
@@ -1175,7 +1175,7 @@ Les heures et les jours d'une lente agonie. Me.
 “FA Vous avez pu laver, inlassable lingère, ? ÿ ‘748
 D. k Le linge ensanglanté du plus pur de mon sang. 17 ue |
 en: 7 Mais pourra-t-on blanchir pour un autre mystère À he
-_ Ce lambeau qui pendaït de mon auguste flanc. 240
+_ Ce lambeau qui pendaït de mon auguste flanc.
 ie _ Le pain que je rompis était mon propre corps. ES
 Le vin que je fis boire était mon propre sang. LATE USER
 Le Fe. La mort que je subis était vos propres morts. A
@@ -1183,18 +1183,18 @@ _ La foi que je fis croire était mon propre flanc. 8 7 +
 Re Le pain que j'ai rompu pour mon illustre Cène 4 -#
 + fe, Etait le pain d'amour et de communion. r'S ne
 + Et le vin qui coula d'une illustre fontaine FI
-ne Etait le vin d'offrande et de libation. 0
-_ Vous avez pu compter, inlassable économe, 5
-_ Combien m'a rapporté le meilleur de mon sang. #È 2
+ne Etait le vin d'offrande et de libation.
+_ Vous avez pu compter, inlassable économe,
+_ Combien m'a rapporté le meilleur de mon sang. #È
 _ Vous savez à présent à combien revient l'homme £
 _  Etsi c'est du quarante ou du quatre pour cent. ASS
-Vous avez pu compter, inlassable intendante, 14
-_ Si je suis descendu de monillustre rang. 170
+Vous avez pu compter, inlassable intendante,
+_ Si je suis descendu de monillustre rang.
 _ Vous avez pu noter, aïeule précédente, MR: a *
 _ _ : Si je me suis assis sur un infâme banc. SA SES
 
 # Vous avez pu compter, aïeule confidente,
-3 À quel taux j'ai placé la couronne d'épines.
+À quel taux j'ai placé la couronne d'épines.
 \ - Vous avez pu noter, aïeule très prudente,
 ä Ce que m'ont rapporté mes strictes disciplines.
 ; Vous avez pu compter, maîtresse de maison,
@@ -1204,21 +1204,21 @@ _ _ : Si je me suis assis sur un infâme banc. SA SES
 . Vous avez pu compter, maîtresse de raison,
 f À quel taux j'ai loué la pierre pour ma tête. #
 F Vous avez pu compter, maîtresse d'oraison,
-5 À quel taux j'ai placé la prière et la fête,
+À quel taux j'ai placé la prière et la fête,
 l Et ce dernier repas dans un dernier hôtel. |
 he. Vous avez pu compter, aïeule respectable,
 “4 À quel taux j'ai placé ma mort inéluctable, « 4 Et combien j'ai payé sur un dernier autel.
 
 4 | ô femmes qui pouvez dans le secret du cœur : |
-É, Classer la liaison désormais étrangère, 4e
+É, Classer la liaison désormais étrangère,
 n:: Et classer la victoire et classer le vainqueur, “a
-113 Et classer une foi désormais mensongère. ;
-1 63
+Et classer une foi désormais mensongère. ;
+1
 
 les tapisseries ee
 Et classer une paix comme on classe une guerre,
-Et classer une amour désormais périssable. 74
-Et tirer la même eau du puits intarissable. D
+Et classer une amour désormais périssable.
+Et tirer la même eau du puits intarissable.
 Et tirer l'Homme enfin d'une race vulgaire.
 ô femmes qui rangez dans le creux d'un secret
 Une déliaison désormais infidèle.
@@ -1237,11 +1237,11 @@ Et le sang du martyr et le sang du bourreau.
 Vous avez pu ranger l'infâme tombereau
 Et la barque échappée aux gueules des tempêtes.
 
-34 Vous rangez la victoire autant que la défaite,
+Vous rangez la victoire autant que la défaite,
 Fe Et tout vous est égal dans un même labeur.
 Le Vous rangez l'énergie autant que la stupeur,
-4 Et tout vous est égal dans une paix mal faite. *
-5 Vous ne connaissez rien qu'une fortune hostile
+Et tout vous est égal dans une paix mal faite. *
+Vous ne connaissez rien qu'une fortune hostile
 ; Guettant à votre porte et levant le rideau. ;
 : Vous ne connaissez rien qu'une main versatile
 É Et cet écrasement d'un immense fardeau.
@@ -1250,37 +1250,37 @@ i Et l'immobilité de la nuit et des ombres. pe
 ; Et les vagues croulant en énormes décombres.
 # Et vos enfants partis sur un frêle radeau. £
 É: Et tout vous est égal et tout vous est étroit.
-4 Vous redoutez autant les bons que les pervers.
-3 Tout bonheur qui vous vient vous arrive à l'envers. .
+Vous redoutez autant les bons que les pervers.
+Tout bonheur qui vous vient vous arrive à l'envers. .
 ‘4 Mais tout mal qui vous vient vous arrive à l'endroit. Re
-Les eaux ne coulent pas, les bois ne sont pas verts, Ÿ
+Les eaux ne coulent pas, les bois ne sont pas verts,
 à; Les cieux ne sont Pas purs pour votre anxiété. REX
-À Vous ne connaissez rien dans l'immense univers D
+À Vous ne connaissez rien dans l'immense univers
 r_ Qui ne soit l'instrument d'une infélicité. “
-15 7
+15
 
 LEA les tapisseries FINIR
 _ Tout vous demeure égal sous une égale peur. Sc
 ne Vous n'attendez jamais de vos secrets effrois, % +
-450 Vous n'attendez jamais des peuples et des rois fe
-12 Que le déroulement d'une immense torpeur. “5
+Vous n'attendez jamais des peuples et des rois fe
+Que le déroulement d'une immense torpeur. “5
 
 __ Vous avez pu ranger et la faiblesse humaine .
-24 Et le tétrarque Hérode : après qu'il m'eut haï. el
+Et le tétrarque Hérode : après qu'il m'eut haï. el
 Le Vous avez pu ranger et la lance romaine PR rer
-AA Et Pilate et Judas, mais quand il m'eut trahi. 70
+AA Et Pilate et Judas, mais quand il m'eut trahi.
 F Vous avez pu ranger Caïphe le grand-prêtre à Xe
-_  Etle soldat Malchus : après qu'il eut servi. 5e
+_  Etle soldat Malchus : après qu'il eut servi.
 è Vous rangez toute forme et vous rangez tout être .
-Et vous rivez les fers, quand l'homme est asservi. n
-._ Vous avez pu ranger le mont nommé Calvaire 24
+Et vous rivez les fers, quand l'homme est asservi.
+._ Vous avez pu ranger le mont nommé Calvaire
 ü Ou le mont Golgotha, mais quand je l'eus gravi. -@
 nr Vous rangez l'or, l'airain, le cristal et le verre, ; “4
-Hi . Et la clef du trésor, après qu'il est ravi. k 3N
+Hi . Et la clef du trésor, après qu'il est ravi.
 PAR Vous avez pu ranger la couronne d'épine, LT
 Pa La verge et le roseau, mais quand il eut servi. ©
 RL Vous avez pu ranger la stricte discipline, ee
-_ La honte et la fureur : après qu'elle eut sévi. ! 4
+_ La honte et la fureur : après qu'elle eut sévi. !
 
 Ù Vous avez pu ranger et la sainte colline,
 Autrement dit Sion, après qu'elle eut péri.
@@ -1288,8 +1288,8 @@ Autrement dit Sion, après qu'elle eut péri.
 Où coulaït le Cédron, après qu'il fut tari.
 Vous avez pu ranger la chaise du préteur
 Et le préteur lui-même : après qu'il eut servi.
-Et les bancs du public et le blasphémateur È
-: Et la tourbe et la foule : après qu'elle eut suivi. î
+Et les bancs du public et le blasphémateur
+: Et la tourbe et la foule : après qu'elle eut suivi.
 Vous avez pu ranger l'auguste tribunal. |
 Vous écoutez parler les interlocuteurs.
 Vous écoutez marcher tout le code pénal.
@@ -1298,7 +1298,7 @@ L Vous avez su ranger les bois du sacrifice.
 À Les clous et le marteau, mais quand il eut frappé.
 FA Vous rangez la prière et vous rangez l'office.
 =_O Et vous rangez le temps, quand il est échappé.
-1 Vous rangez l'épouvante et le dernier supplice. ; 5
+Vous rangez l'épouvante et le dernier supplice.
 4 , Vous écoutez marcher le jugement de Dieu. ;
 À Vous allumez la lampe et regardez le feu.
 …_ Vous rangez l'ostensoir et le dernier calice.
@@ -1316,7 +1316,7 @@ Femmes, je vous le dis, vous rangeriez Dieu même,
 Et vous l'avez rangé la fois qu'il est venu. à
 Vous l'avez salué, vous l'avez reconnu,
 Vous avez recueilli le nouveau diadème,
-La couronne coupée au long de la colline. d
+La couronne coupée au long de la colline.
 Vous avez recueilli le sceptre dérisoire.
 Vous avez regardé le meurtre provisoire,
 Et les trois longs gibets jaillis de la ravine,
@@ -1327,34 +1327,34 @@ Vous rangez le cilice et le jour de la mort.
 
 _ Vous avez pu ranger le meurtre expiatoire, — DRE
 _ à femmes qui pleuriez, — mais quand il fut fini.
-__ Vous avez pu ranger et l'interrogatoire M
+__ Vous avez pu ranger et l'interrogatoire
 h_ Et l'homme interrogé, mais quand on l'eut honni.
 _ Vous regardez passer le meurtre expiatoire.
 | Dans le bannissement vous classez le banni.
 LL Vous regardez trôner et l'interrogatoire
-DU Et l'interrogateur, avant qu'il fût puni. x
+DU Et l'interrogateur, avant qu'il fût puni.
 . Vous regardez monter l'offrande et l'offertoire. » Vous classez la défense et le contradicteur. 5%
 : à vainement assise aux marches du prétoire,
 k Vous regardez monter la hache du licteur. À
 … Vous classez la bataille et classez la victoire. RES
-_ Et vous classez l'offense avec l'accusateur. S
-- Ô vainement assise aux marches de l'histoire, : 5
+_ Et vous classez l'offense avec l'accusateur.
+- Ô vainement assise aux marches de l'histoire,
 . Vous regardez monter l'oubli consolateur. Fes
-- Vous classez le néant et vous classez le monde. F4
+- Vous classez le néant et vous classez le monde.
 … Ô vainement assise aux marches de l'autel, *
 … Vous regardez monter cette vague profonde, #
-… Vous regardez grandir le grand péché mortel. L
+… Vous regardez grandir le grand péché mortel.
 
 ; ne. Vous regardez monter la vague de luxure,
-5e Ô vainement assise au seuil de pureté. 3 de 4
+5e Ô vainement assise au seuil de pureté. 3 de
 LES Vous regardez monter ce flot de âureté s Ne “5
 Du cœur et tant de honte et tant de flétrissure.
 _ Vous regardez monter cette immense mer Morte, PL
 nee. Ce flot de pestilence et d'opiniâtreté, Te
 __ à vainement assise au seuil de dureté, LEE
-ER Ô vainement assise à votre propre porte. Ù F0
+ER Ô vainement assise à votre propre porte.
 23 à Vous regardez monter ce flot de turpitude. (558
-je ; Vous pensez à vos fils assis dans le jardin. M.
+je ; Vous pensez à vos fils assis dans le jardin.
 rs Vous regardez monter jusqu'au dernier gradin RAR
 5e Vous pensez à vos fils nés pour un autre sort, Re
 5e Secrètement armés contre la multitude. A CES
@@ -1362,13 +1362,13 @@ rs Vous regardez monter jusqu'au dernier gradin RAR
 ë 13 18 Vous pensez à vos fils nés pour la solitude. [502
 ne: ; Vous regardez monter l'océan d'avarice, ; LR
 MC Tout un monde noyé dans la honte d'argent. ! SE
-540 Et le débordement du plus hideux caprice. EE
+Et le débordement du plus hideux caprice. EE
 “ES Et l'astuce et la ruse et l'immonde entregent. FAT
 
 | Vous regardez monter la lourde ingratitude. |
 x Vous voyez s'étaler l'immense platitude.
 E Et cet écrasement sous la banalité.
-Vous voyez s'étaler la lourde turpitude, 4
+Vous voyez s'étaler la lourde turpitude,
 Ô vainement assise au seuil de pauvreté.
 Vous voyez s'en aller cette longue habitude, ,
 Vous regardez monter cette double luxure,
@@ -1391,12 +1391,12 @@ __ Vous regardez saigner la double cicatrice. NE” a ke
 FRE Vous regardez monter cette double insolence,
 Nr La luxure du cœur sous les stupres anciens. LT
 EC Vous regardez monter dans l'antique silence k HR.
-53 L A Le long délaissement de Dieu parmi les siens. ne À
+L A Le long délaissement de Dieu parmi les siens. ne À
 M Vainement réchauffée aux tisons de ce feu, LR
 128 a Vainement acouflée à cette vieille dalle, LL FFM
 Fe Vous pleurez longuement sur ce nouveau scandale:
 “OR E L'argent devenu maître à la place de Dieu. + TUE
-HA Tout se vend et s'achète et se livre et s'emporte. ie 5
+HA Tout se vend et s'achète et se livre et s'emporte. ie
 MS { Rien ne se donne plus et moi j'ai tout donné. (FL
 __  Ô vainement assise à votre chère porte, 15 CR
 fe 2 Cest donc là le salut que nous avons sonné. ir, :
@@ -1405,7 +1405,7 @@ _ Tout s'étale et triomphe et se vend au marché. oi
 
 ‘fe Tout se vante et s'exhibe et se porte à la halle.
 F Vous pensez à vos fils nés d'un autre destin.
-1 Vous regardez monter vers un dernier matin #
+Vous regardez monter vers un dernier matin #
 D Le long déroulement du plus grossier scandale.
 | … Vous avez pu ranger le reniement de Pierre.
 | Vous rangez le sommeil, et la veille, et les larmes. À
@@ -1414,52 +1414,51 @@ A Vous rangez le regard sous la lourde paupière. :
 Et vous rangez la voix jusqu'au fond de la gorge.
 F Et vous rangez les pleurs jusqu'au fin fond des yeux.
 à Vous rangez le Seigneur jusqu'au fin fond des cieux. Re
-Ê: Vous rangez la brûlure au fin fond de la forge. J
+Ê: Vous rangez la brûlure au fin fond de la forge.
 L. Et vous rangez la paix jusqu'au fin fond des guerres.
-3 Et vous rangez le fer laissé dans la blessure. S
+Et vous rangez le fer laissé dans la blessure.
 ë Vous regardez monter cette double luxure,
 - La luxure du sang et des ruses vulgaires.
 _ Vous avez pu ranger le reniement de Pierre. |
 Mais pourrez-vous ranger le nouveau reniement.
 _ Vous avez pu ranger les monuments de pierre. $
-EL Mais pourrez-vous ranger le nouveau monument. Â
+EL Mais pourrez-vous ranger le nouveau monument.
 
 Der les tapisseries ARR
-4 Vous avez pu ranger le sépulcre de pierre. dE
-8 Mais pourrez-vous ranger d'un égal rangement, : EE
-Le Et par le seul effet d'un long ménagement, 4
+Vous avez pu ranger le sépulcre de pierre. dE
+Mais pourrez-vous ranger d'un égal rangement, : EE
+Le Et par le seul effet d'un long ménagement,
 rs 4 Le deuil enseveli sous la lourde paupière. !
-02 Vous avez pu ranger la charrue et le glaive. :
-4 Rangerez-vous jamais nos nouveaux armements. Û
+Vous avez pu ranger la charrue et le glaive. :
+Rangerez-vous jamais nos nouveaux armements.
 s ie Pourrez-vous refouler dans les casernements
 s204 Le monstrueux effort du monde qui se lève.
-| Vous regardez monter cette double avarice, 4
+| Vous regardez monter cette double avarice,
 Le manquement de cœur et le manque de sang. ;
-Vous regardez saigner la double cicatrice, s
+Vous regardez saigner la double cicatrice,
 L'atteinte vers le cœur, l'atteinte vers le flanc. %
-Ë Vous regardez saigner la double flétrissure. e
+Ë Vous regardez saigner la double flétrissure.
 ; Vous poursuivez l'orgueil jusqu'au fond de la plaie. |
 à Vous regardez monter cette double luxure, #1
-La sanie et l'envie et le saint sur la claie. 1
-| 3
-FU Vous regardez monter cette double impuissance, D
-pan L'impuissance d'aimer et celle de haïr. k
+La sanie et l'envie et le saint sur la claie.
+FU Vous regardez monter cette double impuissance,
+pan L'impuissance d'aimer et celle de haïr.
 Fa Vous regardez monter cette double licence, :
-Ke La licence d'aimer et celle de trahir. 4
+Ke La licence d'aimer et celle de trahir.
 
-14 Vous voyez s'en aller cette double puissance, À
+Vous voyez s'en aller cette double puissance, À
 _ La puissance d'aimer et celle d'obéir. |
-—. Vous voyez succomber cette double décence, Ÿ
+—. Vous voyez succomber cette double décence,
 . La décence d'aimer et celle de faillir. “
 e Vous regardez sombrer cette double clémence,
 SE La clémence d'amour et de fraternité. £
-7 Vous regardez monter cette double démence,
+Vous regardez monter cette double démence,
 N. Et moi je vous salue, ô reine de décence. ;
-4 Vous rangez le fumier dans le fond du jardin. >
+Vous rangez le fumier dans le fond du jardin. >
 Mn Vous balayez le seuil et le premier gradin.
-b . -Et vous vous avancez, merveille d'innocence. F4
-| 4 _ Et vous vous tenez là, reine de réticence. é
-Mu Et l'homme n'est qu'un sot devant votre balai. 1
+b . -Et vous vous avancez, merveille d'innocence.
+| 4 _ Et vous vous tenez là, reine de réticence.
+Mu Et l'homme n'est qu'un sot devant votre balai.
 À Des ordures du jour vous faites un remblai, ;
 | + Un tas devant la porte, et par obéissance ee
 Mn Vous ramassez la fleur après qu'elle est fanée. À
@@ -1480,15 +1479,15 @@ Quand l'effet est passé, vous râmassez la cause.
 
 Vous ramassez l'honneur, après qu'il est flétri. ;
 
-Vous rangez le bonheur, après qu'il a péri. Ë
-: Vous mettez le tilleul avec la passe-rose. 1 3
+Vous rangez le bonheur, après qu'il a péri.
+: Vous mettez le tilleul avec la passe-rose.
 Nt Vous ramassez la grâce, après qu'elle est donnée. }
-Ve Vous ramassez la source après qu'elle est tarie. 11
-ne Vous rangez la douleur quand elle est défleurie. ÿ
+Ve Vous ramassez la source après qu'elle est tarie.
+ne Vous rangez la douleur quand elle est défleurie.
 CURE Vous rangez la moisson quand elle est moissonnée.
 ‘ Vous avez ramassé les cailloux et les pierres : à
 RITES Quand on les eut jetés sur le premier martyr. #0
-Ù Vous ramassez l'horreur et l'effroi de partir : 24
+Ù Vous ramassez l'horreur et l'effroi de partir
 :) Quand ils sont descendus sous l'arceau des paupières. à
 
 me Vous avez pu ranger le mont nommé Calvaire
@@ -1498,14 +1497,14 @@ me Vous avez pu ranger le mont nommé Calvaire
 F j Femme je vous le dis, mais rangerez-vous Dieu,
 Fe Quand il viendra s'asseoir au dernier tribunal. :
 i Rangerez-vous l'archange et le code pénal. Me
-1 Rangerez-vous alors d'un dernier rangement
+Rangerez-vous alors d'un dernier rangement
 È Le vaisseau tout chargé du péché d'Israël.
 fe Rangerez-vous Achab à côté d'Ismaël. >
-5 Rangerez-vous le jour du dernier jugement.
-:? Rangerez-vous alors l'énorme chargement. 5
+Rangerez-vous le jour du dernier jugement.
+:? Rangerez-vous alors l'énorme chargement.
 “4 Balaïerez-vous alors les marches de l'autel.
 Re. Rangerez-vous l'offense et le péché mortel.
-4 Aménagerez-vous cet aménagement Ai
+Aménagerez-vous cet aménagement Ai
 % De tout le temporel dans son dernier ménage. à
 , 4 Et cette énormité du déménagement on
 F. De tout le temporel hors de son apanage. GA
@@ -1513,28 +1512,28 @@ Es Et cette énormité de l''emménagement
 
 SC De tout le temporel dans son nouveau partage. 28 POS
 La Fe Rangerez-vous alors le découragement ALSRNEN
-‘2 Du vieux cœur temporel hors de son vieux courage. < D
+‘2 Du vieux cœur temporel hors de son vieux courage. <
 ne Rangerez-vous alors tout le dérangement Re
 24 & De l'homme temporel hors de son vieux village. ILE
 74 ; Rangerez-vous alors tout le dégagement “
 Le De la foi temporelle hors de son premier gage. cé
 Te Rangerez-vous la liste avec l''émargement. :
 | Rangerez-vous la honte et l''épouvantement ;
-; De l'homme enseveli dans un suprême orage. » 248
+; De l'homme enseveli dans un suprême orage. »
 Rangerez-vous l'horreur et le saisissement ee
 * De l'homme suspendu sur un dernier barrage. ;
 Fe Rangerez-vous la barque et le gouvernement. +
 à Et vos fils emportés sur un frêle radeau. t34)
 ca Rangerez-vous la lampe et le dernier rideau. +
-Fe Rangerez-vous le port et le débarquement. 4
+Fe Rangerez-vous le port et le débarquement.
 be Femme, vous m'entendez : quand les âmes des morts NN
-ie S'en reviendront chercher dans les vieilles paroisses, 50
-58 Après tant de bataille et parmi tant d'angoisses, à
+ie S'en reviendront chercher dans les vieilles paroisses,
+Après tant de bataille et parmi tant d'angoisses, à
 ne Le peu qui restera de leurs malheureux corps; 2110
 
 4 * Et quand se lèveront dans les champs de carnage
 Tant de soldats péris pour des cités mortelles,
-5 Et quand s'éveilleront du haut des citadelles
+Et quand s'éveilleront du haut des citadelles
 L Tant de veilleurs sortis d'un terrible hivernage ;
 Et quand s'éveilleront, d'un terrible réveil,
 Tant de guetteurs assis au faîte de la tour,
@@ -1547,29 +1546,29 @@ l Et quand tous trembleront, et de la même transe,
 Disant : L'heure est sonnée, il est temps de paraître;
 | : à Et quand le roi Louis et quand le roi de France
 É Ne sera plus qu'un pauvre et qu'un malheureux être;
-- 0
-4 Quand ne sonnera plus la cloche du baptême,
+-
+Quand ne sonnera plus la cloche du baptême,
 de. » Et l'entrée à la messe et le saint sacrement,
 Et la jeune promesse et le grave serment,
 Ë Et l'automne fleuri de grave chrysanthème;
 
 Quand ne sonneront plus les temporelles vêprés LA CARS
 FE Et quand apparaîtra dans un âge absolu FT) UT DONNNSES
-_  L'éternelle hideur des temporelles lèpres; fs 0 Æ ï
+_  L'éternelle hideur des temporelles lèpres; fs
 AUS Quand on r'entendra plus au cœur des grandes fêtes 5 ne.
 ‘a Quand on ne verra plus sur l'océan des têtes 5e re
-“40 Tomber le Dominus et le Benedicat 15
+“40 Tomber le Dominus et le Benedicat
 20e) Vos omnipotens Deus dans les siècles des PE.
 ne Siècles, quand ne monteront plus les Hosanna, OR
-1 Eaa Et le dur Sabaoth et les Alleluia, à Re
+Eaa Et le dur Sabaoth et les Alleluia, à Re
 Dee. Et le tragique Ag'nus ; femme, vous m'entendez : No
 __ Quand on ne verra plus vers les jours de Noël 15008
 ES Dans la paille et l'espace et l'étable et le temps Se
-se À $ Naître le dernier-né des enfants d'Israël, dur è
+se À $ Naître le dernier-né des enfants d'Israël, dur
 FR Et Joseph le couver de regards importants; AR
 PU Quand on ne verra plus dans une pauvre auberge ) RTC » {0 Naître le plus secret et le plus grand des rois, F2 a
 Quand on ne verra plus saint Joseph et la Vierge | Du.
-0 } Veiller sur un poupon qui joue avec sa croix; HER 238
+0 } Veiller sur un poupon qui joue avec sa croix; HER
 
 : __ Quand on ne verra plus dans une pauvre crèche
 à Sommeiller un bambin devant l'âne et le bœuf,
@@ -1586,7 +1585,7 @@ Ge seul petit Jésus, femme, que tu contemples, à
 : Parce qu'il fut nourri du lait d'une autre femme,
 À Et bercé d'une main mêmement maternelle,
 “4 Parce qu'il fut baigné dans une onde charnelle,
-4 Et parce qu'il riait aux yeux de Notre Dame:
+Et parce qu'il riait aux yeux de Notre Dame:
 À Et qu'il fut caressé d'une main fraternelle :
 + Par le petit saint Jean doublé de son agneau, |
 LA Et qu'il fut salué de façon solennelle
@@ -1594,25 +1593,25 @@ x ÉE Par les rois d'Orient doublés de leur chameau;
 
 : HARRIS les tapiséeries CNE
 ne Et moi je vous le dis : quand cette antique cloche RE
-“., Ne fera plus monter les grands alleluias, 0
+“., Ne fera plus monter les grands alleluias,
 sue Quand la meute et le vol des chastes hosannas À
 ue Ne s'élancera plus gagnant de proche en proche; de
-de 6 Quand ne descendra plus du haut des grandes orgues i
+de 6 Quand ne descendra plus du haut des grandes orgues
 _ La célébration des beaux jours de la vie, are
-4 Le Mais quand s'écroulera du haut des grandes morgues
+Le Mais quand s'écroulera du haut des grandes morgues
 __ Et le péché d'orgueil et le péché d'envie; |
-Quand du haut du clocher la cloche catholique 5
+Quand du haut du clocher la cloche catholique
 Ne fera plus tomber les Ave Maria, SRE
-Quand sur le coffret d'or et la sainte relique É
-5 Ne s'avancera plus le triple Gloria;
+Quand sur le coffret d'or et la sainte relique
+Ne s'avancera plus le triple Gloria;
 Re. Quand ne sonnera plus la cloche paroissiale
 ie Pour le glas de ce jour qui sera le dernier |
 Et l'angélus du jour qui sera le premier,
-; Et la marche funèbre avant la nuptiale ; î
-ce, Mais quand retentiront de bien autres buccins, 4
+; Et la marche funèbre avant la nuptiale
+ce, Mais quand retentiront de bien autres buccins,
 SE Quand tout se courbera sous le fracas des cuivres, \
 “e Quand l'antique Satan, ses larves et ses guivres
-$ Reculeront glacés devant le saint des saints; É
+$ Reculeront glacés devant le saint des saints;
 
 $ Quand on n'entendra plus que le sourd craquement
 D'un monde qui s'abat comme un échafaudage,
@@ -1626,7 +1625,7 @@ Quand on n'entendra plus que le détraquement
 D'un monde qui chancelle et qui se met par terre,
 Et quand apparaîtra l'immense manquement
 D'un sol toujours solide et toujours sédentaire ;
-4 Et quand se lèveront dans les champs d'épandage
+Et quand se lèveront dans les champs d'épandage
 ei Tant de martyrs jetés dans les égouts de Rome,
 k Et quand se lèvera dans le cœur de tout homme
 Font Le long ressouvenir de son vagabondage;
@@ -1639,7 +1638,7 @@ F Dans Paris et dans Reims et dans les métropoles
 Quand ils s'assembleront sur les places publiques, Fe.
 Quand ils s'entasseront sous un dernier portail, THERE
 L Quand ils repasseront par les ormes du mail, ne.
-; Quand ils resalueront les grandes républiques; ë 3
+; Quand ils resalueront les grandes républiques;
 
 Es Quand ils traverseront la place du Martroi, “#
 
@@ -1647,21 +1646,21 @@ Es Quand ils traverseront la place du Martroi, “#
 ‘ Quand ils resalueront les batailles civiles, |
 Et le royaume assis dans le giron du roi; ;
 
-Quand l'homme relevé du plus ancien tombeau É
+Quand l'homme relevé du plus ancien tombeau
 Écartera la pierre et le vase d'oubli, ;
 Quand le plus vieil aveugle et l'homme enseveli à
-Rallumera l'éclair du plus ancien flambeau ; L
-Quand l'homme relevé de la plus vieille tombe 4
+Rallumera l'éclair du plus ancien flambeau
+Quand l'homme relevé de la plus vieille tombe
 Ecartera la ronce et les fleurs du hallier pe.
 
 ,
 
-Quand il remontera le vétuste escalier É
-Où le pied du silence à chaque pas retombe; 33
+Quand il remontera le vétuste escalier
+Où le pied du silence à chaque pas retombe;
 Quand l'homme reviendra dans son premier village à
-Chercher son ancien corps parmi ses compagnons K
-Dans ce modeste enclos où nous accompagnons U J
-Les morts de la paroisse et ceux du voisinage; F
+Chercher son ancien corps parmi ses compagnons
+Dans ce modeste enclos où nous accompagnons
+Les morts de la paroisse et ceux du voisinage;
 
 % Quand il reconnaîtra ceux de son parentage |
 
@@ -1687,7 +1686,7 @@ Fr Quand tout se lèvera pour un appareillage
 
 ‘4 Qui sera le premier des établissements;
 
-74 Quand tout retrouvera sa maison et sa race,
+Quand tout retrouvera sa maison et sa race,
 
 :°%4 Au moment de les perdre, ou de les conserver,
 
@@ -1704,18 +1703,18 @@ Et les yeux éblouis et se tenant la main,
 Et reconnaissant mal ces tours et ces détours
 Des sentiers qui menaient leur candide jeunesse,
 Encor tout ébahis que ce jour soit venu,
-Encor tout assaillis du regret revenu, Ê
+Encor tout assaillis du regret revenu,
 Et reconnaissant mal, avant que l'aube naisse,
 Ces sentiers qui menaient leur enfance première,
 Encor tout démolis d'être ainsi revenus, ;
 Et reconnaissant mal ces corps pauvres et nus,
 Et reconnaissant mal cette vieille chaumière
-Et ces sentiers fleuris qui menaient leur tendresse, 4
+Et ces sentiers fleuris qui menaient leur tendresse,
 Et les anciens lilas dans les vieilles venelles, .
 Et la rose et l'œillet et tant de fleurs charnelles,
 Avant que de monter jusqu'aux fleurs de hautesse;
 
-4 Quand ils avanceront dans la nuit éternelle,
+Quand ils avanceront dans la nuit éternelle,
 
 Tâtant des mains les murs et cherchant leur chemin,
 
@@ -1742,7 +1741,7 @@ nr : Quand il retrouvera sa force originelle,
 Maïs pour être abolie et ne servir qu'un jour,
 À Quand il retrouvera dans son premier séjour
 à La lumière et la paix qui baignaïent sa prunelle;
-4 Quand ils s'avanceront dans cette cécité, |
+Quand ils s'avanceront dans cette cécité, |
 &_ Tout désaccoutumés des chemins de la terre,
 _ Tout déshabitués de l'antique cité $
 Le Qui posait sur les fronts un masque statutaire;
@@ -1755,21 +1754,21 @@ Quand ils s'avanceront vers un dernier trépas, AS
 Près de qui tout bonheur est de commandement, / ‘a
 ï Et vers le premier jour de cette quiétude
 h Près de qui toute grâce est de gouvernement,
-4 Et vers le premier jour de cette certitude a
+Et vers le premier jour de cette certitude a
 Près de qui tout savoir est un entassement, à!
-Et vers le premier jour de cette exactitude £ È
+Et vers le premier jour de cette exactitude £
 # Près de qui toute règle est de consentement, ;
-Et vers le premier jour de cette plénitude 154
+Et vers le premier jour de cette plénitude
 
 Près de qui toute joie est une insuffisance, # ;
 à Et vers le premier jour de ce contentement, 31721
 Et vers le dernier terme et la seule présence, ci
 Et vers le premier bord du seul débordement; sl
-Quand ils s'avanceront dans cette adversité, 4
+Quand ils s'avanceront dans cette adversité,
 
 é Tout désaccoutumés des chemins de la terre, ‘4
 Ne Tout déshabitués de l'antique cité ‘à
-| Qui posait sur les fronts un ordre salutaire; F
+| Qui posait sur les fronts un ordre salutaire;
 
 É Quand on n'entendra plus que le démembrement
 D'un monde qui s'en va comme un écartelé,
@@ -1785,25 +1784,25 @@ Et dans l'ancien scrupule et dans l'ancien remords,
 Et d'être retournés dans la raideur charnelle ;
 $ Et d'être maladroïts et perdus dans ces membres,
 Ë Et tout embarrassés dans ces remembrements,
-4 Comme un roi qui revient et se perd dans ses chambres,
-4 Et ne reconnaît plus ses beaux appartements ;
+Comme un roi qui revient et se perd dans ses chambres,
+Et ne reconnaît plus ses beaux appartements ;
 À Comme un roi qui retourne en son premier palais
-749 Et ne retrouve plus ni son grand chambellan,
-7 Ni son grand majordome et demande le plan :
+Et ne retrouve plus ni son grand chambellan,
+Ni son grand majordome et demande le plan :
 # De sa propre demeure et cherche des valets
 
 pi = des tapisseries "NOR
-Qui pourraient ranimer tout ce grand appareil, d è
+Qui pourraient ranimer tout ce grand appareil,
 Et la salle du trône et la salle du sacre, #
-Et son glaive d'or pur et son sceptre de nacre, 5
-| Et pourraient balayer la chambre du conseil; É
+Et son glaive d'or pur et son sceptre de nacre,
+| Et pourraient balayer la chambre du conseil;
 Et pourraient lui montrer sa garde militaire,
 Et la porte centrale et le parvis de marbre,
 _ Et la vasque d'eau pure et le pourpris et l'arbre,
 É Et pourraient lui sauver sa race héréditaire ; ,
 Quand l'homme s'en ira dans la nuit étoilée,
 Encor tout éperdu de ce remembrement,
-Quand l'homme s'en ira dans la nuit dévoilée, 71e
+Quand l'homme s'en ira dans la nuit dévoilée,
 j Encor tout confondu de ce transfèrement;
 Quand l'homme s'en ira dans une nuit tacite,
 | Encor tout engourdi d'être ainsi remembré,
@@ -1827,14 +1826,14 @@ Qui ramenaient toujours vers la même blessure,
 Qui ramenaient toujours la même meurtrissure; £
 £ Quand ils reconnaîtront les jours de leur détresse,
 Fe Plus profonds et plus beaux que les jours de bonheur, ;
-4 Quand ils retrouveront les jours de leur honneur,
+Quand ils retrouveront les jours de leur honneur,
 +4 Plus durs et plus aimés que les jours de liesse ; |
 K: Quand ils verront l'autel et les premiers degrés,
 Ée, Quand ils verront le temple et les premières marches,
 ù _ Quand ils verront le seuil et les marbres sacrés,
 k Et la brique romaine et la voûte et les arches
 
-les tapisseries LUTTER 7.
+les tapisseries LUTTER
 Du vieux pont qui menait leur caduque allégresse, sn
 Quand ils chemineront tout le long du fossé, FA
 ; Quand ils retrouveront dans les jours du passé fi
@@ -1845,9 +1844,9 @@ co. Tout gauches, tout perdus, percés de part en part
 s Par le ressouvenir des anciennes années;
 Quand se réveilleront dans les champs de glanage
 Tant de glaneurs péris pour des péchés mortels, À
-Mais quand se dressera le plus haut patronage 14
+Mais quand se dressera le plus haut patronage
 Pour les reversements les plus sacramentels,
-Fe - Quand dans le même lieu les plus hauts personnages 7
+Fe - Quand dans le même lieu les plus hauts personnages
 Ne seront pas plus grands que les derniers venus, $
 Quand les daïs les plus lourds, et les plus saugrenus, ri
 i Ne vaudront pas plus cher que de pauvres ménages,
@@ -1865,36 +1864,36 @@ Comme le jeune Hémon et la belle Antigone,
 Quand le dernier bleuet et le dernier jasmin
 Et la douce pervenche et la chaste anémone
 Étendront sous les pas de ces derniers passants
-_Le dernier étendu des tapis de la terre, 1 1
+_Le dernier étendu des tapis de la terre,
 bi Et quand la sagittaire et quand le fumeterre,
 | Vainement étendus vainement florissants
 ,
-‘4 Étendront sous les pas de cette immense armée è
+‘4 Étendront sous les pas de cette immense armée
 % Le dernier étendu des linceuls de la terre,
 jh Et quand la cicutaire et quand la serpentaire,
-4 Vainement vigilante et vainement armée, 3
+Vainement vigilante et vainement armée,
 E. Et vainement poignante et vainement vivace, ;
-24 Étendront sous les pas de vos derniers enfants,
-4 Le dernier drap du lit pour la dernière race
+Étendront sous les pas de vos derniers enfants,
+Le dernier drap du lit pour la dernière race
 
 1 6 Et les pas sur les fleurs et les pas sur le sable, ‘is
 __ Quand vos enfants perdus, aïeule périssable, | ne
 pe d S'avanceront ainsi sur la basse terrasse, AC
-“a the Pour la dernière empreinte et la dernière marque, M
-+ ' Et quand ils fouleront la lavande et le thym, Ÿ 4
+“a the Pour la dernière empreinte et la dernière marque,
++ ' Et quand ils fouleront la lavande et le thym,
 Ho Quand ils s'avanceront dans leur dernier matin se
 de Vers le dernier prétoire et le dernier monarque, f ‘
-ee Quand ils iront en bande et les curés'en tête, ; 5
+ee Quand ils iront en bande et les curés'en tête,
 j Quand ils contempleront le dernier tribunal, +34
 è Quand ils chemineront tout le long du canal, - ‘4
-Comme ils allaient en bande aux jours de grande fête, D
-" Quand ils s'avanceront dans l'éternelle nuit, 4
-Li Quand ils auront passé devant le four banal, 7
+Comme ils allaient en bande aux jours de grande fête,
+" Quand ils s'avanceront dans l'éternelle nuit,
+Li Quand ils auront passé devant le four banal,
 ; Et le moulin à vent et Ie pré communal, ‘1
-5 Comme ils allaient en bande aux messes de minuit, à
-= Quand ils auront passé devant le maréchal, | li 4
-RE 0 Quand ils se heurteront au coin d'un espalier, x
-Encor tout endormis et reconnaissant mal 4
+Comme ils allaient en bande aux messes de minuit, à
+= Quand ils auront passé devant le maréchal, | li
+RE 0 Quand ils se heurteront au coin d'un espalier,
+Encor tout endormis et reconnaissant mal
 
 | Ces sentiers qui menaient leur naïve rudesse,
 Et quand ils trembleront dans ce dernier trépas,
@@ -1918,9 +1917,9 @@ A Nous nous sommes rangés sous une foi si pure,
 ra Aïeule du despote et du conspirateur.
 
 ue les tapisseries ua
-Vous avez pu ranger la brebis et l'agneau 2 6
+Vous avez pu ranger la brebis et l'agneau
 Et le berger lui-même : après qu'il eut péri. : se
-A Vous rangez le bercail, vous rangez le chevreau. 54
+A Vous rangez le bercail, vous rangez le chevreau.
 Et vous rangez le loup : quand il est assouvi. 3 :
 Se Vous rangez l'eau bénite et le lit mortuaire te
 Et le lit nuptial de l'homme enseveli, de
@@ -1928,16 +1927,16 @@ Et le lit nuptial de l'homme enseveli, de
 | ; Et l'amour filial : quand le fils est parti. "
 Vous rangez l'escabeau, vous rangez le suaire, |
 Vous rangez l'appareil des appareillements. À
-Vous rangez le caveau, vous rangez l'ossuaire, 4
+Vous rangez le caveau, vous rangez l'ossuaire,
 Vous rangez le recueil et les recueillements.
 Vous rangez le silence et le drap funéraire
-Et vous fermez ces yeux quand l'homme en est parti. û
+Et vous fermez ces yeux quand l'homme en est parti.
 Vous rangez la présence et l'urne cinéraire ;
 Et vous baisez ce front, quand l'homme en est sorti. À à
-| ô femme qui fermez les regards bleus et noirs à ù
+| ô femme qui fermez les regards bleus et noirs à
 Et les regards profonds des yeux les plus aimés, À
 Épouse qui fermez pour le dernier des soirs |
-: Le reconnaissement des yeux accoutumés. 3
+: Le reconnaissement des yeux accoutumés.
 
 ;  ô femme qui fermez les regards des mourants
 Sur le dernier aspect qu'ils auront eu du monde,
@@ -1950,19 +1949,19 @@ Vous rangez le cantique avec l'obituaire,
 Et vous rangez le sort : quand il est accompli.
 Et vous rangez le mort : après qu'il est bien mort.
 Et vous rangez les temps : quand ils sont révolus.
-£ Et vous rangez les jours : quand ils sont absolus. : Ë
+£ Et vous rangez les jours : quand ils sont absolus.
 Vous rangez le vaisseau : quand il est dans le port.
 Vous rangez les enfants : quand ils sont résolus. £
 # Vous rangez le sépulcre et la croix de par Dieu.
-4 Vous rangez les trois croix sur le dernier haut lieu. <
-4 Et vous rangez le cœur : après qu'il ne bat plus.
-4 Vous rangez le martyr : au fond du tombereau.
+Vous rangez les trois croix sur le dernier haut lieu. <
+Et vous rangez le cœur : après qu'il ne bat plus.
+Vous rangez le martyr : au fond du tombereau.
 “4 Et vous rangez la foule : après qu'elle a suivi. ;
 ‘1 Vous avez pu ranger le glaive et le fourreau : À
-4 Et le soldat lui-même : après qu'il eut servi. } ;
+Et le soldat lui-même : après qu'il eut servi. } ;
 
 \ Vous avez pu compter, inlassable gérante,
-Si du pain de mon corps tout homme s'est repu. é
+Si du pain de mon corps tout homme s'est repu.
 Vous avez pu compter, implacable régente,
 Ce que j'avais tenté d'avec ce que j'ai pu.
 Vous avez pu compter ce que coûte le nombre,
@@ -1983,21 +1982,21 @@ Ke Maîtresse du jardin et des eaux et forêts.
 ‘4 Et les frais généraux et le compte commun.
 
 7 les tapisseries ds FR
-5 Vous le savez assez, Ô mon âme, Ô ma mère, A RS
+Vous le savez assez, Ô mon âme, Ô ma mère, A RS
 | Maîtresse de mesure et d'un sort opportun, Le
 pe Maîtresse du décompte et du large sommaire : “
-pé Que nous n'avons que Dieu qui rende cent pour un. . k
+pé Que nous n'avons que Dieu qui rende cent pour un.
 = Et vous mettrez ceci dans vos livres de compte, a
 à Puisque vous écrivez ce que coûte chacun, ,
 | Et vous mettrez ceci dans nos livres de honte, é je
 ) Que nous n'avons qu'à Dieu qu'on prête à cent pour un. $
-Et vous mettrez ceci sur le large sommaire, « Et sur le bordereau de ce que vaut chacun, 4
+Et vous mettrez ceci sur le large sommaire, « Et sur le bordereau de ce que vaut chacun,
 Que nous n'avons que Dieu qui vaille cent pour un. .
-Et vous mettrez ceci sur le large sommaire, 4
+Et vous mettrez ceci sur le large sommaire,
 Et sur le bordereau de ce que fait chacun,
-Que nous n'avons que Dieu qui fasse cent pour un. è
+Que nous n'avons que Dieu qui fasse cent pour un.
 Et par là vous savez combien l'homme exagère pr
-Quand il dit qu'il déteste et quand il dit qu'il aime. R.
+Quand il dit qu'il déteste et quand il dit qu'il aime.
 Et qu'il n'est point de lieu sur la terre étrangère a
 Ni pour un grand amour ni pour un grand blasphème. +
 
@@ -2016,10 +2015,10 @@ Et c'est Dieu qui possède et c'est l'homme qui gère. :
 Et par là vous savez combien l'homme exagère |
 h  Quandil dit qu'il se bat et quand il dit qu'il vaine. *
 :3 C'est Dieu seul qui débat et Dieu seul qui convainc
-“ D'imposture et de faux la lèvre mensongère. ÿ
-5 Et par là vous savez combien l'homme exagère
+“ D'imposture et de faux la lèvre mensongère.
+Et par là vous savez combien l'homme exagère
 M...  Quandil dit qu'il conteste et quand il dit qu'il ment.
-D Et qu'il n'est point de seuil sous sa porte étrangère 1
+D Et qu'il n'est point de seuil sous sa porte étrangère
 _ Ni pour un grand bonheur ni pour un grand tourment. |
 
 les tapisseries RÉ ni:
@@ -2027,7 +2026,7 @@ les tapisseries RÉ ni:
 | Et par là vous savez combien l'homme se flatte : ‘a
 
 Quand il dit qu'il descend et quand il dit qu'il monte. Fi
-Il a mal mesuré combien sa vie est plate Ê
+Il a mal mesuré combien sa vie est plate
 Entre le point d'honneur et le niveau de honte. | $
 
 à Et vous savez aussi ce que tout homme tente: %
@@ -2037,8 +2036,8 @@ C'est de tenter sa veine et de suivre sa pente. :
 Et c'est de gaspiller le meilleur de mon sang.
 Et vous savez aussi ce que tout homme tente : je
 C'est de se réchapper des mains de l'Éternel. Ve
-C'est de cuver sa peine et de planter sa tente 5
-Dans le recordement de son rêve charnel. 4
+C'est de cuver sa peine et de planter sa tente
+Dans le recordement de son rêve charnel.
 Et vous savez aussi ce que tout homme tente:
 C'est de se réchapper des mains de son Sauveur.
 C'est de se libérer de la vieille épouvante
@@ -2046,7 +2045,7 @@ Afin de retomber dans la turpide peur. ,
 
 ; Et vous savez aussi ce que tout homme tente : ;
 C'est de se réchapper des mains de son bonheur. ;
-Et c'est de s'évader des jours de son honneur. Ë
+Et c'est de s'évader des jours de son honneur.
 
 i Et vous savez aussi ce que tout homme tente :
 C'est de se réchapper des chemins du salut.
@@ -2063,14 +2062,14 @@ Qu'il n'ait plus qu'à dormir pour en toucher la rente.
 Et par là vous savez ce que tout homme tente :
 C'est de garer son bien des reproches de Dieu.
 ; C'est de garer son or et le mettre en un lieu
-4 Qu'il n'ait plus qu'à dormir pour en toucher la rente.
+Qu'il n'ait plus qu'à dormir pour en toucher la rente.
 ss Et par là vous savez ce que tout homme tente :
 ‘2m C'est de garer son bien des tempêtes de Dieu.
 E C'est de garer son or et le mettre en un lieu
 à Qu'il n'ait plus qu'à dormir pour en toucher la rente.
 
 TEE les tapisseries "1 "0020 RENE
-è Et par là vous savez ce que tout homme tente : Ni E S
+è Et par là vous savez ce que tout homme tente : Ni
 | C'est de garer son cœur des reprises de Dieu. os
 NU C'est de garer son âme et la mettre en un lieu ; y
 sw Qu'il n'ait plus qu'à dormir pour en toucher la rente. #
@@ -2080,18 +2079,18 @@ se Vous savez que Dieu seul est le seul qui se donne, . A.
 Et que l'être de l'homme incessamment décroît |
 Et que l'être de Dieu remonte incessamment Ps
 A son niveau de force à la même altitude, à
-Et qu'il fait de lui-même et son redoublement F
-Et sa force éternelle et son exactitude. 3
+Et qu'il fait de lui-même et son redoublement
+Et sa force éternelle et son exactitude.
 Be Et que l'être de Dieu recroît incessamment
 A son niveau de vie à la même altitude,
 Et qu'il fait de lui-même et son retriplement
 | Et que l'être de Dieu retourne incessamment .
 Dans sa source éternelle et dans sa plénitude, à
-4 Et qu'il fait de lui-même et son accroissement sa
+Et qu'il fait de lui-même et son accroissement sa
 
 | Et que l'être de Dieu repuise incessamment
 
-j Dans sa source éternelle et dans sa nuit profonde, 5
+j Dans sa source éternelle et dans sa nuit profonde,
 Et qu'il fait de lui-même et son accroissement
 
 Et le salut de l'homme et la force du monde.
@@ -2108,7 +2107,7 @@ Le seul qui sache un peu gouverner sa finance.
 
 É Et que le charitable est le seul usurier :
 
-“ A deux mille fois plus que le denier commun. ë
+“ A deux mille fois plus que le denier commun.
 
 É % Il est le seul prêteur qui prête à cent pour un.
 
@@ -2118,35 +2117,35 @@ Le seul qui sache un peu gouverner sa finance.
 
 _ Et je suis étonné qu'on en fasse mystère. :
 
-1 Quand il exposerait quelques arpents de terre : C 4
+Quand il exposerait quelques arpents de terre
 
-4 Il remet sa créance aux mains du Tout-Puissant. :
+Il remet sa créance aux mains du Tout-Puissant. :
 
 les tapisseries RS:
 C'est un spéculateur, un maître en fait d'emprunt, TRE
 Et de prêt et d'usure et de bon placement, ce
-5 Car c'est le seul banquier qui prête à cent pour un F2 PAR
+Car c'est le seul banquier qui prête à cent pour un F2 PAR
 Et qui soit toujours sûr de son gouvernement. A
 C'est un calculateur en fait de certitude. DARe,
 Il met sur le seul fonds qui ne périra pas. %
 Et sa règle à calcul et son double compas, tee
 C'est un seul mot tombé sur cette multitude.
-C'est un seul mot de moi tombé sur cette foule, 4
+C'est un seul mot de moi tombé sur cette foule,
 Le jour que je pleurai sur cette multitude. ‘
 Voilà son gouvernail dans cette immense houle, à
 Sa boussole et son nord et toute son étude. $
 “Voilà son appareil et sa sollicitude.
-Voilà son banc de rame et son couronnement. k
+Voilà son banc de rame et son couronnement.
 Voilà son attirail et sa pauvre habitude.
 ; Voilà le seul manteau de son revêtement. à
 Un seul mot remonté d'une similitude, |
-C'est son centre et son axe et son alignement. J
+C'est son centre et son axe et son alignement.
 s Un seul mot remonté de mon enseignement, na
-Voilà son équilibre et son exactitude. k
+Voilà son équilibre et son exactitude.
 
 = C'est là sa latitude avec sa longitude.
-7 C'est là son parallèle et son méridien. /
-3 C'est son cadran solaire et c'est son amplitude,
+C'est là son parallèle et son méridien. /
+C'est son cadran solaire et c'est son amplitude,
 À Et c'est le seul recours d'un cœur patricien.
 D. Et c'est sa quiétude et son contentement.
 4 1 Et c'est l'heure qu'il est à ma montre et voilà ;
@@ -2156,36 +2155,36 @@ Re Les autres sont perdus parmi tant de richesses
 ne Mais seule vous traînez parmi tant de largesses
 …—_ Le long ressouvenir du temps qu'on n'avait rien.
 RE: Les autres sont perdus parmi tant de kermesses
-| n__ Qu'ils ont le cœur plus faux qu'un cœur musicien. 4
+| n__ Qu'ils ont le cœur plus faux qu'un cœur musicien.
 l … Et seule vous traînez parmi tant de liesses
 | … Le long ressouvenir du temps qu'on n'avait rien.
 | Ÿ Les autres sont perdus parmi tant de sagesses ‘
 ln. Qu'ils ont le cœur plus sot qu'un cœur historien.
 : È 4 Et seule vous traînez parmi tant de souplesses
-i ‘4 Le long ressouvenir du temps qu'on n'avait rien. ï
+i ‘4 Le long ressouvenir du temps qu'on n'avait rien.
 
 Les autres sont perdus parmi tant de bassesses ji
-Qu'ils ont le cœur plus las qu'un cœur quotidien. 2
+Qu'ils ont le cœur plus las qu'un cœur quotidien.
 Et seule vous traînez parmi ces gentillesses He
-Le noble souvenir du temps qu'on n'avait rien. ï
+Le noble souvenir du temps qu'on n'avait rien.
 Quelques-uns sont rangés parmi tant de noblesse
 Qu'ils ont le cœur plus haut qu'un cœur cornélien.
 Avec eux vous traînez parmi cette hautesse
 Le simple souvenir du temps qu'on n'avait rien.
 Les autres sont perdus parmi tant de faiblesses
 Qu'ils ont le cœur plus fat qu'un cœur magicien. ;
-Et seule vous traînez parmi ces joliesses 5
+Et seule vous traînez parmi ces joliesses
 Le secret souvenir du temps qu'on n'avait rien. ‘4
  Quelques-uns sont rangés parmi tant de tendresse
 Qu'ils ont le cœur plus doux qu'un cœur virgilien.
 Avec eux vous traînez parmi cette justesse
 L'antique souvenir du temps qu'on n'avait rien. |
-Les autres sont perdus parmi tant de rudesses 5
+Les autres sont perdus parmi tant de rudesses
 Qu'ils ont le cœur plus dur qu'un cœur prétorien.
 Et seule vous traînez parmi ces forteresses
-Le morne souvenir du temps qu'on n'avait rien. Î
+Le morne souvenir du temps qu'on n'avait rien.
 
-4 Celui-là seul qui met son front sur mes genoux
+Celui-là seul qui met son front sur mes genoux
 Ÿ Est seul maître du temps et seul maître du lieu.
 | Et seul il sait garder ses misérables sous,
 : Celui qui donne au pauvre et redemande à Dieu.
@@ -2208,7 +2207,7 @@ k Vous voici désormais dans la bourse et le change.
 
 les tapisseries RU
 Ils se querelleront pour des mines de houilles.
-Ils se querelleront les quatre fers d'un chien. f
+Ils se querelleront les quatre fers d'un chien.
 Ils se querelleront des caves et des fouilles.
 Mais quand on avait tout, nul ne querellaït rien.
 Et par là vous savez de quoi l'homme se mêle,
@@ -2225,7 +2224,7 @@ Et le peu qu'il détient dans le temps ét le lieu,
 Depuis qu'il fut pétri de la première glaise. |
 Et par là vous savez le peu que l'homme pèse,
 Quatre onces de poussier dans le creux de la main.
-Quatre pieds de terreau dans le creux du chemin. x
+Quatre pieds de terreau dans le creux du chemin.
 Et le retournement dans la première glaise.
 
 | Mais vous savez aussi de quoi l'homme déroge. :
@@ -2234,20 +2233,20 @@ KE Et par là vous savez ce que l'homme s'arroge : |
 —._ Cest le droit d'être bas quand la règle est trop haute. de
 l'A Et le droit d'être haut quand la règle est trop basse. +
 da __  Etle droit de pécher sans commettre de faute. <
-n_ Etle droit de passer quand la règle se lasse. É
+n_ Etle droit de passer quand la règle se lasse.
 M Etle droit de broncher quand la règle se tasse. |
 l_ Et le droit d'être absent quand Dieu même est son hôte. |
 __  Etle droit de casser quand la règle se casse. A:
 L_ Et par là vous savez par quoi l'homme se perd. LEO
-L_ Il veut se dire grand et ne pas voir qu'il baisse. 178
+L_ Il veut se dire grand et ne pas voir qu'il baisse.
 ‘à _ Il veut se dire fort quand il cède et s'affaisse. L RS
-- Il veut se dire libre, et ne pas voir qu'il sert. à 5
-4 Et par là vous savez combien l'homme se trompe &
-1 Quandil dit qu'il offense et quand il dit qu'il plaide. dre
+- Il veut se dire libre, et ne pas voir qu'il sert. à
+Et par là vous savez combien l'homme se trompe &
+Quandil dit qu'il offense et quand il dit qu'il plaide. dre
 —_ Ila mal mesuré combien sa vie est laide de
 | . Et qu'il faut qu'elle plie et qu'il faut qu'elle rompe. Re
 
-les tapisseries 13 #00 n
+les tapisseries 13 #00
 Et par là vous savez à quoi l'homme se prend. |
 C'est à quelque fantôme issu de sa cervelle.
 A quelque pas dansé sur une herbe nouvelle. |
@@ -2258,20 +2257,20 @@ Et qu'il est un passant sur le bord du chemin,
 Tout près de retourner dans sa première glaise.
 Et par là vous savez ce que l'homme découvre.
 C'est que tout souvenir est un point de douleur. À
-Et que tout avenir est un puits de malheur. É
-Et que toute blessure est présente et se rouvre. c
+Et que tout avenir est un puits de malheur.
+Et que toute blessure est présente et se rouvre.
 Et par là vous savez de quoi l'homme se doute.
 C'est qu'il est un pauvre être et que tout finit mal.
 Et par là vous savez ce que l'homme redoute.
 C'est d'être malheureux comme un morne animal
 Qui se traîne et périt dans sa captivité.
 C'est d'être enfin cerné parmi tant de bassesse.
-Et bloqué dans sa geôle et dans sa forteresse. É
+Et bloqué dans sa geôle et dans sa forteresse.
 Et dans son innocence et dans sa gravité.
 
-4 Par ainsi vous savez à quoi tout homme pense.
+Par ainsi vous savez à quoi tout homme pense.
 Et cet arrière-goût pour le péché mortel.
-Et ce prosternement aux marches de l'autel. ù
+Et ce prosternement aux marches de l'autel.
 Et cet arrière-goût pour une récompense
 Qui du moins ne serait qu'un malheur détendu
 Et dans le souvenir d'une peine moins dure .
@@ -2295,38 +2294,38 @@ Il veut gagner deux fois en ne misant qu'un jeu. (AE
 Et gagner le miracle avec le naturel. i LE
 se Et gagner ces deux fois ne mettant qu'un enjeu. ÿ LES
 fi Et par là vous savez pourquoi l'homme s'observe.
-SEE C'est qu'il a toujours peur de trop donner à Dieu. rt te L
+SEE C'est qu'il a toujours peur de trop donner à Dieu. rt te
 11 bâtirait mon temple en boîtes de conserve SE
 es Et du bois de la croix allumerait son feu. RS
 Et par là vous savez combien l'homme exagère HET
-Quand il dit qu'il recule et qu'il dit qu'il avance, 514
+Quand il dit qu'il recule et qu'il dit qu'il avance,
 AE Et qu'il n'est point de place en sa tête légère : FAT
 Fe Ni pour un grand refus ni pour une observance. © rec
 Ar Mais vous savez aussi qu'il n'exagère pas 1 ESS
 Quand il dit qu'il est nud et quand il dit qu'il tremble.
 FA Et qu'il est malheureux et qu'il est tout ensemble
 _ Sous le coup de la mort et le coup des frimas. F Less
-_  : Mais vous savez aussi qu'il n'exagère pas : 16
+_  : Mais vous savez aussi qu'il n'exagère pas
 Sr Quand il dit qu'il est sot et quand il dit qu'il tremble. ee
 Le: Et qu'il est saugrenu de vouloir tout ensemble NN
 __  Mener la même vie en de nouveaux climats. SE 2 < sn
 
-15 Mais vous savez aussi qu'il n'exagère pas
-4 __ Quandildit qu'il est double et quand il dit qu'il tremble, 5
+Mais vous savez aussi qu'il n'exagère pas
+4 __ Quandildit qu'il est double et quand il dit qu'il tremble,
 E Et qu'il cherche sa voie et qu'il veut tout ensemble "4 »  Avancer sans à-coups et faire des faux pas. +
-É F Et par là vous savez qu'il n'exagère pas : R
-2 Quand il dit qu'il est faux et quand il dit qu'il tremble.  .
+É F Et par là vous savez qu'il n'exagère pas
+Quand il dit qu'il est faux et quand il dit qu'il tremble.  .
 se Et qu'il cherche sa route et qu'il veut tout ensemble,
-En piétinant sur place acheminer ses pas. $ 4
-4 Mais vous savez aussi qu'il n'exagère pas
-2 Quand il dit qu'il est faible et quand il dit qu'il tremble. æ
-5 Et qu'il fait peine à voir et qu'il est tout ensemble
+En piétinant sur place acheminer ses pas. $
+Mais vous savez aussi qu'il n'exagère pas
+Quand il dit qu'il est faible et quand il dit qu'il tremble.
+Et qu'il fait peine à voir et qu'il est tout ensemble
 #4 Sous le coup de la vie et le coup du trépas. “
 Ne Quand il dit qu'il grelotte et quand il dit qu'iltremble,
 …_ Et qu'il est vagabond sans asile et sans feu, HE
-‘4 Et qu'il est à la porte et qu'il est tout ensemble 2 ÿ
+‘4 Et qu'il est à la porte et qu'il est tout ensemble
 # Et sous les coups de l'homme et sous les coups de Dieu.
-“4 Vous savez aujourd'hui ce que chacun supporte 2:
+“4 Vous savez aujourd'hui ce que chacun supporte
 Bt: Et c'est un pauvre sort lentement poursuivi. : “TE
 - Et par là vous savez ce que chacun rapporte. SEE
 e_ C'est l'ombre du butin que le maître a ravi. Ne :-
@@ -2337,7 +2336,7 @@ C'est une grosse gloire à la hâte entassée. .
 Maïs vous savez aussi ce que tout homme compte.
 C'est une chère peine à la longue amassée.
 Nous voici désormais parmi tant de partage. |
-Chacun veut battre l'autre et faire l'important. î 1
+Chacun veut battre l'autre et faire l'important.
 Mais vous qui les voyez au seuil de l'héritage :
 Quand on possédait tout, on ne comptait pas tant. :
 Voici nos valeureux qui font tant de batailles.
@@ -2349,10 +2348,10 @@ Voici nos sages fous qui font tant de réserves. |
 Voici le péager, voici le publicain.
 Voici nos grands savants qui nous font des conserves. |
 Mais quand on avait tout, on ne conservait rien.
-On ne nourrissait pas pour les sept vaches maigres É
+On ne nourrissait pas pour les sept vaches maigres
 Vers le Nil donateur les belles vaches grasses.
 On ne ménageait pas les sources et les grâces. |
-Toutes coulaient toujours et demeuraient intègres. È
+Toutes coulaient toujours et demeuraient intègres.
 
 ; On ne nourrissait pas pour les sept vertus maigres
 ÿ Le beau bétail produit dans les plaines d'Egypte.
@@ -2370,47 +2369,47 @@ On ne nourrissait pas les sources et les grâces
 Comme un garde-manger pour les sept vaches maigres.
 Et l'Egypte et le Nil et les sept vaches grasses
 Comme un garde-manger pour les sept vertus maigres.
-1 On ne nourrissait pas les sourees et les grâces
+On ne nourrissait pas les sourees et les grâces
 ; Comme un réservement pour les sept vaches maigres.
 re Et l'Égypte et le Nil et les sept vaches grasses
-3 Comme un engraissement pour les sept vertus maigres.
+Comme un engraissement pour les sept vertus maigres.
 
 On ne nourrissait pas pour les sept fièvres aigres fi CA
 __ Onne nourrissait pas tout un enfantement, : FES je
 _ Le long du père Nil pour les sept vaches maigres. >. FISSS
 
-754 Et pour des repentirs plus âcres que des fautes. LÉ
+Et pour des repentirs plus âcres que des fautes. LÉ
 
-_ Et des contritions plus sales qu'un péché. SH 5
-54 Et des attritions plus sottes et moins hautes. ‘ De
+_ Et des contritions plus sales qu'un péché. SH
+Et des attritions plus sottes et moins hautes. ‘ De
 - Et des consomptions que Von trouve au marché.
 FA Des rétractations plus lâches que des crimes. 1 D ECRESSSS
 Des faux éclats plus laids que des aveuglements. Dent
-_ Des circonspections qui ne sont que des frimes. ï 22
+_ Des circonspections qui ne sont que des frimes.
 Are Des barrages moins beaux que des débordéments. Den:
 _ Des réparations plus viles qu'une offense. , Fee
-5 Et des confessions moins nobles que l'aveu. LOTS
+Et des confessions moins nobles que l'aveu. LOTS
 . Et des confusions chez quelque bas neveu |
-4 Pleines de ridicule et pleines d'indécence. 1 ER Le
+Pleines de ridicule et pleines d'indécence. 1 ER Le
 Et des ablutions pleines de réticence. LES
-_ Etdes précautions pleines de procédure. (1544 AE Ç
+_ Etdes précautions pleines de procédure. (1544 AE
 "ie Des présentations plus vides que-l'absence. | ALT RENE
-734 Et des attentions plus mornes que l'ordure, à
+Et des attentions plus mornes que l'ordure, à
 
 _ Et des retournements qui reviennent au même. Es
-5 Et des effacements qui n'effacent que l'homme. PS
-E Et des empressements sous un faux majordome. K
-Re Et des solutions pires que le problème. 3
-4 Et des rois moins sacrés que des soulèvements. fee
-1) Des ordres moins divins que des dérèglements. z
-Re 13 Des adorations pleines de lassitude. | 4
-- Des révolutions plus mortes que des trônes. E
+Et des effacements qui n'effacent que l'homme. PS
+E Et des empressements sous un faux majordome.
+Re Et des solutions pires que le problème.
+Et des rois moins sacrés que des soulèvements. fee
+1) Des ordres moins divins que des dérèglements.
+Re 13 Des adorations pleines de lassitude.
+- Des révolutions plus mortes que des trônes.
 e. Des progrès plus cassés que la vieille habitude. à
 ne Des secrèts plus connus que Louis XI et Latude. <jEaR
-10 Des évolutions plus sages que des prônes. PCR à
+Des évolutions plus sages que des prônes. PCR à
 F1 Et moi je vous salue 6 pleine de disgrâce. LES
-._ Vous avez tant mené la charrue et les bœufs. F
-\ 2 Vous avez tant versé sur votre pauvre race 20 4
+._ Vous avez tant mené la charrue et les bœufs.
+\ 2 Vous avez tant versé sur votre pauvre race
 F0 Le vain déversement de vos stériles vœux.
 -_ ‘Et moi je vous salue Ô reine de disgrâce. :
 __._ Vous avez tant lié ces périssables nœuds. :
@@ -2437,9 +2436,9 @@ Et moi je vous salué Ô première ouvrière.
 
 Première assujettie à la loi du travail. |
 
-Vous avez tant levé vers le premier portail : l
+Vous avez tant levé vers le premier portail
 
-Des yeux tout alourdis d'une morne prière. 4
+Des yeux tout alourdis d'une morne prière.
 
 Et moi je vous salue 6 la plus misérable. |
 
@@ -2477,7 +2476,7 @@ Vous en avez tant mis dans ces lourdes entraves,
 Les seules qui jamais ne seront déliées,
 De ces pauvres enfants qui marchaïent nus et graves
 
-3 Vers d'éternelles morts aussitôt oubliées.
+Vers d'éternelles morts aussitôt oubliées.
 é Vous en avez tant mis dans ce lourd appareil,
 Le seul qui de jamais ne sera résolu,
 : De ce jeune troupeau qui s'avançait pareil
@@ -2485,30 +2484,30 @@ Le seul qui de jamais ne sera résolu,
 F A des agneaux chargés d'un courage absolu.
 
 les tapisseries "0
-Vous en avez tant mis dans le secret des tombes, Ps ss 4
+Vous en avez tant mis dans le secret des tombes, Ps ss
 Le seul qui jamais plus ne sera dévoilé, Re
-| Le seul qui de jamais ne sera révélé, 1
-_ De ces enfants tombés comme des hécatombes, 274
-Offerts à quelque dieu qui n'est pas le vrai Dieu, + 4
+| Le seul qui de jamais ne sera révélé,
+_ De ces enfants tombés comme des hécatombes,
+Offerts à quelque dieu qui n'est pas le vrai Dieu, +
 Frappés sur quelque autel qui n'est pas holocauste, HSE
 Perdus dans la bataille ou dans quelque avant-poste, % A
 Tombés dans quelque lieu qui n'est pas le vrai Lieu. ot
-Vous en avez tant mis au fond des catacombes, F
-De ces enfants péris pour sauver quelque honneur. 244
-Vous en avez tant mis dans le secret des tombes, E
-De ces enfants sombrés aux portes du bonheur. L
-Vous en avez tant mis dans les plis d'un long deuil, ï
+Vous en avez tant mis au fond des catacombes,
+De ces enfants péris pour sauver quelque honneur.
+Vous en avez tant mis dans le secret des tombes,
+De ces enfants sombrés aux portes du bonheur.
+Vous en avez tant mis dans les plis d'un long deuil,
 D'entre ceux qui marchaiïent taciturnes et braves.
-On vous en a tant pris jusque sur votre seuil, ù
+On vous en a tant pris jusque sur votre seuil,
 D'entre ceux qui marchaïent invincibles et graves. Rs.
-Vous en avez tant mis le long des nécropoles, 4
-Vous en avez tant pris sur vos sacrés genoux, « J
+Vous en avez tant mis le long des nécropoles,
+Vous en avez tant pris sur vos sacrés genoux, «
 + De ces fils qui venaient le long des métropoles, & ER
 Et marchaient et tombaient et qui mouraient pour vous. us
 
 À Et moi je vous salue Ô première fermière.
-D Vous avez tant compté les poules et les œufs. z
-3 Vous avez tant versé sur la race première ESS
+D Vous avez tant compté les poules et les œufs.
+Vous avez tant versé sur la race première ESS
 Le vain débordement de vos futiles vœux. STE
 “# Et je vous aime tant Ô première pauvresse, EX
 re Première assujettie à la loi de la mort, (NT
@@ -2518,7 +2517,7 @@ re Première assujettie à la loi de la mort, (NT
 + Première assujettie aux lois de pauvreté, ME
 ‘4 . Première assujettie à la loi de misère, En
 É: Première assujettie aux lois de liberté. qe
-4 Et je vous aime tant, aïeule inaltérable, #
+Et je vous aime tant, aïeule inaltérable, #
 h Première assujettie à la loi de tendresse, pe
 À Qui dans cet abandon et dans cette détresse “
 Ke Périssez la dernière et la plus misérable. LS *£
@@ -2537,7 +2536,7 @@ Qui parmi tant d'outrage et tant d'incertitude,
 Naquîtes la première et la plus misérable. !
 Les autres n'ont connu que d'être malheureux.
 Mais vous avez connu d'innover le malheur.
-Les autres n'ont connu que d'être douloureux. 1
+Les autres n'ont connu que d'être douloureux.
 Mais vous avez connu d'innover la douleur. ‘4
 ë Les autres n'ont connu que leur indignité. -
 Mais vous avez connu ce que c'est que descendre.
@@ -2548,7 +2547,7 @@ Mais vous avez connu d'être déshéritée.
 Les autres n'ont connu que leur nouveau partage.
 Mais vous avez connu d'être départagée.
 
-Les autres n'ont connu que cette plaine rase. È
+Les autres n'ont connu que cette plaine rase.
 Mais vous avez connu cette pente déclive.
 Les autres ont connu le marais et la vase.
 Mais vous avez connu la fontaine et l'eau vive.
@@ -2566,12 +2565,12 @@ Et le froid dans la nuque et la main sur l'épaule.
 : Et le refermement d'un immense horizon.
 Les autres n'ont connu que la basse maison.
 J Mais vous avez connu d'entrer dans cette tombe.
-29 Les autres n'ont connu que la basse raison.
+Les autres n'ont connu que la basse raison.
 j Mais vous avez connu la première palombe
 
 ne tee ide CC AIS
 _ Molant à tire d'aile au-dessus d'un jardin RAS
-Plus jeune qu'un jeune homme et plus sage qu'un soir. 3
+Plus jeune qu'un jeune homme et plus sage qu'un soir.
 REA Seule vous avez vu le premier reposoir, ÈS
 ce Et le premier soleil sur le premier matin. Let
 _ Les autres n'ont connu que la porte fermée. En
@@ -2581,34 +2580,34 @@ Et l'archange devant à mère bien aimée. SE
 Les autres n'ont connu que leurs basses fenêtres, NN
 Et leur vue encerclée aux murs de l'horizon. ;#
 Mais vous avez connu la jeunesse des êtres 57 MR
-Et les bondissements du renne et du bison. 24
+Et les bondissements du renne et du bison.
 ë Seule vous le savez, nos vertus d'aujourd'hui : ne
 Æ Ne valent pas le quart de l'antique innocence. - Re
 de Et les moralités de notre morne ennui | ne.
-ss Ne valent pas le quart de l'antique puissance. < 0e
+ss Ne valent pas le quart de l'antique puissance. <
 É _ Seule vous le savez nos travaux d'aujourd'hui 4 à
 Ne valent pas le quart de l'antique paresse. Re:
-ä Et les brutalités de notre énorme ennui 43
+ä Et les brutalités de notre énorme ennui
 ; Ne valent pas le quart de l'antique tendresse. à Le
 
 _ Seule vous le savez nos raideurs d'aujourd'hui :
-54 Ne valent pas le quart de l'antique rudesse. He
-3 Et les sévérités de notre dur ennui à » Ne valent pas le quart de l'antique mollesse. 50
+Ne valent pas le quart de l'antique rudesse. He
+Et les sévérités de notre dur ennui à » Ne valent pas le quart de l'antique mollesse.
 à Seule vous le savez nos œuvres d'aujourd'hui :
 Fe Ne valent pas le quart de l'antique noblesse.
 
-5 : Et les mortalités de notre pauvre ennui n
-4 Ne valent pas le quart de l'antique sagesse, er
-Fe Seule vous le savez nos forces d'aujourd'hui x
+5 : Et les mortalités de notre pauvre ennui
+Ne valent pas le quart de l'antique sagesse, er
+Fe Seule vous le savez nos forces d'aujourd'hui
 Ë Ne valent pas le quart de l'antique faiblesse. |
-13 Et les velléités de notre vague ennui + ne
-; Ne valent pas le quart de l'antique largesse. 2 18
+Et les velléités de notre vague ennui + ne
+; Ne valent pas le quart de l'antique largesse.
 se. Seule vous le savez nos clartés d'aujourd'hui HE
-54 Ne valent pas le quart des antiques ténèbres. û te
+Ne valent pas le quart des antiques ténèbres. û te
 E Et les éclairements de notre terne ennui De
 ca Ne sont que des flambeaux et des torches funèbres. &
-e Seule vous le savez nos sceptres d'aujourd'hui s
-Æ Ne valent pas le quart de l'antique hautesse. s
+e Seule vous le savez nos sceptres d'aujourd'hui
+Æ Ne valent pas le quart de l'antique hautesse.
 M Et les redressements du cadavre d'ennui É AE
 …._ Ne valent pas le quart de l'antique bassesse. nt
 
@@ -2623,8 +2622,8 @@ Ne valent pas le quart de l'antique tristesse.
 Et les amusements de ce mortel ennui
 Ne valent pas le quart de l'antique allégresse.
 Seule vous le savez nos pudeurs d'aujourd'hui
-Ne valent pas le quart de l'antique ignorance. M
-Et les réservements de notre prude ennui 4
+Ne valent pas le quart de l'antique ignorance.
+Et les réservements de notre prude ennui
 Ne sont que les témoins d'une morne insolence. à
 Seule vous le savez nos occupations
 Ne valent pas le quart de l'ancienne vacance. ;
@@ -2662,21 +2661,21 @@ _ Carafes d'eau filtrée à travers des faïences. FREE
 à _ Nous nous avons connu les arches d'alliances LR
 __ Naviguant aux deux bords des premiers Océans. ne ne
 ve Seule vous le savez, nos célébrations EUX TAN ts ‘a
-si Ne valent pas le quart de votre ancien silence. ‘#2 :7r8
+si Ne valent pas le quart de votre ancien silence. ‘#2
 à _ Seule vous le savez, nos adorations £ C4 SEE
 Ne valent pas le quart de votre ancienne absence. ne. ES
 Vous pouvez vous montrer, Ô vertus d'aujourd'hui. AS
-Nous nous avons connu l'antique réticence. 14
+Nous nous avons connu l'antique réticence.
 _ Etles finassements de notre fourbe ennui US
-Ke Ne valent pas le quart de l'antique décence. ce 4
+Ke Ne valent pas le quart de l'antique décence. ce
 _ Seule vous Je savez nos célébrations Men
 Le Ne valent pas le quart de votre ancienne messe. 4 à.
-3 Seule vous le savez, notre unique promesse FIRE
-ue N'est qu'un pâle reflet de vos libations. DE 2.
-Seule vous le savez nos mémorations ! 186
+Seule vous le savez, notre unique promesse FIRE
+ue N'est qu'un pâle reflet de vos libations. DE
+Seule vous le savez nos mémorations !
 . Ne valent pas le quart de votre ancien oubli. ï : RSR
-: 54 Et l'absoute et la messe et l'homme enseveli Aie 1
-5 Ne valent pas le quart de vos ovations. | a Re
+: 54 Et l'absoute et la messe et l'homme enseveli Aie
+Ne valent pas le quart de vos ovations. | a Re
 
 4 __ Seule vous le savez nos réparations
 ee, Ne valent pas le quart de votre ancienne offense. Le
@@ -2686,39 +2685,39 @@ We Seule vous le savez, nos contemplations
 és Sont troubles du dedans, à mon âme 6 ma mère. . À
 Le * Seule vous le savez, nos méditations FRE
 ; Sont vides du dedans, aïeule de misère. ;
-à Seule vous le savez, nos élévations - 2
+à Seule vous le savez, nos élévations
 F5 Sont basses par le pied, aïeule inaltérable.
-3 Seules, vous le savez, nos dépravations Êe
+Seules, vous le savez, nos dépravations Êe
 é Sont noueuses du pied, aïeule invulnérable. +
 “_ Seule vous le savez nos expiations Re.
-4 Ne lavent pas le sang sur le dos de la main. AS
+Ne lavent pas le sang sur le dos de la main. AS
 E: Seule vous le savez, nos indignations £
-4 Laissent trôner la honte au milieu du chemin. 5e
+Laissent trôner la honte au milieu du chemin.
 _O Et nous ne valons pas dans nos meilleurs moments Le
-…_ Ce que l'homme valait à toute heure du jour. ; F2;
+…_ Ce que l'homme valait à toute heure du jour.
 Et nous ne valons pas dans nos plus beaux tourments en
-__ Et nous ne valons pas dans notre pauvre amour, 1e
+__ Et nous ne valons pas dans notre pauvre amour,
 
 les tapisseries ae
-Et nous ne valons pas dans nos embrasements ; 1
-Ce que l'homme valait dans la simple lumière. ; 1
+Et nous ne valons pas dans nos embrasements
+Ce que l'homme valait dans la simple lumière.
 Et nous ne valons pas dans nos transvasements : PTE
-Ce que l'homme valait dans une urne première. 4
+Ce que l'homme valait dans une urne première.
 Et nous ne valons pas dans nos abrasements
 Ce que l'homme valait dans son inhabitude.
 Et nous ne valons pas dans nos écrasements
 Ce que l'homme valait dans son exactitude.
 -
 Et nous ne valons pas dans nos renoncements à
-Ce que l'homme valait dans son inaptitude. î
-Et nous ne valons pas dans nos retranchements 4
+Ce que l'homme valait dans son inaptitude.
+Et nous ne valons pas dans nos retranchements
 Ce que l'homme valait dans cette plénitude. ;
 Et nous ne valons pas dans le sang des martyrs,
 Et nous ne valons pas dans le sang des bourreaux,
 Et nous ne valons pas au fond des tombereaux,
 Et nous ne valons pas dans nos beaux repentirs
 Ce que l'homme valait dans son recueillement.
-Et nous ne valons pas dans nos processions 1
+Et nous ne valons pas dans nos processions
 Et dans nos reposoirs et nos accessions
 ” Ce que l'homme valait dans un effeuillement.
 
@@ -2734,7 +2733,7 @@ Que l'homme n'en faisait aux messes de minuit.
 
 Et nous en faisons moins dans nos guerres civiles
 
-4 Que l'homme n'en faisait dans son apaisement.
+Que l'homme n'en faisait dans son apaisement.
 Et nous en faisons moins dans nos travaux serviles
 Que l'homme n'en faisait dans son amusement.
 
@@ -2766,13 +2765,13 @@ Mais vous avez connu le dénivellement, SC,
 
 s Les autres n'ont connu qu'un pauvre caniveau. SES
 
-45 Mais vous avez connu le grand ruissellement. so
+Mais vous avez connu le grand ruissellement. so
 Les autres n'ont connu qu'un périssable sort. #54
 Vous avez innové l'autel et l'hécatombe. ‘3
 
-ë Les autres n'ont connu qu'une commune mort. 5
+ë Les autres n'ont connu qu'une commune mort.
 
-Vous avez inventé d'entrer dans cette tombe. E.
+Vous avez inventé d'entrer dans cette tombe.
 
 ‘ Les autres n'ont connu que le miel dans des ruches. ce
 : Les autres n'ont connu qu'un miel hexagonal. ae
@@ -2780,34 +2779,34 @@ Vous avez inventé d'entrer dans cette tombe. E.
 Et les autres n'ont vu le ciel que dans des cruches. 1146
 
 Et l'énorme Océan dans un pauvre canal. CF
-È Les autres n'ont connu que l'étable et la grange. L76
+È Les autres n'ont connu que l'étable et la grange.
 Le Vous avez innové la charrue et la houe. PR.
 
 | Les autres n'ont connu que la commune fange. EU
 _ Vous avez inventé d'entrer dans cette boue. RES
 
-4 À Les autres n'ont connu qu'une plane misère. ci R
+À Les autres n'ont connu qu'une plane misère. ci
 “he Mais vous avez connu cette descension. |
 à Et vous avez connu cette dissension.
-4 Vous avez vu semer les roses du rosaire. : #
+Vous avez vu semer les roses du rosaire. : #
 s Les autres n'ont connu que d'être malheureux.
 © Vous avez innové d'entrer dans ces dégoûts. à
-# Vous avez inventé d'entrer au chemin creux k
+# Vous avez inventé d'entrer au chemin creux
 NS Dans la honte et l'ordure et la ronce et le houx.
 Là Les autres n'ont connu que d'être dispersés.
-4 Mais vous avez connu cette dispersion.
+Mais vous avez connu cette dispersion.
 ‘3 Les autres n'ont connu que d'être déversés. |
 Ë Mais vous avez connu cette déversion. “,
 ; Les autres n'ont connu que d'être divisé. y 4 Pre
 = Mais vous avez connu cette division. ?
-Ée Les autres n'ont connu que la dérision. ï
+Ée Les autres n'ont connu que la dérision.
 és. Mais vous avez connu d'être débaptisé,
-4 Les autres n'ont connu que leur propre bassesse. À
+Les autres n'ont connu que leur propre bassesse. À
 Li Mais vous avez connu le même abaissement. HER
-—__ Les autres n'ont connu que cette petitesse. 4
-._ Mais vous avez connu le rapetissement. L D
+—__ Les autres n'ont connu que cette petitesse.
+._ Mais vous avez connu le rapetissement.
 
-les tapisseries M,
+les tapisseries
 Les autres n'ont connu que le manteau de peine. Le
 Mais vous avez appris d'en être revêtue.
 Les autres n'ont connu que cette immense plaine. à
@@ -2818,12 +2817,12 @@ Les autres n'ont connu que ce morne silence.
 Mais vous ayez appris d'en être revêtue.
 Les autres n'ont connu que leur humilité.
 Vous avez innové d'être une pauvre femme.
-Vous avez inventé de gouverner votre âme p
-Selon la turpitude et la docilité. É
-Les autres n'ont connu que le manteau de haïne. 4
+Vous avez inventé de gouverner votre âme
+Selon la turpitude et la docilité.
+Les autres n'ont connu que le manteau de haïne.
 Mais vous avez appris d'en être revêtue. À
 Les autres n'ont connu que leur immense peine. ri
-Mais vous avez appris d'y être descendue. 4
+Mais vous avez appris d'y être descendue.
 * Les autres n'ont connu que la fable et le conte.
 Vous seule vous savez la véritable histoire.
 Vous seule vous savez, Ô temple de mémoire,
@@ -2852,50 +2851,50 @@ LS Mais vous avez connu d'entrer dans cette geôle.
 Première vous avez passé sous cette porte. BAC 1S RUES
 Première vous avez d'un pas abandonné M US
 cu Foulé d'un pas caduc et tout échelonné D ni ce
-2 Le sentier de l'exil semé de feuille morte. Re PERS
+Le sentier de l'exil semé de feuille morte. Re PERS
 _ Première vous avez devers la cheminée 1 LAS
 __ Tendu vos pâles mains transparentes de vieille FLE PUSSESNSS
 _ Et devant le foyer et dans la longue veille ES CS
 __ Réchaufté votre peau toute parcheminée. AE G ge a
 Les autres n'ont connu que la commune honte. 2560
-- Mais vous avez connu cette ruelle oblique = 5e
+- Mais vous avez connu cette ruelle oblique =
 Qui descend sur la foire et la place publique, ;' LENS
 Et d'où nul ne revient et que nul ne remonte. as
 Les autres n'ont connu que cette égalité. TS
-"A Les autres n'ont connu que la place publique. ñ D
-Mais vous avez connu cette venelle oblique : 4
+"A Les autres n'ont connu que la place publique.
+Mais vous avez connu cette venelle oblique
 __ Qui descend dans la fosse et la docilité. :210e
 “3 Les autres n'ont connu que de planier leur tente |, FSU
 EE Au milieu du désert d'un immense plateau. 15 TER
-4 Mais vous avez connu la suspense et l'attente, “LE
-_  Etle déversement tout le long du coteau. FrAINSS 36
+Mais vous avez connu la suspense et l'attente, “LE
+_  Etle déversement tout le long du coteau. FrAINSS
 
 ÿ Les autres n'ont connu que de planter leur tente
 ‘#4 Au milieu du désert d'un immense plateau.
 E U Mais vous avez connu cette brusque détente, =
 . Et le renversement tout le long du coteau. |
 ‘4 Les autres n'ont connu que de planter leur tente + ie
-20 Au milieu du désert d'un immense plateau.
-4 Mais vous avez connu cette première entente à
+Au milieu du désert d'un immense plateau.
+Mais vous avez connu cette première entente à
 F Et les pampres grimpant tout le long du coteau. ;
-e Les autres n'ont connu que de planter leur tente Ÿ
+e Les autres n'ont connu que de planter leur tente
 ‘4 Au milieu du désert d'un immense plateau. 1548
-“4 Mais vous avez connu le ravin et la sente ‘ k
+“4 Mais vous avez connu le ravin et la sente ‘
 ‘4 Et l'horizon jailli du faîte du coteau.
 
-4 Et moi je vous salue, aïeule insoupçonnée.
+Et moi je vous salue, aïeule insoupçonnée.
 :4 Les autres sont sans grâce et sans fleuronnement ER
 | a Et sans procession et sans couronnement, AUD
 _O Mais vous avez connu d'être découronnée. FF
 
-3 Les autres n'ont connu qu'un immense plateau, 3
+Les autres n'ont connu qu'un immense plateau,
 
-14 Les autres n'ont connu que la plaine d'absence. à
+Les autres n'ont connu que la plaine d'absence. à
 …_ Mais vous avez connu cette auguste présence | ;
 
 J Qui seule emplissait tout ainsi qu'un beau coteau é Le
 
-les tapisseries ÿ : D. é
+les tapisseries
 
 Emplit tout l'horizon de l'un à l'autre bord,
 
@@ -2935,40 +2934,40 @@ Et nous sommes rentrés dans les premiers limons,
 
 Dans les algues de mer et dans la loi commune.
 
-4 Et nous sommes montés sur la plus haute dune.
+Et nous sommes montés sur la plus haute dune.
 +4 Et nous n'avons rien vu que le travers du sort, ®
 ÿ Et vous avez conduit, première inopportune,
 Votre barque débout par le travers du port.
 Et vous avez touché sur le bord d'un autre âge,
 Comme un enfant qui touche au bord d'un autre temps.
 Et vous avez touché dans le commun naufrage
-6 Au bord d'une autre côte et sur des mâts flottants. 4
-4 Et vous avez joué sur le bord d'un autre âge,
+Au bord d'une autre côte et sur des mâts flottants.
+Et vous avez joué sur le bord d'un autre âge,
 L: Comme un enfant qui joue au bord d'un autre temps.
 Vous avez abordé dans le commun naufrage
 -_ Au bord d'une autre côte et sur des mâts flottants.
 a Comme les naufragés abordaient dans des îles,
 À Vous êtes abordée au bord d'un autre temps.
-4 Vous êtes abordée à des guerres civiles
-2 Et sur un appareil et vers des habitants.
-3 Comme les naufragés abordaïent dans des villes,
+Vous êtes abordée à des guerres civiles
+Et sur un appareil et vers des habitants.
+Comme les naufragés abordaïent dans des villes,
 —…._ Vous êtes abordée au bord d'un autre temps.
 “A . Vous êtes abordée aux batailles serviles
 é: Entre nos plats commis et leurs plats commettants
-| 24 141
+|
 
 |. Comme des naufragés qui demandaient asile, FrQUE nue
 ; Vous avez abordé dans cet âge nouveau. ML
 ) Vous avez abordé sur un ponton fragile ARE
 __ Noué de quelque corde à quelque solivéau. 17 FRS
 n _ Comme les naufragés abordaïent dans des ports, TES
-4 Vous avez abordé dans de nouveaux climats. LS FOR
+Vous avez abordé dans de nouveaux climats. LS FOR
 D Vous voici désormais reine parmi les morts, SES
 A Passagère échappée au long de quelques mâts.
 MS Et vous avez touché vers un autre courage, Es Le ;
-2 Comme un homme d'honneur qui tremble sous l'injure. ne
+Comme un homme d'honneur qui tremble sous l'injure. ne
 e Et vous avez touché vers un autre rivage SEE
-ses Avant de retomber en un monde parjure. - : 50
+ses Avant de retomber en un monde parjure. -
 PR Et vous avez touché vers un ancien village TER ?
 ire Avant que retourner dans nos pauvres hameaux. RE
 3208 Et vous avez baisé le premier sarcophage ; Fe
@@ -2978,22 +2977,22 @@ FRS Du temps qu'il était plein des eaux tumultueuses. “Le
 a C'était un vieil étang tout plein de scabieuses, {LT ÉSEERR
 Fi 74 Un manteau tout drapé des fleurs du premier âge. Fa |
 
-4 Et les ondes coulaient dessus le déversoir É
+Et les ondes coulaient dessus le déversoir
 LL Et par dessus l'écluse et par dessus la bonde, ;
 h Et l'océan sans terme et l'océan du monde
 ; Passait dessus la darse et dessus le musoir. =
-n_ C'était un vieil étang retiré du village ; J
-ne Dans une solitude et un recueillement. ; 4
+n_ C'était un vieil étang retiré du village
+ne Dans une solitude et un recueillement.
 P_ Et vous avez touché vers un ancien parage . FE
 n_ Avant les jours d'étude et de défeuillement. %
 1 _ Et vous avez passé par un ancien passage |
-_ Tout plein d'incertitude et de cheminement. 5
+_ Tout plein d'incertitude et de cheminement.
 …_._ Et vous avez recu le foudroyant message,
 _ Tout plein de promptitude et d'épouvantement. |
 —_ Et c'est depuis ce jour que vous avez monté >
 _ Un escalier plus dur qu'un escalier de marbre. “
 … Et c'est depuis ce jour que vous avez chanté Fe
-._ Une chanson plus dure à l'ombre d'un autre arbre. F
+._ Une chanson plus dure à l'ombre d'un autre arbre.
 … Et c'est depuis ce temps que vous avez monté à
 - Un escalier plus dur aux pieds d'un autre amour, Es
 À Et c'est depuis ce jour que vous avez chanté sit
@@ -3013,7 +3012,7 @@ Un regret prosterné jusque sur votre seuil. |
 Et c'est depuis ce jour que vous avez mené 1 TRE
 Un secret dérobé dans les plis d'un long deuil. #
 Les autres n'ont connu que d'être malheureux.
-Mais vous avez connu d'inventer le secret. ï
+Mais vous avez connu d'inventer le secret.
 Et vous avez connu d'inventer le regret.
 Et de les enfermer dans un cœur douloureux.
 Et vous avez connu première de monter
@@ -3037,7 +3036,7 @@ Un regret sans parjure et sans dépression.
 Et c'est depuis ce jour que vous avez perdu
 Un secret plus fermé que la cité mystique.
 Et depuis cettui jour vous avez descendu
-6 Un regret plus recreux que la vague nautique.
+Un regret plus recreux que la vague nautique.
 ; … Et des ressouvenirs plus présents que des tombes.
 U Et des cyprès plus beaux que la rose d'avril.
 …_ Des avenirs pliés au fond des catacombes.
@@ -3050,8 +3049,8 @@ Sous le cintre de plâtre et les arches de lierre. HAN
 se Et c'est depuis ce jour que vous avez couvé LCI
 1650 à Un secret fomenté dans le profond du cœur. USE 152 :
 Etc'est depuis ce jour que vous avez trouvé Ho Se à:
-“ Un regret prolongé jusqu'aux confins du chœur. 1 2e
-ral Et c'est depuis ce jour que vous avez porté * 20
+“ Un regret prolongé jusqu'aux confins du chœur.
+ral Et c'est depuis ce jour que vous avez porté
 ARENA Un secret plus fermé que l'acropole antique. * A
 Être Et c'est depuis ce jour que vous avez chanté EN à
 “ 4 Un regret plus secret que le premier cantique. ÈS
@@ -3059,15 +3058,15 @@ nu Et c'est depuis ce jour que vous avez porté
 mo Un coffret plus fermé que l'ancien tabernacle. _ De
 ES Et c'est depuis ce jour que vous avez jeté ; #l DR
 pete Des fleurs sur le parvis du premier habitacle; UE HAE
-À Et que vous le savez, nos adorations KR e
+À Et que vous le savez, nos adorations KR
 de Ne se courbent jamais qu'aux autels des faux dieux, :
 de a Et que nous n'apportons sur les derniers hauts lieux nn
 É Que des genoux raidis parmi les nations. 2 RAR
 
-# Et que vous le savez, nos adorations d:
+# Et que vous le savez, nos adorations
 <a Ne se courbent jamais que devant le veau d'or. AR
 _ C'est là notre appareil et là notre trésor, st
-- Et le dernier objet de nos libations. ES » - É
+- Et le dernier objet de nos libations. ES »
 à ie _ Seule vous le savez, que le vol des colombes ee
 : É. Ne retournera pas dans ses orbes premiers. de
 . Seule vous le savez, que le vol des palombes +
@@ -3076,7 +3075,7 @@ _ C'est là notre appareil et là notre trésor, st
 | Ne __ Seule vous le savez, que la création €
 _ Ne connait plus son père, et son maître, et son Dieu. $
 “ Et nous n'apportons plus sur le dernier haut lieu ps
-è Que des cœurs ulcérés de macération. : Û
+è Que des cœurs ulcérés de macération.
 & Seule vous le savez, que l'argent seul est maître ni x ?
 4 _ Et son autel d'argent sur le dernier haut lieu. se
 “ Etson prêtre d'argent à la place du prêtre. Fa
@@ -3088,7 +3087,7 @@ BE Et son verbe d'argent installé dans le prône. SP
 les tapisseries Re
 Les autres n'ont connu que d'être dégradés. £
 Mais vous avez connu la dégradation.
-Les autres n'ont connu que la prostration. 1
+Les autres n'ont connu que la prostration.
 Mais vous avez connu d'être contremandés.
 Les autres ont connu d'être dépossédés. FT
 Mais vous avez connu la dépossession.
@@ -3107,12 +3106,12 @@ Ne valent pas le quart de cette contredanse.
 Et nos retournements et nos conversions
 Ne valent pas le quart de l'antique impudence. .
 
-4 Aussi vous le savez, nos expiations k
+Aussi vous le savez, nos expiations
 ‘4 Ne lavent pas le pus jusqu'au fond de l'abcès.
 ‘4 Et nos tours de fortune et nos heureux succès
 F Ne lavent pas le quart de nos extorsions.
 
-k: Seule vous le savez, nos plus beaux sentiments 3
+k: Seule vous le savez, nos plus beaux sentiments
 L' é Ne durent jamais plus que l'espace d'un jour.
 F, Et l'amour le plus ferme et le plus dur amour à
 HI Ne dure jamais plus que de quelques moments.
@@ -3129,14 +3128,14 @@ Nos coups de réussite et le plus heureux sort
 : Quand le meurtre est passé tout le long du rempart,
 | 4 Alors nous soulevons nos exécrations.
 
-CE Aussi vous le savez, nos expiations At Win DRE ke #0 4
+CE Aussi vous le savez, nos expiations At Win DRE ke #0
 Ne lavent pas l'ordure aux portes de la mort. POS Vie
 Et nos tours de finesse et le plus heureux sort LU TR
 Ne lavent pas le quart de nos exactions. RS
 ee Seule vous le savez, nos imprécations NTM
-MX Ne se lèvent jamais que quand il est trop tard. LL 2
+MX Ne se lèvent jamais que quand il est trop tard. LL
 SPA Quand le crime est passé le long du boulevard, LEA
-4 Alors nous soulevons nos proclamations. FES ge
+Alors nous soulevons nos proclamations. FES ge
 
 __ Seule vous le savez, nos révolutions AUDE à
 Ne se mettent debout que quand le crime est fait.
@@ -3145,30 +3144,30 @@ __ Quand le meurtre est acquis et quand il est parfait, “50
 î Alors nous soulevons nos déclamations, 1450
 ee Tant que le crime est là, tant que le meurtre est maître, | É fs
 ke Nous couchons à ses pieds nos résignations. | Ge
-4 Tant que Satan est dieu, tant que Satan est prêtre,
+Tant que Satan est dieu, tant que Satan est prêtre,
 jé Nous plions à ses pieds nos génuflexions. STE
-Le Aussi vous le savez, nos réprobations : FUES k
-ne Ne se lèvent jamais que quand il est trop tard. Ron 5
+Le Aussi vous le savez, nos réprobations : FUES
+ne Ne se lèvent jamais que quand il est trop tard. Ron
 _ Quand le char est passé qui voiturait César, :} NS
 | Alors nous soulevons nos conspirations. | Fri
 
-ee Seule vous le savez, nos résignations : 24
+ee Seule vous le savez, nos résignations
 ‘48 Ne se couchent jamais qu'aux autels des faux dieux. Ge:
 …_ Nous n'apportons jamais sur les derniers hauts lieux LE
 Que des cœurs délavés de consolations. LT
 “ Seule vous le savez, nos imprécations LPS
-_  N'assaillent que le pauvre et le plus malheureux. ge ë
+_  N'assaillent que le pauvre et le plus malheureux. ge
 ln Nous n'apportons jamais à des cœurs douloureux FH
 n_ Que des cœurs contractés de tribulations. LE
 _ Seule vous le savez, nos supplications AE
-—…_ Ne se courbent jamais qu'aux autels des faux dieux. 4
+—…_ Ne se courbent jamais qu'aux autels des faux dieux.
 …._ Nous n'apportons jamais sur les derniers hauts lieux Re
-n…_ Que des cœurs écrasés de consternations. 34
+n…_ Que des cœurs écrasés de consternations.
 brel ne
-_ Seule vous le savez, que nos fondations 35
+_ Seule vous le savez, que nos fondations
 . Ne fondent jamais rien que la cité d'injure. Li
 _ Nous n'apportons jamais sur un autel parjure a
-Î _ Que des vœux perforés de dubitations. 540
+Î _ Que des vœux perforés de dubitations.
 _ Seule vous le savez, nos déprécations "7 ee
 | ‘2 Ne détournent jamais un sort inexorable. er
 “ Nous n'apportons jamais sur un autel d'érable Le
@@ -3181,25 +3180,25 @@ Que des vœux tout moisis de végétations. ie
 Seule vous le savez, que nos délations
 Ne dénoncent jamais que le pauvre et le nu. à
 Nous n'apportons jamais sur un autel connu se
-Que des cœurs couturés de lacérations. U
+Que des cœurs couturés de lacérations.
 Seule vous le savez, nos consolations £
 Laissent un goût de fiel au fond de la mémoire. ae
-Nous n'apportons jamais aux rayons de l'armoire 4
+Nous n'apportons jamais aux rayons de l'armoire
 Que des cœurs délavés de profanations. #
 Seule vous le savez, nos tribulations ; :
-Sont petites de mode et petites de jeu. F
+Sont petites de mode et petites de jeu.
 Nous n'apportons jamais sur un autel de feu
 Que des cœurs pleins de cendre et de confusions.
 Seule vous le savez, nos réparations #
-Laissent un goût de mort au fond de la mémoire. 1
-Nous n'apportons jamais aux rayons de l'armoire k
+Laissent un goût de mort au fond de la mémoire.
+Nous n'apportons jamais aux rayons de l'armoire
 Que des cœurs pleins de trouble et de dérisions.
 
 4,
 Seule vous le savez, nos désolations,
 \ Assises parmi nous ne sont pas même grandes.
 Nous n'apportons jamais sur la table d'offrandes
-1 Que des cœurs pleins de boue et de corruptions.
+Que des cœurs pleins de boue et de corruptions.
 Seule vous le savez, seule vous le comptez :
 Nos tribulations ne sont pas même grandes.
 Nous n'apportons jamais sur la table d'offrandes
@@ -3211,22 +3210,22 @@ Nous n'apportons jamais aux portes de l'armoire
 Que des cœurs pleins de fange et pleins d'alluvions.
 Seule vous le savez, pour quoi nous sommes nés.
 Nos tribulations ne sont pas même grandes.
-Nous n'apportons jamais sur la table d'offrandes è
+Nous n'apportons jamais sur la table d'offrandes
 Que les restes des cœurs que nous avons donnés.
 Nous n'apportons jamais à nos temples de gloires
 à Que des cœurs pleins de creux et pleins d'intrusions.
 AR Nous ne mettons jamais dans nos conservatoires
-4 Que des cœurs pleins de vide et de précisions.
+Que des cœurs pleins de vide et de précisions.
 
 PRE Fa Fate Ne « les tapisseries "00 Se
 
 _ Seule vous le savez, nos adulations He ss de
-ur Ne se courbent jamais que sur des pieds d'argile. PS6
-Ft Nous n'apportons jamais sur un autel fragile DS 5e
+ur Ne se courbent jamais que sur des pieds d'argile.
+Ft Nous n'apportons jamais sur un autel fragile DS
 
 Que des cœurs dévorés de malversations. 3 AE
 he Et vous savez quel air nos modulations RAS +
-sa Conduisent sur la corde et sur de maigres flûtes, M
+sa Conduisent sur la corde et sur de maigres flûtes,
 LT Et que nous n'apportons dans nos plus âcres luttes SHC
 Fe k Que des cœurs détendus par les vexations. LAPS
 LAS Et vous savez quel air nos ondulations Ur
@@ -3247,48 +3246,48 @@ __ Que des cœurs et des vœux et des dévotions. À: ANS
 = Seule vous le savez, nos contemplations Si
 MS" Ne contemplent jamais qu'un ciel dépossédé. LS
 __ Nous n'apportons jamais dans nos libations HN
-34 Qu'une lèvre contrainte et un cœur obsédé. CUP
+Qu'une lèvre contrainte et un cœur obsédé. CUP
 be Seule vous le savez, nos contemplations NU
 Den Sont lourdes du dedans, à mon âme, Ô ma mère. “Ces
 ‘5 Nous n'apportons jamais sur un autel sommaire us
 …._ Que des vœux pleins d'ordure et d'explications. PE
 ne Seule vous le savez, nos acclamations mie
-É Ne s'élèvent jamais devers le roi du ciel. 1
+É Ne s'élèvent jamais devers le roi du ciel.
 : Nous n'apportons jamais au roi des nations k "
 L 40 Que des cœurs pleins d'écume et des cœurs pleins defiel.
-; Seule vous le savez, nos acclamations - x
+; Seule vous le savez, nos acclamations
 #4 Ne s'élèvent jamais que vers le temporel. Ra
 F1 Nous n'apportons jamais qu'au temple corporel sis
 FA Notre cœur et nos vœux et nos donations. lp
 ….. Seule vous le savez, nos acclamations A à
  . Ne s'élèvent jamais que vers les rois charnels. SES
-13 Nous n'apportons jamais aux temples éternels RE
+Nous n'apportons jamais aux temples éternels RE
 | 1% D Notre cœur et n0S vœux et nos vocations. AA
 
 Seule vous le savez, nos déclamations tre
 Et nos tours de rhéteur sont la honte du verbe. ; 1434
 Et la haute éloquence et toute sa superbe qe, à
-Ne sont pleins que de creux et de vibrations. - à 4
+Ne sont pleins que de creux et de vibrations. - à
 Seule vous le savez, nos réclamations {
 Ne réclament jamais que des biens temporels. Gr
 
-ë Nous ne réclamons pas ces biens surnaturels, 25
-Seule vous le savez, nos réclamations 1 ; F
-Ne réclament jamais pour le pauvre et le juste. 5
+ë Nous ne réclamons pas ces biens surnaturels,
+Seule vous le savez, nos réclamations
+Ne réclament jamais pour le pauvre et le juste.
 Nous n'apportons jamais sur une table auguste ne
-Que des cœurs et des vœux creusés d'ambitions. 4
+Que des cœurs et des vœux creusés d'ambitions.
 Seule vous le savez, nos réclamations #
 Ne réclament jamais que pour des biens charnels. ;
 Nous ne réclamons pas ces objets éternels, fi
-D'humilité, d'amour et de contritions. 3
+D'humilité, d'amour et de contritions.
 Seule vous le savez, nos réclamations à
-Ne réclament jamais que des biens périssables. 4
-Nous n'apportons jamais dans des temples de sables s
+Ne réclament jamais que des biens périssables.
+Nous n'apportons jamais dans des temples de sables
 Que des cœurs et des vœux pleins de déceptions. $
-156 1
+156
 
 Seule vous le savez, nos proclamations
-Ne proclament élus que les rois de la chair. é
+Ne proclament élus que les rois de la chair.
 Nous ne portons que là notre bien le plus cher,
 Nos cœurs pourris d'orgueil et de prétentions.
 Seule vous le savez, nos acclamations
@@ -3312,7 +3311,7 @@ _ Seule vous le savez, nos acclamations LES te
 Ne déferlent jamais aux pieds du roi des rois. Me
 rs Nous n'apportons jamais au roi des nations DURS
 Que des cœurs de faïence et des sabres de bois. LATE
-eu Seule vous le savez, que nos sommations 1 5
+eu Seule vous le savez, que nos sommations
 | Ne s'adressent jamais qu'à des places rendues. Ne
 é ee Nous n'emportons d'assaut que des villes vendues. NEA
 Voilà notre courage et nos profusions. 2500
@@ -3323,7 +3322,7 @@ Pour l'appareil de deuil et de contritions. LR
 La face de la terre était alors si blonde DS
 “ee Que les blés déroulés faisaient de longs cheveux. DA.
 __ Füût descendue ainsi jusque chez nos neveux. ds à
-fe La face de la terre était alors si lourde 54
+fe La face de la terre était alors si lourde
 Que les blés déroulés s'écroulaient en torsades. es
 se Et la bonté de l'âme était alors si sourde OR
 -Que tous les animaux partaient en ambassades Li
@@ -3332,19 +3331,19 @@ se Et la bonté de l'âme était alors si sourde OR
 _  Etles blés déroulés faisaient des écheveaux. »
 … Et les ânes parmi les superbes chevaux =
 : Menaient le même train parmi le même arroi, SA
-4 Seule vous le savez, nos affirmations L LUS
+Seule vous le savez, nos affirmations L LUS
 Re. Sont creuses par le pied, ô mère des docteurs. He
-4 Nous n'apportons jamais qu'à des contradicteurs ce
-4 Sur des tables de bois des propositions. é HS
+Nous n'apportons jamais qu'à des contradicteurs ce
+Sur des tables de bois des propositions. é HS
 Eee Seule vous le savez, nos infirmations ; LS
 ne Ne démentent jamais que le pur et le juste. Ah
 cs Nous n'apportons jamais sur un autel auguste 4%
 fe Que des cœurs taraudés de contradictions. NS
 de Seule vous le savez, nos confirmations SE
-3 Ne confirment jamais que la fausse nouvelle. der
+Ne confirment jamais que la fausse nouvelle. der
 : , Nous n'emplissons jamais notre pauvre cervelle . es
-Ln Seule vous le savez, que nos formations 5 1
-“ Sont creuses du dedans, Ô mère des soldats. 24
+Ln Seule vous le savez, que nos formations
+“ Sont creuses du dedans, Ô mère des soldats.
 + Nous n'apportons jamais aux terrestres combats 7e Es
 -# | Que des carrés crevés de fluctuations. JF
 
@@ -3385,23 +3384,23 @@ Mais ce que l'on détend est vraiment détendu.
 Vous nous voyez debout parmi les nations.
 Nous battrons-nous toujours pour la terre charnelle.
 É Ne déposerons-nous sur la table éternelle
-À Que des cœurs pleins de guerre et de séditions. 1
+À Que des cœurs pleins de guerre et de séditions.
 ; Vous nous voyez marcher parmi les nations.
 & Nous battrons-nous toujours pour quatre coins de terre.
 “2 Ne mettrons-nous jamais sur la table de guerre
-R Que des cœurs pleins de morgue et de rébellions. j
+R Que des cœurs pleins de morgue et de rébellions.
 
 _— Heureux ceux qui sont morts pour la terre charnelle, er
-Mais pourvu que ce fût dans une juste guerre. Fa k:
+Mais pourvu que ce fût dans une juste guerre. Fa
 Heureux ceux qui sont morts pour quatre coins deterre. _
-4 Heureux ceux qui sont morts d'une mort solennelle. Ca.
+Heureux ceux qui sont morts d'une mort solennelle. Ca.
 ES Heureux ceux qui sont morts dans les grandes batailles, _ |
  Couchés dessus le sol à la face de Dieu. è 2 ES
-fie __ Heureux ceux qui sont morts sur un dernier haut lieu, 55
+fie __ Heureux ceux qui sont morts sur un dernier haut lieu,
 | Parmi tout l'appareil des grandes funérailles. ‘12
-Heureux ceux qui sont morts pour des cités charnelles. D
+Heureux ceux qui sont morts pour des cités charnelles.
 Car elles sont le corps de la cité de Dieu. née
-Heureux ceux qui sont morts pour leur âtre et leur feu, 5
+Heureux ceux qui sont morts pour leur âtre et leur feu,
 Et les pauvres honneurs des maisons paternelles. °F
 À Car elles sont l'image et le commencement “EC
 _ Heureux ceux qui sont morts dans cet embrassement, . “4
@@ -3425,18 +3424,18 @@ Heureux ceux qui sont morts dans une guerre antique. |
 & Heureux les vases purs, et les rois couronnés.
 5: Heureux ceux qui sont morts, car ils sont retournés
 re Dans la première terre et dans la discipline.
-15 Ils sont redevenus la pauvre figuline. . ;
-4 Ils sont redevenus des vases façonnés.
-F3 Heureux ceux qui sont morts, car ils sont retournés F
+Ils sont redevenus la pauvre figuline. . ;
+Ils sont redevenus des vases façonnés.
+F3 Heureux ceux qui sont morts, car ils sont retournés
 FA Dans leur première forme et fidèle figure. Fi
-4 Ils sont redevenus ces objets de nature
-4 Que le pouce d'un Dieu lui-même a façonnés.
+Ils sont redevenus ces objets de nature
+Que le pouce d'un Dieu lui-même a façonnés.
 
 les tapisseries FRNE et
 Heureux ceux qui sont morts, car ils sont retournés Ù |
 Dans la première terre et la première argile.
 Ils se sont remoulés dans le moule fragile |
-D'où le pouce d'un Dieu les avait démoulés. ï
+D'où le pouce d'un Dieu les avait démoulés.
 Heureux ceux qui sont morts, car ils sont retournés |
 Dans la première terre et le premier limon.
 Ils sont redescendus dans le premier sillon
@@ -3452,11 +3451,11 @@ D'où Dieu les suscita misérables et nus.
 Heureux ceux qui sont morts, car ils sont retournés
 Dans cette grasse argile où Dieu les modela,
 Et dans ce réservoir d'où Dieu les appela.
-Heureux les grands vaincus, les rois découronnés. 4
+Heureux les grands vaincus, les rois découronnés.
 
 MA Heureux ceux qui sont morts, car ils sont retournés
 pe Dans ce premier terroir d'où Dieu les révoqua,
-0 Et dans ce reposoir d'où Dieu les convoqua.
+Et dans ce reposoir d'où Dieu les convoqua.
 : Heureux les grands vaincus, les rois dépossédés.
 £ Heureux ceux qui sont morts, car ils sont retournés
 è Dans cette grasse terre où Dieu les façonna.
@@ -3474,7 +3473,7 @@ LR: — Heureux les grands vainqueurs. Paix aux hommes de gue
 Ë Ce qu'ils ont tant aimé, quelques grammes de terre.
 E. Un peu de cette vigne, un peu de ce coteau,
 & Un peu de ce ravin sauvage et solitaire.
-2 165
+2
 
 ee _ Mère voici vos fils qui se sont tant battus. jee À
 Vous les voyez couchés parmi les nations. DR ©
@@ -3485,8 +3484,8 @@ Les aïgles abattus et les lièvres levés. LES
 Que Dieu ménage un peu ces cœurs tant éprouvés, LINE
 | Ces torses déviés, ces nuques rebattues. Re:
 È Que Dieu ménage un peu ces êtres combattus, SES
-a Qu'il considère un peu ce sac et cette corde 1 550
-Le Et ces poignets liés et ces reins courbatus. RE - F2
+a Qu'il considère un peu ce sac et cette corde
+Le Et ces poignets liés et ces reins courbatus. RE
 
 Mère voici vos fils qui se sont tant battus. SAS À er
 _ Qu'ils ne soïént pas pesés comme Dieu pèse un ange.” # at. |
@@ -3500,28 +3499,28 @@ mn _ Qu'ils étaient en principe et sont redevenus. ASIE se
 … Mère voici vos fils qui se sont tant battus. :
 L_ Qu'ils ne soient pas pesés comme on pèse un esprit.
 Qu'ils soient plutôt jugés comme on juge un proscrit
-:1 Qui rentre en se cachant par des chemins perdus. 14
-4 Mère voici vos fils et leur immense armée. LES
-EX Qu'ils ne soient pas jugés sur leur seule misère. e
-Éz Que Dieu mette avec eux un peu de cette terre è
+:1 Qui rentre en se cachant par des chemins perdus.
+Mère voici vos fils et leur immense armée. LES
+EX Qu'ils ne soient pas jugés sur leur seule misère.
+Éz Que Dieu mette avec eux un peu de cette terre
 Là Qui les a tant perdus et qu'ils ont tant aimée.
 #3 Mère voici vos fils qui se sont tant perdus. |
-14 Qu'ils ne soient pas jugés sur une basse intrigue.
+Qu'ils ne soient pas jugés sur une basse intrigue.
 ï. Qu'ils soient réintégrés comme l'enfant prodigue. :
-34 Qu'ils viennent s'écrouler entre deux bras tendus. À
+Qu'ils viennent s'écrouler entre deux bras tendus. À
 
 E: Qu'ils ne soient pas jugés comme un pauvre commis =
 ne A qui Dieu redemande un compte capital. ne
-4 Qu'ils ne soient pas taxés comme un peuple soumis “4
-4 À qui César demande un règlement total. Lies
-4 Qu'ils soient réhonorés comme de nobles fils. ae
+Qu'ils ne soient pas taxés comme un peuple soumis “4
+À qui César demande un règlement total. Lies
+Qu'ils soient réhonorés comme de nobles fils. ae
 _ Qu'ils soient réinstallés dans la noble maison. À
-[2 Et dans les champs de blés et les champs de maïs. 2
+[2 Et dans les champs de blés et les champs de maïs.
 _ Et qu'ils soient replacés dans la droite raison. KP
 
 les tapisseries io Mrs
-Et qu'ils soient reposés dans leur jeune saison. L
-Et qu'ils soient rétablis dans leur jeune printemps. 3
+Et qu'ils soient reposés dans leur jeune saison.
+Et qu'ils soient rétablis dans leur jeune printemps.
 Et que sur leur épaule une blanche toison
 Les refasse pasteurs de troupeaux importants.
 Et qu'ils soient replacés dans le premier village.
@@ -3529,12 +3528,12 @@ Et qu'ils soient reposés dans l'antique chaumière.
 Et qu'ils soient restaurés dans la splendeur première.
 Et qu'ils soient remontés dans leur premier jeune âge.
 Car ce qui se remet n'est jamais bien remis,
-Et tout se compromet par un ajournement. ] 1
+Et tout se compromet par un ajournement. ]
 Mais ce qui se démet est toujours bien démis,
 Et rien ne se refait par un retournement. ;
 Et ce qui se promet n'est jamais bien promis,
 Mais ce qui se refuse est vraiment révolu.
-Et ce qui se permet n'est jamais bien permis, S
+Et ce qui se permet n'est jamais bien permis,
 Mais ce qui se défend est vraiment défendu.
 Ce qui se compromet est toujours compromis.
 Mais ce qui reste pur n'est jamais assuré.
@@ -3550,14 +3549,14 @@ Tout se déconsidère et rien ne se reprend.
 Et rien ne se remonte et tout se redescend.
 Qu'ils ne soient pas jugés comme des esprits purs.
 Qu'ils ne soient pas pesés dans le spirituel.
-4 Qu'ils ne soient pas comptés dans le perpétuel.
+Qu'ils ne soient pas comptés dans le perpétuel.
 Que Dieu mette avec eux la rocaille et les murs
 l Et ce maigre buisson qui bornaït leur destin.
-4 Qu'ils ne soient pas jugés dans la rigueur première.
-4 Qu'ils ne soient pas jugés dans la dure lumière.
+Qu'ils ne soient pas jugés dans la rigueur première.
+Qu'ils ne soient pas jugés dans la dure lumière.
 Qu'ils ne soient pas jugés dans le premier matin. ;
 É Qu'ils ne soient pas jugés comme des esprits purs.
-9 Qu'ils ne soient pas pesés dans un juste plateau.
+Qu'ils ne soient pas pesés dans un juste plateau.
 D Qu'ils soient comme la treille et comme les blés mûrs
 Le Qui ne sont point pesés sur le flanc du coteau.
 
@@ -3572,52 +3571,52 @@ ns Et des raisonnements lamentables et sûrs. LS
 su Qu'ils ne soient pas pesés par les poids éternels. Dao
 ' Qu'ils ne soient pas jugés sur une basse brigue. £ :
 Qu'ils soient réembrassés, comme l'enfant prodigue ee
-: Rentre, et se précipite aux genoux paternels. 270
-4 Mère voici vos fils faibles et saugrenus. CE
+: Rentre, et se précipite aux genoux paternels.
+Mère voici vos fils faibles et saugrenus. CE
 D Qu'ils ne soient point jugés sur leur basse fatigue. Fa
-7 Qu'il soient réinvoqués comme l'enfant prodigue ME
+Qu'il soient réinvoqués comme l'enfant prodigue ME
 Ode Rentre et sait se glisser par des chemins connus. NE
 re Qu'ils ne soient pas jugés sur une basse ligue. RER
 cs Qu'ils ne soient pas livrés aux mains de l'ennemi. RENE
 Sa Qu'ils soient réentourés comme l'enfant prodigue LATTES
 F ce Reconnaît la pelouse et le perron ami. (URSS
 
-“à js" Que Dieu leur soit clément et que Dieu leur pardonne EX » Pour avoir tant aimé la terre périssable. K
+“à js" Que Dieu leur soit clément et que Dieu leur pardonne EX » Pour avoir tant aimé la terre périssable.
 …._ C'est qu'ils en étaient faits. Cette boue et ce sable, Fe
 À C'est là leur origine et leur pauvre couronne. Du
 =_ Et le sang de ce cœur qui ne bat déjà plus. me
 = C'est le sang du désir et le sang de la peine.
 …_  Etle sang du regret des âges révolus. so
-ex Que Dieu leur soit clément et que Dieu leur pardonne ï4
-4 Pour avoir tant aimé la terre périssable. | è
+ex Que Dieu leur soit clément et que Dieu leur pardonne
+Pour avoir tant aimé la terre périssable.
 ‘4 Ils en étaient venus. Cette boue et ce sable,
-à C'est là leurs pieds d'argile et leur pauvre couronne. z
-54 C'est le sang de l'artère et le sang de la veine ?
+à C'est là leurs pieds d'argile et leur pauvre couronne.
+C'est le sang de l'artère et le sang de la veine ?
 F4 Et le sang de ce cœur qui ne bat que pour vous. KA
 __ C'est le sang du regret et le sang de la peine LES
-M_  Etle sang de ce cœur qui s'amortit en nous, 4
+M_  Etle sang de ce cœur qui s'amortit en nous,
 …._ Et le sang de l'aorte et c'est le sang du cœur.
 —._._ C'est le sang de l'amour et le sang de la haine ee
 4 4 Et le sang du vaincu sur les mains du vainqueur. Mn
 
 les tapisseries à, DIS REES
-| C'est le sang de l'orgueil et le sang de la peine É
+| C'est le sang de l'orgueil et le sang de la peine
 Et de la veine porte et c'est le sang du cœur a
 Et les taches de sang sur les bras du vainqueur. à
 Et c'est aussi le sang d'une pauvre colère à
 Qui se soulève en vain dans un si pauvre cœur. ;
 Et c'est aussi le sang d'une pauvre misère
-Qui se révolte en vain sous le poing du vainqueur. È
+Qui se révolte en vain sous le poing du vainqueur.
 C'est le sang du martyr et le sang de César. ä
 C'est le sang du martyr et le sang du bourreau. à
-C'est le sang qui dégoutte au fond du tombereau. 4
-Le sang de la victime exposée au bazar. 1
-C'est le sang de la messe et le sang du calice J
-Et le sang du martyr sur les bras du bourreau, È
+C'est le sang qui dégoutte au fond du tombereau.
+Le sang de la victime exposée au bazar.
+C'est le sang de la messe et le sang du calice
+Et le sang du martyr sur les bras du bourreau,
 Et le sang qui s'écaille au fond du tombereau,
 Et le sang qui jaillit aux pointes du cilice. Ée
-Et c'est le sang joué dans les jeux de hasard. 1
-Et l'honneur exposé dans les jeux d'aventure. Û:
+Et c'est le sang joué dans les jeux de hasard.
+Et l'honneur exposé dans les jeux d'aventure.
 Et la race jouée aux jeux de forfaiture. va
 Et le bonheur joué dans ce morne alcazar. à
 
@@ -3630,7 +3629,7 @@ Qu'ils étaient en principe et sont redevenus.
 C'est le sang de la veine et le sang de l'artère
 Et le sang de ces corps misérables et nus.
 Et moi-même le sang que j'ai versé pour eux,
-C'était leur propre sang et du sang de la terre. G
+C'était leur propre sang et du sang de la terre.
 Du sang du même cœur et de la même artère.
 : Du sang du même peuple et des mêmes Hébreux.
 Les pleurs que j'ai versés sur un mont solitaire,
@@ -3643,36 +3642,36 @@ Le sang que j'ai versé sous la ronce et les clous;
 —_ Sur les paumes des mains et sur les deux genoux;
 
 Le sang que j'ai versé sous la lance de Rome,
-Ru | Le sang que j'ai versé sous l'ortie et le houx; Fa é
+Ru | Le sang que j'ai versé sous l'ortie et le houx; Fa
 ne _ Et quand je suis tombé par ma faiblesse d'homme
 Le Sur mes mains, sur ma face et sur mes deux genoux; Vs
 # Le sang que j'ai versé sous la lance de Rome, 1} FEU
 a Le sang artériel que j'ai versé pour vous FULPONES
 ul _ Le jour que je tombai sur mes maigres genoux, fs he,
 ne C'était le sang d'un juste et c'était du sang d'homme.
-“4 Le sang que j'ai versé sous la feinte couronne, 25
+“4 Le sang que j'ai versé sous la feinte couronne,
 o Les pleurs que j'ai versés sur cette multitude; JS
 + Les mots que j'ai versés dans ma similitude, LT
-. _ Les coups que j'ai reçus sous la double colonne ; hr” « 2
+. _ Les coups que j'ai reçus sous la double colonne ; hr” «
 FES Le verbe que j'ai mis en forme de parole : L CT
-L: Et l'amour que j'ai mis en forme de bonté, | 5
-si . La gerbe que j'ai mise en forme d'unité, : 7e
+L: Et l'amour que j'ai mis en forme de bonté,
+si . La gerbe que j'ai mise en forme d'unité,
 nue Le grain que j'ai semé dans toute parabole; © LA nt
-4 Le sang que j'ai versé sous la blanche aubépine, ë :338
+Le sang que j'ai versé sous la blanche aubépine,
 Fee Le sang que j'ai perdu dans mon humanité ; + THÉ PES
-Es Les pleurs que j'ai versés dans la creuse ravine, Fa k
+Es Les pleurs que j'ai versés dans la creuse ravine, Fa
 Pr Le sang que j'ai perdu dans mon éternité ; } RE” TRE
 
-n_ Les pleurs que j'ai perdus dans ma miséricorde, F
+n_ Les pleurs que j'ai perdus dans ma miséricorde,
 u_ Les coups que j'ai reçus dans mon humanité; |
 Ê' L'avanie et l'outrage aux mains de cette horde, RSS
 ‘à Les coups que j'ai reçus dans mon éternité;
-4 Le sang que j'ai versé le jour de la promesse, nu
-2 Le sang que j'ai versé sur le premier autel; ;
-4 Et le sang que je verse aux tables de la messe,
+Le sang que j'ai versé le jour de la promesse, nu
+Le sang que j'ai versé sur le premier autel; ;
+Et le sang que je verse aux tables de la messe,
 & Le sang inépuisable et le sacramentel; ;
 3 « L. Les mots que j'ai semés dans ma miséricorde, :
-É Le sang que j'ai payé pour le péché mortel, D.
+É Le sang que j'ai payé pour le péché mortel,
 Fe. Le sang intarissable et le sacramentel;
 —_OÔ@À Le sang que je versai le jour que je fus prêtre
 ” Et que j'officiai sur le premier autel; ARE
@@ -3683,30 +3682,30 @@ Fe. Le sang intarissable et le sacramentel;
 Le Que je verse et refais aux mains d'un nouveau prêtre ; sis
 
 | les tapisseries Res
-Et le pain de mon corps et le vin de mon sang, 2
+Et le pain de mon corps et le vin de mon sang,
 Et le verbe jaïlli de mes divines lèvres; Re
-| _ Et le salut gagné par mes divines fièvres, x
+| _ Et le salut gagné par mes divines fièvres,
 Et l'éponge et le fiel et cette plaie au flanc; a
-; Le sang que je laïssai sur un pauvre mouchoir 5h
-Où mes traits sont empreints pour éternellement ; 78
-L'image que reçut ce frêle monument, 1
-C'était la même glaise et le même ébauchoir : 20
-Et le même modèle aux mains du statuaire 4
+; Le sang que je laïssai sur un pauvre mouchoir
+Où mes traits sont empreints pour éternellement
+L'image que reçut ce frêle monument,
+C'était la même glaise et le même ébauchoir
+Et le même modèle aux mains du statuaire
 Et la même figure et la même plastique sl
-Et le même relief du même masque antique; 4
-Et les plis de mon corps sous le drap mortuaire ÿ
-C'était la même glaise aux mains du statuaire, 113
+Et le même relief du même masque antique;
+Et les plis de mon corps sous le drap mortuaire
+C'était la même glaise aux mains du statuaire,
 Le même modelé sous un pouce plastique, ne
 Le même figuré sous un masque authentique, #3
-Et le même tracé sous le drap mortuaire. 5: 715
-4 Le sang qui dégoutta sur ma pauvre tunique, ‘24
-Ma barbe et mes cheveux souillés de cette bourbe, — 3
+Et le même tracé sous le drap mortuaire.
+Le sang qui dégoutta sur ma pauvre tunique, ‘24
+Ma barbe et mes cheveux souillés de cette bourbe,
 Mon regard et mon verbe aux mains de cette tourbe, “à
 Et ce qu'ils avaient fait de votre Fils unique, Le
 
 Mon nez qui s'écrasait dans l'ordure et la boue,
 | Mes disciples en proie à la terreur panique,
-Le bourreau qui clouait d'un geste mécanique e
+Le bourreau qui clouait d'un geste mécanique
 ‘ Et qui plantait la croix dedans cette gadoue
 Et l'empreinte léguée aux mains de Véronique,
 Ma barbe et mes cheveux essuyés désormais,
@@ -3723,7 +3722,7 @@ Comme le seul témoin d'un éternel passé,
 Le seul que nul oubli n'a jamais effacé, |
 Le seul qui soit inscrit dans l'éternité même,
 a Le seul qui soit gravé dans le mouvant système
-ke Du présent, du futur, et du tendre passé; e
+ke Du présent, du futur, et du tendre passé;
 
 ie Ce masque mon seul masque et ce moule plastiq le, Su
 | Cette empreinte laissée à cette pauvre femme,' 1,188
@@ -3731,7 +3730,7 @@ ie Ce masque mon seul masque et ce moule plastiq le, Su
 ‘4 La même qui parut aux yeux de Notre Dame; 1: ER SEEN
 _ Ce masque sans retour, cette forme éternelle, FES
 | | Cette empreinte laissée entre de pauvres d ts, LR
-_  Cétait Le résultat de l'applique charnelle M
+_  Cétait Le résultat de l'applique charnelle
 4 5 D'un mouchoir périssable au front du roi des rois.
 Ro C'était le modelé d'une forme charnelle EU
 # __ Sous la fidélité d'un mouchoir de la terre. Re.
@@ -3739,27 +3738,27 @@ C'était la même face auguste et solitaire, ICS
 Telle qu'elle apparut à l'amour maternelle. ee
 _ Cette face laissée entre de pauvres doigts, TEE
 _ Cette face terreuse et ce mouchoir terreux, j Me
-C'était le même aspect qui ne vint qu'une fois, :4 0e
+C'était le même aspect qui ne vint qu'une fois,
 __ C'était la même terre et les mêmes Hébreux. +3
 __  Etce pain et ce vin et ma chair et mon sang, NES
-_  Etce verbe et ces pleurs sur cette multitude; D.
-_ Et l'accusé debout le long d'un pauvre bane, 124
+_  Etce verbe et ces pleurs sur cette multitude;
+_ Et l'accusé debout le long d'un pauvre bane,
 
-_ Et cette foule ardente et qui voulait mon sang, 4
-__ Et qui criait de joie aux mots malencontreux, x
+_ Et cette foule ardente et qui voulait mon sang,
+__ Et qui criait de joie aux mots malencontreux,
 : Et votre fils réduit en cet infime rang, rs
 | C'était la même terre et les mêmes Hébreux. à
 % Cette foule houleuse et qui voulait mon sang, Je
 À _ Et qui pleurait de joie aux mots cadavéreux, FE
-5 Ces groupes déchaïnés, ce peuple grimaçant, À re
-3 C'était la même terre et les mêmes Hébreux. î
-2 Cette foule hurlante et qui voulait mon sang, SE
+Ces groupes déchaïnés, ce peuple grimaçant, À re
+C'était la même terre et les mêmes Hébreux.
+Cette foule hurlante et qui voulait mon sang, SE
 A Et qui crevait de joie aux mots aventureux, Er -
-e Ces groupes forcenés, ce peuple repoussant, M
+e Ces groupes forcenés, ce peuple repoussant,
 C'était la même terre et les mêmes Hébreux. TS
 2. C'étaient les mêmes pleurs et c'est la même race. AE
 fe C'était le même sang, le sang héréditaire. OR
-5 Cétaient les mêmes pas suivant la même trace. * ee
+Cétaient les mêmes pas suivant la même trace. * ee
 _ C'était le même corps fait de la même terre. ae
 “  C'étaient les mêmes cris jaillis des mêmes gorges, ‘Sig
 …._ C'était la même houle et le même océan, de: me
@@ -3788,30 +3787,30 @@ Ne vous étonnez pas qu'ils soient trouvés terriens.
 Vous les avez rivés sur la lourde galère. |
 Ne vous étonnez pas qu'ils soient galériens. |
 
-E Ë L Seigneur qui les avez nourris de cette terre, e
+E Ë L Seigneur qui les avez nourris de cette terre,
 2 < Ne vous étonnez pas que cette nourriture ee
 …__ Les ait faits cette race ingrate et solitaire, .
-. De petite noblesse et de pauvre nature. F5
+. De petite noblesse et de pauvre nature.
 
-| 200 Seigneur qui les avez formés de cette terre, 52
+| 200 Seigneur qui les avez formés de cette terre,
 
-4 Ne soyez pas surpris qu'ils soient trouvés informes, É $
+Ne soyez pas surpris qu'ils soient trouvés informes, É $
 
 E Et bossus et bancails et sournois et difformes, de
-0 Et mauvaise nature et mauvais caractère. x S
+Et mauvaise nature et mauvais caractère.
 - Seigneur qui les avez nourris de cette terre, sS
 
 F Ne vous étonnez pas qu'ils soient trouvés parjures, pe
 à _ Et que cette origine et que ces nourritures À
-s. En aient fait cette race obscure et réfractaire. 74 2
+s. En aient fait cette race obscure et réfractaire.
 
-a Seigneur qui les avez pétris de cette terre, S
+a Seigneur qui les avez pétris de cette terre,
 
 ., Ne vous étonnez pas qu'ils soient trouvés terrestres.
 
 L Vous avez jalonné la voie héréditaire. &
 L5 Ne vous étonnez pas qu'ils soient trouvés pédestres. : ce
-| 0 Seigneur qui les avez nourris de cette terre, ë e
+| 0 Seigneur qui les avez nourris de cette terre,
 
 +4 _ Ne vous étonnez pas que cette nourriture À
 
@@ -3825,17 +3824,17 @@ $ Vous les avez pétris de vase et de poussière, | f: Le À
 _ Seigneur qui les avez frappés de votre foudre, À a
 “#0 Ne vous étonnez pas qu'ils soient trouvés peureux. Me
 te Vous qui les avez fait sortir de cette poudre, re gt
-5 3 Ne vous étonnez pas qu'ils soient trouvés poudreux. / ns 5
-Vous les avez pétris de cette humble matière, 02
+5 3 Ne vous étonnez pas qu'ils soient trouvés poudreux. / ns
+Vous les avez pétris de cette humble matière,
 Ne vous étonnez pas qu'ils soient faibles et creux. TES
 : Vous les avez pétris de cette humble misère. Au.
 Ne soyez pas surpris qu'ils soient des miséreux. | Les
 ; Vous qui les avez faits d'une argile grossière Dre
-Re Ne soyez pas surpris qu'ils soient trouvés lépreux. Fi E.
+Re Ne soyez pas surpris qu'ils soient trouvés lépreux. Fi
 ee Et vous qui les avez livrés aux vers de terre, HS % ic
 Ne vous étonnez pas qu'ils soient trouvés véreux. “KEINE
 | Car le surnaturel est lui-même charnel tres
-Le Et l'arbre de la grâce est raciné profond 4 4
+Le Et l'arbre de la grâce est raciné profond
 fe Et plonge dans le sol et cherche jusqu'au fond “RE
 s Et l'arbre de la race est lui-même éternel. ASUS
 
@@ -3845,8 +3844,8 @@ RE Et plonge dans le sol et touche jusqu'au fond
 L- Et le temps est lui-même un temps intemporel.
 
 +0 Et l'arbre de la grâce et l'arbre de nature
-13 Ont lié leurs deux troncs de nœuds si solennels,
-4 Ils ont tant confondu leurs destins fraternels
+Ont lié leurs deux troncs de nœuds si solennels,
+Ils ont tant confondu leurs destins fraternels
 É Que c'est la même essence et la même stature.
 & ._ Et c'est le même sang qui court dans les deux veines,
 ë Et c'est la même sève et les mêmes vaisseaux,
@@ -3863,28 +3862,28 @@ L- _ Est comme un reposoir dans un dernier hameau.
 
 les tapisseries "1 eee
 ï Toute âme qui se sauve ainsi sauve son corps. HR
-6 Toute âme qui se perd entraîne son besson. ; 1 be,
+Toute âme qui se perd entraîne son besson. ; 1 be,
 à Toute âme qui se pose au fond des derniers ports res
-58 Est comme un double oiseau sur un dernier buisson. rte
+Est comme un double oiseau sur un dernier buisson. rte
 Toute âme qui se sauve emporte aussi SON Corps, RER
 | Comme une proie heureuse et comme un nourrisson. : #
 Et toute âme qui touche aux suprêmes abords #4
 Est comme un moissonneur le soir de la moisson. AE
 Toute âme qui se sauve ensauve aussi son Corps, ù Fra
-Comme une sœur aînée emporte un nourrisson. D:
+Comme une sœur aînée emporte un nourrisson.
 Et toute âme qui touche aux suprêmes rebords a
-Est comme un moissonneur au bord de la moisson. , 4
+Est comme un moissonneur au bord de la moisson.
 Et l'arbre de la grâce et l'arbre de nature Le
 Se sont liés tous deux de nœuds si fraternels He
 Qu'ils sont tous les deux âme et tous les deux charnels sa
-Et tous les deux carène et tous les deux mâture. 4
+Et tous les deux carène et tous les deux mâture.
 Et tous les deux créés et tous deux créature, “04
 Et tous les deux vaisseaux sur le même Océan. “3
 Et tous les deux armés de la même armature, LATATTS
 Et tous les deux berceaux sur le même néant. :'ÉANS
 
 Ÿ SU Et tous les deux leçons de la même lecture,
-1 Et comme deux tuteurs dans un double arbrisseau, :
+Et comme deux tuteurs dans un double arbrisseau, :
 &. Et tous deux cavaliers et tous les deux monture,
 | 4 Et comme un double enfant dans un double berceau.
 .E Et l'arbre de la grâce et l'arbre de nature
@@ -3893,10 +3892,10 @@ Et tous les deux berceaux sur le même néant. :'ÉANS
 ra Ils ont articulé leur double ligature.
 5 _, Et l'un ne périra que l'autre aussi ne meure.
 :, 20 Et l'un ne survivra que l'autre aussi ne vive.
-ts Et l'un ne restera que l'autre ne demeure. 4
+ts Et l'un ne restera que l'autre ne demeure.
 __ Et l'un ne passera sur la suprême rive
-“+ Que l'autre aussi ne fasse un semblable voyage. x
-La Et l'un ne partira dans son dernier trousseau 3
+“+ Que l'autre aussi ne fasse un semblable voyage.
+La Et l'un ne partira dans son dernier trousseau
 # Que l'autre aussi ne fasse un tel appareillage . :
 l Et ne s'embarque aussi sur un dernier vaisseau.
 de Et Jésus est le fruit d'un ventre maternel,
@@ -3909,38 +3908,38 @@ Et ses beaux yeux fermés sous l'arceau des paupières + PEN
 Ne considéraient plus son immense royaume. 4 Hire
 . Et les bergers venus par des chemins de pierres RARE
 Le regardaient dormir dans la paille et le chaume. - +24
-À Et ses beaux yeux fermés sur nos ingratitudes 24
+À Et ses beaux yeux fermés sur nos ingratitudes
 Ne considéraient plus qu'un rêve intérieur.
 : Ses jeunes yeux fermés sur nos décrépitudes à
 Ne considéraient plus qu'un âge antérieur. >
 
-Et la lourde toison de ses cheveux bouclés x
+Et la lourde toison de ses cheveux bouclés
 Retombait sur sa nuque en décuple cascade. ne:
 Et son poing volontaire et ses bras potelés
 *  Supportaient tout le poids de cette colonnade. e ©) à
 Ses beaux cheveux tombaïient en mouvante torsade $
 Et faisaient sur sa nuque une ombre creuse et blonde. *
-; Les rois de l'Orient, venus en ambassade, É
+; Les rois de l'Orient, venus en ambassade,
 Le regardaient dormir comme le roi du monde. ©
 Et sa tête portait dans le creux de son coude “4
-Comme un beau bâtiment porte dans son berceau. D
+Comme un beau bâtiment porte dans son berceau.
 Il n'était pas froncé comme un enfant qui boude. Lo
-| Il était détendu comme un jeune roseau. 3
+| Il était détendu comme un jeune roseau.
 
 ‘FR Et sa tempe battait d'un sang si généreux de
-3 Que sa tête sonnait comme un jeune tambour.
+Que sa tête sonnait comme un jeune tambour.
 _ ‘Et son cœur se gonflait d'un sang si chaleureux
 de Que tout son corps tremblait de ce nouvel amour.
 F2 Un pli du bras portait l'impérissable tête.
 ‘244 Et c'est ce pli du bras qu'on nomme la saignée. |
 k M Il admirait tout bas quelque invisible fête. \
 . Il était comme une aube éclatante et baignée. EL
-14 Juste le pli du bras portait la tête blonde. ,
+Juste le pli du bras portait la tête blonde. ,
 # ; Les membres détendus formaient comme un recueil. DE
-4 Tout était jeune alors, et le sauveur du monde
+Tout était jeune alors, et le sauveur du monde
 ie Etait un jeune enfant qui jouait sur un seuil.
 À Dans le creux de ce pli roulait la tête ronde. ?
-#0 (La même qui fut mise en un pauvre cercueil). : EG G
+#0 (La même qui fut mise en un pauvre cercueil). : EG
 js Tout s'appesantissait dans cette nuit profonde, :
 Æ La même qui tomba sur un suprême deuil. Res
 Tout en lui reposait et ses lèvres lactées pis
@@ -3956,35 +3955,35 @@ __ Battait comme les nœuds d'une souple dentelle. JE
 a N'est point une entreprise aride et contractée. TRES
 | Le réseau qui battait sous la lèvre lactée nn:
 Laissait comme les jours d'une souple dentelle. #40
-N'est point une entreprise épaisse et contractée. “2 18
+N'est point une entreprise épaisse et contractée. “2
 _ Le réseau qui battait sous la lèvre lactée 15 FT
-(Rés Laïssait comme les pleins d'une souple dentelle. 4
-55 La vie intérieure et la sacramentelle ::. FETES
+(Rés Laïssait comme les pleins d'une souple dentelle.
+La vie intérieure et la sacramentelle ::. FETES
 _ N'est point une entreprise ingrate et contractée. “HE
 _ Le réseau qui battait sous la lèvre lactée : 5240
 _ Laïissait comme le jeu d'une souple dentelle. : rt
-8 La vie intérieure et la sacramentelle SES
+La vie intérieure et la sacramentelle SES
 _  Mest point une entreprise à bloc et contractée. Eee
 
 u_ Le réseau qui jouait sous la lèvre lactée Us
 
 -_  Faisait tout le travail d'une souple dentelle. À
 
-4 Car la vie éternelle et la sacramentelle
+Car la vie éternelle et la sacramentelle
 
 dl N'est point une entreprise énorme et contractée.
 É Le réseau qui tremblait sous la lèvre lactée
-4 Laissait la liberté d'une souple dentelle. +
+Laissait la liberté d'une souple dentelle. +
 ne: N'est point une entreprise esclave et contractée. de
-#3 : Le réseau qui tremblait sous la lèvre lactée 4
-ca Respirait la santé d'une souple dentelle. 2
+#3 : Le réseau qui tremblait sous la lèvre lactée
+ca Respirait la santé d'une souple dentelle.
 _ Carla vie éternelle et la sacramentelle
 ‘ : N'est point une entreprise infirme et contractée. À aa
 di - Les solives du toit faisaient comme un arceau.
 pa Les rayons du soleil baignaïent la tête blonde. +
 Fa Tout était pur alors et le maître du monde
 A Était un jeune enfant dans un pauvre berceau. |
-2 Chaque poutre du toit était comme un vousseau. “
+Chaque poutre du toit était comme un vousseau. “
 É De Les ombres de la nuit baignaïent la tête ronde. ee
 4 14 __ Tout était juste alors et le maître du monde PSS
 …_  Était un jeune enfant sous un maigre cerceau. ca
@@ -3995,23 +3994,23 @@ Tomber comme une ardente et tragique rosée 5e"
 _  N'était dans cette heureuse et paisible misère NT
 "4 Qu'un filet transparent sous la lèvre rosée. RE -
 __ Etce sang qui devait un jour sur le Calvaire 5 à
-Tomber comme une tiède et féconde rosée 213
+Tomber comme une tiède et féconde rosée
 _  N'était dans cette auberge et dans cette chaumière 28 “à
-Qu'un réseau rose et bleu sous une peau rosée. 4
+Qu'un réseau rose et bleu sous une peau rosée.
 Et ce sang qui devait un jour sur le Calvaire ss
 Tomber comme une chaude et virile rosée Er,
-N'était dans sa tendresse et sa douceur première 34
-Qu'un souple réseau fin sous une peau rosée. 73
+N'était dans sa tendresse et sa douceur première
+Qu'un souple réseau fin sous une peau rosée.
 Et ce sang qui devait par un destin sévère EE.
 Couler comme une rouge et vivante rosée, en.
 Le sang du sacrifice et le sang du Calvaire #4
-N'était qu'un tremblement sous la lèvre arrosée. 4
+N'était qu'un tremblement sous la lèvre arrosée.
 Et ce sang qui devait un jour sur le Calvaire .
-: Couler comme une épaisse et fumante rosée 5e
+: Couler comme une épaisse et fumante rosée
 N'était sous le regard d'une prudente mère ES
 à Qu'un souple gonflement sous la peau reposée. (ei
 
-1 Et le jour qui passait par une énorme brèche,
+Et le jour qui passait par une énorme brèche,
 
 Re Le soleil descendu dans la pauvre maison,
 
@@ -4022,8 +4021,8 @@ Re Le soleil descendu dans la pauvre maison,
 & Et ce sang qui devait par un dur ministère
 È Couler comme une pure et sanglante rosée,
 
-3 Le sang du sacrifice et le sang du Calvaire ;
-24 N'était qu'un beau réseau de veine entrelacée.
+Le sang du sacrifice et le sang du Calvaire ;
+N'était qu'un beau réseau de veine entrelacée.
 Fi Et ce sang qui devait par un sacré mystère
 
 FAR _ Couler comme une source et comme une rosée, à
@@ -4035,39 +4034,39 @@ SL Et le sang du rachat des péchés de la terre ;
 ï N'était qu'un beau réseau de veine entreposée.
 
 ÿ Qui devait tant saigner pour les péchés du monde |
-de) N'était dans ces deux bras et dans la tête ronde F
+de) N'était dans ces deux bras et dans la tête ronde
 
-y, Que le beau tremblement d'un timide vainqueur. 7
+y, Que le beau tremblement d'un timide vainqueur.
 
 de _ Et ce sang qui devait sur un dernier Calvaire UT De
 he Couler tout plein d'écume et comme une rosée, TEE
-__ N'était qu'un beau réseau sous la lèvre amusée. F4
-ke _ C'était un beau réseau comme un filet marin - 2
-de _ Qu'on relève lavé de la plus basse écume. ‘ 4
-_ C'était un beau filet comme un réseau salin e.
-Qu'on relève lavé de la même amertume. 54
+__ N'était qu'un beau réseau sous la lèvre amusée.
+ke _ C'était un beau réseau comme un filet marin
+de _ Qu'on relève lavé de la plus basse écume. ‘
+_ C'était un beau filet comme un réseau salin
+Qu'on relève lavé de la même amertume.
 Fr: C'était un tremblement comme un filet marin +
-Qui se coud et découd dans une eau transparente. 5
+Qui se coud et découd dans une eau transparente.
 ; C'était un gonflement comme un réseau salin ‘ -$
 | Qui se gonfle et résoud dans une onde apparente. +4
-: C'était un gonflement comme un réseau de mer ‘ 44
-Le Qui se noue et dénoue au sein des grandes ondes. 3
-se C'était un tremblement comme un filet amer S
-1Q Qui se joue et déjoue aux plis des vastes mondes. 11
+: C'était un gonflement comme un réseau de mer ‘
+Le Qui se noue et dénoue au sein des grandes ondes.
+se C'était un tremblement comme un filet amer
+1Q Qui se joue et déjoue aux plis des vastes mondes.
 A C'était un gonflement comme un réseau de mer 4 He.
 à C'était un tremblement comme un filet amer : ne.
 ne Que l'on a mis sécher sur la barque latine. je
 
 "3 _ C'était un battement comme un réseau de mer Æ me.
 2" Qui se roule et déroule au creux des vagues rondes.
-4 C'était un flottement comme un filet amer NE
-2 Que l'on a recoulé dans les vagues profondes. 5
+C'était un flottement comme un filet amer NE
+Que l'on a recoulé dans les vagues profondes.
 ; _ Et ce sang qui devait un jour sur le Calvaire :
-1 Couler comme une offrande et comme une rosée, LIRE
+Couler comme une offrande et comme une rosée, LIRE
 Ne 4 Le dur sang du martyre et le sang funéraire #
-5 Était comme le lin d'un voile d'épousée. È
-3 Et ce sang qui devait couler sur le Calvaire KE?
-À  D'une quadruple plaie et d'une plaie au flanc 57e
+Était comme le lin d'un voile d'épousée.
+Et ce sang qui devait couler sur le Calvaire KE?
+À  D'une quadruple plaie et d'une plaie au flanc
 à N'était dans la pénombre et la douce lumière LS
 à Que le réseau d'amour d'un enfant rose et blanc. Ha
 d Sous une peau plus douce et frêle et transparente û *
@@ -4081,21 +4080,21 @@ __ Ne poursuivait qu'un jeune et délectable rêve. SAR
 
 RES des tapisseries
 u Ces veines qui devaient hors des poignets liés ne
-4 Jaillir et se gonfler comme des nœuds de cordes, AFTER
+Jaillir et se gonfler comme des nœuds de cordes, AFTER
 an. N'étaient dans l'appareïl des membres déliés AT
 _ Qu'un beau réseau plus fin que de fils de la Vierge, : “4
-_ _ Un filet mieux venu qu'un filet de pêcheur, 1
-_ Et dans la paix et l'ombre au fond de cette auberge :13
-À Un réseau rose et bleu tremblotant de blancheur. 2
+_ _ Un filet mieux venu qu'un filet de pêcheur,
+_ Et dans la paix et l'ombre au fond de cette auberge
+À Un réseau rose et bleu tremblotant de blancheur.
 Sous une peau plus lisse et plus souple et plus douce #4
-Que la peau du raisin qui mûrit sur la treille, 3
-Sous une peau dorée et légèrement rousse * k
+Que la peau du raisin qui mûrit sur la treille,
+Sous une peau dorée et légèrement rousse
 _ Et légèrement blonde et vivace et pareille Re:
 à À la peau du raisin qui blondit sur la treille, En
-; A l'heure où le soleil mûrit la lourde grappe, 75
-: A l'heure où le frelon et la mouvante abeille 4
-, Viennent se refléter sur lé blanc de la nappe, 4
-% Et ce sang qui devait un jour sur le Calvaire 44
+; A l'heure où le soleil mûrit la lourde grappe,
+: A l'heure où le frelon et la mouvante abeille
+, Viennent se refléter sur lé blanc de la nappe,
+% Et ce sang qui devait un jour sur le Calvaire
 Tomber comme une pluie aux sables de la grève ne.
 N'était dans cette auberge et dans ce jeune rêve An.
 Que l'irrigation d'une rose paupière. ne
@@ -4108,27 +4107,27 @@ Sur le tracé commun marquait une heure brève.
 Le déharnachement de tendresse et d'amour
 Sur le parvis commun posait une humble trêve.
 Le solennel débat du jour et de la nuit : :
-Marquait dans ce silence une invisible trêve. 3
-Et le temps suspendu, dans cet humble réduit 1
-Découpait les contours d'une heure unique et brève. Ù
+Marquait dans ce silence une invisible trêve.
+Et le temps suspendu, dans cet humble réduit
+Découpait les contours d'une heure unique et brève.
 Sur le double tracé posait comme une trêve.
 Le déharnachement de rudesse et d'amour
 Sur le double parvis posait une heure brève.
 « Le solennel débat de la nuit et du jour
-7 Au-dessus de ces fronts suspendait comme un glaive.
+Au-dessus de ces fronts suspendait comme un glaive.
 “ Le déharnachement d'allégresse et d'amour ?
 : Sur le double parvis posait une heure brève. LA
 
 ! les tapisseries "1 "NE
-Le démantèlement de la nuit et du jour the à 4
+Le démantèlement de la nuit et du jour the à
 Sur le double fossé jetait comme une trêve. 1 #
-rar Et le désarmement de jeunesse et d'amour 4
+rar Et le désarmement de jeunesse et d'amour
 ot Sur l'éternel débat jetait une heure brève. WA à
 Ke Et ce sang qui devait sous la lance romaine .
 Couler comme la source aux sables du désert |
 ' N'était dans un berceau soigneusement couvert
-Qu'un peu de vigilance et de tendresse humaine. E
-Et ce sang qui devait sur le dernier haut lieu 22
+Qu'un peu de vigilance et de tendresse humaine.
+Et ce sang qui devait sur le dernier haut lieu
 Pieuvoir comme la manne aux déserts de l'exode :
 N''était dans cette heureuse et molle période
 Que l'entrelacement d'un réseau rose et bleu.
@@ -4141,20 +4140,20 @@ TS N'était pas même encor un peu de poil follet. à
 l A l'heure où le frelon et la mouvante abeille ;
 Reviennent se poser sur le pampre romain. +
 
-__ Ainsi l'homme n'était qu'un petit Benjamin, r:
+__ Ainsi l'homme n'était qu'un petit Benjamin,
 .. Un nouveau Benjamin sous un nouveau Joseph.
 __ Et tout l'honneur de l'homme et tout l'espoir humain
-‘ Tenaient dans le vaisseau de cette unique nef. 12
+‘ Tenaient dans le vaisseau de cette unique nef.
 1 - Et tout l'homme n'était qu'un nouveau Benjamin, ; :
 :4 Un nouveau Benjamin sous un nouveau Joseph. La
 h be: Et tout l'avoir de l'homme et tout l'espoir humain ;
 © Tenaient en cet instant implacablement bref. :
-4 4
+4
 - Et tout l'homme n'était qu'un dernier Benjamin, Re
-54 Un dernier Benjamin sous un dernier Joseph. F5
+Un dernier Benjamin sous un dernier Joseph.
 F2 Et le salut de l'homme et tout l'espoir humain |
-- Tenaient dans le berceau de cet unique chef. 1
-Be. Le père nourricier était comme un grand frère. ë
+- Tenaient dans le berceau de cet unique chef.
+Be. Le père nourricier était comme un grand frère.
 Et ce nouveau Joseph était un frère aîné. a
 …—._ Mais cette autre Rachel était vraiment la mère se
 - Et se penchait vraiment sur un fils nouveau-né. À
@@ -4164,19 +4163,19 @@ Et ce nouveau Joseph était un frère aîné. a
 _ Un fils deux fois aimé deux fois impérissable. 5:40
 
 é les tapisseries ! "17000 Le Fe
-Et tout ce sang n'était encor qu'un sang de lait É
-Fleuri de jeune grâce et riant de bonheur. ë
+Et tout ce sang n'était encor qu'un sang de lait
+Fleuri de jeune grâce et riant de bonheur.
 < Et tous ces jours n'étaient encor qu'un chapelet É #2
 me De bonheurs enfilés sur le fil de l'honneur. fe
 | Et tout ce sang n'était encor qu'un sang de lait
 ' Fleuri de bonne grâce et semé de bonheur. $
 Et tous ces jours r'étaient encor qu'un chapelet ;
-De beaux jours enfilés au réseau de l'honneur. È
+De beaux jours enfilés au réseau de l'honneur.
 Sous le regard de l'âne et le regard du bœuf à
 Cet enfant reposait dans la pure lumière.
 ; Et dans le jour doré de la vieille chaumière ;
 S'éclairait son regard incroyablement neuf. $
-L'enfant levait les yeux vers les deux grosses têtes, 6
+L'enfant levait les yeux vers les deux grosses têtes,
 -  Promenant son regard sur ces deux monuments. ‘
 $ Ces voisins lui donnaient d'inconcevables fêtes,
 Balançant du château comme deux bâtiments.
@@ -4188,18 +4187,18 @@ S'amusent à jouer dans les porte-manteaux.
 L'enfant levait les yeux vers les énormes yeux :
 “64 Plus profonds et plus doux que l'énorme Océan.
 D: Novice il contemplait dans ce miroir géant
-M La profondeur des mers et le reflet des cieux. É
+M La profondeur des mers et le reflet des cieux.
 - L'enfant levait les yeux vers ce miroir béant
 ‘à Un amour se peignait sur la face profonde,
 E Noyé dans le reflet d'un palpable néant. &
 # Le soleil qui passait par les énormes brèches :
 Éclairait un enfant gardé par du bétail.
-EE. Le soleil qui passait par un pauvre portail É
+EE. Le soleil qui passait par un pauvre portail
 à d Éclairait une crèche entre les autres crèches. ;
 
 #4 Mais le vent qui soufflait par les énormes brèches
-74 Eût glacé cet enfant qui s'était découvert. Pa
-4 Eït le vent qui soufilait par le portail ouvert k Pas
+Eût glacé cet enfant qui s'était découvert. Pa
+Eït le vent qui soufilait par le portail ouvert k Pas
 “4 Eût glacé dans sa crèche entre les autres crèches ‘1538
 Cet enfant qui dormait en fermant les deux poings PE à
 = Sices deux chambellans et ces museaux velus PE
@@ -4221,7 +4220,7 @@ Regardaient respirer le premier roi du monde. FE
 PIRE Et ces deux tard-venus et ces deux vieux garçons LT
 à Regardaient s'éclairer la face humide et fraîche. FES
 ë Et tous deux s'avançant au-dessus de la crèche Ses
-à Regardaient reposer le roi des nations. FE 1
+à Regardaient reposer le roi des nations. FE
 k Et ces deux vieux bourrus et ces parfaits notaires En.
 A Regardaïient cette face internelle et profonde. à on
 RAS Et ces deux gros joufflus et ces protonotaires LCR EE
@@ -4231,22 +4230,22 @@ Re Regardaient sommeiller le plus beau roi du monde.
 _% Considéraient la bouche ouverte et toute ronde. :#
 D: Et ces deux gros zébus et ces deux commandeurs
 L  Considéraient cet être où tout être se fonde. UC
-Re: » Ainsi ces deux tortus, ainsi ces deux gros pères . 5
+Re: » Ainsi ces deux tortus, ainsi ces deux gros pères
 ee Considéraient la face éblouissante et blonde. :
-‘4 Ainsi ces deux bossus, ainsi ces deux compères 4
+‘4 Ainsi ces deux bossus, ainsi ces deux compères
 $ Regardaient ce premier que tout être seconde. À !
-4 Ainsi ces deux ventrus, ainsi ces beaux garçons 3
-1 | Contemplaient cette face épanouie et ronde. 75e
-4 Ainsi ces deux repus et ces beaux nourrissons FE
+Ainsi ces deux ventrus, ainsi ces beaux garçons
+1 | Contemplaient cette face épanouie et ronde.
+Ainsi ces deux repus et ces beaux nourrissons FE
 Ë 4 Le regardaient dormir pour le salut du monde. #e
 KA Et ces avantageux et ces deux vieux grognons &
 Re: Opinaient du museau vers un jeune bambin. Es
-14 Et ces deux partageux et ces deux compagnons Sa ne
+Et ces deux partageux et ces deux compagnons Sa ne
 .  Laissaient tomber leur nez sur ce pauvre gamin. | Sr
 >  Etces chapeaux pointus et ces deux esprits forts Le
 ÿ » _ Dominaient de très haut cet enfant ingénu. ‘#4
 Ke. Et ces deux yeux ouverts comme deux grands sabords 7 |
-4 Considéraient de haut cet enfant pauvre et nu. 5 ;
+Considéraient de haut cet enfant pauvre et nu. 5 ;
 
 "280 à les tapisseries LE TRNSESS
 Et ces deux gros mafflus et ces croquemitaines 3 se
@@ -4255,29 +4254,29 @@ De Et ces deux gros pansus et ces pleins de maïs +: "+
 “a Regardaient le vainqueur des plus grands capitaines. Fe
 g' Et ces mufles savants et ces intelligences
 ï Déploraient cet état où nous l'avons laissé. re
-3 Et ces deux pleins d'esprit et ce couple empressé à “a
+Et ces deux pleins d'esprit et ce couple empressé à “a
 | En soi-même blâmaient de telles négligences. .
-Et ces deux grands docteurs et ces deux bonnets d'ânes … k
-Déploraient l'abandon où nous l'avons laissé. 1
+Et ces deux grands docteurs et ces deux bonnets d'ânes …
+Déploraient l'abandon où nous l'avons laissé.
 Et ces deux pleins de cœur et ce couple enchâssé *
-Ruminaient des pensers qui fuyaient sous ces crânes. « 4
+Ruminaient des pensers qui fuyaient sous ces crânes. «
 | Ainsi ces deux experts et ces fins connaisseurs,
 D'un mufle balancé pesaient le divin fils. À |
 Et ces deux courbatus et ces pleins de maïs
 | Faisaient les entendus et les intercesseurs. ‘
-Ainsi ces deux grisons et ces deux amateurs s
+Ainsi ces deux grisons et ces deux amateurs
 à D'un mufle audacieux jugeaient le fils de l'homme. ,
 È Et ces deux rebondis et ces consommateurs : £
 : Mesuraient cet enfant qui poursuivait son somme. Es
 
 F Ainsi ces beaux tendrons, ainsi ces fins diseurs e :
 # D'un mufle précieux jaugeaient le fils unique. |
-1 Par-devant ces messieurs commissaires-priseurs
-1 L'enfant comparaissait dans sa pauvre tunique.
-3 Et ces deux paysans et ces deux potentats
+Par-devant ces messieurs commissaires-priseurs
+L'enfant comparaissait dans sa pauvre tunique.
+Et ces deux paysans et ces deux potentats
 À D'un mufle officieux pesaient le roi mon maître.
-4 Et ces deux présidents et ces hommes d'États
-Considéraient cet être où se fonde tout être. 7
+Et ces deux présidents et ces hommes d'États
+Considéraient cet être où se fonde tout être.
 &. Et ces gouvernements et ces deux majordomes
 % Du haut de leur museau pesaient le Grand Dauphin.
 F Et ces deux renchéris et ces deux museau fin
@@ -4294,34 +4293,34 @@ Fe Du haut de leur grosseur narguaïient ce petit père.
 à Et ces deux prévoyants et ces deux économes ES
 "eu Veillaient de tout Leur poids sur le roi notre sire. De
 se Et ces deux surveillants et ces deux gros bonhommes ne
-5 Pensaient de tout leur poids et cherchaient à s'instruire
+Pensaient de tout leur poids et cherchaient à s'instruire
 eu Et ces deux bienveillants et ces chevau légers Re
 x Pensaient de tout leur poids et cherchaient à déduire.
 Et ces hommes de bien et ces galants bergers
-Dansaient de tout leur poids et cherchaïient à séduire. k
+Dansaient de tout leur poids et cherchaïient à séduire.
 Et ces deux pleins de paille et ces deux présidents _
 D'un mufle gracieux pesaient le roi mon frère. se
 Et ces deux pleins d'avoine et ces deux résidents Re
-D'un mufle astucieux interrogeaient la mère. 5
+D'un mufle astucieux interrogeaient la mère.
 ; Et ces deux pleins d'astuce et ces deux gros sergents
-- D'un mufle soucieux pesaient le roi mon frère. s
-Et ces pleins de tendresse et ces pleins de misère 2
-Faisaient les radieux et les intelligents. 3
+- D'un mufle soucieux pesaient le roi mon frère.
+Et ces pleins de tendresse et ces pleins de misère
+Faisaient les radieux et les intelligents.
 
-Et ces deux amoureux et ces deux beaux athlètes 4
+Et ces deux amoureux et ces deux beaux athlètes
 Jouaient leur double jeu pour ce maigre public. à
 ; Et ces deux langoureux et ces rudes ascètes #4
 S'adoucissaient un peu' pour ce jeune laïc. Fat
-, 20, 770
+,
 
 Et ces hommes de poids, ces administrateurs de
 We Dans leur double cerveau calculaient la dépense. ;
 Se. Et ces législateurs et ces conservateurs / "à
 EE. Balançaient leurs beaux flancs parmi leur double panse.
 E Et ces hallebardiers montaient leur double garde. \
-4 Et ces pertuisaniers faisaient la double haie. 6
-à Et ces gonfalonniers arboraient leur cocarde : Ë
-4 Deux pennons de poils blancs coupés par une raie. 1
+Et ces pertuisaniers faisaient la double haie.
+à Et ces gonfalonniers arboraient leur cocarde
+Deux pennons de poils blancs coupés par une raie.
 Ee Et ces prétentieux et ces estimateurs LE
 : 2 Voyaient de près celui que nous n'avons pas vu. SE
 - Et ces deux donateurs et ces adorateurs see
@@ -4330,16 +4329,16 @@ n°4 Et ces laborieux et ces deux gros fidèles Bt
 Fe Possédaïient cet enfant que nous n'avons pas eu. ; FR
 TE Et ces industrieux et ces deux haridelles ee
 Ds. Gardaient ce fils de Dieu que nous avons vendu. RE
-. Et ces maitres de l'homme et ces gouvernateurs 28
+. Et ces maitres de l'homme et ces gouvernateurs
 __  Gouvernaient cet enfant que nous n'avons pas su. Sir
 E. Et ces préfets de Rome et ces procurateurs . 7 FOIRE
-…_  Gardaient ce fils de Dieu que nous n'avons pas pu. 2
+…_  Gardaient ce fils de Dieu que nous n'avons pas pu.
 
 "les lapisseries 10400) Pr à à
-ea Et ces deux gros bedons, ces hommes d'importance 2 F2
-54 Laissaient leur bel esprit courir la pretentaine. ee
-Et à notre défaut et par notre inconstance FER 7
-6 Ils veillaient cet enfant dans sa maigre futaine. LR
+ea Et ces deux gros bedons, ces hommes d'importance
+Laissaient leur bel esprit courir la pretentaine. ee
+Et à notre défaut et par notre inconstance FER
+Ils veillaient cet enfant dans sa maigre futaine. LR
 Fe Et notre incohérence et notre inconsistance LV
 re Abandonnaïient l'enfant à ces deux beaux danseurs. à
 x Et notre suffisance et notre inadvertance DEEE
@@ -4347,31 +4346,31 @@ k Abandonnaïient l'enfant à ces deux grands penseurs. ps
 Et notre ingratitude et notre incompétence ‘3
 Abandonnaient l'enfant à ces pauvres censeurs.
 
-Et notre turpitude et notre impénitence F.
+Et notre turpitude et notre impénitence
 Abandonnaïent l'enfant à ses vrais défenseurs. “ +
-Et notre platitude et notre inexistence *, V2
+Et notre platitude et notre inexistence *,
 
-2 Abandonnaïient l'enfant à ces deux connétables. - +
+Abandonnaïient l'enfant à ces deux connétables. - +
 Et notre quiétude et notre intermittence a
 Abandonnaient l'enfant à ces deux gros comptables. ra
-4 Et ces deux estafiers et ces deux gros gendarmes de
+Et ces deux estafiers et ces deux gros gendarmes de
 Autour du bel enfant montaient leur double garde. SNE
 Or cet enfant venu pour notre sauvegarde, Ve
 Où l'avons-nous laissé dans le fracas des armes. He
 
 :10 Et les pauvres moutons eussent donné leur laine
 D. Avant que nous n'eussions donné notre tunique.
-4 Et ces deux gros pandours donnaient vraiment leur peine.
+Et ces deux gros pandours donnaient vraiment leur peine.
 #4 Et nous qu'avons-nous mis aux pieds du fils unique.
-0 Avons-nous répandu les cendres de nos haines
-74 Comme un manteau d'argent sous des pieds adorés.
-1 Avons-nous répandu le sable de nos peines
-1 Comme un tapis d'argent aux reflets mordorés. 5
+Avons-nous répandu les cendres de nos haines
+Comme un manteau d'argent sous des pieds adorés.
+Avons-nous répandu le sable de nos peines
+Comme un tapis d'argent aux reflets mordorés.
 ne. Avons-nous répandu par les champs de la plaine à
-7 Notre fumier d'orgueil et d'ostentation. '
-72 Avons-nous recueilli dans l'urne grave et pleine ;
-2 Les grâces de détresse et de contrition. :
-À Avons-nous déroulé le tissu de nos jours 2
+Notre fumier d'orgueil et d'ostentation. '
+Avons-nous recueilli dans l'urne grave et pleine ;
+Les grâces de détresse et de contrition. :
+À Avons-nous déroulé le tissu de nos jours
 F2 Sur le parvis de marbre et dans le beau jardin.
 Eu Avons-nous déroulé l'ombre de nos amours
 | + Entre l'ombre de l'arbre et le premier gradin. es:
@@ -4382,18 +4381,18 @@ Eu Avons-nous déroulé l'ombre de nos amours
 
 ls Avons-nous déroulé tout le long des sentiers ; Ke pure
 Le long défilement des soins de chaque jour. F ÉA nr
-__ Avons-nous apporté vers un unique amour 2400 dr ï
+__ Avons-nous apporté vers un unique amour 2400 dr
 Des cœurs incirconcis et des êtres entiers. LTÉE
 1e _ Avons-nous déroulé dans les grandes allées I 'RESSS
 Le large déploiement des vœux de chaque jour.
 _ Avons-nous concentré sur un unique amour {ANNE
 Le long recensement des peines révélées. AR
 Avons-nous apporté dans un noble séjour 3 FEES
-Le long recordement des amours et des haïnes. 15e 1
-Avons-nous fait monter sur la plus haute tour F4
+Le long recordement des amours et des haïnes.
+Avons-nous fait monter sur la plus haute tour
 Le vaste isolement des oublis et des peines. (260
 à Avons-nous déposé sous les pieds les plus chers +510
-f L'écheveau démélé d'un immense concours. ; # ne e
+f L'écheveau démélé d'un immense concours. ; # ne
 _  Avons-nous apporté notre faible secours 3 ‘: Roue
 __ Et notre aide débile à de plus pauvres clercs. + ÈS
 S Sommes-nous revenus par un noble détour RANGS
@@ -4403,13 +4402,13 @@ _ Jusqu'au recouvrement de nos jeunes journées. He 7 :
 
 Er Avons-nous apporté vers un dernier séjour
 
-3 Le long recolement de nos jours de jeunesse.
+Le long recolement de nos jours de jeunesse.
 
 Er Avons-nous fait monter sur la plus haute tour
 
 à Le vaste isolement de nos jours de détresse.
 
-4 Avons-nous déroulé le fil de nos terreurs :
+Avons-nous déroulé le fil de nos terreurs :
 
 F Entre le tribunal et le pied de la croix.
 
@@ -4427,7 +4426,7 @@ nt: Entre le Voici l'homme et l'interrogatoire. À
 
 É Avons-nous déroulé le fil de nos discours
 
-4 Entre le fils de l'homme et le procurateur.
+Entre le fils de l'homme et le procurateur.
 
 ‘73 Avons-nous étendu le manteau de nos jours
 
@@ -4440,31 +4439,30 @@ __ Avons-nous déroulé le manteau de nos jours ;
 Pneu nn les tapisseries Rs
 _ Avons-nous déroulé le manteau de nos peines, NE
 es pl fond, plus épais qu'un éch d' L'TEEE
-Plus profond, plus épais qu'un écheveau d'amour. 1e
-70 Avons-nous délivré du réseau de nos haïnes . } CES
-_ Les pieds immaculés du roi du dernier jour. 74
+Plus profond, plus épais qu'un écheveau d'amour.
+Avons-nous délivré du réseau de nos haïnes . } CES
+_ Les pieds immaculés du roi du dernier jour.
 Po Avons-nous déroulé ces toisons et ces laïines, FR
-ER Plus moites de regrets qu'un écheveau d'amour. 5
+ER Plus moites de regrets qu'un écheveau d'amour.
 Pet Avons-nous libéré du fatras de nos haïnes Re”
-$ Les pieds silencieux du roi du dernier jour. M
-*__ Avons-nous déposé l'escabeau de nos fronts 00
+$ Les pieds silencieux du roi du dernier jour.
+*__ Avons-nous déposé l'escabeau de nos fronts
 Sous les pieds les plus chers et les plus malheureux. LT
-Avons-nous étendu le manteau de nos vœux e.
-Entre une face auguste et les derniers affronts. ; x
+Avons-nous étendu le manteau de nos vœux
+Entre une face auguste et les derniers affronts.
 #4 Avons-nous étendu le manteau de nos peines ES
 ; Sur l'usure et les trous d'une pauvre tunique. FT
 Avons-nous replié le tissu de nos haïines re
-re Pour en désentraver les pieds du fils unique. 4e
+re Pour en désentraver les pieds du fils unique.
 Avons-nous incliné le fronton de nos têtes MUR:
 Pour servir d'escabeau sous les pieds les plus chers. ‘1
 ÿ Avons-nous déroulé le manteau de nos fêtes He
 - Pour en vêtir le pauvre en plein cœur des hivers. HAE
 
-15 Avons-nous déposé l'escabeau de nos fronts
+Avons-nous déposé l'escabeau de nos fronts
 G É- Sous les pieds les plus chers et les plus malheureux.
 “2 Avons-nous essuyé des larmes de nos yeux
-4 La poussière et la boue et les derniers affronts.
-| 4
+La poussière et la boue et les derniers affronts.
  ‘ Avons-nous incliné l'escabeau de nos têtes ;
 F Sous les pieds les plus chers et les plus révérés.
 3 ‘à Avons-nous revêtu du manteau de nos fêtes
@@ -4472,14 +4470,14 @@ e Le pauvre le plus pauvre entre les plus sacrés. :
 “4 É Avons-nous déposé l'escabeau de nos fronts NES
 LS. Sous les pieds les plus chers et sous les plus sanglants.
 î Fe Avons-nous essuyé des linges les plus blancs )
-4 La marque du baiser et des derniers affronts. é
+La marque du baiser et des derniers affronts.
 N Avons-nous soutenu des genoux chancelants. ;
 “a Les avons-nous baïisés jusqu'au seuil des tombeaux.
-K 14 Avons-nous soutenu les pas les plus tremblants L
+K 14 Avons-nous soutenu les pas les plus tremblants
 É:- Et les pas les plus chers et les pas les plus beaux. oz
 % Avons-nous étendu sous des pas chancelants
 2: Les paumes de nos mains comme des escabeaux.
-- Avons-nous essuyé des linges les plus blancs 6
+- Avons-nous essuyé des linges les plus blancs
 - Les pieds les plus souillés et les pieds les plus beaux. #4
 
 __ Avons-nous étendu le manteau de tendresse
@@ -4495,7 +4493,7 @@ Sous les pieds les plus purs et sous les plus aimés. nn.
 | Avons-nous déployé le silence latin er
 re Sous les pieds les plus doux et les plus embaumés. LUS
 ro Avons-nous étendu comme un manteau de fleurs KES
-“ # Nos oraisons, nos vœux et nos recueillements. 540
+“ # Nos oraisons, nos vœux et nos recueillements.
 ls  Avons-nous étendu le rideau de nos pleurs FRE ‘A
 a ; Entre le fils de l'homme et nos délaissements. RES
 Le Avons-nous délavé du ruisseau de nos larmes es
@@ -4511,15 +4509,15 @@ Notre plus proche frère et notre ami plus proche.
 à Ce corps incorruptible et ce corps pantelant.
 Avons-nous essuyé du linge le plus blanc |
 —_ Le maitre de nos rois et de nos connétables. ASE
-48 Avons-nous recueilli dans un dernier linceul HS
+Avons-nous recueilli dans un dernier linceul HS
 _ Ce corps incorrompu, ces membres déliés. LE
 "4 _  Avons-nous pas laissé mélancolique et seul AURe
 …. Ce grand corps détendu, ces jarrets dépliés. os
 -  Avons-nous recueilli dans un dernier suaire A,
-RP Ce long corps dépendu, ces membres oubliés. c
+RP Ce long corps dépendu, ces membres oubliés.
 __  Avons-nous recueilli dans un drap mortuaire NEA
 À _ Ces membres confondus, ces secrets publiés. AG ÉPS
-__  Avons-nous introduit la force de nos bras Ë b
+__  Avons-nous introduit la force de nos bras
 Entre le dos saignant et la lourde matraque. PS
 e _ Valons-nous ces valets, ces varlets gros et gras tr
 …_ Qui gardaient leur seigneur au fond d'une baraque. LPS
@@ -4527,7 +4525,7 @@ e _ Valons-nous ces valets, ces varlets gros et gras tr
 PE a, les tapisseries.
 
 S ; Ces deux beaux animaux retenaient leur baleine, TRE
-1 Tremblant de réveiller l'enfant expiatoire. 2 Fe
+Tremblant de réveiller l'enfant expiatoire. 2 Fe
 Fr Et les touffes de buis semés de marjolaine PSS
 A3 Achevaient d'embaumer ce premier oratoire. L:IENSS #3
 k _ Et ces deux hommes d'arme et ces vrais Bourguignons
@@ -4535,7 +4533,7 @@ PAG: Autour du fils de Dieu montaient une humble garde. Je
 | Et notre intermittence aidant notre mégarde, à
 : - Nous laissâmes l'enfant à ces deux gros Gascons. Li
 
-Et ces deux gros dodus et ces deux bons apôtres 4
+Et ces deux gros dodus et ces deux bons apôtres
 ‘ Auprès du divin maître avaient pris leur service. “4
 
 Et ces bourgeois cossus et ces mangeurs d'épeautres
@@ -4548,7 +4546,7 @@ Et Et ses amusements et ses jeunes caprices qe
 
 Fa, Reposaient dans le creux de ce pauvre berceau. ä
 
-L'âne ne savait pas par quel chemin de palmes ë 4
+L'âne ne savait pas par quel chemin de palmes
 
 Un jour il porterait jusqu'en Jérusalem ja
 
@@ -4561,18 +4559,18 @@ _ Il allait commencer quelle immense journée.
 Des Lui versait le reflet d'un manteau de satin.
 F Ainsi l'enfant dormait dans son premier matin. ;
 | D se Il allait commencer Dieu sait quelle journée. =
-- Il allait commencer une éternelle année. 7
-_ Ainsi l'enfant dormait dans son premier destin. 5
+- Il allait commencer une éternelle année.
+_ Ainsi l'enfant dormait dans son premier destin.
 ‘4 Il allait commencer quelle immense fortune.
-Ë - Ainsi l'enfant dormait dans sa blonde infortune. c
+Ë - Ainsi l'enfant dormait dans sa blonde infortune.
 = Ainsi l'enfant dormait dans cette pénurie. À
-4 Il allait commencer quelle immense fortune.
+Il allait commencer quelle immense fortune.
 _ Ainsi l'enfant dormait à côté de Marie.
 | 204 S 2 commencer quelle immense infortune.
 
 +. M Ainsi l'enfant dormait dans sa première aurore.
 BE. Il allait commencer quelle immense saison. ,
-_… Ainsi l'enfant dormait et reposait encore L
+_… Ainsi l'enfant dormait et reposait encore
 - Avant de commencer quelle immense maison.
 
 En Ainsi l'enfant dormait dans son jour et son aube.
@@ -4591,11 +4589,11 @@ Comme un prêtre vêtu de l'étole et de l'aube, Qu
 
 ta Ainsi l'enfant dormait aux roses de l'aurore. 4 “à a
 : Il allait commencer quelle innombrable année. ze)
-2 Il allait commencer quelle énorme journée. F Sa
+Il allait commencer quelle énorme journée. F Sa
 “ Il allait commencer quel appareil encore. eo RAS .
 À Ainsi l'enfant dormait dans le règne herbivore. SR A
 | Et la belle et la bête autour de lui veillaient. is
-dv Ainsi l'enfant dormait dans la faune et la flore Re es. e
+dv Ainsi l'enfant dormait dans la faune et la flore Re es.
 ji Et la belle et la bête autour de lui priaient. pee
 
 .:4 Ainsi l'enfant dormait au royaume herbivore :
@@ -4612,11 +4610,11 @@ L: ‘ Ainsi l'enfant dormait dans le règne herbivore.
 
 Ë Et l'enfant reposait dans la faune et la flore.
 
-4 Et la fleur et la bête autour de lui priaient.
+Et la fleur et la bête autour de lui priaient.
 
 4 _ Et ces deux bienveillants autour de lui veillaient. |
 
-3 Il allait commencer quelle immense veillée. |
+Il allait commencer quelle immense veillée. |
 
 He Et ces deux surveillants autour de lui priaient.
 
@@ -4629,7 +4627,7 @@ Ke Il allait enrayer l'effroyable dépense. ;
 
 & ë Dans le plateau perdu de la double balance. ke
 
-24 Il allait regagner l'énorme récompense.
+Il allait regagner l'énorme récompense.
 
 . La Il allait commencer l'énorme sauvetage.
 …_  Ilallait nous ravoir notre énorme héritage. £
@@ -4642,7 +4640,7 @@ a IL allait commencer quel immense partage. è Va v#
 _ Il allait commencer quelle création. PRE
 Ë Il plaisait, il était comme un fils agréé. Aa
 _ Venu nous proposer quelle imitation. F 3 Fe
-Cette nacelle était comme un bateau gréé. 120
+Cette nacelle était comme un bateau gréé.
 Nous embarquerons-nous sur cette frêle barque. Ne
 Accompagnerons-nous notre premier monarque, EN
 Notre amiral des mers sur son bateau paré. | "ae
@@ -4656,7 +4654,7 @@ Il allait commencer quelle éternelle école. LPS
 
 k. Se _ Aïnsi l'enfant dormait dans son premier berceau.
 
-4 Ainsi l'enfant dormait dans cette solitude
+Ainsi l'enfant dormait dans cette solitude
 
 % __ Avant de gouverner quel immense troupeau.
 
@@ -4669,11 +4667,11 @@ FA F Il allait commencer quelle énorme audience.
 
 i Et quelle servitude et quelle obédience,
 
-4 La seule qui soit libre et qui soit gracieuse. é
+La seule qui soit libre et qui soit gracieuse.
 
 Fe La seule qui soit serve et qui soit précieuse.
 
-1 La seule qui soit ferme et fasse obéissance. ;
+La seule qui soit ferme et fasse obéissance. ;
 FA Et quelle exactitude et quelle obéissance, as
 je La seule qui soit libre et parle à cœur ouvert;
 
@@ -4689,72 +4687,72 @@ l È Ainsi l'enfant dormait dans ce premier vaisseau.
 
 Ainsi l'enfant dormait dans son premier repos.
 eee Il allait commencer quel immense travail. LA: +4
-2 Ainsi l'enfant dormait dans son premier bercail. TR
+Ainsi l'enfant dormait dans son premier bercail. TR
 on IL allait commencer quel immense propos. LR
 Ainsi l'enfant dormait au fond du premier somme. ay
 ne Il allait commencer l'immense événement. | À
-13 Il allait commencer l'immense avènement. , 4
+Il allait commencer l'immense avènement.
 : L'avènement de l'ordre et du salut dans l'homme. Se
 Perdu, l'enfant dormait dans le fond de son somme. “
 Il allait commencer le grand gouvernement. : “
 Il allait commencer le grand avènement, SE
 | L'avènement de Dieu dans le cœur de tout homme. LR
 ; Perdu, l'enfant dormait au fond du premier somme. RCE
-1 Il allait commencer le grand ébranlement. LC
+Il allait commencer le grand ébranlement. LC
 ns 11 allait commencer le nouveau règlement. ; Ne à
 ; Il allait commencer le cœur du nouvel homme. . FSI
-| Perdu, l'enfant dormait au fin fond de son somme. 248
+| Perdu, l'enfant dormait au fin fond de son somme.
 Il allait commencer le renouvellement, : -*5N
 L Créer le nouveau Dieu dans ce redoublement, Fe LÀ
 + Créer le Fils de l'Homme au cœur du nouvel homme.
 
-4 Créer le nouveau siècle et la nouvelle règle. é
+Créer le nouveau siècle et la nouvelle règle.
 LS Il allait commencer quelle importation :
 Le. Dans les anciens labours créer le nouveau seigle.
-4 Perdu, l'enfant dormait dans ce frêle vaisseau.
+Perdu, l'enfant dormait dans ce frêle vaisseau.
 F4 Il allait commencer le grand embarquement.
 LA Car il allait lancer sur l'énorme Océan ?
 4 . . .
 . L'impérissable nef, ce fragile berceau.
-3 Perdu, l'enfant dormait dans son pauvre trousseau.
+Perdu, l'enfant dormait dans son pauvre trousseau.
 & #4 Il allait commencer le grand revêtement.
-4 L'habillement du cœur et le contentement.
+L'habillement du cœur et le contentement.
 % Et le dévêtement d'un siècle jouvenceau.
 : Perdu, l'enfant dormait dans ce vaisseau de charge.
 £ Il allait commencer le grand rechargement.
 de De cette cargaison quand nous serons au large.
-_ Comme dormait Moïse au bord du père Nil, 54
+_ Comme dormait Moïse au bord du père Nil,
 #4 Ainsi l'enfant dormait dans son pauvre berceau. ss
-5 Mais la fille du roi, dans ce commun péril, ÿ
+Mais la fille du roi, dans ce commun péril,
 “  MN'était point accourue en jouant au cerceau. Lu
 
 © Comme dormait Moïse au long du fleuve Ni, L: DATES
 FN - Ainsi l'enfant perdu dormait dans son berceau. 2 De.
 Mais la fille du roi, qui jouait au cerceau, # 1 di
 a __ N'était point accourue en ce commun péril. 0 “
-- fe Comme dormait Moïse au bord du premier Nil, A4
+- fe Comme dormait Moïse au bord du premier Nil,
 Ainsi l'enfant dormait sous ces pauvres arceaux. SE à
 É Mais la fille du roi, qui jouait aux ciseaux, : LÉO
 __ N'était point accourue en ce premier péril. Li
 = Comme dormait Moïse au bord du large Nil, à se
-Ainsi l'enfant dormait dans son pauvre trousseau. 21 1
-Mais la fille du roi, qui jouait au boisseau, | $ E
+Ainsi l'enfant dormait dans son pauvre trousseau.
+Mais la fille du roi, qui jouait au boisseau, | $
 N'était point accourue en ce vaste péril. 1"
-“ Comme dormait Moïse au gré du chaste Nil, - x 14 44
-Ainsi l'enfant perdu dormait sous ces museaux. 723
+“ Comme dormait Moïse au gré du chaste Nil,
+Ainsi l'enfant perdu dormait sous ces museaux.
 …_ Mais la fille du roi, qui jouait aux réseaux, mes
 at N'était point accourue en ce nouveau péril. È Ds
-‘Comme dormait Moïse au fil de l'eau du Nil, 14 20
+‘Comme dormait Moïse au fil de l'eau du Nil,
 d Ainsi l'enfant dormait sous ces deux damoiseaux. ES Gé
-É Mais la fille du roi, qui chantait aux oiseaux, A un 51
+É Mais la fille du roi, qui chantait aux oiseaux, A un
 Ta N'était point accourue au bord de ce péril. ÿ CR
 
 D: _ Comme dormait Moïse aux bercements du Nil,
 ‘4 ® Ainsi l'enfant dormait dans son lit de roseaux.
-4 Maïs la fille du roi, qui jouait aux fuseaux,
+Maïs la fille du roi, qui jouait aux fuseaux,
 L N'était point accourue en ce matin d'avril.
 Comme l'enfant Moïse au bord du père Nil,
-2 Ainsi l'enfant perdu dormait sous ces naseaux. é
+Ainsi l'enfant perdu dormait sous ces naseaux.
 ë Mais la fille du roi, qui jouait aux pinceaux, à
 È ne Ne saisit point l'enfant d'un geste puéril,
 à 3 Comme l'enfant Moïse aux confluents du Nil,
@@ -4764,10 +4762,10 @@ fe N'était point accourue au fil de son cerceau.
 Ainsi l'enfant dormait dans son premier berceau. ;
 Mais la jeune princesse aux bords d'un nouveau Nil
 F2 N'était point accourue à ce jeune babil
-4 Avec sa robe blanche et ses rubans ponceau.
-- Comme dormait Moïse au giron du vieux Nil, 7
+Avec sa robe blanche et ses rubans ponceau.
+- Comme dormait Moïse au giron du vieux Nil,
 4 _ Aïnsi l'enfant dormait sous ces deux jouvenceaux. FRS
-54 Leurs têtes balançaient ainsi que panonceaux. '
+Leurs têtes balançaient ainsi que panonceaux. '
 
 les ‘tapisseries. "ee
 
@@ -4780,7 +4778,7 @@ Ainsi le gouverneur et le fils premier-né, De
 Ainsi l'enfant perdu dormait dans sa nacelle. . :
 
 Mais la jeune princesse avec sa demoiselle AE
-D'honneur ne veilla point sur l'enfant nouveau-né. F4
+D'honneur ne veilla point sur l'enfant nouveau-né.
 
 Ainsi le gouverneur, ainsi le fils aîné, ee
 
@@ -4796,9 +4794,9 @@ Dormait dans le recueil des grâces dispensées. ee
 Mais la fille du roi, la princesse Héloïse, LA
 N'était point survenue au fil de ses pensées. CE
 
-Comme dormait Moïse aux rives de Memphis, 72
+Comme dormait Moïse aux rives de Memphis,
 
-Ainsi l'enfant dormait aux rives d'Israël. 11e
+Ainsi l'enfant dormait aux rives d'Israël.
 
 Ainsi le pauvre enfant, ainsi le divin fils va je
 
@@ -4810,8 +4808,8 @@ ne : Ainsi l'enfant dormait aux confins d'Israël.
 | Dans un même berceau pour un nouveau Noël.
 Fe Comme dormait Moïse au pays de Memphis,
 É Ainsi l'enfant dormait au pays d'Israël. ”
-2 Et cet autre Moïse et cet Emmanuel
-à. Était comme un fragile et périssable fils. 3
+Et cet autre Moïse et cet Emmanuel
+à. Était comme un fragile et périssable fils.
 LA Comme dormait Moïse aux temples de l'Égypte,
 is Ainsi l'enfant dormait au temple d'Israël. =
 ; Et ce sauveur venu dans un dernier Noël
@@ -4827,19 +4825,19 @@ ee. Il allait commencer le regret d'Israël.
 
 Ainsi l'enfant dormait dans sa première paix,
 Au Ainsi l'enfant dormait sous cette valetaille. # La “e
-1 Il allait commencer quel immense procès. DE
-1 re Il allait commencer quelle magistrature. f : 10
+Il allait commencer quel immense procès. DE
+1 re Il allait commencer quelle magistrature.
 È n Devant quel tribunal et sous quel magistrat. er. “3
 ES Il allait commencer quelle raison d'État. TA
-4 Il allait commencer quelle immense aventure. 6 ce 7
+Il allait commencer quelle immense aventure. 6 ce
 
 Il allait commencer quelle mésaventure. .
 Il allait commencer quelle immense prudence. SC ss
-Il allait commencer quelle jurisprudence. ne 4
-Il allaït inventer quelle bonaventure. 54
+Il allait commencer quelle jurisprudence. ne
+Il allaït inventer quelle bonaventure.
 y Il allait commencer quelle immense gageure. # #4
 Il allait commencer quel immense débat. l “4
-ET Il allait engager quel éternel combat. ‘ “02 5
+ET Il allait engager quel éternel combat. ‘ “02
 Il allaït encaisser quelle innombrable injure. 2 <
 | Il allait encaisser quels mauvais compliments. ; “4
 Il allait essuyer les mauvais boniments | ÈS
@@ -4849,7 +4847,7 @@ fi 5 “ Il allait essuyer l'immense reniement
 
 ‘4 De l'homme qui blasphème et de l'homme qui jure.
 
-1 Il allait écouter le sot balbutiement è
+Il allait écouter le sot balbutiement
 À ; Et le sot bégaiement par qui tout homme abjure.
 
 & Ainsi l'enfant dormait dans son premier oubli.
@@ -4860,7 +4858,7 @@ x Il allait commencer quelle éternelle histoire,
 
 Ka L'histoire de tout homme en terre enseveli.
 
-Là - Comme dormait Moïse au bord du fil de l'eau, S
+Là - Comme dormait Moïse au bord du fil de l'eau,
 
 # Ainsi l'enfant dormait dans l'ombre enseveli.
 
@@ -4888,9 +4886,9 @@ nu, Il allait demander quelle contrition. ag SE à
 
 ‘il Il allait embrasser l'insaisissable sort. AR:
 
-ce Il allait aborder l'inabordable port. 0e
+ce Il allait aborder l'inabordable port.
 
-_ Il allait commencer l'éternelle présence. ; 5e
+_ Il allait commencer l'éternelle présence.
 
 rs Il allait s'évader d'une éternelle absence. Ÿ He F)
 Il allait emporter l'inébranlable fort. AS
@@ -4898,10 +4896,10 @@ Il allait emporter l'inébranlable fort. AS
 ÿ Il allait refonder l'impérissable Rome. ne.
 
 Il allait refouler quelle perdition. ne.
-Il allait demander quelle démission, 1e
-Et quel désistement dans la terre et dans l'homme. 510
+Il allait demander quelle démission,
+Et quel désistement dans la terre et dans l'homme.
 
-1 Il allait assurer l'inébranlable Rome. FA » Il allait gouverner l'énorme nation. HUE 34
+Il allait assurer l'inébranlable Rome. FA » Il allait gouverner l'énorme nation. HUE
 
 + Il allait provoquer quelle démission, : RSS
 
@@ -4912,29 +4910,29 @@ Et quel désistement dans la terre et dans l'homme. 510
 
 Il allait décréter quelle démission, RE
 
-Et quel désistement dans le cœur de tout homme. “: 5h
+Et quel désistement dans le cœur de tout homme. “:
 
-1100 10
+1100
 
-1 Il allait hériter des provinces de Rome. 1%
-5 Il allait affirmer sa domination.
-4 Il allait confirmer quelle démission,
+Il allait hériter des provinces de Rome. 1%
+Il allait affirmer sa domination.
+Il allait confirmer quelle démission,
 ‘4 Et quel retranchement dans le cœur de tout homme.
 
 “À Il allait hériter de la ville de Rome.
 de Il allait diluer quelle obstination. :
-4 Il allait postuler quelle démission,
+Il allait postuler quelle démission,
 Et quel renoncement dans le cœur de tout homme.
 - Il allait hériter de la terre et de Rome
-3 Et de la mer violette et de l'âpre Sion. |
+Et de la mer violette et de l'âpre Sion. |
 à Il allait invoquer quelle démission, À
 : ee Et quel arrachement dans le cœur de tout homme. ;
 & Il allait hériter de l'empire et de Rome. %
 #. Il allait endurer quel mauvais traitement.
 D. Il allait revêtir quel pauvre vêtement :
 : Il allait hériter de la terre et de l'homme.
-4 Il allait hériter de l'antique trirème
-:-Ch Et des blés de Sicile et du droit de cité. » 12e
+Il allait hériter de l'antique trirème
+:-Ch Et des blés de Sicile et du droit de cité. »
 be : Et du Tibre latin et du pouvoir suprême. | &
 A. Et des peuples couchés sous la nécessité.
 
@@ -4944,23 +4942,23 @@ PASS "+ + les tapisseries = "PSC OONAIEES
 _  Ilallait hériter des antiques terreurs SE
 ”. _ Et des retournements dans la terre natale. TE
 _ Il allaït hériter du monde occidental, ES
-À De celui qui se lève aux colonnes d'Hercule. 5 564
-Il allait hériter d'un foudre ridicule, 1
-ee Et des débarquements du monde oriental. F4
+À De celui qui se lève aux colonnes d'Hercule.
+Il allait hériter d'un foudre ridicule,
+ee Et des débarquements du monde oriental.
 Il allait hériter du monde occidental, ‘ke
-De celui qui commence où finissait le monde. 150
-Il allait hériter de la vague profonde 54
-3 Et des refoulements du monde oriental. SÉ
-__ * Il allait hériter du monde occidental, : F3
+De celui qui commence où finissait le monde.
+Il allait hériter de la vague profonde
+Et des refoulements du monde oriental. SÉ
+__ * Il allait hériter du monde occidental,
 = Des cheveux des varechs et des verts goémons, .
 SE Il allait aveugler par ces nouveaux limons \ :
 : Les infiltrations du monde oriental. > ; Fe ;
-Il allait hériter du monde occidental, ‘4 M
+Il allait hériter du monde occidental, ‘4
 Et des pulsations de l'énorme océan. C2 À
-Il allait annuler par cet autre néant 25
-5 L'anéantissement du monde oriental. sa 4
+Il allait annuler par cet autre néant
+L'anéantissement du monde oriental. sa
 
-É * _ Ilallait hériter du monde occidental, | ÿ
+É * _ Ilallait hériter du monde occidental,
 #4 D'une vague plus lourde et d'une mer verdâtre.
 « Il allait consigner dans ses temples d'albâtre
 “#ù L'évanouissement du monde oriental.
@@ -4970,19 +4968,19 @@ i Il allait enfoncer sous les plis de cette onde
 A Et sous cet océan le monde oriental.
 Fe Il allait hériter du monde occidental, à.
 F D'une mer frauduleuse ensemble que profonde.
-4 Il allait submerger sous les plis de cette onde "
-4 Et de cet océan le monde oriental. ;
-2 Il allait hériter du monde occidental,
-£. Et des cheveux de l'algue et des longs cheveux verts, ï
+Il allait submerger sous les plis de cette onde "
+Et de cet océan le monde oriental. ;
+Il allait hériter du monde occidental,
+£. Et des cheveux de l'algue et des longs cheveux verts,
 "4 Et des plis de la vague et des chemins ouverts
 4 _ Loin du gouvernement du monde oriental. "ER
-: Il allait hériter du monde occidental, F2:
+: Il allait hériter du monde occidental,
 9) ; Des cheveux submergés et des longs cheveux blonds. AA
 "4 Et des bateaux poussés par d'autres aquilons Fa
 A Hors du gouvernement du monde oriental. :
 
 Il allait hériter du monde occidental, | | 15 Se
-F Et des plis de la vague et des plis du destin. : 4 EUR ts É
+F Et des plis de la vague et des plis du destin. : 4 EUR ts
 Et des peuples jaillis pour un nouveau festin 1: RTS
 ” Loin des prostrations du monde oriental. ; Fe
 Il allait hériter du monde occidental, RE
@@ -4996,74 +4994,74 @@ Et des éternités du monde oriental. de
 ns Il allait hériter d'une vague profonde { DEN
 La Et des écroulements et d'une mer plus glauque FU
 ne Et des écrasements et d'une voix plus rauque Poe:
-_ Et des effondrements d'un gigantesque monde. 140
+_ Et des effondrements d'un gigantesque monde.
 - Il allait hériter du monde occidental, ‘08
 Et des barques de pêche et des vaisseaux de charge. De
-= Il allait engloutir sous une mer plus large 4
+= Il allait engloutir sous une mer plus large
 Les circonspections du monde oriental. PNG
 
-: VO Il allait hériter d'un royaume tendu 5
+: VO Il allait hériter d'un royaume tendu
 ‘3 Comme un ballon gonflé de l'un à l'autre pôles.
 +8 Il allait hériter des palais et des geôles
-752 Et d'un gouvernement actif et détendu.
+Et d'un gouvernement actif et détendu.
 Fe - Il allait hériter du monde occidental,
 Ë Des horizons perdus au loin des promontoires,
-54 Et des peuples perdus au large des histoires
+Et des peuples perdus au large des histoires
 é Et des antiquités du monde oriental.
-ï Il allait hériter d'un royaume nouveau L
+ï Il allait hériter d'un royaume nouveau
 É Tendu de bout en bout comme une vaste tente. |
-11 Il allait hériter d'une éternelle attente.
+Il allait hériter d'une éternelle attente.
 x Il allait rejaillir de l'antique caveau.
 Il allait hériter d'un royaume géant.
 # Il allait hériter d'un monde gigantesque.
 É | Il allait hériter de cet autre néant
-14 Gardé par des bourreaux et de la soldatesque.
+Gardé par des bourreaux et de la soldatesque.
 .. Il allait hériter de ce gouffre béant, se
 ‘4 Il allait hériter de ce couple géant,
 
 & ” les lapisséries "1" NES
 Il allait hériter du monde temporel, ; f k CHA
 é D'une création épaisse et gouvernée. FPS
-Il allait hériter du monde corporel, 2
+Il allait hériter du monde corporel,
 __ D'une création pauvresse et prosternée. : Fr
 Il allait hériter des rondes basiliques ‘SR
 | Et du palais des rois et des pauvres cabanes. :
-| Il allait hériter des grandes républiques 3
+| Il allait hériter des grandes républiques
 Et des peuples sacrés et des peuples profanes. ‘A
 - Il allait hériter de ce monde charnel, £
-D'une création épaisse et condensée. 24
-Il allait hériter du monde originel, F3
-D'une création antique et entassée. ÿ 4
+D'une création épaisse et condensée.
+Il allait hériter du monde originel,
+D'une création antique et entassée.
 Il allait hériter des plus vastes royaumes 5“
 Et des préfets perdus dans les gouvernements. » à
 
-Il allait hériter des plus modestes chaumes L
+Il allait hériter des plus modestes chaumes
 
 Et des peuples courbés dans les prosternements. à
-Il allait hériter des couronnes murales, M.
-; Des fossés, des créneaux et des retranchements. s
+Il allait hériter des couronnes murales,
+; Des fossés, des créneaux et des retranchements.
 Il allait ériger les hautes cathédrales +
-À Sur le mouvant débris de nos arrachements. é
+À Sur le mouvant débris de nos arrachements.
 
-_ Il allait hériter des chambres sépulcrales. S:
+_ Il allait hériter des chambres sépulcrales.
 * Il allait hériter de la herse et des tours.
 ne: Il allait ériger les hautes cathédrales
-4 Sur le mouvant débris des plus fermes amours. <
+Sur le mouvant débris des plus fermes amours. <
 à Il allait hériter des listes cadastrales.
-3 Il allait hériter des plus fermes amours.
-+ Il allait ériger les hautes cathédrales É
+Il allait hériter des plus fermes amours.
++ Il allait ériger les hautes cathédrales
 à Sur le mouvant débris du déclin de nos jours.
 à Il allait hériter des listes cadastrales, is
 # De la borne et du champ que nous tenons toujours. *
 E. _ Et des propriétés qui règnent dans les bourgs
 à Jusque sur le parvis des saintes cathédrales. #5
 F Il allait hériter des listes cadastrales, ;
-4 Des champs que nous coupons et que nous recoupons,
+Des champs que nous coupons et que nous recoupons,
 ; 4 Des prés que nous taillons et que nous retaillons
 j 4 Jusque sur le parvis des saintes cathédrales. Fe
-4 _ Il allaït hériter des listes cadastrales, 3
+4 _ Il allaït hériter des listes cadastrales,
 FH _ Des bois que nous payons et que nous découpons, RÉ
-be - _ Des lots que nous marquons et que nous démarquons 4
+be - _ Des lots que nous marquons et que nous démarquons
 - Jusque sur le parvis des saintes cathédrales. :
 
 les tapisseries 410 UNION
@@ -5074,11 +5072,11 @@ it Jusque sur le parvis des saintes cathédrales. cn
 * Jlallait hériter des listes cadastrales, LS
 Des droits que nous coupons et que nous découpons,
 Et des propriétés qu'à force nous poussons DAS
-Jusque sur le parvis des saintes cathédrales. 5
+Jusque sur le parvis des saintes cathédrales.
 Il allait hériter des listes cadastrales, LA
 Des lois que nous coupons et que nous recoupons, À
-Et des pénalités qu'à force nous poussons 5
-Jusque sur le parvis des saintes cathédrales. 4
+Et des pénalités qu'à force nous poussons
+Jusque sur le parvis des saintes cathédrales.
 Il allait hériter des listes cadastrales, rt
 Des rois que nous marquons et que nous démarquons,
 Et des hérédités qu'à force nous poussons Ko
@@ -5092,51 +5090,51 @@ Et le plus besogneux des barons d'alentour. ie
 
 È Le Des rois que nous posons et que nous déposons,
 
-4 Des légitimités que nous acheminons
+Des légitimités que nous acheminons
 
 …__ - Jusque sur le parvis des saintes cathédrales. ;
 
-53 Il allait hériter des listes cadastrales, $
+Il allait hériter des listes cadastrales, $
 À Des saints que nous chômons et que nous oublions, Fe
 sf Et des crédulités qu'à force nous poussons |
-4 Jusque sur le parvis des saintes cathédrales. [
+Jusque sur le parvis des saintes cathédrales. [
 
-ue Il allait hériter des listes cadastrales, k
+ue Il allait hériter des listes cadastrales,
 
 ‘54 Des morts que nous aimons et que nous enterrons, ;
 
 "1% Et des fidélités qu'à force nous poussons ,
 “#4 Jusque sur le parvis des saintes cathédrales.
 
-4 Il allait hériter des listes cadastrales,
-4 Des chœurs que nous chantons et que nous déchantons,
-% Et des docilités qu'à force nous poussons k
+Il allait hériter des listes cadastrales,
+Des chœurs que nous chantons et que nous déchantons,
+% Et des docilités qu'à force nous poussons
 1% Jusque sur le parvis des saintes cathédrales. pr
 _.  Ilallait hériter des listes cadastrales, té
 Eee Des mœurs que nous gardons et que nous désertons, a
 … Et des moralités qu'à force nous poussons <
-:% Jusque sur le parvis des saintes cathédrales. 7
+:% Jusque sur le parvis des saintes cathédrales.
 
 | Ilallait hériter des listes cadastrales, ai mi:
 sa Des cœurs les plus aimés que nous avons perdus, CS
 Le ‘ Des êtres les plus chers, que nous avons rendus LENS
 e Au maître incontesté des hautes cathédrales. Fr
-5 Il allait hériter des listes cadastrales, LATE
+Il allait hériter des listes cadastrales, LATE
 __ Des mœurs que nous réglons et que nous déréglons. re
-. Et des infirmités que nous acheminons : F5
+. Et des infirmités que nous acheminons
 ; Jusque sur le parvis des saintes cathédrales, Le
 Il allait hériter des listes cadastrales, ‘2
 Des limitations qui font tant de détours, AE
 Et des cheminements de nos pauvres amours AE
-| Jusque sur le parvis des saintes cathédrales. 1e
+| Jusque sur le parvis des saintes cathédrales.
 ki Il allait hériter des listes cadastrales, « HE
-1 Et des discernements de nos maigres labours, à ci.
+Et des discernements de nos maigres labours, à ci.
 A Et des recreusements de nos pauvres amours AT Le
 Jusque sous le parvis des saintes cathédrales. LA
 j Il allait hériter des listes cadastrales, , à .
 Et des recoupements de nos maigres labours, du,
 : Et des recensements de nos pauvres amours ae
-#2 Jusque sous le parvis des saintes cathédrales. pe F0
+#2 Jusque sous le parvis des saintes cathédrales. pe
 
 £ Il allait hériter des listes cadastrales,
 | Et du délabrement de nos pauvres dieux termes.
@@ -5169,27 +5167,27 @@ __ Avant de retourner au seuil des cathédrales.
 
 î les tapisseries ©0000 His. AUS
 Il allait hériter des listes cadastrales, ARMES
-Des sentiers de Saint-Marc et de Saiïnt-Jean-de-Braye, o
+Des sentiers de Saint-Marc et de Saiïnt-Jean-de-Braye,
 ; Qui s'en vont dans la ronce et parmi l'oseraie ; Co
-à Avant de retomber au pied des cathédrales. 3
+à Avant de retomber au pied des cathédrales.
 | Il allait hériter des listes cadastrales, ë *
-De nos chemins véreux qui se perdent toujours x
+De nos chemins véreux qui se perdent toujours
 Et qui vont se nouer sur les places des bourgs
 Avant de s'effiler au pied des cathédrales.
 Il allait hériter des listes cadastrales, a
 De nos chemins pierreux qui se perdent toujours, à
-Et qui vont s'égarer au fond des vieux faubourgs i
+Et qui vont s'égarer au fond des vieux faubourgs
 Avant de disparaître au pied des cathédrales. ;
 < Il allait hériter des listes cadastrales,
 Qui nous font rois d'un jour dans un pauvre village.
 Et maîtres d'un sentier dans un pauvre bailliage. :
 Et maîtres d'une chaise aux chœurs des cathédrales. }
 Il allait hériter des listes cadastrales, |
-Qui nous font rois d'un jour dans un quartier de terre, 1
-Et maîtres de marcher dans un sentier de pierre, 1
-Et maîtres de dormir aux pieds des cathédrales. 12
+Qui nous font rois d'un jour dans un quartier de terre,
+Et maîtres de marcher dans un sentier de pierre,
+Et maîtres de dormir aux pieds des cathédrales.
 
-Fa # Il allait hériter des listes cadastrales, : j
+Fa # Il allait hériter des listes cadastrales,
 “4 Des enregistrements de nos quartiers de terre,
 ‘23 Dés délinéaments de nos sentiers de pierre,
 Re De nos prosternements au pied des cathédrales.
@@ -5198,7 +5196,7 @@ RE. Il allaït hériter des listes cadastrales,
 
 L: Et des abornements de nos pauvres vertus,
 
-: Des destitutions de nos pauvres statuts, J
+: Des destitutions de nos pauvres statuts,
 
 He. De nos processions au pied des cathédrales.
 
@@ -5207,25 +5205,25 @@ ss « f Il allait hériter des listes cadastrales,
 La Des grands que nous craignons et que nous harcelons,
 S Des biens que nous gagnons et que nous morcelons,
 
-254 Des morts que nous couchons au pied des cathédrales.
+Des morts que nous couchons au pied des cathédrales.
 
 Fe Il allait hériter des listes cadastrales,
 
 Fe Des départagements de nos parts de misère
 
-8 Et des lotissements de nos lots de poussière :
+Et des lotissements de nos lots de poussière :
 
 j Et de nos lots d'orgueil au pied des cathédrales.
 
-30 Il allait hériter des listes cadastrales,
+Il allait hériter des listes cadastrales,
 
 : 408 Des enregistrements de nos propriétés,
 
-# Des consécrations de nos humilités, È
+# Des consécrations de nos humilités,
 
-É K De nos retournements au pied des cathédrales. 4
+É K De nos retournements au pied des cathédrales.
 
-__ Ilallait hériter des listes cadastrales 27
+__ Ilallait hériter des listes cadastrales
 Qui nous font rois d'un jour dans un pauvre canton ÿ HAE
 ne Et maîtres d'avancer un double phaéton FES
 Et maîtres d'une tombe au pied des cathédrales. ReSUe
@@ -5233,74 +5231,74 @@ F. _ Il allait hériter des listes cadastrales s $ “pe
 4 _ Qui nous font rois d'un jour dans un dernier naufrage
 _ Et maîtres d'un cocher et d'un pauvre équipage, .: SE
 $ Et maîtres d'une croix au pied des cathédrales. RS
-Il allait hériter des listes cadastrales Er 1
+Il allait hériter des listes cadastrales Er
 Qui nous font redoutés dans un pauvre canton, Sa
 | Et maîtres de pourrir au pied des cathédrales. #
-# Il allait hériter des listes cadastrales, à 3
-a De nos sentiers perdus qui vont dans les lilas 74
+# Il allait hériter des listes cadastrales, à
+a De nos sentiers perdus qui vont dans les lilas
 y Et que nous parcourons solitaires et las : Sa
 Avant de retomber au pied des cathédrales. È ‘1
-Il allait hériter des listes cadastrales, j F 2
+Il allait hériter des listes cadastrales,
 De nos chemins perdus parmi les routes neuves CR
 Et qui flänent perdus dans les osiers des fleuves Fe
 F Avant de remonter au pied des cathédrales. | > #4
 
-ne Il allait hériter des listes cadastrales, in 4
+ne Il allait hériter des listes cadastrales, in
 F ÿ De nos chemins perdus qui vont le long des treilles ;
 * Dans le bourdonnement des mouvantes abeilles ;
-3 Avant de retourner au pied des cathédrales.
+Avant de retourner au pied des cathédrales.
 $ Il allait hériter des listes cadastrales,
 16e De nos chemins perdus qui vont dans les venelles
-1 Et parmi les jets d'eaux et parmi les tonnelles
+Et parmi les jets d'eaux et parmi les tonnelles
 ; Avant de retomber au pied des cathédrales.
-5 Il allait hériter des listes cadastrales, 3
-V2 Et du répartement du peu que nous avons, ë
+Il allait hériter des listes cadastrales,
+V2 Et du répartement du peu que nous avons,
 de Et de l'encombrement du peu que nous savons,
-A Et des alignements des chambres sépulcrales. 3
+A Et des alignements des chambres sépulcrales.
 va Il allait hériter des listes cadastrales,
 “3 De nos chemins perdus qui vont dans les fraisiers
 Fa Et parmi la glycine et le long des rosiers
 “ Avant de comparaître au pied des cathédrales.
-CA Il allait hériter des listes cadastrales, É
+CA Il allait hériter des listes cadastrales,
 TRE Et du gouvernement de ce rien que nous sommes,
 Ke. Et des biens de la terre et de nous autres hommes, à
 n__ Et du vieux baptistère et des ondes lustrales.
 
-13 La, les tapisseries} ANNE
+La, les tapisseries} ANNE
 Il allait hériter des listes cadastrales } LITRES
 Qui nous font les premiers dans un pauvre village l'ISS
-5 Et qui nous font seigneurs sur tout le voisinage ë +
-de Et même sur les bancs des chœurs des cathédrales. NÉE d
+Et qui nous font seigneurs sur tout le voisinage ë +
+de Et même sur les bancs des chœurs des cathédrales. NÉE
 _ Il allait démêéler aux souches cadastrales FE
 & L'écheveau des contours de nos propriétés, ; fo
-$ Le réseau des retours de nos hérédités, 54
+$ Le réseau des retours de nos hérédités,
 Les droits que nous avons aux chambres sépulcrales. PS
-; Il allait retrouver aux souches cadastrales 2
+; Il allait retrouver aux souches cadastrales
 Nos titres de naissance et notre hérédité, LE
 Les parts que nous avons aux chambres sépulcrales. 32280
-A Il allait retrouver aux souches cadastrales x
+A Il allait retrouver aux souches cadastrales
 nt Les lots que nous avons aux chambres sépulcrales. Du
 Il allait retrouver aux souches cadastrales nee
-Nos titres de roture et de légalité, 120
+Nos titres de roture et de légalité,
 Le droit que nous avons aux chambres sépulcrales. (is y
 
-Les pas des légions avaient marché pour lui. 40
-# Les voiles des bateaux pour lui s'étaient gonflées. j
+Les pas des légions avaient marché pour lui.
+# Les voiles des bateaux pour lui s'étaient gonflées.
 De Pour lui les grands soleils d'automnes avaient lui.
-1 Les voiles des bateaux pour lui s'étaient pliées.
+Les voiles des bateaux pour lui s'étaient pliées.
 É: __ Rome avait fait marcher les lourds légionnaires |
 K Et le lourd bouclier et le glaive pour lui,
-4 Et la lourde tortue. Et les durs mercenaires
-3 Devant Rome et César et le glaive avaient fui.
-4 C'était lui qui marchait derrière le Romain, RS
+Et la lourde tortue. Et les durs mercenaires
+Devant Rome et César et le glaive avaient fui.
+C'était lui qui marchait derrière le Romain, RS
 | Derrière le préfet, derrière la cohorte. #
 Ë C'était lui qui passait par cette haute porte. EC ;
-Il était le seigneur d'hier et de demain. L
+Il était le seigneur d'hier et de demain.
 u Et les pas d'Annibal avaient marché pour lui |
 g Du fin fond des déserts vers la porte Colline. |
-É Jusqu'au fond des frimas les Parthes avaient fui k
-Ex Sous le redoublement de la force latine. k
-4 Les éléphants d'Afrique avaient marché pour lui A
+É Jusqu'au fond des frimas les Parthes avaient fui
+Ex Sous le redoublement de la force latine.
+Les éléphants d'Afrique avaient marché pour lui A
 “, Du fin fond des déserts jusqu'aux portes de Rome. De
 2: Et pour lui les soleils d'Israël avaient lui, | AN
 De Du haut du Sinaï jusqu'au fin fond de l'homme. use
@@ -5314,33 +5312,33 @@ Ds D'un empire brisé par des morcellements. LA Me
 La Il allait hériter des partages de l'homme, Re
 _ D'un royaume épuisé par des ruissellements. : VERS
 Les éléphants massus avaient marché pour lui, ee
-Et les princes captifs et les peuples liés. HA 7
+Et les princes captifs et les peuples liés. HA
 Et pour lui les soleils d'Israël avaient lui ne
-__- Le long du fil du temps sur des jours oubliés. FL 4
+__- Le long du fil du temps sur des jours oubliés. FL
 Ex, Il allait hériter des lourds légionnaires, LT
 a Tout harnachés de fer comme des cuirassiers. FA
-sa Il allait hériter des maigres mercenaires, 408
+sa Il allait hériter des maigres mercenaires,
 "si Tout harnachés de cuir comme des carnassiers. Re
 Il allait hériter des lourds légionnaires, Re
 Tout en muscles de fer comme des cuirassiers. je
 ; Il allait hériter des maigres mercenaires, _ UNIES
-; Tout en paquets de nerfs comme des carnassiers. 11e É
+; Tout en paquets de nerfs comme des carnassiers.
 
 |  Ilallait hériter des lourds légionnaires
-‘2 Gaiïinés dans des étuis comme des scarabées. Ë
-F Il allait hériter des martyrs Macchabées. s
+‘2 Gaiïinés dans des étuis comme des scarabées.
+F Il allait hériter des martyrs Macchabées.
 ne Il allait hériter des maigres mercenaires.
-st Il allait hériter des peuples débonnaires 4
+st Il allait hériter des peuples débonnaires
 ÿ Et des peuples cruels et du peuple romain.
-; Il allait hériter des antiques tonnerres, ô
+; Il allait hériter des antiques tonnerres,
 ; Des foudres oubliés sur le bord du chemin.
-M Il allait hériter des peuples centenaires, x
+M Il allait hériter des peuples centenaires,
 + Des peuples nouveau-nés et du peuple romain. Ep
 Re: Il allait hériter des foudres séculaires, LP
 de. Et des étonnements laissés sur le chemin.
-4 Il allait hériter des princes débonnaires
-10 Et des princes cruels et du peuple monarque.
-# Il allait hériter des princes sanguinaires 1
+Il allait hériter des princes débonnaires
+Et des princes cruels et du peuple monarque.
+# Il allait hériter des princes sanguinaires
 “à Et des peuples humains et d'Hérode tétrarque. -
 4 4 4 Il allait hériter des peuples diplomates.
 “7 Et des consternements d'un peuple sénateur. eR
@@ -5356,14 +5354,14 @@ _ Tout lamellés de fer comme des scarabées. je 1e à
 S Il allait hériter des géants Macchabées. pe |
 Il allait hériter des maigres mercenaires. ra
 Il allait hériter des lourds légionnaires ‘ ‘a
-Bardés, plaqués, lamés comme des cuirassiers. 5
-É Il allait hériter des maigres mercenaires ; F8
+Bardés, plaqués, lamés comme des cuirassiers.
+É Il allait hériter des maigres mercenaires
 Battus, creusés, tendus comme des carnassiers. i me:
-2 Il allait hériter des lourds légionnaires Re
+Il allait hériter des lourds légionnaires Re
 va Tout bardés de métal comme de grands carabes. ME,
 0e Il allait hériter des cavaliers arabes. } VS
 : Il allaït hériter des maigres mercenaires. Er
-. Il allaït hériter des lourds légionnaires : 23
+. Il allaït hériter des lourds légionnaires
 Trapus, musclés, barbus comme des cuirassiers. “ En.
 Il allait hériter des maigres mercenaires ANT:
 PA: Tout tendus de tendons comme des carnassiers. me me
@@ -5372,12 +5370,12 @@ _ Il allait hériter des lourds légionnaires
 _  Sanglés dans la rudesse et la force romaine. |
 __  Ilallait hériter des maigres mercenaires ;
 .  Noueux et ravinés comme une écorce humaine. \
-4 Et les peuples de Rome et les légionnaires
+Et les peuples de Rome et les légionnaires
 __  Étaient comme des chiens rompus à toute garde.
 _ Et les hordes d'Afrique à la face hagarde
 4% Étaient comme des loups maigres et mercenaires.
-Et les peuples de Rome et les légionnaires ï
-4 Sous les centurions étaient d'énormes dogues. Ne
+Et les peuples de Rome et les légionnaires
+Sous les centurions étaient d'énormes dogues. Ne
 n__ Et les loups de Carthage impérieux et rogues bé %
 _ Sous les négociants demeuraient mercenaires.
 
@@ -5395,12 +5393,12 @@ __ Se payaient d'avoir fait un monde centenaire. ; LA
 se Mais ces peuples profonds, les lourds légionnaires NN
 ee Se payaient d'avoir fait une immense nature. | CHOSES
 : Et ces peuples véreux, les maigres mercenaires, BC.
-Fe Se payaient d'or, d'argent, de luxe et de bavure. 0
+Fe Se payaient d'or, d'argent, de luxe et de bavure.
 f Mais ces peuples terreux, les lourds légionnaires DRE
 À Se payaient d'avoir fait une immense armature. RAS
-Ces peuples ramassés, ces brûlants mercenaires 10
-Étaient comme des loups maigres et décharnés. 2
-8 Ces peuples assemblés, ces lourds légionnaires : 258
+Ces peuples ramassés, ces brûlants mercenaires
+Étaient comme des loups maigres et décharnés.
+Ces peuples assemblés, ces lourds légionnaires
 Etaient des chiens de garde ardents et acharnés. Me
 
 Et ces peuples crevés, ces âcres mercenaires Des
@@ -5409,13 +5407,13 @@ Mais ces peuples sevrés, les grands légionnaires : 1 #60)
 ; Se payaient d'avoir fait une magistrature. ; 5010
 Les Romains préposés à la garde du monde 7.76
 Étaient assis en rond devant les triples portes. À ke.
-Et l'univers était une immense rotonde tee 4
+Et l'univers était une immense rotonde tee
 Sous le gouvernement de deux mille cohôrtes. 1 à
 
 _ Et les peuples payés en outre se frayaient
 . Une route de sang effroyable et profonde.
 É Mais les soldats romains en outre se payaient
-3 Par le gouvernement de l'empire du monde.
+Par le gouvernement de l'empire du monde.
 
 Et les peuples payés en outre se frayaient ‘
 F Une route d'horreur solennelle et profonde. +
@@ -5429,7 +5427,7 @@ F Et des peuples déserts et des races fertiles.
 ss Il allait hériter des peuples inactifs
 hi _ Et des peuples bourreaux et du peuple martyr. ,
 FA Il allait hériter des Romaïns et des Juifs.
-74 Il allaït hériter des frondeurs baléares,
+Il allaït hériter des frondeurs baléares,
 __/ Du bouclier gaulois et du glaive romain. |
 É -_ Il allait hériter des héritiers barbares.
 h_ Ilallait hériter de l'héritier latin. ;
@@ -5439,7 +5437,7 @@ TR Il allait hériter des cavaliers numides TÉL a pet
 7148 Il allait hériter du rude Micipsa. l'srat os
 ne c Il allaït hériter des hautes Pyramides. ar NT
 Et les pas d'Alexandre avaient marché pour lui, ia De
-“Hi De son jeune berceau jusqu'à sa jeune mort. 154
+“Hi De son jeune berceau jusqu'à sa jeune mort.
 ; Il était le seigneur d'hier et d'aujourd'hui. TL
 Et les pas d'Hérodote avaient marché pour lui. 21 FES
 Il était le seigneur de l'un et l'autre sort. LE
@@ -5454,7 +5452,7 @@ a Et de la monstrueuse et sanglante caverne, <eel
 s C'est lui qu'on attendait dans l'immense univers. + LENS
 + Il était le seigneur d'hier et d'aujourd'hui. Dal ER TES
 
-4 Les pas de Darius avaient marché pour lui.
+Les pas de Darius avaient marché pour lui.
 C'est lui qu'on attendait au fin fond de la Perse.
 É C'est lui qu'on attendait dans une âme disperse.
 Il était le seigneur d'hier et d'aujourd'hui.
@@ -5473,7 +5471,7 @@ Tout homme aboutissait aux pieds du divin fils.
 7 . 2 .
 2. Et les pas d'Alexandre avaient marché pour lui
 : 19) Du palais paternel aux rives de l'Euphrate.
-| Et le dernier soleil pour lui seul avait lui à j
+| Et le dernier soleil pour lui seul avait lui à
 Be - Sur la mort d'Aristote et la mort de Socrate. ;
 
 Et les voleurs de jour et les voleurs de nuit Le ARE
@@ -5483,7 +5481,7 @@ de Ensemble aboutissaient à ce frêle vaisseau. IFRS Ée
 k Et les voleurs de jour et les voleurs de nuit i En
 | Ensemble aboutissaient à ce pauvre trousseau. ns De Le
 Et les routes d'hier et celles d'aujourd'hui . er
-Ensemble aboutissaient à ce pauvre hameau. 1e
+Ensemble aboutissaient à ce pauvre hameau.
 Et les voleurs de jour et les voleurs de nuit “PE
 Ensemble aboutissaient à cet humble tréteau. - BU:
 Et les villes d'hier et celles d'aujourd'hui ie se À
@@ -5492,35 +5490,35 @@ Il allait hériter du chêne de Dodone LES
 Et des sapins d'Ithaque et des cèdres bibliques. LA
 Il allait hériter des grandes Républiques SRE
 : Et des prosternements près du bourg de Colone. L'eb
-À Et les pas de la Grèce avaient marché pour lui, 1 RU 0
+À Et les pas de la Grèce avaient marché pour lui, 1 RU
 Des bords de l''Eurotas aux rives du Scamandre. CEE 5%
 Et pour lui les soleils de la Grèce avaient lui RSS
 __ -Des sources d'Aréthuse aux détours du Méandre. Len.
 
-Et l'antique Hellade avait marché pour lui L
+Et l'antique Hellade avait marché pour lui
 
 _ Des quais de Syracuse aux bords du Simoiïs.
 - Et les derniers soleils pour lui seul avaient lui
 “ Du haut du Taygète aux détroits de Chalcis.
 L'antique Agamemnon avait marché pour lui
-14 Du palais de son père au camp devant Aulis.
+Du palais de son père au camp devant Aulis.
 . _ Les soleils du retour pour lui seul avaïent lui :
 D: Des bords de la Troade au temple d'Éleusis.
-br 2 : Les rêves de Platon avaient marché pour lui Ÿ
+br 2 : Les rêves de Platon avaient marché pour lui
 de ÿ Du cachot de Socrate aux prisons de Sicile. #4
 _ Les soleils idéaux pour lui seul avaient lui. *
-- Et pour lui seul chanté le gigantesque Eschyle. k
+- Et pour lui seul chanté le gigantesque Eschyle.
 Les règles d'Aristote avaient marché pour lui |
 Du cheval d'Alexandre aux règles scholastiques.
 #4 Et pour lui l'ascétisme et la règle avaient lui
 2 _ Des règles d'Épicure aux règles monastiques.
 ee FA Les règles de Zénon avaient marché pour lui,
 _ Des siècles détendus aux siècles ascétiques.
-4 LA . Et pour lui Pythagore et la règle avaient lui :
+LA . Et pour lui Pythagore et la règle avaient lui :
 M. Des règles de calcul jusqu'aux règles mystiques. Le
 
 les tapisseries FREE LR SA
-Il allait hériter de l'école stoïque. re 4
+Il allait hériter de l'école stoïque. re
 Il allait hériter de l'héritier romain. ? Ro
 Il allait hériter du laurier héroïque. : : #4
 di Il allait hériter de tout l'effort humain. A.
@@ -5535,18 +5533,18 @@ Il allait hériter d'un monde déjà fait. & :
 
 Et pourtant il allait tout entier le refaire. Ne
 
-Il allait déborder de la cause à l'effet 1
+Il allait déborder de la cause à l'effet
 
-| Comme un fleuve déborde et gagne une autre terre. É
-Il allait hériter d'un monde déjà fait. 2
+| Comme un fleuve déborde et gagne une autre terre.
+Il allait hériter d'un monde déjà fait.
 
 Et pourtant il allait tout nouveau le refaire. dE
 
-Il allait défluer de la cause à l'effet PR 3
+Il allait défluer de la cause à l'effet PR
 Comme un monde déflue et gagne une autre sphère. (2
-Il allait hériter d'un monde déjà fait. 4
-Et pourtant il allait tout jeune le refaire. 4
-Il allait procéder de la cause à l'effet 06
+Il allait hériter d'un monde déjà fait.
+Et pourtant il allait tout jeune le refaire.
+Il allait procéder de la cause à l'effet
 Comme le Fils procède en descendant du Père. \-2
 
 + Il allait hériter d'un monde circonscrit '
@@ -5570,7 +5568,7 @@ E. % De l'annulation des plus grands municipes.
 ë 11 allait hériter de Socrate et Platon
 Par l'affadissement des plus fermes principes.
 
-as SE 4 1 allait hériter dans son pauvre canton th #0 k
+as SE 4 1 allait hériter dans son pauvre canton th #0
 “+ _ De la sénilité des plus grands municipes.
 Il allait hériter d'Aristote et Platon DEF ENATUOSSS
 - _ Par la prostration des plus fermes principes. 1.7 ELASREES
@@ -5580,9 +5578,9 @@ Par notre ingratitude et nos morcellements, FE EF
 _ . Par notre platitude et nos nivellements; me.
 "6 Dieu qui rangerez sur un dernier cadastre RS.
 ô Dieu qui classerez dans ce commun désastre FF
-45 Nos titres de régime et de caducité; +1
-Fe ô Dieu qui dresserez un bien autre cadastre f M
-> Pour nos parts de fortune et nos lotissements, 4
+Nos titres de régime et de caducité; +1
+Fe ô Dieu qui dresserez un bien autre cadastre
+> Pour nos parts de fortune et nos lotissements,
 Dieu qui gouvernerez un bien autre désastre D Le
 _ Que nos coups d'infortune et nos terrassements; J HE
 ÿ Seigneur qui classerez pour un dernier cadastre # ER
@@ -5590,14 +5588,14 @@ FS Seigneur qui rangerez dans ce commun désastre ë à QE
 
 …_ Veuillez nous rechercher pour ce dernier cadastre
 
-1 À Des biens moins temporels, des titres moins vulgaires, r
+À Des biens moins temporels, des titres moins vulgaires,
 
 : 4 Veuillez nous rechercher dans ce commun désastre
 E Dans le surnaturel des titres moins précaires.
 
-2 Veuillez nous rechercher pour ce dernier cadastre
+Veuillez nous rechercher pour ce dernier cadastre
 
-2 Et pour le règlement des comptes de misères,
+Et pour le règlement des comptes de misères,
 
 SP Veuillez nous rechercher dans ce commun désastre
 
@@ -5611,9 +5609,9 @@ Ge. Veuillez nous retrouver des sources moins communes.
 
 ‘4 Veuillez nous préparer un autre avènement.
 
-È 1 Veuillez nous rechercher des biens incorporels i
+È 1 Veuillez nous rechercher des biens incorporels
 
-#. Qui nous soient gratuits et ne soient pas de nous. F
+#. Qui nous soient gratuits et ne soient pas de nous.
 
 1. Seigneur nous n'avons rien que nos biens naturels
 
@@ -5621,7 +5619,7 @@ Ge. Veuillez nous retrouver des sources moins communes.
 
 44 3 Veuillez nous dépouiller de nos vieilles rancunes.
 
-42 Veuillez nous revêtir de vos désarmements.
+Veuillez nous revêtir de vos désarmements.
 
 nu: Veuillez nous ménager des rades opportunes.
 “à Veuillez nous préparer de grands débarquements. : À
@@ -5632,26 +5630,26 @@ Qui nous soient gracieux et ne soient pas de nous.
 F Seigneur nous n'avons rien que nos biens naturels Re
 É Et le fléchissement de nos raides genoux. Lee
 
-Veuillez nous dépouiller de nos vieilles-fortunes. 0
+Veuillez nous dépouiller de nos vieilles-fortunes.
 Veuillez nous revêtir de votre pauvreté. +4
 Veuillez nous préparer des morts moins importunes. is
 Veuillez nous assurer de votre sûreté. he
 
-Veuillez nous rechercher des biens surnaturels. < F4
-Seigneur nous n'avons rien que notre humble nature. F5
+Veuillez nous rechercher des biens surnaturels. <
+Seigneur nous n'avons rien que notre humble nature.
 
-Veuillez nous dispenser des biens moins naturels. 124
+Veuillez nous dispenser des biens moins naturels.
 Veuillez nous ménager votre magistrature. Si
 
 - Veuillez nous dépouiller de nos vieilles ordures. à
-Veuillez nous revêtir de votre pureté. 2e
+Veuillez nous revêtir de votre pureté.
 Veuillez nous dépouiller de nos investitures. el
 
 Veuillez nous revêtir de votre dureté. Fe
 Veuillez nous rechercher ce que nous n'avons pas. TS
-Nous n'avons que nos cœurs et nos biens périssables. 54
+Nous n'avons que nos cœurs et nos biens périssables.
 
-Veuillez nous dévoiler après le dernier pas 7.
+Veuillez nous dévoiler après le dernier pas
 
 Le long bouillonnement des eaux intarissables. PRES
 
@@ -5661,7 +5659,7 @@ Et parmi tant d'outrage et de biens corporels
 
 ‘ Le sillon du collier dans la peau de nos cous.
 
-5 Veuillez nous rechercher ce que nous n'avons pas,
+Veuillez nous rechercher ce que nous n'avons pas,
 
 ” Maître des biens caducs et des impérissables.
 Après le dernier jour et le dernier trépas,
@@ -5693,11 +5691,11 @@ Des fossés, des créneaux, des encorbellements. F An
 Des palais, des châteaux et des morcellements. ASS
 _ Il allait hériter des colonnes rostrales. FES gi
 ÿ Il allait hériter des victoires nautiques, “F4
-Il allait hériter des désastres antiques, |: 22
+Il allait hériter des désastres antiques, |:
 Et de l'écroulement des murs de Palestine. ue
 : Il allaït hériter des vertes Feuillantines % RO
 ‘ Et du génie autant que de la sainteté. Da Fu
-_ Il allait hériter des fréles brigantines, 17
+_ Il allait hériter des fréles brigantines,
 _ Ilallait hériter du plus lointain écho, < + br À
 Du plus ancien tonnerre et du premier ramage. 1 CNE
 Et de l'écroulement du plus ancien village. LES
@@ -5708,10 +5706,10 @@ __  Ilallait hériter des suppliants antiques, ,
 
 _ Il allait hériter du fronton et du socle
 
-1 Et du vieillard aveugle et des dèmes attiques. à
+Et du vieillard aveugle et des dèmes attiques. à
 4 . Il allaït hériter des sables des déserts
 
-1 Et des ruisseaux de lait et des ruisseaux de miel.
+Et des ruisseaux de lait et des ruisseaux de miel.
 
 1 : Et des vallons ombreux et des chemins couverts,
 
@@ -5721,10 +5719,10 @@ _ Il allait hériter du fronton et du socle
 
 . Il allaït hériter plus encor des vaincus.
 
-2 Il allait hériter des désastres d'écus.
+Il allait hériter des désastres d'écus.
 
-ET: Il allait hériter des désastres mystiques. 1
-4 Il allait hériter des victoires nautiques
+ET: Il allait hériter des désastres mystiques.
+Il allait hériter des victoires nautiques
 
 ; Et de la grâce autant que de la liberté.
 
@@ -5732,30 +5730,30 @@ Dr: Il allait hériter des licences antiques
 
 | : Et de la race autant que de la volupté.
 
-1 Il allait hériter de la voile latine
+Il allait hériter de la voile latine
 
 à. Et du pays sabin et de l'orbe du monde.
-Fe Il allait hériter de la vague profonde 4 1
+Fe Il allait hériter de la vague profonde
 
 Il allait hériter de la courbe nautique De
 Il allait hériter de la sagesse antique ‘| CAPI
-__ Etdu délire autant que de droite raison. 114
+__ Etdu délire autant que de droite raison.
 Il allait hériter de la prose latine, Mn
-Et du verbe latin il en ferait ses proses. à ‘ À 5
+Et du verbe latin il en ferait ses proses. à ‘ À
 De l'églantier latin il en ferait ses roses. NS
-_ Et de l'écroulement d'un temple en Palestine | 428
+_ Et de l'écroulement d'un temple en Palestine
 _ Ilen ferait son temple et son arche éternelle. É: “à
 Des tentes d'Israël ferait son tabernacle. - : En:
-Des crèches de Noël ferait son habitacle 15
+Des crèches de Noël ferait son habitacle
 Et sa niche de saint et sa couche charnelle. #4
 Des reposoirs ferait toute sa résidence. np. ne.
 Et de notre salut ferait tous ses amours. f Fa
 Et des processions qui s'en vont dans les bourgs PS
-Ferait pour nous servir toute sa présidence. f à 4
+Ferait pour nous servir toute sa présidence. f à
 Des reposoirs ferait sa tribune et son siège #
 Au dessus de la foule enfant et fraternelle. # "
-- Et des processions ferait tout son cortège 4 à ÿ
-Et sa marche présente et sa marche éternelle. ; à x
+- Et des processions ferait tout son cortège 4 à
+Et sa marche présente et sa marche éternelle. ; à
 
 à Il allait hériter de la courbe nautique :
 # Et du volume autant que de la pauvreté. ‘
@@ -5764,8 +5762,8 @@ Et sa marche présente et sa marche éternelle. ; à x
 
 Il allait hériter des manquements de Rome à
 ; Et du délire antique il ferait sa raison.
-4 ILallait hériter des manquements de l'homme
-1 Et de la lyre attique il ferait oraison.
+ILallait hériter des manquements de l'homme
+Et de la lyre attique il ferait oraison.
 Il allait hériter de la courbe nautique
 ; Et du recul autant que de la flottaison.
 Il allait hériter de l'appareil antique
@@ -5780,13 +5778,13 @@ e Il allait hériter de la prose latine. <
 Il allait hériter de ce qui manque à l'homme. ï + ES
 F3 Et celui qui n'a rien est qui donne le plus. 1 hr
 Il allait hériter de ce qui manque à Rome. MR
-4 Et celui qui n'a rien fait des dons absolus. : SRE
+Et celui qui n'a rien fait des dons absolus. : SRE
 : Il allait hériter des plus antiques lèpres. es
 ie Il en ferait l'offense et le péché mortel. <s
-Il allait hériter du plus antique autel. è T2
-Il en ferait l'autel de la messe et des vêpres. F5
-Il allait hériter des manquements de Rome. n
-Et celui qui n'a rien, c'est un bel héritage. 48
+Il allait hériter du plus antique autel.
+Il en ferait l'autel de la messe et des vêpres.
+Il allait hériter des manquements de Rome.
+Et celui qui n'a rien, c'est un bel héritage.
 Il allait hériter des manquements de l'homme. LES
 Et celui qui n'a rien, c'est le plus beau partage. BR
 Il allait hériter des métriques latines. KT
@@ -5803,57 +5801,57 @@ _  Ilallait hériter des métriques latines. .
 _ Il en ferait son nombre et son rythme et ses vépres. A
 ee Il allait hériter des apparentes lèpres.
 |  Ilen ferait l'horreur des lèpres intestines.
-1 À Il allait hériter de nos charnelles lèpres. 4
-3 Il en ferait l'ordure et le péché mortel. |
+À Il allait hériter de nos charnelles lèpres.
+Il en ferait l'ordure et le péché mortel. |
 ‘4 Il allait hériter du plus caduque autel. à
 ÿ E Il en ferait l'autel de la messe et des vépres. ;
-4 Il allait hériter du sacrifice antique. De
-3 Il en ferait sa messe et son propre offertoire. ‘ re
-# Il allait hériter de l'aruspice attique. 5
-1 Il en ferait sa dette et son propre oratoire. ee
+Il allait hériter du sacrifice antique. De
+Il en ferait sa messe et son propre offertoire. ‘ re
+# Il allait hériter de l'aruspice attique.
+Il en ferait sa dette et son propre oratoire. ee
 -  Ilallait hériter de nos lèpres charnelles. :
->  Ilen ferait l'injure et la contrition, 2
-._ La lèpre intérieure et la rémission, | 5
+>  Ilen ferait l'injure et la contrition,
+._ La lèpre intérieure et la rémission,
 à É _ Et la démangeaison des lèpres éternelles. | .
-ù_  Ilallait hériter de la prose latine. : D
-‘ Il en ferait son rite avec sa liturgie. 0
+ù_  Ilallait hériter de la prose latine.
+‘ Il en ferait son rite avec sa liturgie.
 - Il allait hériter de Rome byzantine. #3
 | Il en ferait son cadre et sa théologie. ‘pre
 
 Il allait hériter de nos lèpres charnelles. î LEE
-4 Il en ferait l'outrage et la corruption. ii à Sens.
-_ Ilallait hériter du temple de Sion. LIEN a 4
-de Il y ferait sonner des vêpres éternelles. ke 4 4
+Il en ferait l'outrage et la corruption. ii à Sens.
+_ Ilallait hériter du temple de Sion. LIEN a
+de Il y ferait sonner des vêpres éternelles. ke
 : Il allait hériter de la pourpre latine. TIC AE
-| Il en ferait sa robe et sa pourpre élargie. 36
+| Il en ferait sa robe et sa pourpre élargie.
 Il allait hériter de la loi byzantine. | te
-Il en ferait son code et sa thaumaturgie. 5
-Il allait hériter de l'antique noblesse. 1} 1e
+Il en ferait son code et sa thaumaturgie.
+Il allait hériter de l'antique noblesse. 1}
 Il allait en former une noble prière. 1 s “
 Il allait hériter de l'antique bassesse. ‘2
 Il allait en former notre basse misère. ‘4
-£ Il allait hériter de la Rome de brique. k 7
+£ Il allait hériter de la Rome de brique.
 © Il allait hériter de la Rome de marbre. [51
 $ Il allait hériter de Carthage d'Afrique. “0
-Il allait hériter de l'antique raison. Fe 4
-Il en ferait sa prise, et son humble servante. i{ : 0
+Il allait hériter de l'antique raison. Fe
+Il en ferait sa prise, et son humble servante. i{
 Il allait hériter de l'antique maison. À <}
-Il en ferait sa grise et sa mouvante tente. #0 | 20
+Il en ferait sa grise et sa mouvante tente. #0
 
 | Et des vieux tympanons il en ferait des cloches.
 ; Et des vieux cabanons il en ferait ses temples.
 
-3 Des antiques pennons il ferait des exemples.
+Des antiques pennons il ferait des exemples.
 Et des vieux gonfanons il ferait des fantoches.
-1 Il allait hériter des manquements de Rome.
-1 Et celui qui n'a rien, c'est un grand colportage.
+Il allait hériter des manquements de Rome.
+Et celui qui n'a rien, c'est un grand colportage.
 | Il allait hériter des manquements de l'homme.
 # Et celui qui n'a rien, c'est un grand sauvetage.
 : 11 allait hériter de la voile et la rame
-1 Il allait hériter des rudesses de l'âme
+Il allait hériter des rudesses de l'âme
 Il allait hériter des manquements humains.
 ? Et celui qui n'a rien, c'est lui seul qui se donne.
-4 Il allait hériter des manquements romains.
+Il allait hériter des manquements romains.
 ] Et celui qui n'a pas, c'est lui seul qui couronne.
 Li; Il allait hériter de la rame et la voile
 # Et des pontons liés aux quais d'embarquement.
@@ -5862,7 +5860,7 @@ $ Et du mât qui travaille et craque un craquement.
 
 © Il allait hériter des manquements latins À
 Et celui qui n'a pas, c'est lui seul qui pardonne. FEES
-Il allait hériter des antiques destins. .« E 1
+Il allait hériter des antiques destins. .«
 Re Et celui qui n'a pas, c'est lui qui s'abandonne. LEE nes +
 2 11 allait hériter des premières murailles SNS
 ; Et des premiers fossés et des rois fondateurs. Lie
@@ -5872,13 +5870,13 @@ Il allait hériter des antiques festins. oc:
 _ _ Mais il allait en faire un festin éternel. MN
 Il allait hériter des temples clandestins. FAT
 Mais il allait en faire un temple solennel. Ro
-Il allait hériter des premières bâtisses, 25
+Il allait hériter des premières bâtisses,
 Du lyrique Amphion et des rois bâtisseurs. SRE:
 Il allait hériter des premiers possesseurs. FH
 Il allait hériter des premières justices. en. #4
 __ Ilallaït hériter de cette pauvre femme. ‘508
-Et celui quin'a rien, c'est lui qui donne tout. 4
-ll allait hériter des pauvretés de l'âme. (5 2
+Et celui quin'a rien, c'est lui qui donne tout.
+ll allait hériter des pauvretés de l'âme. (5
 : Et celui qui n'a rien, c'est lui qui meurt debout. : BEEN
 
 ._ Il allait hériter de l'antique bordage !
@@ -5887,20 +5885,20 @@ _ Et du port militaire et des réarmements. +198
 . £ Et de la mise à terre et des effondrements.
 À Il allait hériter de tout ce qui se donne,
 
-4 Des tendresses de l'âme et des grâces du cœur. 4
+Des tendresses de l'âme et des grâces du cœur.
 
 Il allait hériter d'une pâle couronne
 
 ; Effeuillée aux genoux d'un absurde vainqueur. Î Le
-1 Il allait hériter des derniers successeurs. A:
-4 Il allait hériter des dômes byzantins. cave
+Il allait hériter des derniers successeurs. A:
+Il allait hériter des dômes byzantins. cave
 È Il allait commencer les grands intercesseurs. ;
 % Il allait investir les comtes palatins.
-LÉ: Il allaït hériter de tout ce qui se lègue È
+LÉ: Il allaït hériter de tout ce qui se lègue
 Ee. Et celui qui n'a rien, Jésus seul en hérite.
 
-43 Il allait hériter de tout ce qu'on relègue dE
-…..  Ilallait hériter de nos états-civils. | 20
+Il allait hériter de tout ce qu'on relègue dE
+…..  Ilallait hériter de nos états-civils.
 _ De ceux qui nous font dire : Une vie est à nous. t ke
 
 dl Seigneur nous n'avons rien que ces portiques vils À
@@ -5918,28 +5916,28 @@ Au nom du droit civil par les mains du notaire.” è a es.
 
 Il allait hériter de nos maîtres avides, Sa à
 
-De ceux qui nous font dire : Une science est à nous. 4
+De ceux qui nous font dire : Une science est à nous.
 
 Seigneur nous n'avons rien que nos cartables vides Ne A
 
 Et l'abdication de nos roides genoux. FES
 Il allait hériter des biens paraphernaux. “Fe
 
-Il en ferait sa dot et celle de sa mère. 4
+Il en ferait sa dot et celle de sa mère.
 
 Il allait hériter des palais infernaux. ve
-IL.en ferait son lot et celui de son père. 4
+IL.en ferait son lot et celui de son père.
 
-Il allait hériter des tables de mémoire. D:
-Mais puissions-nous les perdre au jour du jugement 4
-Comme on perd un papier qu'on avait dans l'armoire É
+Il allait hériter des tables de mémoire.
+Mais puissions-nous les perdre au jour du jugement
+Comme on perd un papier qu'on avait dans l'armoire
 
 Et qui commémorait un pauvre événement. ‘4
 
-Il allait hériter des titres cadastraux, 28
+Il allait hériter des titres cadastraux,
 
-De ceux qui nous font dire : Une terre est à nous. 2e
-Seigneur nous n'avons rien que nos roides genoux 24
+De ceux qui nous font dire : Une terre est à nous.
+Seigneur nous n'avons rien que nos roides genoux
 
 | Et le gouvernement de ces cantons ruraux. à
 
@@ -5949,7 +5947,7 @@ Et ce n'est pas d'histoire et de raison d'État
 
 \ Que nous aurons besoin pour cet autre cadastre.
 Il allait hériter des cartes de la terre,
-4 De celles qui font dire : Un royaume est à nous.
+De celles qui font dire : Un royaume est à nous.
 e Seigneur nous n'avons rien qu'une basse misère
 Et le prosternement de nos raides genoux.
 Et ce n'est pas de carte et de géographie
@@ -5960,7 +5958,7 @@ Et ce n'est pas de carte et de géographie
 : Et ce n'est pas des cartes de géographies
 - Que nous emporterons au jour du jugement.
 < Et ce n'est pas des plans et des topographies
-4 Que nous emporterons sur notre bâtiment.
+Que nous emporterons sur notre bâtiment.
 . Et ce n'est pas des textes d'archéologies
 
 * Que nous emporterons sur notre galéasse.
@@ -5970,24 +5968,24 @@ FE Ce n'est pas par des notes de philologies
 $ Que nous justifierons notre vieille carcasse.
 
 SR Ce n'est pas des cadrans et de mauvais compas
-_ Que nous emporterons le jour de cette chasse. é 12 50 ù
+_ Que nous emporterons le jour de cette chasse.
 Ce n'est pas de conserve et d'un mauvais repas FA #48 Es
-a Que nous aurons empli notre maigre besace. VERS ie 3.
+a Que nous aurons empli notre maigre besace. VERS ie
 * Ce n'est pas un fatras de physiologies 14 SERA
 Que nous emporterons le jour de la colère. XLR
-Ce n'est pas un ramas de généalogies 0 5
-Que nous emporterons pour le jour du salaire. : TRES 5e
+Ce n'est pas un ramas de généalogies
+Que nous emporterons pour le jour du salaire. : TRES
 Et ce ne sera pas une maigre boussole Re
 Que nous consulterons dans son morne habitacle. LE
 Et nos pavois seront une autre banderole. TRUE
 Et nos coffres seront un autre tabernacle. Due.
 Et ce n'est pas des tas de sociologies Es
-Ê Que nous emporterons le jour du jugement. 3% À 2
+Ê Que nous emporterons le jour du jugement. 3% À
 : Et ce n'est pas des rats de bibliographies MA.
-as Que nous emporterons le jour du règlement. 14
-| Et ce n'est pas des sots et des sociologues d. # k
+as Que nous emporterons le jour du règlement.
+| Et ce n'est pas des sots et des sociologues d. #
 Qui rameront pour nous sur nos pauvres trois-mâts. Fa
-Et ce n'est pas des mots et des archéologues NA 64 13
+Et ce n'est pas des mots et des archéologues NA
 Qui penseront pour nous dans ces derniers frimas. pen &
 
 # Et ce n'est pas des planches de bibliothèques
@@ -6004,7 +6002,7 @@ Qui rameront pour nous sur nos derniers vaisseaux.
 
 : Et ce n'est pas des cœurs tout chargés d'apologues
 J Qui trembleront pour nous sur nos derniers radeaux.
-: Ce n'est pas des savants et des anthropologues i
+: Ce n'est pas des savants et des anthropologues
 È Qui rameront pour nous sur une humble galère.
 k ; Ce n'est pas des talents doublés de psychologues,
 Le jour du règlement et le jour du salaire. ;
@@ -6012,29 +6010,29 @@ Le jour du règlement et le jour du salaire. ;
 Fa 2 Que nous nous pourvoirons le jour du jugement.
 Es Et ce n'est pas des vœux des professeurs d'histoires ,
 
-%: Que nous nous munirons le jour du règlement. k
+%: Que nous nous munirons le jour du règlement.
 
 Et ce n'est pas de plume et de boîtes de fiches + ANNEES
 Que nous nous armerons le jour de la colère. PU
-; Ce n'est pas de placards et ce n'est pas d'affiches, é e 4
+; Ce n'est pas de placards et ce n'est pas d'affiches,
 dé Le jour du règlement et du dernier salaire. a
-Et ce n'est pas d'archive et de conservatoires. ; 4
-Que nous nous armerons le jour du jugement. 54
-Et ce n'est pas des jeux des professeurs d'histoires 5 14
-Que nous nous prévaudrons le jour du règlement. 4
-Ce ne sont pas les courbes et les sismographes | 1
+Et ce n'est pas d'archive et de conservatoires.
+Que nous nous armerons le jour du jugement.
+Et ce n'est pas des jeux des professeurs d'histoires
+Que nous nous prévaudrons le jour du règlement.
+Ce ne sont pas les courbes et les sismographes
 Que nous invoquerons le jour du tremblement. De
 Et ce n'est pas l'article avec les paragraphes ‘4
 Que nous invoquerons le jour du règlement. È à
-Et ce n'est pas non plus ces pompeux cénotaphes $ 51e
+Et ce n'est pas non plus ces pompeux cénotaphes $
 Qui nous introduiront dans un monde nouveau. à
 Et ce n'est pas non plus ces faiseurs d'épitaphes à À
 Que nous invoquerons pour sortir du tombeau. ‘4
 Et ce n'est pas leurs points et leurs alinéas
-Que nous réclamerons le jour de la justice. 4
-Et ce n'est point aussi leurs tables d'aléas 4
-Que nous alléguerons le jour de l'armistice. 10
-256 4
+Que nous réclamerons le jour de la justice.
+Et ce n'est point aussi leurs tables d'aléas
+Que nous alléguerons le jour de l'armistice.
+256
 
 ES _ Etce n'est point leur lettre avec leurs monogrammes
 Qui nous introduiront dans un siècle nouveau.
@@ -6058,7 +6056,7 @@ bu Ce n'est point les dossiers de ces protonotaires
 ÿ Que nous alléguerons aux bords intemporels.
 
 Nous les aurons laissés parmi leurs glyptothèques,
-2 Parmi leurs cendriers cherchant des poudriers. LS à
+Parmi leurs cendriers cherchant des poudriers. LS à
 Un autre lèvera nos lourdes hypothèques.
 _ Un autre affranchira nos absurdes terriers. CSS
 = Un autre purgera nos propres hypothèques. VAE
@@ -6067,21 +6065,21 @@ Un autre lavera de la peau de nos cous £ nn st
 Le sang et le sillon des colliers extrinsèques. : LS La
 . Un autre lèvera des registres d'écrous " ie
 £ : Nos prénoms et nos noms et nos états-civils. Le ao
-Un autre arrachera de la peau de nos cous 1e
+Un autre arrachera de la peau de nos cous
 _ Le sang et le sillon de nos colliers d'exils. Enr.
-Un autre brisera les registres d'écrous. 4
+Un autre brisera les registres d'écrous.
 Un autre brisera les portes de la geôle. Fe En.
 Un autre effacera de notre maigre épaule s LT
-Lä poussière et le sang descendus de nos cous. 24 54
+Lä poussière et le sang descendus de nos cous.
 Un autre, un Dieu rompra les registres d'écrous. | DEC:
 Un autre, un Dieu rompra les deux portes d'airains.
 | Un autre effacera de la peau de nos reins ep LS
 AS La poussière et le sang descendus de nos cous. &7
 
 RE #0 Un autre arrachera ces absurdes licous. AVE
-_ Un autre, un triple Dieu rompra les doubles portes. É
+_ Un autre, un triple Dieu rompra les doubles portes.
 ‘10 _ Un autre arrachera de la peau de nos cous ‘ :
-4 La strangulation de ces lanières mortes. : ? *
+La strangulation de ces lanières mortes. : ? *
 _ Un autre effacera de la peau de nos cous |
 - Le bleuâtre sillon de nos colliers de force.
 -_ Un autre effacera de notre vieille écorce
@@ -6095,8 +6093,8 @@ __ La poussière et le sang descendus de nos cous. :
 ee Un autre effacera de nos tables d'airains Le
 # E La poussière et le sang du prénom le plus doux. RE
 Un autre effacera de la peau de nos nuques AE
-Es _ Le bleuâtre sillon de nos colliers d'écrous. F5
-_ Un autre effacera de nos tables cäduques ÉÉtese e
+Es _ Le bleuâtre sillon de nos colliers d'écrous.
+_ Un autre effacera de nos tables cäduques ÉÉtese
 _ La creuse inscription du prénom le plus doux. ue
 
 É les tap PPS RS
@@ -6113,19 +6111,19 @@ Le bleuâtre sillon de nos colliers de force. (5,53
 
 Un autre effacera de notre vieille écorce j Pre
 
-La marque du carcan et les traces des clous. 4
+La marque du carcan et les traces des clous.
 
 Un autre effacera de nos colliers de force ES
 
 La marque des seuls jougs que nous aurons portés. Re:
 
-Un autre effacera de notre dure écorce 7
+Un autre effacera de notre dure écorce
 
-La marque des seuls clous que nous aurons plantés. 1
+La marque des seuls clous que nous aurons plantés.
 
-. Un autre effacera du revers des coteaux 5
+. Un autre effacera du revers des coteaux
 
-Î La poussière et l'honneur du prénom le plus doux. 55
+Î La poussière et l'honneur du prénom le plus doux.
 Un autre effacera de l'écorce du houx SA
 a Les noms jadis gravés au fil de nos couteaux. +54
  —
@@ -6134,7 +6132,7 @@ Un autre effacera de nos livres de peine Li.
 
 Un autre effacera de l'écorce du chêne TA
 
-La trace du seul nom que nous ayons aimé. ÿ4
+La trace du seul nom que nous ayons aimé.
 
 È Un autre effacera de nos livres de haine
 
@@ -6173,17 +6171,17 @@ Eu L'âpre invocation du bras le plus tendu.
 _ - Un autre alignera ces deux qui vont ensemble. ER LR pa
 _ Un autre effacera de l'écorce du tremble HAS
 Ces chiffres que liait une éternelle chaîne. h Fr te HS
-É) Un autre fixera dans sa première forme 17
-1ge Le seul être idéal qu'un âge ait déformé. . HS RE 1H
+É) Un autre fixera dans sa première forme
+1ge Le seul être idéal qu'un âge ait déformé. . HS RE
 # Un autre effacera de l'écorce de l'orme LT
 A La trace du seuf nom que nous ayons aimé. à 2 fs
-Et ce n'est pas les yeux de nos maîtres charnels, D.
+Et ce n'est pas les yeux de nos maîtres charnels,
 Et ce n'est pas les yeux des professeurs d'histoire 1 PUCES
-Qui nous regarderont à l'interrogatoire Ê 254
+Qui nous regarderont à l'interrogatoire
 : Quand nous serons assis sur les bancs éternels. 4 <
 “o Et ce n'est pas les poids qu'ils ont dans leurs balances
-# Qui diront notre poids quand nous serons pesés. 134
-4 Et ce n'est pas leurs lois et leurs équipollences NN
+# Qui diront notre poids quand nous serons pesés.
+Et ce n'est pas leurs lois et leurs équipollences NN
 Qui feront notre loi quand nous serons jugés. Me
 Et ce n'est pas leurs poids et leurs équivalences LR
 Qui diront notre poids quand nous serons pesés. VE
@@ -6197,27 +6195,27 @@ Rs Et ce n'est pas leurs lois et leurs prix d'excellences £
 
 à Qui classeront alors le peu que nous ferons.
 
-4 À Ce n'est pas dans leur tente et leur salle des prix
+À Ce n'est pas dans leur tente et leur salle des prix
 
 Le Que tant de malheureux seront récompensés. |
-1 Ce n'est pas leurs discours savamment balancés |
-4 Qui nous ranimeront quand nous serons péris. $
+Ce n'est pas leurs discours savamment balancés |
+Qui nous ranimeront quand nous serons péris. $
 À Ce n'est pas dans leur tente et leur salle des prix +
-1 Que le bien et le mal seront récompensés.
+Que le bien et le mal seront récompensés.
 
-4 Ce n'est pas leur musique et leurs pas cadencés |
-2 Qui nous révoqueront quand nous serons péris.
+Ce n'est pas leur musique et leurs pas cadencés |
+Qui nous révoqueront quand nous serons péris.
 
 5. Ce n'est pas dans leur tente et leurs salles des prix
 
-40 Que nous autres pécheurs prendrons nos récompenses.
-2 Ce n'est point vers leur face et vers leurs maigres panses
+Que nous autres pécheurs prendrons nos récompenses.
+Ce n'est point vers leur face et vers leurs maigres panses
 
 5% Que nous apporterons notre pauvre débris.
-52 Ce n'est pas dans leur tente et leurs salles des prix É
+Ce n'est pas dans leur tente et leurs salles des prix
 ‘518 Que nous autres faillis réglerons nos dépenses. Are » Ce n'est point vers leur face et leurs augustes panses %
 
-4 Que nous apporterons notre pauvre mépris. nt
+Que nous apporterons notre pauvre mépris. nt
 
 les tapisseries. "72700
 Et ce n'est pas non plus à monsieur le préfet 7! HT
@@ -6229,16 +6227,16 @@ Qui pèseront la poudre et la cendre et les vers. De
 | Et ce n'est pas leurs lois et leurs équipollences 102770
 Qui doseront le sort de l'immense univers. 247 ER
 Ce ne sont pas des bras tout chargés de Digestes ca
-Qui rameront pour nous sur nos derniers vaisseaux. 4
-Ce ne sont pas ces preux et ces porte-boisseaux ‘ D:
-Qui nous rattraperont avec leurs manifestes. v
-Ce ne sont pas des bras tout chargés de Pandectes 4
+Qui rameront pour nous sur nos derniers vaisseaux.
+Ce ne sont pas ces preux et ces porte-boisseaux ‘
+Qui nous rattraperont avec leurs manifestes.
+Ce ne sont pas des bras tout chargés de Pandectes
 Qui rameront pour nous sur nos derniers trois-mâts. “#
 Ce ne sont pas ces gueux et ces porte-hamacs *
-Qui nous rattraperont avec leurs analectes. 1
+Qui nous rattraperont avec leurs analectes.
 Ce ne sont pas des bras tout chargés de glossaires à À
 Qui rameront pour nous sur nos derniers radeaux. Ps
-Ce ne sont pas ces bleus et ces porte-badauds 4
+Ce ne sont pas ces bleus et ces porte-badauds
 Qui nous rattraperont des mains des garnisaires. Le
 
 ' Ce ne sont pas des bras tout chargés de lexiques
@@ -6267,19 +6265,19 @@ $ Et ce n'est pas leurs lois chez les praticiens
 
 s Et ce n'est pas leurs poids dans les laboratoires
 
-7 Et ce n'est pas leurs lois dans les conservatoires
+Et ce n'est pas leurs lois dans les conservatoires
 
 > Qui fermeront la lutte et la contrition.
 
-4 285
+4
 
 _ Et ce n'est pas leurs poids dans leurs laboratoires [A CRE
-Qui pèseront l'orgueilet la contention. ais V8
-0 Et ce n'est pas leurs lois dans leurs conservatoires
+Qui pèseront l'orgueilet la contention. ais
+Et ce n'est pas leurs lois dans leurs conservatoires
 ” Qui fermeront le seuil sur la prescription. ‘ TES
 _ Ce n'est pas leurs bocaux chez les pharmaciens LES
 | Qui recevront le sang qui fut versé pour nous. | 4486
-di Ce n'est pas leurs locaux chez les praticiens + 135
+di Ce n'est pas leurs locaux chez les praticiens +
 : Qui recevront le pli de nos humbles genoux. :
 Ce n'est pas leurs balances de pharmaciens FA Fe
 
@@ -6288,12 +6286,12 @@ Ce n'est pas leurs sentences de praticiens Ke N-
 
 Qui diront notre sort quand nous serons dosés. Le
 
-4 Ce n'est pas leurs balances de précision |
+Ce n'est pas leurs balances de précision |
 ee Qui diront notre poids quand nous serons pesés. er
 1H Ce n'est pas leur sentence et leur décision = OR
-le Qui diront notre sort quand nous serons dosés, Er É
-‘à Ce n'est pas l'apophthegme et les concisions 7 2
-ne Qui diront le seul mot quand nous serons pesés. 2
+le Qui diront notre sort quand nous serons dosés, Er
+‘à Ce n'est pas l'apophthegme et les concisions
+ne Qui diront le seul mot quand nous serons pesés.
 £ Ce n'est point des calculs que nous invoquerons YA
 ne Le jour que nous serons offerts et adjugés. Re
 
@@ -6301,7 +6299,7 @@ k 2 _ Ce n'est pas les articles du Code civil ;
 ne Que nous invoquerons dedans cette détresse. Fa
 ne Nos regards connaîtront un bien autre péril. :
 Ë Nos regards chercheront une autre forteresse.
-6 Ce n'est pas les articles du Code pénal ï
+Ce n'est pas les articles du Code pénal
 ge Que nous invoquerons dans ce dernier combat. %
 Fe Nos regards connaîtront un autre Tribunal. ASE
 LE: Nos regards chercheront un bien autre Avocat.
@@ -6309,11 +6307,11 @@ LE: Nos regards chercheront un bien autre Avocat.
 È + Et ce ne sera pas ces porteurs de breloques
 Le ; Que nous invoquerons pour ce redressement.
 + Et ce n'est pas du Code et de ses accessoires :
-2 Que nous nous couvrirons dans ce recueillement. ee
+Que nous nous couvrirons dans ce recueillement. ee
 4 < Et non plus du Codex et de ses balançoires er
 “44 Que nous aurons couvert notre dépouillement. ;
 31 _ Et nos yeux chercheront pour l'âme scélérate 20 :
-C1 7 Une autre couverture, un autre couvrement. 4 ne É
+C1 7 Une autre couverture, un autre couvrement. 4 ne
 D Et nos yeux chercheront pour ce recouvrement nr
 F4 _ Le maternel manteau d'une illustre Avocate. ne,
 
@@ -6365,44 +6363,44 @@ Que nous achèverons nos rêves de blessés.
 
 Ge n'est pas des degrés de leur amphithéâtre
 “HER CIEES La pièce se jouera pour un autre théâtre. F NES
-5e Le rideau tombera sur une autre saison. Ha 14
+5e Le rideau tombera sur une autre saison. Ha
 “FER Ce n'est pas des degrés de leur amphithéätre K ETES
 se. Que montera l'hommage et la triple oraison. is
-__ La pièce se jouera pour un autre théâtre. 3 F0
+__ La pièce se jouera pour un autre théâtre.
 Me, Le rideau tombera sur une autre maison. Era
 
 # Ce n'est pas dans leur tente et leurs lits d'ambulance
 eu Et dans leur appareil que nous serons pansés. FR
-à Ce n'est pas par leurs soins que seront dispensés x w
-de à Les sceaux du dernier jour et du dernier silence. 20
+à Ce n'est pas par leurs soins que seront dispensés
+de à Les sceaux du dernier jour et du dernier silence.
 VE Ce n'est pas leurs danseurs et leurs porte-seilettes
 à 1 Qui nous apporteront une aide fraternelle. à Se
-“En __ Ge n'est pas leurs valseurs et leurs porte-palettes PS 4
-2 Qui nous dessineront une image éternelle. a
+“En __ Ge n'est pas leurs valseurs et leurs porte-palettes PS
+Qui nous dessineront une image éternelle. a
 Ce n'esi pas leurs masseurs et leurs porte-amulettes
-5 Qui passeront pour nous devant le divin juge. HSE
+Qui passeront pour nous devant le divin juge. HSE
 td ï Ce n'est pas leurs brosseurs et leurs porte-épaulettes
 # MERE Qui seront ce jour-là notre unique refuge. Re) Et Fi
 
-_ Ce n'est point leurs caissiers et leurs porte-cassettes 4e
+_ Ce n'est point leurs caissiers et leurs porte-cassettes
 __ Qui passeront pour nous devant le divin juge. tar
 —_ Ce n'est point leurs lanciers et leurs porte-musettes £
-ee __ Qui seront notre garde et notre beau refuge. 125
-34 È Ce n'est pas leurs moyens et leur jurisprudence +
+ee __ Qui seront notre garde et notre beau refuge.
+È Ce n'est pas leurs moyens et leur jurisprudence +
 De Que nous invoquerons dans l'éternel débat. :
 Ne 4 Ce n'est pas leur sagesse et même leur prudence FA
 “à _ Que nous évoquerons dans l'éternel combat. Ta
 “2 $ Ce n'est pas leurs massiers et leurs porte-serviettes Da
 5e _ Qui passeront pour nous devant le divin juge. Fi
-5 Ce n'est pas leurs huissiers et leurs porte-mazettes je
+Ce n'est pas leurs huissiers et leurs porte-mazettes je
 _ Qui seront notre asile et notre beau refuge. ei
-Le à Ce n'est point leurs museaux, fussent-ils symboliques, æ
+Le à Ce n'est point leurs museaux, fussent-ils symboliques,
 
 R ui se seront penchés sur le divin enfant. #6
 ce Ce n'est point leurs naseaux, fussent-ils bucoliques, #5
-_ _ Quise seront penchés sur unroitriomphant. F
+_ _ Quise seront penchés sur unroitriomphant.
 —.. Ce n'est pas leurs dossiers, fussent de procédure, F4 A
-132 FA Que nous emporterons sur nos maigres épaules. “a
+FA Que nous emporterons sur nos maigres épaules. “a
 
 …_… Ce n'est pas leurs aciers, fussent-ils de soudure,
 
@@ -6415,7 +6413,7 @@ Qui nous gouverneront sur nos derniers radeaux.
 Que nous emporterons sur nos débiles reins.
 Ce n'est pas leurs aciers, fussent-ils de soudures,
 Qui nous feront des lois et nos tables d'airains.
-Ce n'est pas leurs dossiers, fussent de procédure, 7
+Ce n'est pas leurs dossiers, fussent de procédure,
 Qui nous conserveront nos premiers parchemins.
 Ce n'est pas leurs aciers, fussent-ils de soudure,
 Que nous élèverons sur nos fragiles mains.
@@ -6426,7 +6424,7 @@ Qui nous gouverneront dans nos derniers chemins.
 Ce n'est pas leurs dossiers, fussent de procédure,
 Que nous emporterons aux rives éternelles.
 Ce n'est pas leurs aciers, fussent-ils de soudure
-Qui nous cuirasseront nos barques solennelles. F
+Qui nous cuirasseront nos barques solennelles.
 
 Ce n'est pas leurs dossiers, fussent de procédure,
 Que nous emporterons aux rives éternelles.
@@ -6459,7 +6457,7 @@ Qui nous enlèveront, au seuil du dernier port. ; FT IREES
 _ Ce n'est pas leurs cachets et leur antipyrine Far treS
 D Qui nous auront nourri notre pauvre carcasse.
 MC Ce n'est pas les déchets de leur maigre farine RS
-2 Qui nous feront ramer sur notre galéasse. , Si
+Qui nous feront ramer sur notre galéasse. , Si
 % Ce n'est pas ces cadets et leurs salles d'attente AU
 : Qui nous accrocheront au creux du dernier fort. re
 < Ce n'est pas ces baudets chacun portant sa tente ee
@@ -6478,18 +6476,18 @@ Dex : i sauront nous poser sur un fragile bord.
 de _ Ce n'est pas leur boussole et leurs porte-volutes ;
 5 _ Qui sauront nous trouver le lieu du dernier Nord. Ge
 “= É Et ce n'est pas leurs poids et leurs doubles pesées al
-4 Qui diront notre poids dans une autre balance. PA
-& D Et ce n'est pas leurs lois et leurs billevesées S
+Qui diront notre poids dans une autre balance. PA
+& D Et ce n'est pas leurs lois et leurs billevesées
 “284 Qui briseront le sceau des lèvres du silence. a
-_ Et nous ne fierons rien qu'aux voiles de prière E
+_ Et nous ne fierons rien qu'aux voiles de prière
 4 : Parce que c'est Jésus qui nous les a tissées. |
 _ Et nous ne fierons rien qu'aux voiles de misère '
 de Parce que c'est Jésus qui nous les a hissées. RENE
-44 8
+44
 RC" Et nous ne fierons rien qu'aux voiles de prière
 L4 Parce que c'est Jésus qui nous les a tendues.
 DE: Et nous ne fierons rien qu'aux voiles de misère - .
-E. Parce que c'est Jésus qui nous les a pendues. é
+E. Parce que c'est Jésus qui nous les a pendues.
 __ Et nous ne ferons rien qu'aux voiles de prière RS
 . Parce que c'est Jésus qui nous les a rendues. PATES
 F4 de Et nous ne fierons rien qu'aux voiles de misère SELS ET
@@ -6508,7 +6506,7 @@ Et nous ne fierons rien qu'aux vergues de prière
 Parce que c'est Jésus qui nous les a clouées.
 Et nous ne fierons rien qu'aux vergues de misère
 Parce que c'est Jésus qui nous les a nouées.
-nous ne fierons rien qu'aux vergu i
+nous ne fierons rien qu'aux vergu
 Parce que c'est Jésus qui nous les a croisées.
 Et nous ne fierons rien qu'aux vergues de misère
 Parce que c'est Jésus qui nous les a toisées.
@@ -6516,7 +6514,7 @@ Et nous ne fierons rien qu'aux voiles de prière
 Parce que c'est Jésus qui nous les a carguées.
 Et nous ne ferons rien qu'aux cordes de misère
 Parce que c'est Jésus qui nous les a raguées.
-296 5
+296
 
 F Et nous ne fierons rien qu'aux voiles de prières
 | Parce que c'est Jésus qui nous les a léguées.
@@ -6527,7 +6525,7 @@ Parce que c'est Jésus qui nous les a fleuries.
 Et nous ne fierons rien qu'aux palmes de misère
 Parce que c'est Jésus qui les a défleuries.
 Et nous ne fierons rien qu'aux palmes de prière
-Parce que c'est Jésus qui nous les a données. l
+Parce que c'est Jésus qui nous les a données.
 Et nous ne fierons rien qu'aux palmes de misère
 Parce que c'est Jésus qui les a couronnées.
 Et nous ne fierons rien qu'aux grâces de prière
@@ -6540,35 +6538,35 @@ Et nous ne nous fierons qu'aux grâces de misère
 Parce qu'elle est du Père et du Fils absolus.
 
 _ Et ce n'est pas les voix des professeurs d'histoires, 1}, FEES
-_ (ne s'agira plus de voter, mes enfants), 0
+_ (ne s'agira plus de voter, mes enfants),
 _ Et ce n'est pas les voix des professeurs de gloires Lit RSR
-_ Que nous alléguerons dans nos accablements. A re Ë
+_ Que nous alléguerons dans nos accablements. A re
 _ Et ce n'est pas les voix des maîtres de mémoires ; nu
 _ Qui classeront les purs avec les triomphants. nn
-Et ce n'est pas les poids des maîtres de grimoires 5
+Et ce n'est pas les poids des maîtres de grimoires
 _ Que nous invoquerons dans ces événements. rose
-5 Et ce n'est pas les voix des professeurs d'histoires 50
-_ Qui classeront le juste avec les triomphants. 208
-+ Et ce n'est pas les poids des maîtres de grimoires M
+Et ce n'est pas les voix des professeurs d'histoires
+_ Qui classeront le juste avec les triomphants.
++ Et ce n'est pas les poids des maîtres de grimoires
 se Que nous invoquerons pour nos avènements. Het
 e * Et nous ne fierons rien qu'aux voiles éternelles “HER
 ‘4 __ Parce que c'est Jésus qui nous les a tendues. ; 1 |
 - Et nous ne fierons rien aux attaches charnelles | Hour. de
-_ Parce que Jésus-Christ nous les a détendues. S 1
+_ Parce que Jésus-Christ nous les a détendues.
 _ Et nous ne nous fierons qu'aux vergues éternelles : à
 _ Parce que c'est Jésus qui nous les a pendues. ne À
 ie Et nous ne fierons rien aux manœuvres charnelles pe) La
 É _ Parce que Jésus-Christ nous les a dépendues. - À.
 
-Fe _ Et nous sommes tombés dans le filet de Pierre s
+Fe _ Et nous sommes tombés dans le filet de Pierre
 Ce Parce que c'est Jésus qui nous l'avait tendu. {
 RE: Et nous avons gardé d'avoir un cœur de pierre
 ee Parce que c'est Jésus qui nous l'a défendu. £
-De. Et nous avons brûlé la bûche de Noël ù
+De. Et nous avons brûlé la bûche de Noël
 _ ‘ Parce que c'est Jésus qui nous l'avait fendue. |
 ee: Et nous avons aimé ce peuple d'Israël RS
 +408 Parce qu'Anne et Marie en était descendue.
-1 Et nous sommes tombés dans le filet de Pierre LEE
+Et nous sommes tombés dans le filet de Pierre LEE
 LCR Parce que c'est Jésus qui nous l'avait tendu. ee
 AE Et nous n'avons pas pu garder un cœur de pierre ?:
 4 _ Parce que c'est Jésus qui nous l'avait fondu. ps
@@ -6632,11 +6630,11 @@ Ce n'est pas ces peaussiers et ces profanateurs
 
 $ Qui nous aligneront dans un dernier caveau.
 
-3 Ce n'est pas ces glaciers et ces amateurs d'art
+Ce n'est pas ces glaciers et ces amateurs d'art
 
 ‘#4 Qui nous introduiront dans un siècle plus beau.
 
-4 Ce n'est pas ces placiers et ces vendeurs de lard
+Ce n'est pas ces placiers et ces vendeurs de lard
 
 : Qui prendront notre graisse au sortir du tombeau.
 
@@ -6648,13 +6646,13 @@ mn Ce n'est pas ces sorciers et ces appariteurs FR sa
 o Qui nous feront entrer par la centrale porte. FR Ho
 ee Ce n'est pas ces sourciers et ces solliciteurs ee ‘4
 He Qui nous ranimeront notre carcasse morte.
-Et ce ne sera pas ces maîtres corroyeurs F0
+Et ce ne sera pas ces maîtres corroyeurs
 Qui feront un tapis des laines du troupeau. 3 de
 Ce n'est pas ces brossiers et ces maîtres tanneurs Ke
 Qui sauront nous tanner le cuir avec la peau. (57e
-Re Et ce ne sera pas ces maigres donateurs - 54
+Re Et ce ne sera pas ces maigres donateurs
 Fr Qui seront à genoux dans le coin du tableau. ts
-12 Et ce ne sera pas ces pauvres armateurs FE es
+Et ce ne sera pas ces pauvres armateurs FE es
 ; ‘à Qui lanceront la barque errante au fil de l'eau. < à
 1e Ce n'est pas ces lanciers et ces parfaits notables ae
 ie Qui veilleront sur nous le jour de cette veille. NE:
@@ -6662,24 +6660,24 @@ ne Ce n'est pas ces caïssiers et ces parfaits comptables sx
 NA Qui payeront pour nous le jour de cette paye. t108 cs
 
 5e Fe Et nous sommes tombés dans le filet de Pierre er
-310 Parce que c'est Jésus qui nous l'avait lancé. V
+Parce que c'est Jésus qui nous l'avait lancé.
 Et nous n'avons pas pu garder ce cœur de pierre | ;
-4 _ Parce que Jésus-Christ nous l'avait dépensé. ‘ F2
+4 _ Parce que Jésus-Christ nous l'avait dépensé. ‘
 - Ce n'est pas leurs longs doigts et leurs ongles limés Le
-. Qui nous arracheront des griffes du destin. N
+. Qui nous arracheront des griffes du destin.
 = Ce n'est pas les reliefs de leur maigre festin À
 _ Qui ravitailleront des soldats décimés.
-3 Ce n'est pas leurs beaux doigts et leurs ongles limés pe
+Ce n'est pas leurs beaux doigts et leurs ongles limés pe
 …. Qui nous arracheront des griffes du destin. EURE » Ce n'est pas les reliefs de leur maigre festin je
-Qui nous rassasieront nos ventres abîmés. è
+Qui nous rassasieront nos ventres abîmés.
 | Ce n'est pas leurs doigts fins et leurs ongles limés \
 - Qui nous arracheront des griffes du destin.
 …. Ce n'est pas les reliefs de leur maigre festin :
 __ Qui nous redresseront nos corps inanimés. &
-5 Ce n'est pas leur doigt mince et leurs ongles limés F:
+Ce n'est pas leur doigt mince et leurs ongles limés
 ÿ j Qui nous arracheront des griffes du destin. sas
 …_ Ce n'est pas les reliefs de leur maigre festin j fre
-- Qui nous ranimeront nos corps désanimés. L
+- Qui nous ranimeront nos corps désanimés.
 
 les tapisseries LS PR
 Ce n'est pas leurs moiteurs qui chercheront nos fièvres
@@ -6703,7 +6701,7 @@ Qui viendront nous chercher dans notre pourriture.
 Ce n'est pas ces chalands et ces beaux muscadins
 Qui viendront nous chercher dans la boue et l'ordure.
 
-3 Ce n'est pas ces flamants et ces manche à balais
+Ce n'est pas ces flamants et ces manche à balais
 
 ; Qui nous balayeront notre vieille demeure.
 
@@ -6719,23 +6717,23 @@ E Et ce ne sera pas ces pauvres carnassiers
 
 F Qui viendront nous manger notre maigre carcasse.
 
-1 Et ce ne sera pas ces maigres besaciers
+Et ce ne sera pas ces maigres besaciers
 
-1 Qui porteront pour nous nos sacs de pénitence.
+Qui porteront pour nous nos sacs de pénitence.
 
 ; Et ce ne sera pas ces pauvres grimaciers,
 
 À Et ce ne sera pas ces pauvres plumassiers
 
-4 Qui referont le lit de notre inadvertance.
+Qui referont le lit de notre inadvertance.
 
-4 Et ce ne sera pas ces maigres terrassiers,
+Et ce ne sera pas ces maigres terrassiers,
 
 & Ce n'est pas ces plumeaux et ces manche à balais
 
-4 Qui nous balayeront le seuil de notre porte.
+Qui nous balayeront le seuil de notre porte.
 
-f Ce n'est pas ces grimauds et ces parfaits valets 3
+f Ce n'est pas ces grimauds et ces parfaits valets
 Qui nous repouilleront notre dépouilie morte. "
 
 ANR les tapisserie Ma
@@ -6743,7 +6741,7 @@ Ce n'est pas ces marmots et ces manche à balais nue
 Qui nous balayeront le devant de notre âme. j ‘1
 fer À Et ces diseurs de mots et ces parfaits valets IS ou
 Qui nous inclineront aux pieds de Notre Dame. NE
-8 Et ce ne sera pas ces maîtres de relais Sue
+Et ce ne sera pas ces maîtres de relais Sue
 Fe Qui nous feront courir notre dernière poste. És +
 Et ce ne sera pas ces maîtres des délais LS
 \ Qui feront consumer le dernier holocauste. x Re
@@ -6761,25 +6759,25 @@ po Et ce ne sera pas ces nobles poudriers, :
 HE Quand nous ne serons plus que de la poudre d'hommes. AS
 
 | Etc ne sera pas ces maîtres des requêtes
-‘4 Qui nous requêteront combien nQus sOmmes vils. k
+‘4 Qui nous requêteront combien nQus sOmmes vils.
 _ Et ce ne sera pas ces maîtres des enquêtes |
-4 _ Qui nous enquêteront dans nos états-civils. L
-3 Et ce ne sera pas ces maîtres des requêtes
-Le 2 Qui nous requêteront dans les blés et les vignes. 5
+4 _ Qui nous enquêteront dans nos états-civils.
+Et ce ne sera pas ces maîtres des requêtes
+Le 2 Qui nous requêteront dans les blés et les vignes.
 >  Etce ne sera pas ces maîtres des enquêtes -
-4 Qui nous remontreront que nous sommes indignes.
-4 Et ce ne sera pas ces maîtres d'éloquence Ë
-“2 Qui parleront pour nous dans les derniers tournois. ë
-1 Et ce ne sera pas ces gens de conséquence L.
-4 \ Qui nous harnacheront notre dernier harnoiïs. 4
-£ 3 Et ce ne sera pas ces maîtres d'éloquence Ë
-> Qui plaideront pour nous dans un dernier débat. 3
+Qui nous remontreront que nous sommes indignes.
+Et ce ne sera pas ces maîtres d'éloquence
+“2 Qui parleront pour nous dans les derniers tournois.
+Et ce ne sera pas ces gens de conséquence
+4 \ Qui nous harnacheront notre dernier harnoiïs.
+£ 3 Et ce ne sera pas ces maîtres d'éloquence
+> Qui plaideront pour nous dans un dernier débat.
 4 _ Et ce ne sera pas ces guerriers en vacance
 # Qui se battront pour nous dans un dernier combat.
-4 Et ce ne sera pas ces maîtres du barreau PE
+Et ce ne sera pas ces maîtres du barreau PE
 EL Qui plaideront pour nous dans un dernier procès. SR
  Etce ne sera pas ces valets de bourreau HEC
-É Qui viendront nous crever notre dernier abcès. e
+É Qui viendront nous crever notre dernier abcès.
 
 les tapisseries MS von
 Ce n'est pas leurs courants et leur haute fréquence
@@ -6806,7 +6804,7 @@ Et ce ne sera pas ces maîtres des enquêtes,
 Sous nos derniers drapeaux et sous un divin signe.
 
 | # Ce n'est pas ces portiers et ces grands-chambellans
-4 Qui nous feront passer dans la première chambre.
+Qui nous feront passer dans la première chambre.
 Ce n'est pas ces courtiers avec leurs bras ballants,
 Par la porte de corne et par la porte d'ambre.
 
@@ -6823,29 +6821,29 @@ Ce n'est pas ces courtiers avec leurs bras ballants,
 ; Par la porte de hêtre et par la porte d'orne.
 
 1 « Ce n'est pas ces portiers et leurs clefs dans le dos
-4 Qui nous feront sauter la dernière serrure.
+Qui nous feront sauter la dernière serrure.
 
 ; Ce n'est pas ces courtiers et ces porte-ferrure
 
-3 Qui nous ramasseront les cendres de nos os.
+Qui nous ramasseront les cendres de nos os.
 
-4 Une autre, une autre clef nous ouvrira la porte.
+Une autre, une autre clef nous ouvrira la porte.
 
 / Un autre porte-clefs en a tout un trousseau.
 
-4 Un autre gardien-chef sous le dernier vousseau
+Un autre gardien-chef sous le dernier vousseau
 
-# Regarde, et pense encore au lac de la Mer Morte. ë
+# Regarde, et pense encore au lac de la Mer Morte.
 
 _ Une autre, une autre clef, faite d'une autre sorte,
-FR Nous réintégrera dans le premier berceau. 1e D.
+FR Nous réintégrera dans le premier berceau.
 Fe Un vieux avec sa barbe, assis sous un arceau, ; TRAISRS
 de Regarde, et pense encore aux bords de la Mer Morté ….
 re Une autre, une autre clef, ouvrant une autre porte,
-eo m3 Nous laissera passer. Un maître de péniche, En i
-7 Un vieux à barbe blanche assis dans une niche U er
+eo m3 Nous laissera passer. Un maître de péniche, En
+Un vieux à barbe blanche assis dans une niche U er
 FH Regarde, et pense encore au lit de la Mer Morte. Fe
-ë Ce n'est pas leurs onguents et leurs pots de tisanes : 0
+ë Ce n'est pas leurs onguents et leurs pots de tisanes
 Qui nous ravaleront une carcasse usée. se CES
 Ce n'est pas leurs ferments et leurs amours profanes _
 ee Qui réanimeront l'âme désabusée. à 6 Ho.
@@ -6856,7 +6854,7 @@ Pen Qui réanimeront un corps enseveli. ner.
 ie Ge n'est pas ces tripiers et ces porte-boyaux LEE
 + Qui viendront déméler le fil de nos entrailles. Rte
 VE Ce n'est pas ces pompiers et ces porte-tuyaux TES
-dis Qui viendront nous chercher parmi nos funérailles. à É:
+dis Qui viendront nous chercher parmi nos funérailles. à
 
 $ sh | Ce n'est pas ces tripiers et ces porte-boyaux &
 _ Qui viendront dévider le fil de nos entrailles.
@@ -6864,19 +6862,19 @@ _ Qui viendront dévider le fil de nos entrailles.
 +5 Qui viendront nous chercher parmi nos funérailles. Ke
 | Ce n'est pas ces croupiers et ces porte-râteaux à .
 Æ Qui nous ramasseront sur un dernier tapis. ce
-E Ce n'est pas ces troupiers et ces derniers képis j
+E Ce n'est pas ces troupiers et ces derniers képis
 % Que lon verra passer sur les derniers plateaux. ;
 L- Ce n'est pas ces lanciers et ces porte-couronnes
 . Qui viendront nous chercher dans notre monument. à ;
-#4 Ce n'est pas ces messiers et ces porte-colonnes 5
+#4 Ce n'est pas ces messiers et ces porte-colonnes
 ! Qui viendront nous chercher dans notre bâtiment.
-3 De plus chastes Vertus et non pas moins luronnes 0
-4 Viendront nous réveiller dans notre monument. :
+De plus chastes Vertus et non pas moins luronnes
+Viendront nous réveiller dans notre monument. :
 E. De plus augustes mains et non pas moins patronnes ee
 ne Viendront nous relever dans notre bâtiment. re
-< De plus hautes vertus et un peu moins baronnes 523
+< De plus hautes vertus et un peu moins baronnes
 4 »  Viendront nous réveiller dans notre monument. :
-20 Des saintes bien en cour et non pas moins patronnes
+Des saintes bien en cour et non pas moins patronnes
 À Viendront nous relever dans notre bâtiment.
 
 les tapisseries SE SRTOR
@@ -6909,15 +6907,15 @@ Qui nous installeront dans nos gouvernements.
 
 é Le vin du dernier sang et du dernier amour.
 
-4 Et ce ne sera pas ces buveurs d'ambroisies
+Et ce ne sera pas ces buveurs d'ambroisies
 
 | Qui nous remplaceront le vin du dernier jour.
 
 ; Et ce ne sera pas leurs bouteilles moisies,
 
-‘ Le vin du sacrifice et du dernier amour. è
+‘ Le vin du sacrifice et du dernier amour.
 
-4 Et ce ne sera pas ces buveurs d'ambroisies
+Et ce ne sera pas ces buveurs d'ambroisies
 
 % Qui nous remplaceront le vin du dernier jour.
 
@@ -6925,8 +6923,8 @@ Qui nous installeront dans nos gouvernements.
 
 Le sang du sacrifice et du dernier amour.
 
-s Et ce ne sera Pas ces garçons d'abattoir j
-1 Qui nous ramasseront le sang du dernier jour. ;
+s Et ce ne sera Pas ces garçons d'abattoir
+Qui nous ramasseront le sang du dernier jour. ;
 
 ; Et ce ne sera Pas ces valets de comptoir
 
@@ -6937,7 +6935,7 @@ Qui nous ramasseront notre dernier amour.
 Qui sauront nous laver notre vieille guénille.
 
 ÿ. Et ce n'est pas ces fils d'une illustre famille :
-4 Qui descendront Pour nous la pente du guévoir,
+Qui descendront Pour nous la pente du guévoir,
 
 Et ce ne sera pas ces maîtres de dortoir AE RS Li.
 D Qui viendront nous border dans des lits de prison. FE
@@ -6946,38 +6944,38 @@ __ Qui viendront nous chercher dans notre dépotoir. Ni Ets
 Le _ Et ce ne sera pas ces princes du grattoir ES He
 ‘al Qui nous remplaceront une autre signature. .-2 FR OR
 ‘4 Et ce ne sera pas leurs cordons en sautoir à EE
-Eau Qui nous rattacheront notre double nature. ; 46
+Eau Qui nous rattacheront notre double nature.
 LE Et ce ne sera pas ces fils d'apothicaires CE “
 - Qui nous ramasseront sur le bord d'un trottoir. SRE)
 A Et ce ne sera pas ces mornes antiquaires HT
 ut Qui nous ramasseront au bas d'un accotoir. “00
 __  Etce ne sera pas ces hauts fonctionnaires Sue
 +. Qui nous ramasseront le long d'un décrottoir. 2 ÈS
-_ Et ce ne sera pas ces sots factionnaires La 7.
-et . Qui heurteront la porte en levant le heurtoir. 22
+_ Et ce ne sera pas ces sots factionnaires La
+et . Qui heurteront la porte en levant le heurtoir.
 _ Et ce ne sera pas leur traitement externe a
 #z Qui nous fera sortir de notre pourriture. ‘ Fu LEA
 RE Mais la foi qui nous sauve et seule nous discerne [RP
-4 Saura nous retrouver dans la poudre et l'ordure. LE
+Saura nous retrouver dans la poudre et l'ordure. LE
 
-#5 ee _ Et ce ne sera pas par leur usage externe | é
-M Que nous nous lèverons de notre pourriture. Ù
+#5 ee _ Et ce ne sera pas par leur usage externe
+M Que nous nous lèverons de notre pourriture.
 D Mais la foi qui nous sauve et seule nous discerne +
 NOR Saura nous retrouver dans la fange et l'ordure. j ®
-1 Et ce ne sera pas leurs boîtes de conserve :
-: 1e Qui feront notre espoir et notre nourriture. ÿ
+Et ce ne sera pas leurs boîtes de conserve :
+: 1e Qui feront notre espoir et notre nourriture.
 “#4 Mais la foi qui nous sauve et seule nous conserve 3 |
 | 1 Saura nous retrouver dans cette pourriture. Es
-É Et ce ne sera pas leur extrême réserve É
+É Et ce ne sera pas leur extrême réserve
 a. Qui fera notre règle et notre nourriture. y
-Di. Mais la foi qui nous sauve et seule nous conserve L2R
-58 Saura nous retrouver dans cette pourriture, STE
-328 LA #« 5 Et ce ne sera pas leur suprême élégance É +
-:% Qui nous fera laisser le peu que nous savons. Ë
+Di. Mais la foi qui nous sauve et seule nous conserve
+Saura nous retrouver dans cette pourriture, STE
+LA #« 5 Et ce ne sera pas leur suprême élégance É +
+:% Qui nous fera laisser le peu que nous savons.
 B: Et ce ne sera pas leur extrême arrogance LS NES
 . Qui nous fera baisser les yeux que nous avons. sas
 ME. Ce n'est pas leur tutelle et leurs augustes bourdes se
-10 Qui nous déplaceront la borne du chemin. 7
+Qui nous déplaceront la borne du chemin.
 DU - Ce n'est pas leur chandelle et leurs lanternes sourdes
 …_ Qui nous remplaceront le soleil de demain. à
 
@@ -7026,15 +7024,15 @@ F4 : Et ce ne sera pas leurs maigres fantaisies
 
 ARS Et ce ne sera pas parmi leurs aphasies mes HS EU
 | Que nous rechercherons le Verbe nouveauné. SE
-_ Qui nous baptiseront notre Verbe incarné. CIRE 2
+_ Qui nous baptiseront notre Verbe incarné. CIRE
 
 #4 Et ce ne sera pas parmi leurs aphasies LEE
 LE Que nous rechercherons le Verbe couronné. ï m'a LR
-118 Et ce ne sera pas leurs paronomasies 3 RE “es
-Le Qui nous baptiseront le Verbe unique-né. M:
+Et ce ne sera pas leurs paronomasies 3 RE “es
+Le Qui nous baptiseront le Verbe unique-né.
 pee Et ce ne sera pas parmi leurs aphasies Ne:
 Du Que nous rechercherons le nom du mois de mai. PSS
-2 Et ce ne sera pas leurs paronomasies | ee
+Et ce ne sera pas leurs paronomasies | ee
 Mie Qui nous indiqueront le nom du bien aimé. : FAR ve
 Le Et ce ne sera pas leurs tonneaux d'ambroisie ‘AS
 ‘4 _ Qui nous remplaceront le vin du dernier jour. LS
@@ -7042,9 +7040,9 @@ PAL Le vin du dernier sang et du dernier amour. | UNE
 +0 Que nous demanderons l'oubli de la douleur. 2160
 _ _  L'oubli de la souffrance et l'oubli du malheur. : LADA
 
-5 HE - Et ce ne sera pas leurs palingénésies FS
+HE - Et ce ne sera pas leurs palingénésies FS
 ES Qui nous réveilleront d'entre les pâles morts. Ke.
-1 Et ce ne sera pas leurs hyperesthésies Ra
+Et ce ne sera pas leurs hyperesthésies Ra
 3 + _ Qui nous feront sentir le plus horrible mors. :
 A is Et ce ne sera pas parmi leurs amnésies =
 + Que nous rechercherons la plus haute mémoire. #
@@ -7052,7 +7050,7 @@ Etce ne sera pas dans leurs Polynésies à
 “1 Que nous recherclierons le temple de la gloire. 4 ss
 "1 Et ce ne sera pas dans leurs paralysies ( à #
 ne Que nous irons chercher le jeu de notre coude. ‘re
-1 Et ce ne sera pas dans leurs cendres de soude j
+Et ce ne sera pas dans leurs cendres de soude
 : 10h Que nous irons laver nos pâles jalousies.
 Et ce ne sera pas dans leurs paralysies
 Mn Que nous rechercherons le jeu de notre nuque. &
@@ -7060,7 +7058,7 @@ Mn Que nous rechercherons le jeu de notre nuque. &
 ;: ue nous retrouverons une force caduque. “à
 : 3 Et ce ne sera pas dans leurs hydropisies es
 | 4 Que nous retrouverons le sang de notre ventre. ;
--__ Et ce ne sera pas dans leurs hypocrisies F
+-__ Et ce ne sera pas dans leurs hypocrisies
 k : _ Que nous retrouverons notre axe et notre centre,
 
 les tapisseries DURS
@@ -7111,24 +7109,24 @@ Le Qui nous remplaceront un père paternel.
 ë Et ce ne sera pas leurs antiques lanternes
 Ch Qui nous remplaceront le soleil éternel.
 
-1 Et ce ne sera pas leurs lampadaires ternes
+Et ce ne sera pas leurs lampadaires ternes
 RU: Qui nous remplaceront un soleil solennel Nat
 APE * % Et ce ne sera pas leurs grimaces paternes RE en
 T3 Qui nous rempläceront notre père éternel. 1, BRISMOSRES
 CE Et ce ne sera pas ces simili faux frères ‘F3 Ne
 | ES Qui nous remplaceront un frère fraternel. ‘ 4 © Ta
 re Et ce ne sera pas leurs simili misères : TRES
-128 Qui nous remplaceront un ventre maternel. BA.
-4 Et ce ne sera pas leurs simili misères fi. #0
+Qui nous remplaceront un ventre maternel. BA.
+Et ce ne sera pas leurs simili misères fi. #0
 : * . Qui nous introduiront aux siècles absolus. $ Le
 Ée: Et ce ne sera pas ces simili faux frères PES
 MD: Qui nous remplaceront notre frère Jésus. LA FONS
 MESA Et ce ne sera pas ces simili baigneurs IS ES ER
-Fe Qui nous introduiront aux climats absolus. + 50
+Fe Qui nous introduiront aux climats absolus. +
 VER Et ce ne sera pas ces simili seigneurs CES PS
-72 Ë Qui nous remplaceront notre seigneur Jésus. ETES
+Ë Qui nous remplaceront notre seigneur Jésus. ETES
 ne | Et ce ne sera pas ces simili fraudeurs TEE
-ur DE Qui nous introduiront aux sources résolues. 8 0
+ur DE Qui nous introduiront aux sources résolues.
 FR ; Et ce ne seront pas ces simili grandeurs à 3 ENS)
 F2 Qui nous introduiront aux grandeurs absolues.
 
@@ -7136,13 +7134,13 @@ _ Et ce ne sera pas leurs simili tendresses fi
 __ Qui nous remplaceront un mot de notre mère. : “
 
 __ Et ge ne sera pas leurs simili détresses as
-5 Qui nous remplaceront une auguste misère. ; f
+Qui nous remplaceront une auguste misère.
 - Et ce ne sera pas leurs simili caresses
 D: __ Qui nous remplaceront les yeux de notre mère, “4
-08 Et ce ne sera pas leurs simili détresses 22
-- Qui nous remplaceront une juste misère. ; x
-1 Et ce ne sera pas leurs savants aqueducs ;
-Qui nous remplaceront une source tarie. 1
+Et ce ne sera pas leurs simili détresses
+- Qui nous remplaceront une juste misère.
+Et ce ne sera pas leurs savants aqueducs ;
+Qui nous remplaceront une source tarie.
 —_  Etce ne sera pas leurs miracles caducs #
 Se. Qui nous remplaceront notre mère Marie. / EEE
 - Et ce ne sera pas dans leurs bateaux-lavoirs
@@ -7191,14 +7189,14 @@ _ Et ce ne sera pas leurs pâles reverbères FRS
 _ Et ce ne sera pas leurs vertus exemplaires
 se Qui nous embaumeront notre dernier demain. NA
 . Et ce ne sera pas à leur sens des affaires
-+ Que nous aurons recours dans notre économat. l j
++ Que nous aurons recours dans notre économat.
 É. Et ce ne sera pas à leurs calorifères ;
-‘3 Que nous demanderons de nous faire un climat. 4
+‘3 Que nous demanderons de nous faire un climat.
 D. Ce n'est pas leur entente et leur sens des affaires
 #8 Qui rameront pour nous sur nos derniers trois-mâts. Ra"
 ES : Et ce ne sera pas à leurs calorifères
 Que nous nous chaufferons dans ces derniers frimas.
-28 Et ce ne sera pas à leur goût des affaires
+Et ce ne sera pas à leur goût des affaires
 : 08 Que nous fierons nos cœurs et notre économie. ES.
 Ne. Et ce ne sera pas à leurs calorifères
 me. Que nous réchaufferons une peine endormie. ;
@@ -7209,24 +7207,24 @@ Re _ Qui nous encadreront dans leurs pompes funèbres.
 
 | Etce ne sera pas ces beaux archéologues De
 ee # Qui viendront nous chercher dans nos pâles décombres. FE
-72 Et ce ne sera pas ces savants mystagogues , : F3 “+
+Et ce ne sera pas ces savants mystagogues , : F3 “+
 x | Qui viendront nous tirer du royaume des ombres. :
-1e Et ce ne sera pas ces parfaits nettoyeurs 6e,
+1e Et ce ne sera pas ces parfaits nettoyeurs
 # Qui viendront nous chercher parmi les détritus. :
-Et ce ne sera pas ces maîtres fossoyeurs *e
+Et ce ne sera pas ces maîtres fossoyeurs
 ; Qui nous réciteront notre dernier Ag'nus. ñ A
-. Et ce ne sera pas ces auteurs délicats É
-Qui viendront nous chercher dans nos derniers humus. è
-| Et ce ne sera pas ces savants candidats ; 4
-Qui nous réciteront notre dernier Deus. 4
+. Et ce ne sera pas ces auteurs délicats
+Qui viendront nous chercher dans nos derniers humus.
+| Et ce ne sera pas ces savants candidats
+Qui nous réciteront notre dernier Deus.
 
 Et ce ne sera pas ces robes d'avocais ” “
-Qui viendront nous chercher dans nos derniers humus. 1
+Qui viendront nous chercher dans nos derniers humus.
 Et ce ne sera pas ces parfaits renégats ÿ ;
-% Qui forceront pour nous les portes du blocus. L k
-Ce n'est pas ces penseurs et ces hommes d'États É
-Qui viendront nous chercher dans notre insuffisance. 104
-Et ce ne sera pas ces hardis potentats 59
+% Qui forceront pour nous les portes du blocus.
+Ce n'est pas ces penseurs et ces hommes d'États
+Qui viendront nous chercher dans notre insuffisance.
+Et ce ne sera pas ces hardis potentats
 Qui nous mettront jamais au chemin de plaisance. A
 
 ee Et ce ne sera pas ces courtauds de boutiques
@@ -7234,8 +7232,8 @@ ne Qui viendront nous chercher dans notre négligence.
 Ts Et ce ne sera pas ces marquis authentiques
 * Qui nous mettront jamais au chemin d'allégeance.
 À Et ce ne sera pas ces maîtres parfumeurs
-1 Qui viendront nous trier d'entre nos immondices.
-1 Et ce ne sera pas ces chercheurs de blandices
+Qui viendront nous trier d'entre nos immondices.
+Et ce ne sera pas ces chercheurs de blandices
 Qui viendront nous trier de nos mauvaises mœurs.
 2 à Et ce ne sera pas ces maigres chiffonniers
 % Qui viendront nous trier les déchets de nos corps.
@@ -7243,10 +7241,10 @@ Qui viendront nous trier de nos mauvaises mœurs.
 [3 Qui viendront nous tirer d'entre les pâles morts.
 $ - Et ce ne sera pas ces hommes d'importance
 Y: Qui viendront ramasser notre dernier débris.
-3 Ce n'est pas leur jactance et leur intermittence
+Ce n'est pas leur jactance et leur intermittence
 2: Qui viendra nous chercher dans notre vieux Paris.
 ‘à } Et ce ne sera pas ces gens de conséquence
-Qui viendront ramasser notre corps et notre âme. ÿ
+Qui viendront ramasser notre corps et notre âme.
 P: Et ce ne sera pas ces maîtres d'éloquence
 É. Qui viendront nous chercher aux pieds de Notre Dame.
 
@@ -7254,21 +7252,21 @@ GRAS les tapisseries 11000
 Ë Et ce ne sera pas ces gens d'extrêmes goûts F FER
 Sn. Qui viendront nous chercher dans notre inconsistance. ie de
 Re Ce n'est pas leur jactance et leur belle prestance a
-see Qui viendra nous chercher dans le fond des égouts. 220
-; Et ce ne sera pas leurs vieux fonds de citerne | S
+see Qui viendra nous chercher dans le fond des égouts.
+; Et ce ne sera pas leurs vieux fonds de citerne
 k Qui nous remplaceront une source profonde. à #2
 ; Et ce ne sera pas ces premiers rois du monde à
 : Qui nous feront passer la dernière poterne. Le
 Et ce ne sera pas ces restants de citerne ne
 Qui nous remplaceront une source d'eau vive. pe
 
-Et ce ne sera pas leur pâle défensive d
+Et ce ne sera pas leur pâle défensive
 
-: Qui nous fera passer la dernière poterne. ë
+: Qui nous fera passer la dernière poterne.
 Et ce ne sera pas ces égouts de citerne à
-| Qui nous remplaceront une source profonde. 4
-) Et ce ne sera pas ces illustres du monde 3 n
-Qui nous feront passer la dernière poterne. MES « È
+| Qui nous remplaceront une source profonde.
+) Et ce ne sera pas ces illustres du monde
+Qui nous feront passer la dernière poterne. MES «
 Seule, nous le savons, une dure offensive | "20
 Nous livrera la porte, et le pont, et la herse. +:
 : Seule, nous le savons, une rude lessive 2707
@@ -7280,12 +7278,12 @@ ue _ Seule, nous le savons, une rude lessive
 PRES Lavera le restant de ce double passé. ;
 
 à Seule, nous le savons, une dure offensive
-RL. Nous livrera la porte et le pont du fossé. 4
+RL. Nous livrera la porte et le pont du fossé.
 Éé Seule, nous-le savons, une rude lessive
 Effacera les pas de l'ombre du passé.
-5 Et ce ne sera pas ces chasseurs de casquettes
-5 Qui nous emporteront dans leurs maigres carniers. S
-20 Et ce ne sera pas ces maitres des requêtes
+Et ce ne sera pas ces chasseurs de casquettes
+Qui nous emporteront dans leurs maigres carniers.
+Et ce ne sera pas ces maitres des requêtes
 Re. Qui viendront nous chercher dans nos pauvres charniers.
 do Et ce ne sera pas ces chasseurs de casquettes
 }. Qui nous emporteront parmi leurs gibecières. :
@@ -7294,36 +7292,36 @@ do Et ce ne sera pas ces chasseurs de casquettes
 ‘2 Et ce ne sera pas ces colleurs d'étiquettes
 Me Qui poseront sur nous la dernière formule. ;
 MS Et ce ne sera pas ces chasseurs de conquêtes
-4 Qui pèseront pour nous le gramme et le scrupule. |
+Qui pèseront pour nous le gramme et le scrupule. |
 
 je Et ce ne sera pas ces courtiers de basoches VMS
-Ha, Qui régleront pour nous l'ordre et la procédure. é. ë
+Ha, Qui régleront pour nous l'ordre et la procédure.
 ar Et ce ne sera pas ces chercheurs d'anicroches “ à
 Fe Qui viendront nous chercher dans le trouble et l'ordure.
 _ Et ce ne sera pas ces chasseurs de casquettes = À
-3 Qui nous emporteront parmi leurs gibecières. M
+Qui nous emporteront parmi leurs gibecières.
 ; Et ce ne sera pas ces joueurs de raquettes f < tR
 Qui viendront nous chercher dans nos humbles poussières. …
-Et ce ne sera pas ces élégants bancroches 4
+Et ce ne sera pas ces élégants bancroches
 Qui nous enseigneront ce que c'est que marcher. #
-Et ce ne sera pas ces candides fantoches É
+Et ce ne sera pas ces candides fantoches
 Qui nous enseigneront ce que c'est que pécher. à +
-Et ce ne sera pas ces essayeurs de roches 4
-Qui nous enseigneront l'ordre de la matière. 3
+Et ce ne sera pas ces essayeurs de roches
+Qui nous enseigneront l'ordre de la matière.
 É Et ce ne sera pas leurs cinquantuples croches be,
 | Qui nous réveilleront dans notre cimetière. ;
 .
 Et ce ne sera pas ces découpeurs de roches FR
 Qui nous révéleront le secret de matière. %
 Et ce ne sera pas ces essayeurs de croches #
-: Qui nous réveilleront dans notre cimetière. ï 4
+: Qui nous réveilleront dans notre cimetière.
 
 RD. Et ce ne sera pas tous ces vide-goussets
 Rs Qui payeront pour nous de l'argent de nos poches.
 Ér Et ce ne sera pas tous ces tourneurs de broches
 Pat Qui nous enseigneront un ordre que je sais.
 # Et ce ne sera pas tous ces passe-lacets
-2e Qui payeront pour nous le jour du dernier terme. ë
+2e Qui payeront pour nous le jour du dernier terme.
 UE Et ce ne sera pas ces frotteurs d'épiderme
 à Qui nous enseigneront un terme que je sais.
 Fa 4 Et ce ne sera pas tous ces lace-corsets
@@ -7340,28 +7338,28 @@ re Et ce n'est pas leur botte et leur entassement
 
 D Qui nous enseigneront le seul pas que je sais. |
 
-0 331
+0
 
 LS ER A les tapisseries
 ee. Et ce ne sera pas tous ces petits poucets Ra ne
-8 Qui nous apporteront des bottes de sept lieues. F LES
+Qui nous apporteront des bottes de sept lieues. F LES
 REP) Et ce ne sera pas ces nouveaux Barbe-Bleues CS Le
-43 Qui nous enseigneront un meurtre que je sais. Se 5
-# Et ce ne sera pas tous ces petits poucets E
-£ Qui nous arracheront de la maison de l'ogre. ë
+Qui nous enseigneront un meurtre que je sais. Se
+# Et ce ne sera pas tous ces petits poucets
+£ Qui nous arracheront de la maison de l'ogre.
 Ce n'est pas leur boussole et ce n'est pas leur dogre se
 Qui nous enseignera le seul nord que je sais. ST
-Et ce ne sera pas tous ces petits poucets : 1
+Et ce ne sera pas tous ces petits poucets
 Qui nous installeront dans une autre chaumière. LS à
-Ce n'est pas leurs cailloux et leur pauvre lumière 4
+Ce n'est pas leurs cailloux et leur pauvre lumière
 | Qui nous enseigneront un château que je sais. Ke
-4 Et ce ne sera pas tous ces petits poucets ” :0
+Et ce ne sera pas tous ces petits poucets ”
 Ds Qui nous installeront dans la candeur première. Re
 ê Ce n'est pas leurs cailloux et leur pauvre lumière *)
 D Qui nous enseigneront un jardin que je sais. à .
 
-Et ce ne sera pas tous ces petits poucets 4
-. Qui nous transporteront dans de plus nobles cieux. E:
+Et ce ne sera pas tous ces petits poucets
+. Qui nous transporteront dans de plus nobles cieux.
 Ce n'est pas leur lumière et leur main sur les yeux Es
 Qui nous enseigneront notre dernier palais. ji <3
 
@@ -7377,34 +7375,34 @@ ne à Et ce ne sera pas ces porteurs de sacoches À
 “0 ; Qui nous introduiront par la porte d'érable.
 ‘4 % Et ce ne sera pas ces amateurs de croches :
 De Qui nous enseigneront un chœur inaltérable,
-4 Et ce ne sera pas ces gros déménageurs
+Et ce ne sera pas ces gros déménageurs
 4 ts Qui nous emporteront notre pauvre ménage.
 D: Et ce ne sera pas tous ces maîtres-nageurs
 + Qui rameront pour nous dans le dernier naufrage.
 M: Et ce ne sera pas ces montants de guichets
-518 Qui nous encaisseront notre pauvre recette. 5
+Qui nous encaisseront notre pauvre recette.
 D - Et ce ne sera pas ces fraudeurs de péchés £
-20 Qui nous décaisseront l'argent de notre dette. ;
+Qui nous décaisseront l'argent de notre dette. ;
 
 “5 des tapisseries \; 277000
 (PA Et ce ne sera pas dans leurs étuis-musettes ASE
 Ge Qu'ils nous transporteront le pain de chaque jour. os
-__ Etce ne sera pas dans leurs sacs d'amusettes > à 4
-ne Que nous iransposerons notre dernier amour. 1e
+__ Etce ne sera pas dans leurs sacs d'amusettes > à
+ne Que nous iransposerons notre dernier amour.
 Et ce ne sera pas dans leurs étuis-musettes re
 “+ Que nous transporterons le pain du dernier jour.
 Et ce ne sera pas dans leurs sacs d'amusettes +
 | Que nous transposerons notre premier amour. ce
 Et ce ne sera pas tous ces Petits Poucets "
-Qui nous arracheront d'un grave enchaînement, j
+Qui nous arracheront d'un grave enchaînement,
 Et ce n'est pas leur trône et leur avènement :
 Qui nous arrachera la chaîne que je sais. ,
-6 Et ce ne sera pas ces héros d'antichambres ;
-del Qui nous introduiront dans un dernier réduit. 1
+Et ce ne sera pas ces héros d'antichambres ;
+del Qui nous introduiront dans un dernier réduit.
 Et ce ne sera pas ces simili Sicambres ete
 Qui nous feront passer dans le dernier déduit. AU
-Et ce ne sera pas ces héros de bastilles É
-Qui nous feront passer la Moselle et la Sambre. 3
+Et ce ne sera pas ces héros de bastilles
+Qui nous feront passer la Moselle et la Sambre.
 Et ce ne sera pas ces marchands de pastilles ‘
 Qui nous feront passer dans un dernier décembre. #
 
@@ -7426,9 +7424,9 @@ re Et ce ne sera pas tous leurs salamalecs
 2. : Qui nous remplaceront un Ave, Maria.
 
 #4 Et ce ne sera pas ces illustres blancs-becs
-4 Qui nous remplaceront le triple Hosanna. |
+Qui nous remplaceront le triple Hosanna. |
 
-fes Et ce ne sera pas tous leurs salamalecs 1
+fes Et ce ne sera pas tous leurs salamalecs
 
 & Qui nous remplaceront un Salve, regina.
 
@@ -7440,7 +7438,7 @@ fes Et ce ne sera pas tous leurs salamalecs 1
 
 S Qui viendront nous chercher dans nos derniers hameaux.
 
-91 Et ce ne sera pas ces diseurs de bons mots
+Et ce ne sera pas ces diseurs de bons mots
 
 re Qui nous remplaceront une illustre parole. :
 
@@ -7448,54 +7446,54 @@ re Qui nous remplaceront une illustre parole. :
 
 A Que nous apporterons l'oubli de tous les maux. :
 
-| Etce ne sera pas ces faiseurs de bons mots 7 2e
+| Etce ne sera pas ces faiseurs de bons mots
 de Qui nous remplaceront une antique parole. he
-à L Et ce ne sera pas ces beaux maîtres d'école : K
-108 Qui viendront nous chercher au fin fond des hameaux.
+à L Et ce ne sera pas ces beaux maîtres d'école
+Qui viendront nous chercher au fin fond des hameaux.
 Fe Et ce ne sera pas leurs vagues hyperboles .
 . Qui nous remplaceront un authentique Verbe. < +4
-. Et ce ne sera pas leurs outils agricoles * 3
+. Et ce ne sera pas leurs outils agricoles
 Qui nous auront lié notre éternelle gerbe. #
 Et ce ne sera pas ces amateurs de mots :
 Qui nous remplaceront l'auguste parabole. A
 Et ce ne sera pas leur comice agricole
 Qui nous remplacera notre jour des Rameaux.
-; Et ce ne sera pas ces inventeurs de gestes 4
-à Qui viendront nous chercher nos corps involontaires. e
+; Et ce ne sera pas ces inventeurs de gestes
+à Qui viendront nous chercher nos corps involontaires.
 Et ce ne sera pas tous ces complémentaires ;
 SE Qui viendront nous chercher nos déplorables restes. #
 Et ce ne sera pas ces débiteurs de gestes je
-Qui viendront nous chercher nos corps élémentaires. u
+Qui viendront nous chercher nos corps élémentaires.
 = Et ce ne sera pas tous ces supplémentaires js
-É Qui viendront nous chercher nos lamentables restes. 4
+É Qui viendront nous chercher nos lamentables restes.
 
 44 _ Et ce ne sera pas ces professeurs de gestes :
 : 1 ; Qui nous ramasseront nos corps sans commentaires.
-N Et ce ne sera pas tous ces parlementaires É
-700 Qui nous recueilleront nos misérables restes. |
-4 Et ce ne sera pas ces raisonneurs de gestes
+N Et ce ne sera pas tous ces parlementaires
+Qui nous recueilleront nos misérables restes. |
+Et ce ne sera pas ces raisonneurs de gestes
 1% Qui nous ramasseront nos corps héréditaires.
 D. Et ce ne sera pas tous ces réglementaires
 3 1 Qui viendront nous chercher nos périssables restes.
 3 j Et ce ne sera pas ces connaisseurs de gestes £
-2 Qui viendront nous chercher dans nos plus pauvres terres.
+Qui viendront nous chercher dans nos plus pauvres terres.
 “0 Et ce ne sera pas tous ces propriétaires
 j se Qui viendront nous chercher nos détestables restes.
 
 ‘4 Et ce n'est pas leur chlore et leurs bains sulfureux
-4 Qui viendront nous blanchir notre pauvre carcasse,
-É Et ce ne sera pas ces faiseurs de grimace 5
+Qui viendront nous blanchir notre pauvre carcasse,
+É Et ce ne sera pas ces faiseurs de grimace
 4 i Qui viendront nous chercher quand nous serons affreux.
-4 Et ce ne sera pas ces fâcheux prétendants Se
-24 Qui banderont un arc dans le palais d'Ulysse. | à
+Et ce ne sera pas ces fâcheux prétendants Se
+Qui banderont un arc dans le palais d'Ulysse. | à
 “4 Et ce ne sera pas ces fameux intendants \
 _ Qui boiront la lumière et le vin du calice. Je
 
 4 les tapisseries "7e
-Et ce ne sera pas ces fâcheux prétendants 6
-Qui banderont un arc dans le palais d'Ulysse. j
+Et ce ne sera pas ces fâcheux prétendants
+Qui banderont un arc dans le palais d'Ulysse.
 Re Et ce ne sera pas ces fameux intendants
-3 Qui boiront l'amertume et le sang du calice.
+Qui boiront l'amertume et le sang du calice.
 Et ce ne sera pas ces fâcheux prétendants
 Qui banderont un arc dans le palais d'Ulysse. ;
 Et ce ne sera pas ces fameux intendants
@@ -7519,26 +7517,26 @@ __ Et ce ne sera pas ces grêles soupirants
 
 -<0 Et ce ne sera pas ces frêles aspirants
 
-4 Qui seront revêtus d'une naissance neuve.
+Qui seront revêtus d'une naissance neuve.
 
 _ Et ce ne sera pas ces grossiers soupirants +
-4 Qui verront le pourchas de la plus fine toile.
+Qui verront le pourchas de la plus fine toile.
 à Et ce ne sera pas ces grossiers aspirants
 +. Qui verront se lever la plus candide étoile.
 
-3 Et ce ne sera pas ces grossiers prétendants |
+Et ce ne sera pas ces grossiers prétendants |
 FE Qui verront le pourchas d'une faussement toile.
 
-4 Et ce ne sera pas ces grossiers intendants
+Et ce ne sera pas ces grossiers intendants
 
-4 Qui rangeront le mât d'avec la toile à voile.
+Qui rangeront le mât d'avec la toile à voile.
 
-3 Et ce ne sera pas ces grossiers soupirants
+Et ce ne sera pas ces grossiers soupirants
 É à Qui verront le pourchas d'une prudente toile.
 € Et ce ne sera pas ces grossiers aspirants
-_ Qui verront se lever le plus candide voile. F
-#, Et ce ne sera pas ces brumeux prétendants É
-4 L Qui feront le pourchas d'une autre Pénélope. , :
+_ Qui verront se lever le plus candide voile.
+#, Et ce ne sera pas ces brumeux prétendants
+L Qui feront le pourchas d'une autre Pénélope. , :
 Et ce ne sera pas ces fumeux intendants
 L Qui sauront se sortir de l'antre du Cyclope.
 
@@ -7548,13 +7546,13 @@ Qui nous introduiront dans un dernier État.
 ; Ce n'est pas ces questeurs et ces inamovibles :
 Qui nous feront entrer dans le dernier sénat.
 Ce n'est pas ces galants et ces beaux ténébreux
-3 Qui viendront nous chercher dans notre turpitude. ie
-; Ce n'est pas ces savants et ces maîtres d'étude J 3
+Qui viendront nous chercher dans notre turpitude. ie
+; Ce n'est pas ces savants et ces maîtres d'étude
 Qui viendront nous chercher quand nous serons affreux.
-Ce n'est pas leur peau mate et leur face polie f
+Ce n'est pas leur peau mate et leur face polie
 Qui viendra nous chercher dans notre enterrement.
 Ce n'est pas leur peau plate et leur effarement
-Qui viendra nous lever notre mélancolie, É
+Qui viendra nous lever notre mélancolie,
 Ce n'est pas leur peau grasse et leur lèvre jolie
 Qui viendra nous chercher dans notre enterrement.
 Ce n'est pas leur peau basse et leur effleurement
@@ -7562,38 +7560,38 @@ Qui viendra nous lever notre mélancolie.
 Ce n'est pas un poignard dans une panoplie
 Qui combattra pour nous un suprême combat.
 d Et ce ne sera pas leur éternel débat :
-Qui viendra nous lever notre mélancolie. 3
-340 32
+Qui viendra nous lever notre mélancolie.
+340
 
 ee | Ce n'est pas ces nerveux et ces beaux soupirants )
 É Qui viendront nous chercher dans nos dépositoires.
-24 Et ce ne sera pas nos professeurs d'histoires
+Et ce ne sera pas nos professeurs d'histoires
 ê Qui feront le cortège et déferont les rangs.
 
-4 Ce n'est pas ces verveux et tous ces museaux secs
+Ce n'est pas ces verveux et tous ces museaux secs
 
-3 Qui viendront nous chercher dans nos anciens espaces.
+Qui viendront nous chercher dans nos anciens espaces.
 
 Le Et ce ne sera pas nos professeurs de grecs
 
-4 Qui régleront la pompe et marqueront les places.
+Qui régleront la pompe et marqueront les places.
 
 Et ce ne sera pas tous ces télépathiques
-4 Qui viendront nous chercher dans notre isolement.
+Qui viendront nous chercher dans notre isolement.
 
 ; Et ce ne sera pas tout leur affolement
 
 : Qui pourra soulever nos membres apathiques.
 
-3 Ce n'est pas ces fameux prestidigitateurs
+Ce n'est pas ces fameux prestidigitateurs
 
-4 Qui viendront nous chercher dans notre éloignement.
+Qui viendront nous chercher dans notre éloignement.
 
 - Et ce ne sera pas tout leur besognement
 
-1 Qui les empêchera d'être des amateurs. ?
+Qui les empêchera d'être des amateurs. ?
 D: Ce n'est pas ces fiévreux et ces agitateurs :
-4 Qui viendront nous chercher dans notre solitude.
+Qui viendront nous chercher dans notre solitude.
 
 + _ Et ce ne sera pas leur éternelle étude
 
@@ -7601,7 +7599,7 @@ D: Ce n'est pas ces fiévreux et ces agitateurs :
 
 les tapisseries Mn :
 Ce n'est pas ces crémeux et ces grands géographes rs
-Qui viendront nous chercher dans des pays perdus. :4
+Qui viendront nous chercher dans des pays perdus.
 Ce n'est pas ces spumeux et ces beaux cartographes
 Qui pourront soulever nos membres détendus.
 Ce n'est pas ces vitreux et ces machinateurs
@@ -7619,7 +7617,7 @@ Qui viendront soulever nos membres corrompus.
 Et ce ne sera pas ces graveurs d'épitaphes
 Qui nous feront passer les ponts interrompus.
 Et ce ne sera pas ces auteurs d'autographes
-Qui viendront soulever nos membres corrompus. é
+Qui viendront soulever nos membres corrompus.
 
 $ Et ce ne sera pas ces maîtres d'orthographes
 
@@ -7627,7 +7625,7 @@ Qui nous feront passer par les ponts suspendus.
 Et ce ne sera pas ces auteurs de paraphes
 
 | Qui pourront soulever nos membres détendus.
-6 Et ce ne sera pas ces faiseurs d'épigraphes
+Et ce ne sera pas ces faiseurs d'épigraphes
 Qui nous introduiront à la source de l'être.
 Et ce ne sera pas ces sténobiographes
 P Qui viendront nous chercher dans la ronce et le hêtre.
@@ -7638,34 +7636,34 @@ Et ce ne sera pas ces sténologographes
 Qui viendront nous chercher dans la ronce et le hêtre.
 Et ce ne sera pas leurs jeux interrompus
 j Qui nous feront gagner la partie éternelle.
-4 Et ce ne sera pas leur vigueur solennelle
-4 Qui pourra nous lever nos membres corrompus.
+Et ce ne sera pas leur vigueur solennelle
+Qui pourra nous lever nos membres corrompus.
 | Et ce ne sera pas leurs mots interrompus
 
 à Qui nous feront gagner la centrale partie.
 
 e Et ce ne sera pas leur vigueur départie
 
-4 Qui pourra soulever nos membres corrompus.
+Qui pourra soulever nos membres corrompus.
 
 LR les tapisseries "1
 Le Et ce ne sera pas leurs savants pronostics au
 AS Qui nous révéleront notre dernier demain. si Va
-à Et ce ne sera pas leurs gestes et leurs tics Ed K
+à Et ce ne sera pas leurs gestes et leurs tics Ed
 : Et ce ne sera pas leurs savants pronostics :
-Qui nous dévoileront notre dernier demain. Î 2 ê
+Qui nous dévoileront notre dernier demain.
 Et ce ne sera pas leurs gestes et leurs tics à;
-Qui nous mettront l'obole au creux de notre main. 1
-Et ce ne sera pas leurs fâcheux pronostics À Ë
+Qui nous mettront l'obole au creux de notre main.
+Et ce ne sera pas leurs fâcheux pronostics À
 Qui nous feront lever notre dernier demain. ‘à
 Et ce ne sera pas leurs gestes et leurs tics Re
 Qui viendront nous chercher et nous prendre la main.
 Et ce ne sera pas leurs douteux pronostics a
 < Qui nous éclaireront notre dernier demain. :
 Be Et ce ne sera pas leurs gestes et leurs tics &
-Qui viendront nous laver le sang de notre main. 0
-Et ce ne sera pas leurs savantes tactiques 4
-Qui nous emporteront dans un dernier débat. 4
+Qui viendront nous laver le sang de notre main.
+Et ce ne sera pas leurs savantes tactiques
+Qui nous emporteront dans un dernier débat.
 Et ce ne sera pas leurs creuses balistiques |
 | Qui nous feront gagner dans un dernier combat. +.
 
@@ -7675,25 +7673,25 @@ se Et ce ne sera pas leurs simili mystiques
 4: Qui nous emporteront dans un dernier passé.
 Et ce ne sera pas leurs honteuses tactiques
 4 à Qui nous emporteront dans un dernier assaut.
-4 Et ce ne sera pas leurs vaines balistiques
+Et ce ne sera pas leurs vaines balistiques
 : Qui nous feront sauter dans un dernier ressaut.
-4 Et ce ne sera pas leurs douteuses pratiques
+Et ce ne sera pas leurs douteuses pratiques
 Qui nous emporteront dans un dernier élan.
 Ce n'est pas leur programme et ce n'est pas leur plan
 
 ; Qui nous remplacera nos dures dogmatiques.
-4 Et ce ne sera pas leurs molles pragmatiques
+Et ce ne sera pas leurs molles pragmatiques
 Qui nous emporteront dans un dernier assaut.
-4 Et ce ne sera pas leurs gestes hiératiques
+Et ce ne sera pas leurs gestes hiératiques
 % Qui nous feront sauter le pas du dernier saut.
 : Et ce ne sera pas leurs airs diplomatiques à
 À Qui nous emporteront dans un dernier assaut.
-1 Et ce ne sera pas leurs tons énigmatiques
+Et ce ne sera pas leurs tons énigmatiques
 4 : Qui nous distingueront l'honnête homme et le sot.
 
 Et ce ne sera pas ces portants de théâtre VÉRL LE
 " Qui nous transporteront dans le dernier décor. etat
-ra Et ce n'est pas leurs trucs et leurs gestes d'albâtre Ë
+ra Et ce n'est pas leurs trucs et leurs gestes d'albâtre
 Pire Qui nous remplaceront notre dernier trésor.
 Et ce ne sera pas ces distingués cloportes |
 Qui viendront nous chercher dans notre enterrement.
@@ -7709,7 +7707,7 @@ Qui viendront nous chercher dans notre enterrement.
 Qui nous rassembleront en de pâles cohortes. ;
 Et ce ne sera pas ces distingués cloportes :
 Qui viendront nous chercher dans notre enterrement. |
-é Ce n'est pas leur détresse et leur effondrement É
+é Ce n'est pas leur détresse et leur effondrement
 Qui nous assembleront en furtives cohortes. à
 
 PONT LS ÈVE « Et ce ne sera pas ces distingués cloportes
@@ -7743,17 +7741,17 @@ Et ce ne sera pas ces chambellans épais :
 Et ce ne sera pas leurs lèvres répugnantes ;
 Qui viendront nous donner notre baïser de paix.
 Et ce ne sera pas ces buveurs de tisanes
-Qui viendront nous chercher sous les hêtres épais. ù
+Qui viendront nous chercher sous les hêtres épais.
 Et ce ne sera pas à des baisers profanes
 s Que nous demanderons notre baiser de paix.
 ; Et ce ne sera pas cette bande charnelle a
-Qui viendra nous chercher sous les beaux orangers. 4
-Et ce ne sera pas ces pauvres horlogers Ë
-Qui nous remonteront une horloge éternelle. È
+Qui viendra nous chercher sous les beaux orangers.
+Et ce ne sera pas ces pauvres horlogers
+Qui nous remonteront une horloge éternelle.
 Et ce ne sera pas ces nobles étrangers à
-Qui nous boulangeront le pain de chaques jours. 3
-Et ce ne sera pas ces pauvres boulangers î
-Qui nous cuiront le pain des terrestres amours. 4
+Qui nous boulangeront le pain de chaques jours.
+Et ce ne sera pas ces pauvres boulangers
+Qui nous cuiront le pain des terrestres amours.
 
 Et ce ne sera pas ces nobles étrangers
 Qui nous boulangeront le pain de chaques jours.
@@ -7779,22 +7777,22 @@ J Qui nous cuiront le pain d'une amour éternelle. .
 
 ne, les “lapisseries Le ANNEES
 __ Etce ne sera pas ces pauvres solennels Ft os
-25 Qui viendront nous chercher sous les beaux orangers. ‘ ;
+Qui viendront nous chercher sous les beaux orangers. ‘ ;
 3 _ Et ce ne sera pas ces pauvres horlogers a “ « |
 Ru Qui feront tourner l'heure aux cadrans éternels. Si Se
 ; Et ce ne sera pas ces demi-criminels à Ne » Qui viendront nous chercher dans une entière mort. FA
-4 Et ce ne sera pas ces demi-colonels SEA
+Et ce ne sera pas ces demi-colonels SEA
 & Qui sauront emporter l'indivisible fort. es
 Et ce ne sera pas ces faux passionnels À
 Qui sauront emporter le cœur de la maison. Ji
 : Et ce ne sera pas ces faux rationnels | À
 Qui sauront emporter le cœur de la raison. A
-: Et ce ne sera pas ces faux passionnels & F
+: Et ce ne sera pas ces faux passionnels &
 Qui sauront saluer le cœur de leur saison. fe
 Et ce ne sera pas ces faux rationnels À
 Qui sauront saluer le cœur de la raison. %
 Et ce ne sera pas ces unipersonnels #4
-Qui sauront saluer une triple personne. 4
+Qui sauront saluer une triple personne.
 Et ce ne sera pas ces faussement charnels +4
 Qui sauront recevoir une pauvre couronne. DE: pe
 
@@ -7813,19 +7811,19 @@ Et ce ne sera pas leurs gilets de flanelles LH
 | Qui sauront les sauver du frisson de la mort. À
 Et ce ne sera pas ces louches sentinelles LRQ
 
-Qui garderont l'ogive et les créneaux du fort. 5
+Qui garderont l'ogive et les créneaux du fort.
 Et ce ne sera pas leurs gilets de flanelles #
 Qui sauront les sauver des lèvres de la mort. Fe
 
 Et ce ne sera pas ces beaux polichinelles ‘a
 
 Qui sauteront la rampe et les derniers tréteaux. PAPIERS
-Et ce ne sera pas leurs airs de péronnelles « 3
+Et ce ne sera pas leurs airs de péronnelles «
 
 k Qui les embarqueront sur les derniers bateaux. er
-Et ce ne sera pas ces hommes de théâtres 350
+Et ce ne sera pas ces hommes de théâtres
 
-Qui viendront nous chercher parmi la pimprenelle. : 24
+Qui viendront nous chercher parmi la pimprenelle.
 Et ce ne sera pas ces faussement folâtres 1244
 
 _ Qui viendront déranger la ronde coccinelle. Yi
@@ -7841,7 +7839,7 @@ Qui viendront nous chercher dans notre dormitoire.
 | Ce n'est pas ces monteurs et ces mécaniciens
 Qui nous remonteront nos vieilles mécaniques.
 Ce n'est pas ces docteurs et ces statisticiens
-6 Qui pourront nous sauver de nos terreurs paniques.
+Qui pourront nous sauver de nos terreurs paniques.
 Ce n'est pas ces monteurs et ces mécaniciens
 Qui nous remonteront une vieille machine.
 Ce n'est pas ces compteurs et ces statisticiens
@@ -7849,27 +7847,27 @@ Ce n'est pas ces compteurs et ces statisticiens
 | Ce n'est pas ces compteurs et ces mécaniciens
 Qui nous remonteront de raides mécanismes.
 : Ce n'est pas ces graisseurs et ces électriciens
-4 Qui nous assoupliront nos raides rhumatismes.
+Qui nous assoupliront nos raides rhumatismes.
 
 à les tapisseries M |
 Et ce ne sera pas ces pâles faces rases TE
 Qui viendront nous chercher sous les charmes épais.
-3 Et ce ne sera pas ces constructeurs de phrases ;
+Et ce ne sera pas ces constructeurs de phrases ;
 # Qui viendront nous donner notre baiser de paix.
 Et ce ne sera pas ces faiseurs d'antiphrases ;
-Qui viendront nous chercher sous des ombres épaisses. 2
+Qui viendront nous chercher sous des ombres épaisses.
 Et ce ne sera pas leurs molles paraphrases :
 Qui viendront découper le genre et les espèces.
 Et ce ne sera pas leurs sottes périphrases
 Qui viendront nous chercher sous les ormes épais.
 Et ce ne sera pas leurs timides emphases
 Qui viendront nous donner notre baiser de paix. à
-Et ce ne sera pas ces hardis mousquetaires è
+Et ce ne sera pas ces hardis mousquetaires
 | Qui viendront nous chercher dans notre enterrement. ;
 ; Et ce ne sera pas tout leur accoutrement ;
-Qui viendra nous chercher dans le fond de nos terres. : 2
+Qui viendra nous chercher dans le fond de nos terres.
 Et ce ne sera pas ces vaillants mousquetaires
-| Qui viendront nous chercher dans notre accoutrement. 5
+| Qui viendront nous chercher dans notre accoutrement.
 Et ce ne sera pas leur enchevêtrement :
 Qui viendra nous chercher dans nos dernières terres. £
 
@@ -7900,7 +7898,7 @@ Qui nous feront passer la grille du jardin.
 PE les tapisseries Ses is
 Fe Et ce ne sera pas leurs faces polissonnes RUE
 ji Qui viendront nous chercher sous les chastes cyprès. T0 ;
-> Et ce ne sera pas leurs lèvres mollassonnes 2e
+> Et ce ne sera pas leurs lèvres mollassonnes
 FL Qui viendront nous donner notre baiser de paix. |
 De Et ce ne sera pas ces pompiers de services :
 Six Qui viendront nous chercher dans les derniers portants. à
@@ -7908,16 +7906,16 @@ Six Qui viendront nous chercher dans les derniers portants. à
 Lee Qui départageront les vertus et les vices. TRS
 Et ce ne sera pas ces grands metteurs en scènes
 Qui viendront nous chercher sous les myrtes épais. LES
-Et ce ne sera pas à leurs lèvres obscènes 0
+Et ce ne sera pas à leurs lèvres obscènes
 Que nous demanderons notre baiser de paix.
-Et ce ne sera pas ces pompiers de services È
-Qui viendront nous chercher dans les derniers portants. s
-Et ce ne sera pas ces hommes importants 4
-Qui viendront découper les vertus et les vices. 3
+Et ce ne sera pas ces pompiers de services
+Qui viendront nous chercher dans les derniers portants.
+Et ce ne sera pas ces hommes importants
+Qui viendront découper les vertus et les vices.
 Et ce ne sera pas ces grands metteurs en scène GE.
 Qui nous convoqueront sur un dernier plateau. cs
-Et ce ne sera pas de leur dernier bateau e.
-” Que Pierre jettera les mailles de la senne. 44
+Et ce ne sera pas de leur dernier bateau
+” Que Pierre jettera les mailles de la senne.
 
 Et ce ne sera pas à ces faces glacées
 Que nos yeux s'ouvriront sous les myrtes épais.
@@ -7937,10 +7935,10 @@ Et ce ne sera pas leurs lèvres décousues
 Qui viendront nous donner notre baiser de paix.
 . Et ce ne sera pas parmi leurs pâles faces
 _ Que nos yeux s'ouvriront sous les ormes épais.
-Et ce n'est pas leur dents et leurs lèvres mollasses F
-, Qui viendront nous donner notre baiser de paix. È
-4 357
-1 1
+Et ce n'est pas leur dents et leurs lèvres mollasses
+, Qui viendront nous donner notre baiser de paix.
+4
+1
 
 les tapisseries 22 "NN
 Et ce ne sera pas devant leurs pâles faces ss
@@ -7949,10 +7947,10 @@ Et ce n'est pas leurs dents et leurs lèvres cocasses $a
 Qui viendront nous donner notre baiser de paix, ;
 Et ce ne sera pas ces buveurs de lavasses
 Qui viendront nous chercher sous les rameaux épais.
-Et ce n'est pas leurs dents et leurs lèvres bonasses é
+Et ce n'est pas leurs dents et leurs lèvres bonasses
 Qui viendront nous donner notre baiser de paix.
 Et ce ne sera pas ces faiseurs de grimaces
-3 Qui viendront nous chercher sous les graves cyprès.
+Qui viendront nous chercher sous les graves cyprès.
 Et ce ne sera pas à ces lèvres trop grasses
 Que nous demanderons notre baiser de paix.
 Et ce ne sera pas ces faussement tenaces
@@ -7962,7 +7960,7 @@ Qui viendront nous donner notre baiser de paix.
 Et ce ne sera pas ces faces harassées
 Qui viendront nous chercher dans des repos épais.
 Et ce ne sera pas leurs lèvres déclassées * ;
-Qui viendront nous donner notre baïser de paix. s
+Qui viendront nous donner notre baïser de paix.
 
 Ce n'est pas ces geôliers et ces pisciculteurs
 Qui viendront nous chercher dans nos tombes encloses.
@@ -7981,7 +7979,7 @@ Qui viendront nous chercher parmi les lauriers-roses.
 Et ce ne sera pas ces mornes inspecteurs
 Qui nous délaceront de la ronce et des roses.
 , Et ce ne sera pas ces mornes producteurs
-6 Qui nous feront entrer dans un dernier partage.
+Qui nous feront entrer dans un dernier partage.
 É Et ce ne sera pas ces mornes conducteurs
 Ê Qui nous feront passer par un dernier village.
 
@@ -8010,7 +8008,7 @@ Qui viendront essuyer la peau bleuâtre et morte.
 Et ce ne sera pas ces grêles capitaines
 Qui nous emporteront la place grave et forte.
 Et ce ne sera pas ces gantés de mitaines
-5 Qui nous défonceront une dernière porte.
+Qui nous défonceront une dernière porte.
 Et ce ne sera pas ces frêles capitaines
 Qui nous emporteront la place pauvre et forte.
 < Et ce ne sera pas ces gantés de mitaines
@@ -8020,15 +8018,15 @@ Qui nous emporteront la place noble et forte.
 É Et ce ne sera pas ces gantés de mitaines
 Qui viendront nous laver des traces du cloporte.
 ; Et ce ne sera pas ces gantés de mitaines
-4 Qui nous emporteront la place nue et forte.
+Qui nous emporteront la place nue et forte.
 : Et ce ne sera pas des gens de cette sorte
 À Que nous reconnaîtrons pour des grands capitaines.
-3 Ë Et ce ne sera pas ces hardis capitaines
+Ë Et ce ne sera pas ces hardis capitaines
 E- Qui nous emporteront l'auguste forteresse. |
 À Et ce ne sera pas ces gantés de mitaines
-4 Qui nous arracheront d'une juste détresse.
+Qui nous arracheront d'une juste détresse.
 
-0 Et ce ne sera pas ces hardis capitaines
+Et ce ne sera pas ces hardis capitaines
 a Qui nous emporteront la haute forteresse. CN CRD
 HAS Et ce ne sera pas ces gantés de mitaines & ATCRCIE
 cs | Qui nous arracheront d'une basse détresse. LV
@@ -8041,7 +8039,7 @@ Qui nous emporteront la droite forteresse. ; pe
 Et ce ne sera pas ces gantés de mitaines ie
 : Qui nous arracheront d'une pauvre détresse. ; #
 a Et ce ne sera pas ces hardis capitaines : à
-pue Qui nous emporteront la roide forteresse. 4
+pue Qui nous emporteront la roide forteresse.
 VA Et ce ne sera pas ces gantés de mitaines HIS
 F Qui nous arracheront d'une molle détresse. ee
 : Et ce ne sera pas ces hardis capitaines ER
@@ -8053,25 +8051,25 @@ _ Et ce ne sera pas ces hardis capitaines
 : Qui nous emporteront la place unique au monde.
 re Et ce ne sera pas ces plongeurs en mitaines
 1 - Qui viendront nous chercher sous la vague profonde.
-_ Et ce ne sera pas ces hardis capitaines d
+_ Et ce ne sera pas ces hardis capitaines
 N: Qui nous emporteront sur leurs musculatures. HS
 # Et ce ne sera pas ces gantés de mitaines | :
 be: Qui viendront nous chercher dans nos maculatures. :
-4 Et ce ne sera pas ces pauvres frénétiques
+Et ce ne sera pas ces pauvres frénétiques
 É: Qui viendront nous chercher sous les myrtes épais.
 à Et ce ne sera pas leurs faces fanatiques
 ; Qui viendront nous donner notre baiser de paix. |
 _ Et ce ne sera pas ces aristotéliques
-4 Qui viendront nous chercher sous les lauriers épais.
+Qui viendront nous chercher sous les lauriers épais.
 RE Et ce ne sera pas leurs lèvres faméliques
 L: Qui viendront nous donner notre baiser de paix. .
 à Une autre, une autre lèvre un peu plus catholique
-4 Mettra sur nos deux yeux notre baiser de paix.
+Mettra sur nos deux yeux notre baiser de paix.
 _ , Une main moins aveugle et plus apostolique :
 Si Saura nous retrouver sous les hêtres épais.
 
 les tapisseries Fi
-Et ce n'est pas ces dents et ces lèvres flétries È
+Et ce n'est pas ces dents et ces lèvres flétries
 Qui viendront nous donner notre baiser de paix. ;
 Et ce ne sera pas ces enquêteurs épais
 Qui viendront nous chercher jusque dans nos patries.
@@ -8110,7 +8108,7 @@ Et ce ne sera pas ces maussades pantins
 Qui nous retourneront dans l'outrage et l'ordure.
 É, Et ce ne sera pas ces fades plaisantins
 s Qui viendront nous chercher dans notre turpitude.
-£ Et ce ne sera pas ces aimables pantins 5
+£ Et ce ne sera pas ces aimables pantins
 pe Qui nous ramasseront notre décrépitude.
 
 | Etce ne sera pas ces gardiens de prison TE Re
@@ -8121,28 +8119,28 @@ Et ce ne sera pas par dessus leurs épaules fs LUS
 
 Que nous contemplerons un immense horizon. LES
 
-51 3
-ER Et ce ne sera pas ces gardiens de prison D.
+51
+ER Et ce ne sera pas ces gardiens de prison
 7 . Qui viendront nous nommer au seuil de notre geôle. _
 LEE Et ce ne sera pas par dessus leur épaule ER
-26 Que nous nous heurterons au mur de l'horizon. KE FEES
-5 Et ce ne sera pas ces gardiens de prison Fr 1
+Que nous nous heurterons au mur de l'horizon. KE FEES
+Et ce ne sera pas ces gardiens de prison Fr
 
 ie Qui nous appelleront au seuil de notre geôle. à + "4
-3 Et ce ne sera pas par dessus leur épaule LE
+Et ce ne sera pas par dessus leur épaule LE
 te, Que nous contemplerons un immense horizon. ne.
-1400 Et ce ne sera pas ces gardiens de prison 30
-he Qui viendront nous cueillir au seuil de notre geôle. 4
+1400 Et ce ne sera pas ces gardiens de prison
+he Qui viendront nous cueillir au seuil de notre geôle.
 Le Et ce ne sera pas par dessus leur épaule EN.
 Fe Ke Que nous regarderons les bords de l'horizon. 1208
 Et ce ne sera pas ces gardiens de prison CLR
-3 Qui viendront nous lever nos registres d'écrous. 454
+Qui viendront nous lever nos registres d'écrous.
 E . Et qui feront peser sur la peau de nos cous ; ASS:
-: S L'immense écrasement de ce morne horizon. M:
+: S L'immense écrasement de ce morne horizon.
 
 F: _ Etce ne séra pas ces gardiens de prison
 Se Qui viendront nous lever de nos pâles écrous. . :
-4 Et qui feront peser sur la peau de nos cous
+Et qui feront peser sur la peau de nos cous
 W Le plat écrasement d'un immense horizon. “Ts
 : Et ce ne sera pas ces gardiens de prison
 Qui nous appelleront par nos noms de baptême. $
@@ -8153,13 +8151,13 @@ _ Qui nous appelleront par nos noms de baptême.
 ; Du nom des saints patrons qui font tout notre thème :
 Et qui tiendront le coup aux bords de l'horizon.
 Et ce ne sera pas ces gardiens de prison
-4 Qui nous appelleront par nos noms de famille.
+Qui nous appelleront par nos noms de famille.
 Du nom de notre père et de fil en aiguille
 Du nom de notre aïeul et jusqu'à l'horizon
-1 Du nom de notre race et de notre paroisse. -
+Du nom de notre race et de notre paroisse. -
 H Du nom de notre Christ et notre rédempteur. me
 L Du nom de votre grâce et du premier auteur. ;
-3 Du nom de notre peine et notre morne angoisse. ;
+Du nom de notre peine et notre morne angoisse. ;
 
 | les tapisseries." "UNE
 Ils n'iront pas chercher dans la dernière alcôve
@@ -8180,7 +8178,7 @@ Et qui feront peser sur nos faces caduques
 La réprobation courant au ras du sol.
 Et ce ne sera pas ces maîtres de tactiques
 Qui nous emporteront dans un dernier abord.
-Ce n'est pas ces frileux et ces antipathiques j
+Ce n'est pas ces frileux et ces antipathiques
 Qui nous feront sauter par un dernier sabord.
 
 Ce n'est point leurs tableaux, fussent-ils synoptiques,
@@ -8194,7 +8192,7 @@ Et nous serons menés par des mains plus légères.
 Et nous serons conduits par une autre houlette
 Et nos bergers seront deux antiques bergères.
 Et nous serons liés d'une autre bandelette.
-Et nous serons liés par des mains plus légères. x
+Et nous serons liés par des mains plus légères.
 Et nous autres Français nous en suivrons une autre.
 Et nous filerons doux nous autres les malins.
 Et le plus déluré fera le bon apôtre.
@@ -8216,35 +8214,35 @@ Et nous gens de Paris nous en suivrons la nôtre. rec
 REA Et nous filerons doux nous autres les malins. - HSE
 pe Et le plus mesuré fera le bon apôtre. FA
 ne Et les soleils d'hiver seront sur leurs déclins. SO
-re Nous autres gens d'ici nous en suivrons la nôtre. 54e
+re Nous autres gens d'ici nous en suivrons la nôtre.
 FES Et nous filerons doux nous autres les malins. ee
-10 Et le plus assuré fera le bon apôtre. NE
-12 Et nos derniers soleils seront sur leurs déclins. : Li
+Et le plus assuré fera le bon apôtre. NE
+Et nos derniers soleils seront sur leurs déclins. : Li
 ES Et nos bergers seront deux uniques bergères. HR
 mi Et nous filerons doux par devant ces houlettes. 732010
-ÉiA Et nous serons menés par des mains plus légères. S.
+ÉiA Et nous serons menés par des mains plus légères.
 mu à Et nous écarterons nos pâles bandelettes. HUE
 
 2 _ L'une est morte au milieu des pâles citoyens, :
 s Pieusement couchée en un lit de parade. ES.
-7 Soigneusement dressée en une haute estrade 20E
+Soigneusement dressée en une haute estrade
 Es L'autre est morte au milieu des pâles citoyens.
 a L'une est morte au milieu de tous les citoyens, Ke
 Ÿ Pieusement couchée en un lit de tendresse,
 2 .Soigneusement dressée en un lit de détresse, ee
 %* L'autre est morte au milieu de tous les citoyens. Vue?
 É Parmi les jeunes clercs et les curés-doyens ) PET
-4 L'une est morte au milieu d'un immense concours. se
-_ Parmi les hommes d'arme et les curés-doyens 5
+L'une est morte au milieu d'un immense concours. se
+_ Parmi les hommes d'arme et les curés-doyens
 Ë L'autre est morte au milieu d'un immense concours, ‘ee
 Me Les yeux sur une croix, sans hâte et sans discours, RÉRSSE
-4 L'une est morte au milieu d'une vieille paroisse. RÉ
-É Les yeux sur une croix, après quelques discours, Ç
+L'une est morte au milieu d'une vieille paroisse. RÉ
+É Les yeux sur une croix, après quelques discours,
 4 _ L'autre est morte au milieu d'une vieille paroisse.
-5 Les yeux sur une croix sans hâte et sans faiblesse, 24
+Les yeux sur une croix sans hâte et sans faiblesse,
 en L'une est morte au milieu d'un immense appareil. FR
 È Les yeux sur une croix sans honte et sans faiblesse | as
-FD L'autre est morte au milieu d'un immense appareil. 2
+FD L'autre est morte au milieu d'un immense appareil.
 
 les tapisseries APE NON
 Sous un dais garanti des rayons du soleil,
@@ -8295,19 +8293,19 @@ La plus appareillée au cœur de Jésus-Cbrist. SE
 - Et nous autres Français nous en suivrons la nôtre. Be
 _ C'est la plus attachée aux dons du Saint-Esprit. FR
 Et la plus affichée au livre de l'apôtre. RATE
-a Et la plus approchée au cœur de Jésus-Christ. F0
+a Et la plus approchée au cœur de Jésus-Christ.
 Et nous autres Français nous en suivrons la nôtre. CSN
-pa C'est la plus accointée aux dons du Saint-Esprit. 10h
+pa C'est la plus accointée aux dons du Saint-Esprit.
 
-Et la plus attestée au livre de l'apôtre. 51e
-Et la plus imitée au cœur de Jésus-Christ. 3
+Et la plus attestée au livre de l'apôtre.
+Et la plus imitée au cœur de Jésus-Christ.
 Dans un vallon semé de bouleaux et de hêtres LS
 “ L'une est morte au milieu d'un peuple prosterné. 2748
 CU L'autre est morte au milieu d'un peuple consterné. *
 ne Au milieu des bourgeois, des mananits et des prêtres, Des
 À - L'une est morte au milieu d'un peuple nouveau-né. ee
 
-ra Au milieu des soldats, des bourreaux et des prêtres, 4
+ra Au milieu des soldats, des bourreaux et des prêtres,
 ue L'autre est morte au milieu d'un peuple abandonné. _
 
 Le Dans le propre pays de ses simples ancêtres
@@ -8316,20 +8314,20 @@ Se Au milieu des docteurs, des savants et des traîtres .
 ke L'autre est morte au milieu d'un peuple rançonné.
 à _! Dans le propre pays de ses travaux champêtres
 LÉ: L'une est morte au milieu d'un peuple façonné.
-5 Sous les regards dardés de toutes les fenêtres
+Sous les regards dardés de toutes les fenêtres
 | L'autre est morte au milieu d'un peuple pardonné.
-Es Au milieu du troupeau conduit par ses pasteurs,- 4
+Es Au milieu du troupeau conduit par ses pasteurs,-
 : L'une est morte au milieu d'une sorte de place. Lt
-66 Au milieu du troupeau séduit par les docteurs
+Au milieu du troupeau séduit par les docteurs
 
 L'autre est morte au milieu d'une publique place.
 L'une est morte au milieu d'une sorte d'espace
 | Laissé par le respect et le recueillement. :
-54 L'autre est morte au milieu d'un implacable espace
+L'autre est morte au milieu d'un implacable espace
 ° Gardé par la terreur et le gouvernement.
-3 Et l'une dans le ciel a l'âge que Dieu veut. F 1e
+Et l'une dans le ciel a l'âge que Dieu veut.
 | Car elle a parcouru les degrés de la vie. |
-: ; Et le péché d'orgueil et le péché d'envie 2
+: ; Et le péché d'orgueil et le péché d'envie
 à Se sont longtemps ligués contre son noble vœu.
 
 les tapisseries ne
@@ -8351,12 +8349,12 @@ Sans hâte et sans faiblesse et sans nul tremblement,
 L'une est morte au milieu de la plèbe chrétienne.
 Sans honte et sans faiblesse et sans nul tremblement,
 
-15 L'autre est morte au milieu de la plèbe chrétienne.
+L'autre est morte au milieu de la plèbe chrétienne.
 Diligente, attentive et candide doyenne,
 L'une est morte au milieu d'un grand assemblement.
 Diligente, attentive et jeune citoyenne,
 L'autre est morte au milieu d'un grand assemblement.
-376 0
+376
 
 Et l'une était ridée et c'était une ancienne.
 Et tous la regardaient comme une auguste aïeule.
@@ -8392,37 +8390,37 @@ AR, Sans aucun appareil, sans aucun artifice, sir.
 er Du premier jour des Rois jusqu'au dernier Noël. JON
 1722 Et la vie est chargée, et c'est là son affaire, Fe
 Vert De marcher tout le long de notre âge réel. LES
-ee Et nul ne peut changer, et nul ne peut défaire 5. 480
+ee Et nul ne peut changer, et nul ne peut défaire
 LE La courbe qu'elle inscrit jusqu'au dernier Noël. NERO
 re. Et la vie est chargée et c'est là son affaire YO
 2 __ D'enregistrer l'ampleur de notre âge réel. Re.
 Nul ne peut altérer, nul ne peut redéfaire : STRESS
 mu” Le tracé qu'elle inscrit jusqu'au dernier Noël. TA
 
-Lors C'est la terre qui gagne et la terre qui plaide 2
-‘1% Et qui fait le procès de nos vieillissements 2e
+Lors C'est la terre qui gagne et la terre qui plaide
+‘1% Et qui fait le procès de nos vieillissements
 À Et qui fait une belle et qui fait une laide |
 « 52 Et qui fait le tracé de nos bannissements. De
-10 C'est la terre qui gagne et la terre qui compte Lx $
+C'est la terre qui gagne et la terre qui compte Lx $
 #4 Et qui fait le procès de nos inscriptions
 be Et qui fait le mémoire et qui fait le décompte <
-54 Et qui fait le tracé de nos descriptions. Le
+Et qui fait le tracé de nos descriptions. Le
 k. C'est la terre qui gagne et la terre qui compte |
-É Et qui fait le procès de nos endossements : à 3
+É Et qui fait le procès de nos endossements : à
 
-= Et qui fait le sommaire et qui règle le compte é
+= Et qui fait le sommaire et qui règle le compte
 % 5 Et qui fait le tracé de nos efforcements, À
 4 : C'est la terre qui mord et la terre qui compte pe
 É- Et qui fait le procès de nos consomptions
-4 Et qui règle l'histoire et qui règle le conte
+Et qui règle l'histoire et qui règle le conte
 Et qui fait le tracé de nos rédemptions. :
-9 É. C'est la terre qui gagne et la terre qui marque ER
-4 Et qui fait le procès de nos morcellements + 5 pe
-…_ | Et qui nous introduit près du plus grand monarque É ï
+É. C'est la terre qui gagne et la terre qui marque ER
+Et qui fait le procès de nos morcellements + 5 pe
+…_ | Et qui nous introduit près du plus grand monarque
 …_ - Et qui faitle tracé de nos nivellements. EN
 
 les tapisseries Fo: à
-C'est la terre qui gagne, et qui mord, et accroît é
+C'est la terre qui gagne, et qui mord, et accroît
 Et qui fait le procès de nos accroissements
 ‘ Et qui nous introduit auprès du plus grand roi
 Et qui fait le tracé de nos dépassements.
@@ -8472,24 +8470,24 @@ Ne Et l'une en Paradis a l'âge que Dieu veut. FREE
 | Dieu n'a plus qu'à choisir entre de si beaux âges. NE
 à 7: Comme un roi qui hésite entre de beaux villages
 LE Et ne sait pas lequel recevra son aveu. BRL
-Et l'une en paradis a l'âge que Dieu veut. ; M
+Et l'une en paradis a l'âge que Dieu veut.
 Dieu n'a plus qu'à choisir entre de si beaux jours es
 LE Comme un roi qui hésite entre de beaux amours, Fe #à
-Entre l'amour du peuple, entre l'amour de Dieu. 4
+Entre l'amour du peuple, entre l'amour de Dieu.
 a Et l'une en paradis a l'âge que Dieu veut. 4 PR
 #3 Dieu n'a plus qu'à choisir entre de si beaux ans st:
-: 27 Comme un roi qui s'avance entre ses paysans T0
-“13 Et porte la concorde et le règne de Dieu. T4
-5 Et l'une en paradis a l'âge que Dieu veut. .
+: 27 Comme un roi qui s'avance entre ses paysans
+“13 Et porte la concorde et le règne de Dieu.
+Et l'une en paradis a l'âge que Dieu veut. .
 Dieu n'a plus qu'à choisir dans ces belles années. He
 a Comme un roi qui choisit des gerbes moissonnées : #2
-EN Et ne sait pas laquelle est le plus près de Dieu. F5
+EN Et ne sait pas laquelle est le plus près de Dieu.
 
 Ne: Et l'une en paradis a l'âge que Dieu veut. $
 
 Dre Il n'a plus qu'à choisir entre de si beaux gages
 
-5 Comme un roi qui hésite entre de beaux parages
+Comme un roi qui hésite entre de beaux parages
 
 À Et ne sait pas lequel pourrait fixer son vœu. à
 
@@ -8506,7 +8504,7 @@ Comme un roi qui choisit entre ses paysages ;
 Comme un roi qui hésite entre ses apanages
 
 Et ne sait pas lequel fait le plus bel enjeu. Mars
-Et l'une en paradis a l'âge que Dieu veut. 4
+Et l'une en paradis a l'âge que Dieu veut.
 
 F4 Il n'a plus qu'à choisir entre ces beaux partages $
 
@@ -8514,7 +8512,7 @@ F4 Il n'a plus qu'à choisir entre ces beaux partages $
 
 * Et ne sait pas lequel recevra son aveu.
 
-À Et comme on ne sait pas dans une belle année é
+À Et comme on ne sait pas dans une belle année
 
 4 ÿ Ce qu'on aime le mieux, si c'est le doux printemps, :
 
@@ -8562,7 +8560,7 @@ Ou du printemps volage ou de l'été fidèle,
 
 Ou des graves hivers ou des graves étés,
 
-384 3
+384
 
 Et comme on ne sait pas dans l'immense univers
 | Ce qu'on aime le mieux, si c'est le dur été,
@@ -8589,8 +8587,8 @@ DA Ainsi Dieu ne sait pas entre tant de beaux jours
 SEE Ce qu'il aime le mieux, si c'est la douce enfance Sites
 ce Et si c'est la modeste et simple obéissance Ne
 Lee -__ Ou la gratuité des parfaites amours. TR Fa
-53 Ainsi Dieu ne sait pas, ainsi Dieu ne saitplus Fu cs
-ee Ce qu'il aime le mieux dans une belle vie, . cr É
+Ainsi Dieu ne sait pas, ainsi Dieu ne saitplus Fu cs
+ee Ce qu'il aime le mieux dans une belle vie, . cr
 | Si c'est cette âpre pente incessamment gravie k: ë Au
 k - Ou la gratuité des amours absolus. LIENS
 Ainsi Dieu ne sait pas entre tant de beaux jours 17400
@@ -8598,11 +8596,11 @@ en Ce qu'il aime le mieux, si c'est la jeune enfance L'TASSES
 Et si c'est le travail ou les jeux et la danse { HET
 Ou la fidélité des terrestres amours. xt
 j Ainsi Dieu ne sait pas dans une belle vie re
-Hé Ce qu'il aime le mieux entre tant de beaux jours. & 7
+Hé Ce qu'il aime le mieux entre tant de beaux jours. &
 ë Il regarde, il refait la route poursuivie. RATE
-pe L'anticipation des célestes amours. 74
+pe L'anticipation des célestes amours.
 Dans une belle vie il n'est que de beaux jours. RS
-e Dans une belle vie il fait toujours beau temps. i PA < j
+e Dans une belle vie il fait toujours beau temps. i PA <
 Dieu la déroule toute et regarde longtemps KR
 si Quel amour est plus cher entre tous ces amours. LS ei £
 
@@ -8611,19 +8609,19 @@ si Quel amour est plus cher entre tous ces amours. LS ei £
 _ Et pour lequel tenir et s'il faut vraiment mettre :
 é : L'amour de la patrie après l'amour de Dieu.
 FE. Ainsi Dieu ne sait pas entre tant de beaux jours,
-148 De la plus belle enfant à la plus belle aïeule, £
+De la plus belle enfant à la plus belle aïeule, £
 À __ Quel il aime le mieux de ses propres amours,
 he. Et s'il n'aime pas mieux une âme errante et seule.  ®#
 : 0 Et s'il n'aime pas mieux une souple jeunesse.
 _ Et s'il n'aime pas mieux les dures fermetés.
 ‘4 . Et s'il n'aime pas mieux une belle vieillesse.
 4 % Et s'il n'aime pas mieux les dures pauvretés.
-4 Depuis les cheveux blonds jusques aux cheveux blancs.
+Depuis les cheveux blonds jusques aux cheveux blancs.
 É: x Et depuis l'escabeau jusqu'aux bras du fauteuil.
-14 Jusqu'au bord du tombeau, jusqu'au ras du cercueil.
-ne: Depuis les premiers pas jusqu'aux pas chancelants. î
+Jusqu'au bord du tombeau, jusqu'au ras du cercueil.
+ne: Depuis les premiers pas jusqu'aux pas chancelants.
 Ke Et des premiers genoux jusqu'aux genoux tremblants.
-3 Du premier tabouret jusqu'au dernier fauteuil. + ;
+Du premier tabouret jusqu'au dernier fauteuil. + ;
 De . Du premier pas de porte au ras du dernier seuil.
 b-. Et des beaux cheveux blonds aux plus beaux cheveux blancs.”
 
@@ -8665,17 +8663,17 @@ Plus court que les trois ans du seigneur Jésus-Christ,
 Mais non moins entendue aux dons du Saint-Esprit
 Que tant d'autres qui font un long pèlerinage.
 Elle est montée au ciel après un jeune stage
-1 Plus court que les trois ans du maître Jésus-Christ,
+Plus court que les trois ans du maître Jésus-Christ,
 É Mais non moins éclairée aux dons du Saint-Esprit
 Que tant d'autres qui font un long appareillage.
 
-st Elle est montée au ciel après un pauvre stage 15 FPE u
+st Elle est montée au ciel après un pauvre stage 15 FPE
 Re Plus court que les trois ans publics de Jésus-Christ, ae : \
 (ot Mais non moins enfondue aux dons du Saint-Esprit se
 Que tant d'autres qui jouent un plus long personnage.
 as Et l'autre dans le ciel n'a que l'âge qu'elle a. vi RER
 Est Elle n'en a jamais eu qu'un sur cetie terre. ES
-Elle a le même au ciel dans la gloire et voilà 40
+Elle a le même au ciel dans la gloire et voilà
 Ce que nous avons fait d'une enfant volontaire. se
 Et l'autre dans le ciel n'est qu'une jeune enfant RE
 Telle qu'elle quitta des chemins de la terre. PASS
@@ -8684,7 +8682,7 @@ Ne fut jamais qu'une humble et courageuse enfant. sa
 
 à Et l'autre dans le ciel n'est qu'une jeune enfant SE
 : Telle qu'elle partit de sa jeune Lorraine. 1 à En
-Car cet homme de guerre et ce grand capitaine _ M.
+Car cet homme de guerre et ce grand capitaine _
 Ne fut jamais qu'une humble et courageuse enfant. Eu
 
 Et l'autre en paradis n'est qu'une jeune enfant, x “a
@@ -8692,11 +8690,11 @@ Et l'autre en paradis n'est qu'une jeune enfant, x “a
 pe Dieu n'a pas à choisir ou l'un ou l'autre étage. NP.
 Car cette enfant candide et ce chef triomphant me. LAS
 
-sus Est morte au premier bord de son premier partage. 5
+sus Est morte au premier bord de son premier partage.
 
 Rs Et l'autre en paradis n'est qu'une jeune enfant.
 
-73 Dieu n'a pas à choisir l'un ou l'autre apanage.
+Dieu n'a pas à choisir l'un ou l'autre apanage.
 
 +. Car cette enfant fidèle et ce chef triomphant
 
@@ -8704,12 +8702,12 @@ n_ Est morte au premier saint de son pèlerinage.
 
 À Et l'autre en paradis n'est qu'une jeune enfant.
 
-4 Dieu n'a pas à choisir ou l'un ou l'autre gage. ï
+Dieu n'a pas à choisir ou l'un ou l'autre gage.
 i Car cette enfant docile et ce chef triomphant
 
 s Est morte à peine entrée au seuil de l'héritage.
 
-e Et ce grand général qui prit tout un royaume, k
+e Et ce grand général qui prit tout un royaume,
 # (Et ce n'était pas rien, le royaume de France),
 
 En. Dans le dernier climat et sous le dernier dôme
@@ -8736,8 +8734,8 @@ Et nous ses serviteurs, nous autres les puissants, |
 Nous l'avons fait périr, nous l'avons faite morte
 Comme Hérode fit morts trois cent mille Innocents. à
 Heureux qui la verra dans cette autre lumière,
-Le front plus découvert que les saints Innocents, Ë
-Telle qu'on la voyait au seuil de sa chaumière, 3
+Le front plus découvert que les saints Innocents,
+Telle qu'on la voyait au seuil de sa chaumière,
 Ou parmi ses troupeaux frêles et bondissants.
 Car ce grand général qui gagna vingt batailles
 Comme on gagne le ciel et ce chef triomphant

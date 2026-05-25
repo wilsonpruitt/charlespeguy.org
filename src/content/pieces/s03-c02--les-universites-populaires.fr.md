@@ -13,9 +13,9 @@ translationNotes: "GAP in the source scan: pp.18–23 (~6 pages) are missing fro
 
 *On lira donc :*
 
-**La Coopération des Idées; une tentative d'éducation et d'organisation populaire**, par Georges Deherme, édité à l'Union pour l'Action morale. — 0 franc 50.
+**La Coopération des Idées; une tentative d'éducation et d'organisation populaire**, par Georges Deherme, édité à l'Union pour l'Action morale. — 0 franc
 
-**La Fondation universitaire de Belleville**, par Jacques Bardoux, chez F. Alcan. — 1 franc 50.
+**La Fondation universitaire de Belleville**, par Jacques Bardoux, chez F. Alcan. — 1 franc
 
 **Quelques réflexions sur les Universités Populaires**, par Dick May, dans *la Revue Socialiste*, numéros de janvier et de février 1901.
 
@@ -31,15 +31,11 @@ C'est à ce point de vue qu'il importe de la considérer, sans se laisser arrêt
 
 Les U. P. cependant à leur naissance ne sont pas apparues comme produit du mouvement ouvrier. Elles sont nées en effet du rapprochement qui s'est fait entre la bourgeoisie libérale et la classe
 
-                                                  13
-
 ouvrière pendant l'affaire Dreyfus. La classe ouvrière par son attitude à Paris ayant somme toute plus fait que le gouvernement pour défendre la République, la bourgeoisie libérale reconnaissante a fondé les U. P. ; et elle y a beaucoup parlé de fusion des classes, quand elle n'allait pas jusqu'à y nier qu'il y eût des classes.
 
 Cet état de paix aimable a peu duré. D'une part, la bourgeoisie libérale s'est lassée de fréquenter les U. P. où elle était naturellement mal à son aise, et, d'autre part, la classe ouvrière a vite manifesté son désir de prendre elle-même la direction des U. P., ce qui ne pouvait guère plaire à la bourgeoisie libérale mais craintive.
 
 Un an après le commencement des U. P., il était manifeste que bientôt elles ne tireraient plus leur force que de la classe ouvrière ; et l'éloignement de la bourgeoisie a été en s'accélérant. Certes, dans les U. P. on rencontre encore de nombreuses personnes appartenant à la bourgeoisie, mais ces personnes ont un esprit assez exceptionnel : elles aiment la liberté pour elle-même et non pour les avantages qu'elles en retirent égoïstement ; jouissant de la liberté, elles veulent en donner les jouissances à la classe ouvrière. Tout d'abord, elles représentaient la bourgeoisie dans un essai de fusion impossible avec la classe ouvrière, elles sont
-
-                                                  14
 
 devenues les alliées de la classe ouvrière travaillant elle-même à son émancipation.
 
@@ -51,8 +47,6 @@ On ne voit généralement dans la lutte de classe qu'une lutte pour l'égalité 
 
 S'il est possible de décréter l'égalité en s'emparant du gouvernement, de l'administration politique
 
-                                                  15
-
 d'aujourd'hui qui, fortement hiérarchisée, permet tous les actes d'autorité, il est impossible de décréter véritablement la liberté, laquelle se doit conquérir, l'homme s'y habituant peu à peu, la concevant chaque jour plus nettement que la veille. Aux yeux de quiconque aime vraiment la liberté, la lutte de classe peut donc apparaître comme absolument logique, et absolument désirable.
 
 Jusqu'à présent, elle n'apparaît guère ainsi ni à la bourgeoisie propriétaire, ni aux hommes médiocres et faux intellectuels qui se sont emparés de la direction du mouvement socialiste. Mais je prétends que, comme je la présente, elle commence à apparaître, confusément encore, aux ouvriers.
@@ -60,8 +54,6 @@ Jusqu'à présent, elle n'apparaît guère ainsi ni à la bourgeoisie propriéta
 La lutte de classe se fait, dit-on constamment et justement, dans le but de conquérir « les pouvoirs publics ». Il faut définir ce terme.
 
 On entend généralement par là les pouvoirs gouvernementaux de l'État actuel, le Parlement, les Ministères. Cela est un entendement naïf et incomplet. Les pouvoirs publics existent indépendamment de la forme sous laquelle ils apparaissent à une époque déterminée ; et quand on parle de « classe dirigeante », c'est bien ce que l'on affirme. Actuellement la classe dirigeante, c'est l'ensemble des propriétaires ; la lutte de classe a pour but de lui substituer la classe ouvrière, ou plus exactement de
-
-                                                  16
 
 donner à la classe des travailleurs, des producteurs la direction générale de la société. (1)
 
@@ -73,8 +65,6 @@ Comme ce dont toujours les hommes ont eu besoin, c'est des produits du travail, 
 
     (2) On conçoit généralement que le *but* du mouvement ouvrier est l'expropriation de la propriété capitaliste, et la formation d'une pro-
 
-                                                  17
-
 Les catholiques ont bien compris que les U. P. poursuivent exclusivement la liberté.
 
 Lorsque, il y a deux ans, les U. P. donnaient le spectacle d'une paix sociale conclue entre bourgeois et ouvriers, ils se sont tenus sur l'expectative. Ils savent que partout où s'établit la paix sociale, partout où l'idée de lutte et d'affranchissement par soi-même disparaît, ils peuvent s'introduire utilement pour endormir les souffrances de la servitude dans la soumission dévote, pour les justifier par le spectacle des puissances surnaturelles dont l'Église s'est rendue maîtresse. Et le mot d'ordre était de s'introduire dans les U. P. par la tactique habituelle, au nom de la liberté. (1)
@@ -82,8 +72,6 @@ Lorsque, il y a deux ans, les U. P. donnaient le spectacle d'une paix sociale co
 Ils ménagèrent donc les U. P. Et quelques-uns y firent des conférences, sans protestation des auditeurs. C'était le temps où la classe ouvrière n'avait pas encore pris possession de l'institution que la bourgeoisie libérale avait fondée, où elle venait seulement écouter les conférences que les délégués des bourgeois fondateurs ow[?]aient pour la
 
     (1) Lire dans l'*Association catholique* d'[?] 1900 des articles de M. Sang[?]ier-[?]chaud.
-
-                                                  24
 
 Mais au faubourg Saint-Antoine, (1) un prêtre, l'abbé Denis, parla un jour. Il eut des protestations très vives, des auditeurs firent un bruit violent et indécent.
 
@@ -117,7 +105,7 @@ Qu'Urbain Gohier dans *l'Aurore*, et que l'Universitaire de *la Petite Républiq
 
 constitué, ayant été constitué éducateur sans contrôle de l'auditoire du faubourg, il a employé la méthode qui lui a semblé bonne ; c'était son devoir de directeur absolu. Que Maurice Bouchor se soit élevé au nom de la raison contre la présence de l'abbé Denis, il a fortement répété ce qu'il va répétant partout en éduquant ceux qui l'écoutent, mais de lui, pas plus que de Deherme, ne dépend la solution. Que Séailles, Buisson, Wagner, Le Foyer (1)..... aient plaidé la cause de la liberté, cela ne nous apprend rien sur le régime des U. P., car ils sont restés dans l'abstraction, ils ont parlé pour la gloire de la liberté abstraite.
 
-Ayant ainsi éliminé tous ceux dont le nom a été mêlé au débat, que reste-t-il pour trancher la question ? Il reste ceux que personne ne s'est avisé de consulter publiquement, les auditeurs eux-mêmes des U. P.
+Ayant ainsi éliminé tous ceux dont le nom a été mêlé au débat, que reste-t-il pour trancher la question ? Il reste ceux que personne ne s'est avisé de consulter publiquement, les auditeurs eux-mêmes des
 
 Ceux-là, il est bien évident que la robe d'un prêtre les effraie, comme tous les symboles de la servitude qu'ils veulent vaincre. Mais quand ils ont manifesté brutalement contre l'abbé, ne croyez pas que leurs protestations ne s'adressaient rien qu'à lui, elles s'adressaient aussi à Deherme qui leur avait imposé cette présence, et ils ont, dans cette
 
@@ -235,7 +223,7 @@ Je ne prétends point que ce programme, absolument logique, apparaisse clairemen
 
 Malheureusement nous ferons une constatation pénible. C'est que si l'on trouve d'une manière relativement facile des conférenciers ayant les qualités requises d'intellectuels, pour enseigner les sciences naturelles et la philosophie, pour faire de l'anticléricalisme positif, on n'en trouve point facilement pour aborder la politique et l'économie sociale, pour présenter l'histoire, c'est-à-dire dans les U. P. l'histoire des institutions sociales. Et alors le faux intellectuel affamé d'égalité, le démagogue a beau jeu pour maintenir l'état de mysticisme révolutionnaire qui lui assure des succès personnels et
 
-(1) Ce qui permet aux faux intellectuels de s'introduire dans les U. P.
+(1) Ce qui permet aux faux intellectuels de s'introduire dans les
 
 égoïstes, et qui prépare la révolution comme il la conçoit dans sa cervelle de pauvre.
 
@@ -368,7 +356,7 @@ A elles s'opposent les U. P. qui réunissent des ouvriers fortement lancés dans
 
 Dans certaines, l'organisation est complexe. Les fondateurs ont froidement examiné les forces sociales en présence, qui, selon qu'ils s'y prendraient d'une manière ou d'une autre, hausseraient l'institution ou la feraient choir. Tout d'abord, le conseil d'administration comprend donc des délégués des intellectuels, et des délégués des ouvriers.
 
-Puis les Syndicats, les Coopératives et la Municipalité auront aussi leurs délégués, afin de se les rendre favorables. Sans vouloir rien dire d'absolu et nier les circonstances locales, on peut critiquer la présence de ces derniers délégués ; si on a cru bon de se rendre favorables certaines puissances locales, c'est qu'elles sont d'esprit autoritaire, alors leurs délégués introduisent des mœurs mauvaises dans l'U. P.
+Puis les Syndicats, les Coopératives et la Municipalité auront aussi leurs délégués, afin de se les rendre favorables. Sans vouloir rien dire d'absolu et nier les circonstances locales, on peut critiquer la présence de ces derniers délégués ; si on a cru bon de se rendre favorables certaines puissances locales, c'est qu'elles sont d'esprit autoritaire, alors leurs délégués introduisent des mœurs mauvaises dans l'U.
 
 Voici comment les choses se passent dans les U. P. dont la conduite me semble la meilleure, et qui réalisent les idées générales précédemment présentées :
 
@@ -386,7 +374,7 @@ Arrivons à la question qui pour les U. P. est peut-être la plus actuelle de to
 
 En commençant j'ai dit que les U. P. sont nées d'un rapprochement entre la bourgeoisie et la classe ouvrière. C'est là l'origine de bien des mécomptes pour elles, c'est-à-dire pour ceux qui les
 
-dirigent par délégation de la classe ouvrière. Car la bourgeoisie, s'étant retirée assez brusquement, a retiré ses ressources financières ; or celles-ci sont nécessaires, du moins avec le type premier de l'U. P.
+dirigent par délégation de la classe ouvrière. Car la bourgeoisie, s'étant retirée assez brusquement, a retiré ses ressources financières ; or celles-ci sont nécessaires, du moins avec le type premier de l'U.
 
 Nous avions en effet défini ainsi l'U. P. il y a deux ans :
 
@@ -432,7 +420,7 @@ Si donc elles veulent payer un loyer, elles doivent chercher des ressources comp
 
     (1) Certaines U. P.-Cercles de Paris vivent de leur cotisation, péniblement il est vrai, mais elles vivent. Seulement elles dépensent un travail gratuit considérable de leurs administrateurs, qui n'hésitent pas par exemple à poursuivre les membres chez eux pour recouvrer les cotisations en retard, et elles invitent avec succès à majorer la cotisation ceux qui peuvent le faire.
     (2) Jusqu'à présent ce sont des personnes convenablement riches qui interviennent, qui sont intervenues. Il y a des U. P. autour desquelles se sont formés comme des cercles de protection véritablement libérale, plusieurs personnes donnant leur garantie financière ; dans une grande ville de l'Est, dans une grande ville normande, c'est trouvé deux hommes qui ont fait construire ou aménager les locaux convenables, et ne perçoivent un modique loyer que parce que l'U. P. l'a exigé.
-    Je ne connais qu'une coopérative qui loge une U. P.
+    Je ne connais qu'une coopérative qui loge une
     Combien il y aurait à dire sur les coopératives ouvrières, ou plutôt contre elles, quelle rigueur pourrait-on montrer en signalant les tendances tristement égoïstes ou vilainement politiciennes qui seules y existent ! Deux U. P. parisiennes ont été conduites, pour boucler leur budget, à fonder elles-mêmes des coopératives.
     Beaucoup d'U. P. se logent avec les syndicats. Quelques-unes s'entendent avec d'autres sociétés locales pour avoir un local en commun.
 
@@ -453,7 +441,7 @@ Et maintenant que les U. P. ont pris place parmi les organisations ouvrières, a
 
 Ainsi que toutes les institutions coopératives, le Cercle, buvette ou restaurant, apparaît comme une institution de patronage de la classe ouvrière par la classe ouvrière elle-même ; et ce genre de patronage paraît absolument bon ; il sauvegarde la liberté des travailleurs, facilite la lutte de classe en rapprochant les ouvriers dans des conditions excellentes au point de vue économique, hygiénique et moral, et, fondé sur l'égalité réelle et positive, donne un ferme soutien aux institutions qui, comme l'U. P., veulent poursuivre la lutte pour la liberté.
 
-Il est fort délicat de parler de l'avenir des U. P.
+Il est fort délicat de parler de l'avenir des
 
 Que vont devenir les U. P. qui existent aujourd'hui tant à Paris que dans les départements ? Un bon nombre mourront, c'est certain, soit parce que les ressources financières leur manquent et qu'elles ne peuvent payer le loyer du Cercle jugé nécessaire, soit parce que l'influence raisonnable des intellectuels ne se fait pas sentir. Cela n'a qu'une importance médiocre ici pour nous ; examinant la formation d'une institution nouvelle dont on commence seulement à entrevoir le but et les destinées, nous ne pouvons nous étonner qu'il y ait eu des erreurs commises dans les organisations locales, et nous arrêter à les déplorer.
 
@@ -461,7 +449,7 @@ Car nous sommes en droit d'affirmer que l'institution même durera, parce qu'ell
 
 L'U. P. évoluera ; elle achèvera de perdre les caractères que lui a donnés la bourgeoisie ; elle s'adaptera mieux qu'aujourd'hui au mode de la vie ouvrière. Comment ? l'expérience seule nous le montrera, et pour cette évolution interviendront un grand nombre de facteurs dont quelques-uns seulement
 
-ont été cités ici. On sait l'état lamentable du Parti socialiste aujourd'hui, sa poursuite d'une unité étroite, pour laquelle les individus les meilleurs comme les pires dépensent leurs forces, l'immoralité flagrante de la presse que lit la classe ouvrière ; on sait aussi les tendances fédéralistes qui commencent à faire leur apparition, l'idée qui vient d'unir les institutions ouvrières d'une même ville, d'une même région, et la fondation de journaux ouvriers locaux. On comprend que la lutte qui se manifeste là entre la centralisation et le fédéralisme, les vilenies des centralisateurs et les gaucheries et maladresses des fédéralistes, auront une influence considérable sur le développement et l'évolution des U. P.
+ont été cités ici. On sait l'état lamentable du Parti socialiste aujourd'hui, sa poursuite d'une unité étroite, pour laquelle les individus les meilleurs comme les pires dépensent leurs forces, l'immoralité flagrante de la presse que lit la classe ouvrière ; on sait aussi les tendances fédéralistes qui commencent à faire leur apparition, l'idée qui vient d'unir les institutions ouvrières d'une même ville, d'une même région, et la fondation de journaux ouvriers locaux. On comprend que la lutte qui se manifeste là entre la centralisation et le fédéralisme, les vilenies des centralisateurs et les gaucheries et maladresses des fédéralistes, auront une influence considérable sur le développement et l'évolution des
 
 Vouloir en effet soustraire les U. P. aux influences diverses qui se manifestent dans le mouvement ouvrier, ce serait folie. Ce serait aussi une erreur grave, une faute lourde. Il faut que, au risque d'y périr, les diverses U. P. jouent leur rôle ; que, au risque de se corrompre, elles cherchent à influer sur le développement des autres institutions ouvrières, politiques ou économiques. L'on a dit qu'au moment où il a fallu maintenir les principes de justice et de liberté individuelle, les intellectuels sont sortis de leur « tour d'ivoire », et l'on a conçu de grandes espérances de leur participation
 
@@ -485,6 +473,6 @@ Que la Société des U. P., sans prétendre à aucune direction précise et imm�
 
 et doit faire, sans réunir autour d'elle, étroitement, organiquement, les U. P. institutions ouvrières.
 
-Quant aux liens qui pourront et devront exister entre une U. P. et les autres institutions ouvrières de la même localité, il est prématuré d'en parler, car nous ne possédons que peu de données expérimentales; il ne nous suffit pas de savoir que plusieurs Bourses du Travail ont fondé des U. P., et qu'*une* Coopérative loge une U. P.
+Quant aux liens qui pourront et devront exister entre une U. P. et les autres institutions ouvrières de la même localité, il est prématuré d'en parler, car nous ne possédons que peu de données expérimentales; il ne nous suffit pas de savoir que plusieurs Bourses du Travail ont fondé des U. P., et qu'*une* Coopérative loge une
 
 Et sur quoi il importe avant tout d'insister aujourd'hui, c'est sur ceci que parce que l'U. P. est l'institution la plus récente et la plus faible aujourd'hui, il n'y a aucune raison cependant pour qu'elle se soumette aux autres institutions politiques et économiques. Elle a comme but essentiel de maintenir le principe de liberté au milieu des événements divers qui marquent la lutte de classe; et travaillant pour sa part à développer la conscience ouvrière, son besoin paraît être de rappeler que l'union de toutes les forces peut et doit se faire sans servitudes nouvelles, que l'ordre et la méthode peuvent et doivent s'établir sans créer de nouvelles hiérarchies sociales, et que si dans le grand mouvement d'émancipation de la classe ouvrière, celle-ci perd un seul instant le souci de la liberté, le mouvement n'aboutira pas.

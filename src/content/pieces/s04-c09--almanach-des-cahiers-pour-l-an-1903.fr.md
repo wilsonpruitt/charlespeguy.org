@@ -17,7 +17,7 @@ paraissant vingt fois par an
 | 8, rue de la Sorbonne, Paris. On recevra en spécimens
 : six cahiers de la deuxième et de la troisième série. sa
 Nous mettons ce cahier dans le commerce; nous le :
-( ê vendons un franc M
+( ê vendons un franc
 
 almanach des cahiers
 
@@ -50,7 +50,7 @@ LUNE | Dernier quartier le 19, à 6 heures 32 minutes du matin.
 
 Nouvelle lune Je 27, à 10 heures 29 minutes du matin.
 
-6 3
+6
 
 12 heures 16 minutes de nuit. lever |coucher| lever | coucher
 { Premier quartier le 6, à 7 heures 23 minutes du soir. |
@@ -126,7 +126,7 @@ le soleil se lève à 3 heures 58 minutes, et se couche
 à 8 heures 5; le crépuscule dure 44% minutes; le
 Jour solaire dure 16 heures 7, et la nuit solaire
 7 heures 53; le jour civil dure 17 heures 35, et la
-nuit civile 6 heures 25.
+nuit civile 6 heures
 
 Dimanche 29 mars. — Invisible à Paris, partielle ou
 milieu à 2 heures 15, finit à 2 heures 45 du matin.
@@ -483,7 +483,7 @@ Pour ma part je serai prêt, à partir de demain, à
 disposer d'un peu de temps pour ce qu'on voudra.
 
 J'attends donc que vous vouliez bien me dire à partir
-de quand, tout étant réglé, je pourrai entreprendre le 1
+de quand, tout étant réglé, je pourrai entreprendre le
 transport du matériel.
 
 Croyez-moi votre tout dévoué. ;
@@ -549,7 +549,7 @@ puis le faire.
 J'ajoute que je n'ai plus suffisamment d'argent :
 Voulez-vous m'envoyer deux cents francs.
 
-Merci et bien à vous. ï
+Merci et bien à vous.
 
 Permettez-moi, messieurs, de vous faire remarquer
 en passant combien les assertions de M. Péguy sont
@@ -1305,12 +1305,12 @@ publiait la suite et fin de cet article :
 ge année. — No 12 Prix du numéro : 20 centimes Décembre 1902
 (Ministère du Commerce, de l'Industrie, des Postes et des Télégraphes)
 Revue du travail en novembre. . 41853
-Conciliation et arbitrage en novembre . . . . . . . 864
-La grève générale des mineurs. (Suite et fin.) . . . . . 865
+Conciliation et arbitrage en novembre . . . . . .
+La grève générale des mineurs. (Suite et fin.) . . . .
 Expériences comparatives de peintures au blanc de
 Le congrès à Cologne de l'Association internationale |
-pour la protection légale des travailleurs . . . . . . 87
-Cinquième congrès de l'Alliance coopérative internationale 10e EURE ENTREE 0
+pour la protection légale des travailleurs . . . . .
+Cinquième congrès de l'Alliance coopérative internationale 10e EURE ENTREE
 Syndicats ; droit d'ester en justice. — Loi du 2 novembre :892; cumul des contraventions identiques en |
 matière d'inspection du travail. — Loi du 9 avril 1898;
 accidents du travail, COINS
@@ -1319,12 +1319,12 @@ Allemagne : Revue du travail. — Placement. — Grèves.
 — Durée du travail dans les maisons de commerce |
 sans magasins de vente publics, — La Bourse du |
 travail de Berlin. — L'ivresse et les accidents du |
-États-Unis : Grève générale des mineurs de Pensylvanie. — L'assurance-accidents dans le Maryland. . . 890
+États-Unis : Grève générale des mineurs de Pensylvanie. — L'assurance-accidents dans le Maryland. .
 Grande-Bretagne : Revué du travail. — Grèves. — Le
 congrès des Trades-Unions. — Réparation des acci-
 
 À dents du travail (1901). — Les sociétés coopératives
-| de consommation et de production. . , . . . . . . . 895
+| de consommation et de production. . , . . . . . .
 Nouvelle-Zélande : L'inspection des fabriques (r901Suisse : Application de la loi fédérale sur les fabriques.
 — Loi du 26 juin 1902 sur le paiement des salaires et
 Actes et documents officiels
@@ -1333,13 +1333,13 @@ dans la poterie d'étain. — Arrêté du ministre du
 commerce, en date du 15 novembre 1902, sur les
 conditions des avances aux banques coopératives
 ouvrières. — Lettre du Sous-Secrétaire d'État des
-1 Postes et Télégraphes, en date du 11 août 1902, sur
+Postes et Télégraphes, en date du 11 août 1902, sur
 Etat des travaux législatifs (novembre-décembre 1902). gog
 Analyse, par département, des renseignements fournis :
 1° par les associations patronales, etc. ; 2' par les
 Analyse, par département, des renseignements fournis
-Prix au détail de certaines denrées (4° trimestre 1901) . 934
-faillites ; autorisations de bâtir ; adjudications. . , . 935
+Prix au détail de certaines denrées (4° trimestre 1901)
+faillites ; autorisations de bâtir ; adjudications. . ,
 5, rue des Beaux-Arts (6° arr') 5, rue de Mézières (6° arr')
 Le Bulletin de l'Office du travail paraît tous les mois. On
 le trouve chez tous les libraires. On s'abonne également
@@ -1377,11 +1377,11 @@ salaire de chaque ouvrier, sans pouvoir être, ni inférieure
 
 à 20 centimes, ni supérieure à 35 centimes par journée de
 
-2 Elle sera de 4 °/, pour le deuxième semestre de 1903
+Elle sera de 4 °/, pour le deuxième semestre de 1903
 
 avec un minimum de 15 centimes et un maximum de
 
-3 Elle sera de 3 ‘°/, pour le premier semestre de 1904
+Elle sera de 3 ‘°/, pour le premier semestre de 1904
 avec un minimum de 10 centimes et un maximum de
 
 Cette sentence fut acceptée par les deux parties, Le
@@ -1429,14 +1429,14 @@ entre la Compagnie de Cagnac et le représentant des
 de nouvelle grève, est maintenu dans son intégralité ;
 
 2° La prime de 5 ‘,, qui devait tomber le 31 mars 1903,
-est prolongée jusqu'au premier juillet 1903 ; ù
+est prolongée jusqu'au premier juillet 1903
 
 3° Elle ne sera supprimée que si la Compagnie s'y voit
 réduite et après discussion contradictoire entre elle et les
 ouvriers sous forme d'un arbitrage qui ne portera que sur
 cette unique question ;
 
-4 La Compagnie fera tous ses efforts pour hâter le
+La Compagnie fera tous ses efforts pour hâter le
 fonçage des puits de la Gare pour la mettre en exploitation
 et accélérer la descente et la remonte des ouvriers ;
 
@@ -1471,7 +1471,7 @@ de ne prononcer aucun renvoi et de n'exercer aucune
 représaille à raison des faits de grève antérieurs au présent
 
 En conséquence, la reprise du travail a été votée le
-4 décembre et effectuée le 5.
+4 décembre et effectuée le
 
 La grève est terminée.
 
@@ -1580,7 +1580,7 @@ A peine relâchés et revenus dans leur village, ils se sont
 leur promettant une vengeance plus éclatante encore, et se
 vantant d'avoir de puissants protecteurs à Hanoï!
 Ont-ils tort”? Non, puisque les faits prouvent le contraire,
-6 71
+6
 
 Leurs victimes vont être obligées de quitter le village, |
 chassées par eux, et ne pouvant plus habiter à côté de gens

@@ -301,7 +301,7 @@ Une autre médaille anonyme la montre jeune et idéalisée. (Reproduite dans Mü
 
 Ces deux médailles, faites à deux âges de la vie présentent comme traits communs, le froncement de la narine et de la lèvre supérieure, un peu maussade ; et la bouche petite, silencieuse, méprisante. L’ensemble de la figure dénote un calme sans illusions, sans joie.
 
-Frey a cru, d’une façon un peu hasardeuse, retrouver l’image de Vittoria dans un étrange dessin de Michel-Ange, au revers d’un sonnet : — beau et triste dessin, que Michel-Ange n’eût, en ce cas, voulu laisser voir à personne. — Elle est âgée, nue jusqu’à mi-corps, les mamelles vides et pendantes ; la tête n’a point vieilli, elle est droite, pensive et fière ; un collier entoure le cou long et fin ; les cheveux, relevés, sont enfermés dans un bonnet, attaché sous le menton, et qui cache les oreilles et fait casque. En face d’elle, une tête de vieillard, qui ressemble à Michel-Ange, la regarde, — pour la dernière fois. — Elle venait de mourir, quand il fit ce dessin. Le sonnet qui l’accompagne est la belle poésie sur la mort de Vittoria : « *Quand’ el ministro de sospir mie tanti*… » — Frey a reproduit le dessin dans son édition des *Poésies de Michel-Ange*, page 385.
+Frey a cru, d’une façon un peu hasardeuse, retrouver l’image de Vittoria dans un étrange dessin de Michel-Ange, au revers d’un sonnet : — beau et triste dessin, que Michel-Ange n’eût, en ce cas, voulu laisser voir à personne. — Elle est âgée, nue jusqu’à mi-corps, les mamelles vides et pendantes ; la tête n’a point vieilli, elle est droite, pensive et fière ; un collier entoure le cou long et fin ; les cheveux, relevés, sont enfermés dans un bonnet, attaché sous le menton, et qui cache les oreilles et fait casque. En face d’elle, une tête de vieillard, qui ressemble à Michel-Ange, la regarde, — pour la dernière fois. — Elle venait de mourir, quand il fit ce dessin. Le sonnet qui l’accompagne est la belle poésie sur la mort de Vittoria : « *Quand’ el ministro de sospir mie tanti*… » — Frey a reproduit le dessin dans son édition des *Poésies de Michel-Ange*, page
 
 ↑ Elle avait alors pour conseiller spirituel Matteo Giberti, évêque de Vérone, qui fut un des premiers à tenter la rénovation de l’Église catholique. Le secrétaire de Giberti était le poète Francesco Berni.
 
@@ -769,7 +769,7 @@ Cet homme, que ses ennemis, accusaient d’avarice,[29] ne cessa, toute sa vie, 
 
 Michel-Ange suppose ici un dialogue du poète avec un banni florentin. — Il est possible qu’il ait écrit cette poésie après l’assassinat d’Alexandre de Médicis par Lorenzino, en 1536. — Elle parut pour la première fois, en 1543, avec la musique de Giacomo Archadelt.
 
-↑ Parmi ses domestiques, je note, à titre de curiosité, un Français, Richard, *Riccardo franzese*. (18 juin 1552. — *Ricordi*, page 606
+↑ Parmi ses domestiques, je note, à titre de curiosité, un Français, Richard, *Riccardo franzese*. (18 juin 1552. — *Ricordi*, page
 
 ↑ « Je voudrais, écrit-il à Lionardo, une servante qui fût bonne et propre ; mais c’est bien difficile ; elles sont toutes sales et débauchées. *(Son tutte puttane e porche)*… Je donne dix jules par mois. Je vis pauvrement ; mais je paie bien. » (*Lettres*, 16 août 1550)
 

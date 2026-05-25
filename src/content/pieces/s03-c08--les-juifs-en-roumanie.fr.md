@@ -7,7 +7,7 @@ author: bernard-lazare
 isAvertissement: false
 wordCount: 32052
 ---
-_ Juan Jaurès. — Études Socialistes, un volume de B
+_ Juan Jaurès. — Études Socialistes, un volume de
 2! rx VI + 276 pages, édité par la Société d'Editions
 _ littéraires ét artistiques, librairie Paul Ollendorff, un
 _ L'avertissement que l'on a pu lire dans le quatrième
@@ -16,27 +16,27 @@ _ L'avertissement que l'on a pu lire dans le quatrième
 __ Le Socialisme et l'Enseignement, le Socialisme et les ‘ie
 F Peuples, un volume in-18 de 560 pages, édité par la
 3 librairie Georges Bellais, devenue la Société Nouvelle .
-k: de Librairie et d'Edition, un volume à trois francs : 2
+k: de Librairie et d'Edition, un volume à trois francs
 | Grorces SoreL. — De l'Église et de l'État, frag4 ments 1 franc JET
 Et Vient de paraître à la librairie Jacques, en vente à la .
 _ librairie des cahiers : FT
-RE GEORGES SOREL. — Essai sur l'Église et l'État, 54h
+RE GEORGES SOREL. — Essai sur l'Église et l'État,
 b. édition complète, un volume in-octavo de 64 pages Vi
 ', Extrait de Za Revue Socialiste, août, septembre, 5208
 
 — Cnarres GUIEYSSE. — Les Universités populaires _
 Ee et le mouvement ouvrier 1 franc RE
 je Les cahiers ont publié dans leur deuxième série
-É de village, un roman 3 francs 50 154
-‘4 Dans ses deux premiers numéros hebdomadaires le Q
+É de village, un roman 3 francs
+‘4 Dans ses deux premiers numéros hebdomadaires le
 : nouveau Mouvement Socialiste a publié de M. Maxime ER
 E= Leroy une étude : [a Propriété individuelle et le Code -
-Le civil, réponse aux Ætudes Socialistes que nous avons M
-# ubliées de Jaurès. 304
+Le civil, réponse aux Ætudes Socialistes que nous avons
+# ubliées de Jaurès.
 4È Dans les mêmes numéros le Mouvement a commencé "ri
 Re - à publier les Tisserands, de Hauptmann, cinq actes,
-ne. traduit par Jean Thorel. * 744
-4 Dans la partie Art et Littérature, dirigée par Lucien À ol
+ne. traduit par Jean Thorel.
+Dans la partie Art et Littérature, dirigée par Lucien À ol
 .__ Besnard, nous avons trouvé l'éreintement de Barnum et RE
 _ Bailey que tous les honnêtes gens attendaient. a
 
@@ -53,7 +53,7 @@ Docteur L. AzouLAY.— Oh! les jolies histoires d'ani- maux, album de planches e
 | Ortie, illustrations de BENIAMIN RABIER, album
 Dickexs. — L''Ami commun, 2 volumes
 Miss Cummixs. — L'Allumeur de réverbères
-4 ANATOLE FRANCE.— Le crime de Sylvestre Bonnard
+ANATOLE FRANCE.— Le crime de Sylvestre Bonnard
 ANATOLE FRANCE.— Le livre de mon ami 3 francs
 DEmorper. — Le cœur des pauvres 3 francs
 | . Nous sommes heureux d'annoncer à nos abonnés de
@@ -64,7 +64,7 @@ impatiemment demandé. La surface utile a été majorée
 1 environ des deux Liers.
 , Nous avons reçu de M. Gustave Téry une réponse au
 
-2 Nous avons donné le bon à tirer après corrections
+Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce septième cahier le
 
 paraissant vingt fois par an
@@ -72,17 +72,17 @@ paraissant vingt fois par an
 
 “ Nous organisons patiemment notre service de libraiÉ rie. Ayant remarqué depuis quelques mois que l'on nous
 commandait souvent des Kuentsler-Monographien de ee
-ut Knackfuss, nous avons commencé à en avoir d'avance. F
+ut Knackfuss, nous avons commencé à en avoir d'avance.
 ne L Les monographies inscrites au dernier catalogue sont
 a, les suivantes : 1778
 ne: Dürer Millet(u.Rousseau) Steen vÈ
 _ Gebhardt, E. v. van Ostade Tintoretto SA
 
-4 Parmi ces monographies nous avons d'avance à la
+Parmi ces monographies nous avons d'avance à la
 _ librairie des cahiers : Û '
 
 Le Burne-jones Hals, Franz Rubens :
-$ und Jan Murillo Walleau L
+$ und Jan Murillo Walleau
 
 Du même auteur, en vente à la librairie des cahiers
 Le Miroir des Légendes, 1892. — Lemerre, chez
@@ -97,18 +97,18 @@ En collaboration avec Ephraïm Mikhael :
 La Fiancée de Corinthe, légende dramatique en trois
 actes, 1888. — Camille Dalou, chez Stock, un volume
 
-1 Du méme auteur de
+Du méme auteur de
 _ LUTION, mars 1895. — Réimprimé chez Stock, une bro- Duc
 _ GONTRE L'ANTISÉMITISME. — Histoire d'une polémique,
-1896. — Stock, une brochure o franc) 50, 1
+1896. — Stock, une brochure o franc)
 _ d'ouverture faite le 16 décembre 1895 au Collège libre des RES
 _ Sciences sociales, extrait du Devenir Social, numéro de Der:
-# janvier 1896. — Giard et Brière, un tirage à part o franc 50 À % k
+# janvier 1896. — Giard et Brière, un tirage à part o franc 50 À %
 
 # AE Bruxelles, deux premières éditions aujourd'hui épuisées.
-NE: Réimprimé chez Stock, 1897, une brochure 0 france 50
+NE: Réimprimé chez Stock, 1897, une brochure 0 france
 
-18 L'AFFAIRE DREYFUS. — Deuxième Mémoire avec
+L'AFFAIRE DREYFUS. — Deuxième Mémoire avec
 
 Ne des Expertises d'Écritures de MM. Crépieux-Jamin,
 
@@ -133,7 +133,7 @@ dans l'Europe orientale
 
 Il y a seulement trente-cinq ans que, dans l'Europe
 occidentale, les Juifs ont été émancipés complètement.
-Si, la première, en France, l'Assemblée Constituante Ë
+Si, la première, en France, l'Assemblée Constituante
 avait, le 27 septembre 1791, proclamé cette libération
 et fait un citoyen de l'esclave séculaire, ses droits
 ne furent définitivement reconnus qu'en 1860 en Angleterre, en 1864 en Allemagne, en 1866 en Italie, — en
@@ -172,23 +172,23 @@ dans les sociétés chrétiennes une classe moyenne
 nationale, il était devenu son auxiliaire dans la lutte
 entreprise quand, dés sa formation, elle était entrée en
 concurrence avec les Juifs, en partie détenteurs, dans
-des organisations agricoles, du rôle d'intermédiaires j
+des organisations agricoles, du rôle d'intermédiaires
 aussi bien que de celui d'artisans. Puis, cet antisémitisme scripturaire qui n'avait fait pendant des siècles
 que corroborer ou justifier la législation, et, en certains
 : cas, l'avait amenée à préciser certains points de détail,
 avait à peu près disparu, la victoire étant gagnée. Ses à
 quelques représentants au dix-huitième siècle lui avaient
-donné pour ainsi dire un caractère historique ou réca- Î
+donné pour ainsi dire un caractère historique ou réca-
 pitulatif. Les pamphlets se comptent, il n'en paraît
 plus en France, et le plus haineux de ceux qui se
-5 publient en Allemagne, le Judaïsme dévoilé, d'Eisen- D:
+5 publient en Allemagne, le Judaïsme dévoilé, d'Eisen-
 
 ._ _ menger, fut interdit par l'empereur Léopold IX, sans
 qu'aucune protestation se produisit. Du reste, depuis
 le seizième siècle, depuis Reuchlin combattant contre
 les dominicains, les Juifs avaient trouvé des défenseurs,
 
-. des apologistes même, et le mouvement qui devait S
+. des apologistes même, et le mouvement qui devait
 aboutir, à la veille de la Révolution, aux écrits de
 Mirabeau et de Grégoire en faveur de l'émancipation
 des Juifs, avait eu de nombreux initiateurs.
@@ -199,7 +199,7 @@ l'antisémitisme doctrinaire se réveilla. Le Juif libéré $
 affecta de l'en tenir pour responsable, alors que son
 rôle dans la bataille avait été nul, et c'est par lui, qu'à
 plusieurs reprises, elle entama la lutte contre l'État
-laïque. A dater de ce moment, l'antisémitisme a un s
+laïque. A dater de ce moment, l'antisémitisme a un
 but : faire revivre, en l'adaptant aux nécessités présentes, l'ancienne législation restrictive contre les-Juifs.
 Si ceux qui le professent nient être poussés par un
 sentiment d'hostilité envers la foi juive, et s'il est vrai
@@ -213,10 +213,10 @@ théorique en le traduisant en loi. L'Europe occidentale
 verra-t-elle un tel recul? Il est incontestable qu'elle y
 tend et, en 19071, on a vu la Diète bavaroise adopter par
 77 voix contre 51 la proposition d'un député du centre
-catholique, limitant le nombre des juges israélites en E
+catholique, limitant le nombre des juges israélites en
 
-Bavière. C'est là un fait isolé, ce n'en est pas moins k
-; un symptôme, et nous avons sous les yeux l'exemple È
+Bavière. C'est là un fait isolé, ce n'en est pas moins
+; un symptôme, et nous avons sous les yeux l'exemple
 ; de ce que peut produire le système quand il est rigoureusement appliqué. Dans deux pays de l'Europe orientale, le droit en est encore à ce stade de son développement où on ne le sépare pas d'une religion déterminée;
 | ._ dans deux pays, le Juif est placé encore sous le régime
 pr des lois d'exception : ce sont la Russie et la Roumanie.
@@ -243,13 +243,13 @@ le. Es des Juifs roumains a été excellemment résumée par le docteur Lu
 Ye V _ E. Schwarzfeld dans deux articles publiés par l'American Jewish
 _ Yearbook, 1901-1902 (Philadelphie, 1901). On peut aussi consulter le
 LL Der travail de M. J. Plotke : Les Juifs roumains sous le prince et roi
-qu Fa Charles (une traduction française en a été publiée par l'Aurore, D
-_ octobre-novembre 1901) et le Mémoire de l'Association générale des e
+qu Fa Charles (une traduction française en a été publiée par l'Aurore,
+_ octobre-novembre 1901) et le Mémoire de l'Association générale des
 , ke” Parlement, en avril 1893 (une traduction française a paru dans le A+
 
 Le sentiment antisémite en Roumanie se fondant en ,
 partie sur la théorie que le Juif est un nouveau venu
-au milieu des descendants des Daces, il est bon d'ex- s
+au milieu des descendants des Daces, il est bon d'ex-
 poser préalablement l'histoire des communautés juives
 dans les principautés de Moldavie et de Valachie. Cela,
 non dans le but de rechercher ce qui dans la pensée
@@ -258,9 +258,9 @@ seulement pour montrer comment ces groupements ont
 pu participer au développement économique du pays "50
 dans lequel ils étaient fixés.
 La légende raconte que les Juifs vinrent en Dacie aux va
-temps mythiques de Décébale, sous Domitien. En réa- N
+temps mythiques de Décébale, sous Domitien. En réa-
 lité, comme, dès les premiers siècles de l'ère chrétienne, Y249e
-des colonies israélites s'étaient établies sur les bords è
+des colonies israélites s'étaient établies sur les bords
 de la mer Noire, quelques individus purent venir
 jusqu'au Danube, de même qu'il en vint au huitième
 siècle, après la conversion des Khazares. Sous la domination des princes galiciens, les anciennes villes de
@@ -268,7 +268,7 @@ siècle, après la conversion des Khazares. Sous la domination des princes galic
 | _ cut une pénétration réelle qu'au treizième siècle, sous
 le règne de Radu Negru (Rodolphe le Noir), et surtout
 au quatorzième siècle, sous Vladislav Basarab, lorsque
-les Juifs, chassés de Hongrie par Louis le Grand, se L
+les Juifs, chassés de Hongrie par Louis le Grand, se
 réfugièrent dans l'hospitalière Pologne, et en Valachie.
 
 Au moment de la fondation de la principauté de Moldavie (1348), ils habitaient déjà certaines localités,
@@ -295,7 +295,7 @@ Constantin Brancovan (1689). Au commencement du
 dix-huitième siècle, ils sont dans un grand nombre de
 villes, et les boïards moldaves les appellent pour fonder
 des bourgs sur les territoires dépeuplés, faisant avec
-eux des contrats par lesquels, en échange de privilèges J
+eux des contrats par lesquels, en échange de privilèges
 
 et sous peine d'un onéreux dédit en cas de non exécution, les Juifs s'engagent à amener dans les nouveaux
 bourgs un nombre déterminé de familles. Ils sont, dès
@@ -340,7 +340,7 @@ Ypsilanti et le repousser en Autriche. Mais les Hétai-
 la libération de la Grèce, que de massacrer les Juifs.
 Guidés par les moines grecs de Moldavie, ils vengèrent
 leur défaite sur un troupeau désarmé ‘dont le sang
-coula à flots. Avec le rétablissement des princes indi- j
+coula à flots. Avec le rétablissement des princes indi-
 gènes, la situation des Juifs s'améliora, soit pendant les
 règnes qui s'écoulèrent sous le protectorat russe, soit
 même dans les premiers temps de la campagne d'union
@@ -348,7 +348,7 @@ entre la Valachie et la Moldavie. Si d'une part, en "1848,
 quelques mesures étaient prises contre les Israélites,
 d'autre part, en cette même année 1848, le comité À
 de régénération roumaine inscrivait dans son pro « x gramme l'émancipation des Israélites et l'égalité des
-droits politiques pour les citoyens de toutes les reli- j
+droits politiques pour les citoyens de toutes les reli-
 ; gions. Les Juifs vivaient tranquilles et, sauf l'émeute de À
 F Galatz en avril 1859, provoquée par une fausse accusation
 | de meurtre rituel — les accusés arrêtés furent tous ,
@@ -385,7 +385,7 @@ composés de Hongrois, de Serbes, de Bulgares et de
 Juifs. Les Serbes, les Bulgares et les Hongrois étaient
 surtout en Valachie, les Juifs, en Moldavie.
 Pendant le protectorat russe, l'état économique ne
-changea guère. Si le Règlement Organique, en 183,
+changea guère. Si le Règlement Organique, en
 établit une organisation judiciaire, une comptabilité
 régulière, et créa à peu près l'instruction publique, il
 . ne modifia pas la constitution oligarchique du pays;
@@ -420,7 +420,7 @@ la mettre d'accord avec la réalité des faits économiques qui régissaient la 
 La situation ne changea guère après l'émancipation
 des paysans en 1864. De ce jour, au contraire, le
 problème agraire se posa plus redoutable que jamais,
-car il se compliqua d'un problème commercial et e
+car il se compliqua d'un problème commercial et
 industriel. De la recherche de leurs solutions sortit un
 violent antisémitisme en même temps que fut élaboré
 tout un système de lois xénophobes et protectrices
@@ -492,7 +492,7 @@ soutiennent aujourd'hui contre eux provient de l'impossibilité où ils sont d'a
 luttes pour l'indépendance et la liberté, avec les nécesSités économiques et avec l'idéologie libérale qu'ils ont $
 empruntée à des nations dont le développement économique a dépassé depuis longtemps le stade où se
 | trouve la Roumanie. En 1848, le comité réformiste de
-Valachie, ainsi que les libéraux moldaves, dèmandaient 1e
+Valachie, ainsi que les libéraux moldaves, dèmandaient
 une constitution républicaine et l'émancipation des
 Juifs; le parti démocrate, en Moldavie surtout, est
 ; aujourd'hui le grand promoteur du mouvement xéno- -
@@ -569,7 +569,7 @@ tous du premier ? Les Juifs n'ont, dit-on, ni relation
 ne veulent pas s'assimiler en apprenant la langue
 | de ceux au milieu desquels ils vivent et en se conformant
 à leurs coutumes. Après qu'eut prévalu le principe de
-| la roumanisation des Juifs par l'école, on les accusa è
+| la roumanisation des Juifs par l'école, on les accusa
 d'être plus avides de s'instruire que les Roumains; (1)
 ° mais ce grief, en contradiction avec le précédent, ne fit
 pe ÿ (1) Affirmations de M. Poni, ministre de l'Instruction publique, au
@@ -583,7 +583,7 @@ au grand préjudice de la Roumanie même. Ils intoxiquent le paysan, aflirmait-o
 le paysan était intoxiqué par l'alcool, indépendamment
 du cabaretier qui le lui vendait. En Valachie d'ailleurs,
 où jamais les Juifs n'avaient été débitants, l'alcoolisme “
-produisait les mêmes ravages qu'en Moldavie, et ils è
+produisait les mêmes ravages qu'en Moldavie, et ils
 n'ont pas diminué depuis que d'honnèêtes électeurs
 orthodoxes remplissent ces fonctions. Ils réduisent les
 Roumains à la misère par l'usure, assure-t-on encore.
@@ -604,7 +604,7 @@ plutôt trop que pas assez et la seule chose qui semble le maintenir
 dans les nations est la religion, même quand il ne la pratique pas.
 
 tien. (1) Dans les campagnes de Moldavie et de Valachie,
-l'usurier juif fit concurrence à l'usurier grec et à l'usurier J
+l'usurier juif fit concurrence à l'usurier grec et à l'usurier
 - arménien, mais son usure fut comparativement bénigne,
 car il ne pouvait s'emparer du gage sur lequel il prêtait,
 et il avait intérêt à ménager son emprunteur. En
@@ -656,7 +656,7 @@ présent des Juifs roumains.
 
 Si, pendant le premier quart du dix-neuvième siècle,
 les Juifs avaient souffert dans les Principautés, on peut
-dire que ce n'avait pas été du fait des habitants; ils à Bernard Lazare Ÿ
+dire que ce n'avait pas été du fait des habitants; ils à Bernard Lazare
 avaient été les victimes de toutes les interventions
 | - extérieures, victimes des guerres ou des troubles
 suscités par les Grecs, les Turcs ou les Russes, et dont
@@ -672,7 +672,7 @@ ne redevint mauvaise qu'après l'élection de Couza, en
 | raux théoriques demandèrent leur émancipation en
 escomptant l'appui de- cette masse électorale future;
 : les démocrates, soutenus par la petite bourgeoisie
-: naissante, exigèrent de nouvelles limitations de leurs Ù
+: naissante, exigèrent de nouvelles limitations de leurs
 droits. Le règne de Hohenzollern amena les violences
 et les mesures restrictives.
 Les premières éclatèrent dès l'avènement au trône du
@@ -693,7 +693,7 @@ d'une feuille démocrate-antisémite, César Bolliac,
 ameuta la foule; les maisons juives furent saccagées,
 la synagogüe de Bucarest démolie, les Israélites maltraités. Devant l'émeute le ministère eut peur, il retira
 son projet, et fit voter l'article 7 de la Constitution qui
-déclarait que seuls les chrétiens pouvaient devenir e
+déclarait que seuls les chrétiens pouvaient devenir
 
 ; citoyens roumains. Un an après, le véritable chef du
 ministère Kretsoulesco, Jean Bratiano, qui avait
@@ -725,7 +725,7 @@ Berlad, à Calarash et à Galatz, tandis que trente et un
 députés appartenant à la fraction libérale indépendante
 proposaient de chasser les Juifs des communes rurales
 ; et de ne les laisser s'établir dans les communes
-urbaines qu'avec l'assentiment des conseils muni- F
+urbaines qu'avec l'assentiment des conseils muni-
 cipaux. Cette motion fut suivie de nouvelles émeutes
 qui vinrent à point, comme pour en montrer la néces-
 | sité. A Bacau, le cimetière israélite fut profané et
@@ -773,7 +773,7 @@ Plewna, l'occupation d'Antivari par les Monténégrins et
 d'Adlich par les Serbes, après le traité de San Stefano,
 les Puissances agirent. Soucieuses de sauver l'empire
 ottoman en sauvegardant leurs intérêts compromis par
-l'ambition slave, elles réunirent à Berlin, sur l'instigation j
+l'ambition slave, elles réunirent à Berlin, sur l'instigation
 de l'Angleterre, un congrès pour réformer le pacte de
 San Stefano et régler la situation des principautés balkaniques et danubiennes.
 
@@ -801,14 +801,14 @@ les puissances, commerçants ou autres, seront traités
 en Roumanie sans distinction de religion, sur le pied
 d'une parfaite égalité. »
 Après la promulgation de cet article, les Juifs rou-
-| mains purent se croire libres. Ils se trompaient; ils Ë
+| mains purent se croire libres. Ils se trompaient; ils
 | étaient simplement appelés à subir un système nouveau .
 h et détourné de persécutions, qui devait peser sur eux
 | plus durement que jamais. En annonçant au prince
-( (1) Article qui disait que seuls les chrétiens pouvaient être natu- J
+( (1) Article qui disait que seuls les chrétiens pouvaient être natu-
 © Char es les décisions du congrès, Bratiano et Cogalni- ; ‘+
 _ ceano disaient que : « la signification de cette décision Re:
-#4 ne souffrait aucune équivoque : les droits de citoyens Fe *4
+#4 ne souffrait aucune équivoque : les droits de citoyens Fe
 
 _ devaient être accordés aux Juifs. » Aussitôt les patriotes
 3 x roumains profitèrent de l'émotion chauvine produite sur
@@ -830,12 +830,12 @@ hi. exigèrent, avant de reconnaître la Roumanie, que celle-ci Be
 F ; _se prononçât, définitivement et dans le sens indiqué, sur :#
 la question.
 Ée Pour gagner du temps, le ministère roumain fit
-à examiner à quels Juifs seraient conférés les droits n:
+à examiner à quels Juifs seraient conférés les droits
 de citoyens. Il demandait si on devait accorder « la
 - naturalisation à tous les Juifs, ou à certaines caté- nn.
 __ gories, ou à chacun individuellement, et si la recon «
 _ naissance devait avoir lieu par la voie administrative Le
-__ ou par des actes législatifs ». L'Angleterre, la France 5
+__ ou par des actes législatifs ». L'Angleterre, la France
 4 et l'Allemagne protestèrent, d'autant que le délégué s #34
 roumain, l'ancien démocrate émancipateur Rosetti, con- ne à
 _ sidérait les Juifs comme étrangers. Le prince Charles Eu
@@ -867,7 +867,7 @@ M. Stourdza, ministre des finances, négociait dans ce sens, la commission d'ini
 premier de ses statuts) : « La sauvegarde et le développement du
 sentiment religieux, la lutte contre l'action corruptrice des Juifs et
 contre la démoralisation causée par la mauvaise interprétation des
-principes humanitaires. » Un homme notable, M. Xénopol, recteur d
+principes humanitaires. » Un homme notable, M. Xénopol, recteur
 de l'Université de Jassy, a écrit à un journal israélite /Univers Israélite, mars 1900) pour exposer, en deux articles, que la solution de la à
 question juive en Roumanie était le baptême des Juifs, la religion
 + juive étant l'obstacle à l'assimilation. Il faudrait selon lui : « refuser
@@ -878,10 +878,10 @@ question juive en Roumanie était le baptême des Juifs, la religion
 
 4 vrai d'une part que le Juif soit la sangsue du peuple roumain, à comment expliquer que cette sangsue devienne inoffensive par
 
-% la vertu du baptême! i
+% la vertu du baptême!
 
 È jamais existé, mais bien des Israélites étrangers, qui
-À sont, en effet, nés dans le pays, mais ne se sont assimilés ni par leur langue, ni par leurs mœurs, à la ù
+À sont, en effet, nés dans le pays, mais ne se sont assimilés ni par leur langue, ni par leurs mœurs, à la
 nation roumaine et même n'y aspirent pas;
 « 2° La naturalisation peut être accordée à tout étranger sans différence de confession, individuellement et
 en vertu d'une loi spéciale;
@@ -918,21 +918,21 @@ n de résidence, « peut être naturalisé, sur sa demande et
 280 protestèrent contre cette conception d'après laquelle
 D. les Juifs étaient considérés comme étrangers, ce que
 # + nulle nation ne pouvait admettre, puisqu'on les déclaLES rait nés dans le pays et soumis au service militaire.
-4 D'autre part les antisémites roumains ne voulaient
+D'autre part les antisémites roumains ne voulaient
 be 4% même pas accepter la naturalisation par catégories et
 #0 le ministre des affaires étrangères Boeresco le déclaTR rait formellement. Devant la mauvaise foi des RouRC mains, M. Waddington demanda, d'accord avec l'Angleterre, qu'on introduisit dans la Constitution l'article
 F J suivant : « Les individus nés en Roumanie et y étant
 à élevés jusqu'à leur majorité, qui n'auront jamais été
-* du principe contenu dans l'article 44 du traité de : Û
+* du principe contenu dans l'article 44 du traité de
 < Berlin, tous les droits civils et politiques. »
-4 Si l'entente européenne avait persisté, l'opposition
+Si l'entente européenne avait persisté, l'opposition
 ‘ roumaine aurait été brisée; mais la temporisation, le
 (3 retard mis à exécuter les engagements pris, lui permit
 e 4 de résister encore et finalement de triompher enromLe pant cette entente. Ce fut l'Allemagne qui en cette
 ‘7 circonstance fut l'alliée nécessaire. Le cabinet roumain
 
 F À profita avec habileté du courant antisémite fomenté
-x. dans l'Empire par le parti des pasteurs évangéliques « 548
+x. dans l'Empire par le parti des pasteurs évangéliques «
 É soutenu par les conservateurs et les agrariens. La
 _ question des chemins de fer de Roumanie pesa aussi sur
 4 la volonté allemande. Dans les sociétés formées pour ‘3
@@ -940,11 +940,11 @@ _ question des chemins de fer de Roumanie pesa aussi sur
 | silésiens avaient engagé des capitaux considérables ; “7:20
 PE ils avaient un intérêt essentiel à obtenir du gouver- ‘4
 . nement roumain un assentiment complaisant aux con-
-| _ ditions de rachat imposées ainsi qu'une approbation Ke F
+| _ ditions de rachat imposées ainsi qu'une approbation Ke
 à non moins complaisante du premier rapport concernant de
 ; leur exploitation. Pour cela, il était nécessaire que “630
 4 le royaume fût reconnu par les Puissances. L'Alle-
-; magne, guidée par les intérêts de ses capitalistes, R
+; magne, guidée par les intérêts de ses capitalistes,
 obtint de l'Europe qu'elle se contentât d'une déclaration platonique. L'article 7; de la Constitution rou- es
 maine, qui disait : « La qualité de Roumain s'acquiert, DB:
 : se conserve et se perd d'après les règles déterminées à
@@ -956,12 +956,12 @@ La différence des croyances religieuses et des
 | chement à l'acquisition et à l'exercice des droits civils s'
 et politiques. à
 
-$ 1. — Tout étranger, sans distinction de religion, K
+$ 1. — Tout étranger, sans distinction de religion,
 
 qu'il soit soumis ou non à une protection étrangère, #3
 
 peut obtenir la naturalisation aux conditions sui-
-4 a) Il adressera au gouvernement une demande de d
+4 a) Il adressera au gouvernement une demande de
 4 naturalisation portant indication du capital qu'il 7208)
 
 possède, de la profession qu'il exerce et de sa volonté .
@@ -997,7 +997,7 @@ L être naturalisé sans que sa femme le soit. Un Juif peut être Rouà main, et
 Roumanie naturalisa immédiatement 900 Juifs qui
 D avaient pris part à la guerre d'indépendance. Comme
 la plupart étaient morts sur le champ de bataille,
-deux cents individus seulement profitèrent de la géné- C
+deux cents individus seulement profitèrent de la géné-
 | rosité moldo-valaque. En réponse, l'Allemagne, l'Angleterre et la France remirent au cabinet roumain une
 note identique dont voici le texte:
 « Le Gouvernement ne saurait reconnaître comme » répondant entièrement aux vues qui ont dirigé les
@@ -1021,7 +1021,7 @@ On a légiféré contre les étrangers, et on a appliqué les
 * lois aux Juifs, en vertu même de cet abandon de l'Europe, qui laissait violer ses décisions en permettant la
 | naturalisation individuelle d'individus nés dans un
 F. pays, fils de pères nés dans ce pays.
-1 Cependant, il était difficile d'appliquer impunément
+Cependant, il était difficile d'appliquer impunément
 = ce code xénophobe à des indigènes sans soulever des
 x la Roumanie et ne lui permettaient guère de traiter
 les Juifs en étrangers en excipant de leur particularisme
@@ -1039,14 +1039,14 @@ p: plus, parce que tant qu'il le sera l'interprétation même
 ë pas de lui appliquer légitimement la législation contre
 ” les étrangers, et on ne la lui fera subir que par un
 Us L'article 118 de la Constitution roumaine porte que :
-À « Chaque Roumain fait partie de l'armée régulière, ou j
+À « Chaque Roumain fait partie de l'armée régulière, ou
 f de la milice, ou de la garde civique, conformément aux
 M lois spéciales ». Quant aux Juifs, ils ont toujours été
 È astreints au service militaire; mais la loi qui le leur
 
-|. imposait a sans cesse varié dans ses mobiles et ses T2
+|. imposait a sans cesse varié dans ses mobiles et ses
 F D'après la loi de 1864, les Juifs étaient recrutés comme ‘
-« étrangers qui habitent le pays et qui ne sont pas E.
+« étrangers qui habitent le pays et qui ne sont pas
 3 soumis à une protection étrangère ». Mais la loi de
 % 1868, abrogeant la précédente, déclara (article 2) que “ ‘4
 x « tous les habitants du pays, à l'exception des étrangers,
@@ -1061,10 +1061,10 @@ h d'acuité que jamais, à la veille de la reprise des persé-
 * raient tirer d'un pareil état de choses et on en revint
 aux stipulations de la loi de 1864. #4
 | De 1878 à 1882, pour avoir des arguments valables à
-| opposer à la diplomatie étrangère, des circulaires È
-secrètes furent envoyées aux conseils de revision pour 11
-leur enjoindre d'exclure les Juifs. De plus, on fit signer N
-à ceux des jeunes gens israélites qui ne savaient pas 10e
+| opposer à la diplomatie étrangère, des circulaires
+secrètes furent envoyées aux conseils de revision pour
+leur enjoindre d'exclure les Juifs. De plus, on fit signer
+à ceux des jeunes gens israélites qui ne savaient pas
 lire, et on contraignit les autres à signer, une déclara- A
 tion par laquelle ils se reconnaissaient fils d'étrangers à
 | non naturalisés et « demandaient à ne pas être soumis
@@ -1076,16 +1076,16 @@ Article 2. — Les sujets des États étrangers ne peuvent
 | faire partie de l'armée.
 
 M0 Crétnit revenir à la loi de 184 d'ole façon détournée yÈS
-et moins brutale. C'était dire que les Juifs étaient incor- F
+et moins brutale. C'était dire que les Juifs étaient incor-
 k: porés comme habitants du pays, non soumis à une
 protection étrangère. Ces textes inquiétèrent cependant À
-4 les antisémites moldaves. Pour répondre à leurs È
+4 les antisémites moldaves. Pour répondre à leurs
 Er. craintes, — ils redoutaient que les Juifs pussent être à
-14 la tête de l'armée, — le général Manou, ministre de la i
+14 la tête de l'armée, — le général Manou, ministre de la
 ® guerre, déclara que seuls les Roumains pourraient ,
 % obtenir le grade d'officier. À ceux qui firent observer ‘
 ER que « ceux qui servent la patrie doivent également
-260 jouir des droits de citoyens », le général Manou ré- L
+260 jouir des droits de citoyens », le général Manou ré-
 _ pliqua : « L'impôt du sang qu'on paie n'a rien à faire
 Ne . avec la naturalisation. Un fils d'étranger né dans le
 de pays peut tirer au sort et servir dans l'armée autant
@@ -1093,7 +1093,7 @@ x 4CS qu'il le pourra, il ne deviendra pas pour cela citoyen ge
 Er. _ A ceux qui craignaient une intervention étrangère, le
 libéral Bratiano, président du Conseil, répondit que les
 à à ; n'interviendraient pas. .
-+8) . La loi fut votée, mais d'après ses stipulations, le Juif Ê
++8) . La loi fut votée, mais d'après ses stipulations, le Juif
 228 ne pouvait désormais ni s'engager comme volontaire, à
 EL ni avancer en grade, ni se rengager, ni bénéficier des
 ee dispenses que confèrent certains diplômes, ni prendre
@@ -1101,7 +1101,7 @@ ee dispenses que confèrent certains diplômes, ni prendre
 14 roumaine crut que le problème de faire du Juif un
 C 3 1 soldat tout en n'en faisant pas un citoyen était résolu,
 D: à et elle pensa avoir répondu par avance aux représen- er.
-e (1) D'après l'article 2 de la loi : « Les enfants des étrangers nés ù
+e (1) D'après l'article 2 de la loi : « Les enfants des étrangers nés
 se dans le pays ne pourront pas être exemptés du service militaire %
 114 s'ils ne font pas constater qu'ils ont rempli cette obligation dans
 * L un autre pays. » %
@@ -1109,8 +1109,8 @@ se dans le pays ne pourront pas être exemptés du service militaire %
 “ tations des Puissances, toujours à craindre sous la AR
 :# | poussée de certaines circonstances. | 1e 5 Pt.
 Er _ Il fallait, ceci posé, montrer que les Juifs n'étaient pas Le
-F5 roumanisables et ainsi ne pouvaient prétendre à jouir M.
-_ des droits civils ou politiques. Or, aux yeux des anti- c
+F5 roumanisables et ainsi ne pouvaient prétendre à jouir
+_ des droits civils ou politiques. Or, aux yeux des anti-
 __ juifs et des gouvernements successifs qui dès Lors les
 . servirent, on avait fait jusqu'à ce jour fausse route en £c
 F2 civilisant les Juifs, et enles arrachani aux écoles pure
@@ -1120,7 +1120,7 @@ tion scolaire, les écoles des Principautés furent d'accès
 : libre, et la loi de 1852 les ouvrit à tous. Simultané- Fr
 ._ ment, on y appela les Juifs par des privilèges accordés 3 Êr
 E- _ à ceux d'entre eux qui les fréquentaient. La loi de 1854 es
-F sur le recrutement en Moldavie dispensa du service 4
+F sur le recrutement en Moldavie dispensa du service
 _ militaire les Juifs ayant terminé leurs études dans les
 établissements d'éducation publics et produisant les
 _ certificats requis. Après la réunion des Principautés,le
@@ -1137,23 +1137,23 @@ ajoutait-elle, ne souhaitent pas des écoles séparées, PA
 £ L'article 13 de la Constitution de 1866 confirma ces
 _ dispositions. En 1867, au milieu même des persécu- #4
 
-ni tions contre les Juifs, M. Bratiano envoya aux préfets i
+ni tions contre les Juifs, M. Bratiano envoya aux préfets
 38 une nouvelle circulaire concernant les communautés
 Le israélites et prescrivant d''infliger une amende aux .
 4 parents qui n'enverraient pas leurs enfants dans les
 D écoles. Ceux-ci étaient d'ailleurs une minorité. Dès que
 NE. les portes leur avaient été ouvertes, les Juifs, aspirant - .
 ni: à s'instruire, s'étaient précipités. En 1864, il y en avait
-M en tout 20 ou 30 dans les écoles du pays; en 1878-79 ils E
+M en tout 20 ou 30 dans les écoles du pays; en 1878-79 ils
 d* i étaient 11 °/, dans les écoles primaires, et dans cer74 taines villes 30 et 50 °/, du total des élèves. En 1882-83,
  : on en comptait 15 °/,dans les écoles primaires urbaines,
 L ni et dans quelques localités 30, 40, 50, 70 et même 75 °{, à
-4 de la totalité des écoliers. T4
+4 de la totalité des écoliers.
 Re A cette époque, la tactique changea. On se demanda
 2 i comment on pourrait, avant peu, représenter raison-
 “ nablement comme étrangers 260.000 individus qui ne
 24 coutumes que les coutumes, les mœurs et la langue
-‘à à roumaines. La presse commença à protester. Jadis E
+‘à à roumaines. La presse commença à protester. Jadis
 + elle reprochait aux Juifs leurs instincts séparatistes
 # et leur confinement volontaire dans les écoles conb fessionnelles. Elle leur reprocha désormais leur rapi- À
 “1 dité à se mêler, leur désir de savoir. Les instituteurs, ».
@@ -1161,22 +1161,22 @@ Re A cette époque, la tactique changea. On se demanda
 D leur congrès de 1883, un délégué déclara que les Juifs £
 À envahissaient les écoles de l'État et que, bientôt, il ny
 4 aurait plus de place pour les Roumains; il engageait
-2. ses collègues à prendre des mesures. Elles furent F
+2. ses collègues à prendre des mesures. Elles furent
 Ÿ prises; contrairement à la loi, les professeurs chas-
 #4 sèrent des classes les enfants israélites, soit en préDu textant que le nombre prévu d'élèves était dépassé,
 l : soit en ayant recours aux mauvais traitements, soit
 
 - en fomentant l'antisémitisme dans les classes et en .
 E- ‘incorporant sa doctrine à leur enseignement. ER
-4 Le Parlement corrobora ces mesures.En 1886-1887 un FE,
+Le Parlement corrobora ces mesures.En 1886-1887 un FE,
 è projet de loi fut déposé, demandant que les étrangers Fe
 fussent astreints à payer un écolage de dix francs par
 | an pour les écoles primaires et de cinquante francs pour
 _ les écoles secondaires. La loi ne fut pas votée, mais le :
-4 ministre de l'instruction publique envoya (juillet et J
+4 ministre de l'instruction publique envoya (juillet et
 août 1887) des circulaires aux directeurs des écoles
 primaires, leur recommandant d'inscrire d'abord les » ‘2
-Roumains et les naturalisés. 77e
+Roumains et les naturalisés.
 Ë Il fut écouté et partout les enfants juifs furent chassés TA
 3 de l'école (x); les protestations, l'invocation des droits, Re
 le rappel des encouragements anciens, tout fut vain. Les
@@ -1185,7 +1185,7 @@ consacrer. Elle imposait aux étrangers — dans l'espèce
 aux Juifs — le paiement d'un écolage de quinze francs à ‘4
 | pour les écoles rurales, de trente francs pour les écoles Le
 | urbaines, et prescrivait qu'ils ne pourraient y être reçus
-que dans la mesure des places disponibles. La loi de È
+que dans la mesure des places disponibles. La loi de
 1896 corrobora celle de 1893. Comme on estimait, sans à à
 doute, qu'elle ne frappait pas suflisamment la masse des ER
 artisans et des infimes commerçants juifs, déjà inca- Eee:
@@ -1194,8 +1194,8 @@ pables de payer sur leurs maigres salaires et leurs
 nombreux enfants, des circulaires vinrent l'aggraver. Dee
 L'article premier de la loi disait que les actes relatifs à
 l'enseignement public étaient exemptés du timbre, les Ée.
-circulaires enjoignirent aux agents de l'État de sou- S:
-(1) Dans une seule ville, à Botoshani, on en renvoya cent quatorze. D. É.
+circulaires enjoignirent aux agents de l'État de sou-
+(1) Dans une seule ville, à Botoshani, on en renvoya cent quatorze.
 
 mettre au timbre les actes concernant les enfants juifs
 qui fréquentaient les écoles privées. Bien plus, pour
@@ -1227,30 +1227,30 @@ trois cent soixante francs par an.
 
 _ Déjà la loi du g/21 avril 1893 avait exclu les Juifsdes
 _ écoles professionnelles. Dans les écoles forestières, les ne.
-: E étrangers n'étaient plus admis, comme auditeurs, qu'a- L 136
+: E étrangers n'étaient plus admis, comme auditeurs, qu'a-
 "1 vec l'autorisation du ministre, toujours refusée aux RE
 ie Juifs. Dans les écoles d'arts et métiers, les étrangers Ne
-ce n'étaient reçus que comme externes et dans la pro- + 100
+ce n'étaient reçus que comme externes et dans la pro- +
 portion du cinquième des places vacantes. Dans les LAN
-5 écoles de commerce, les étrangers étaient obligés de D.
+5 écoles de commerce, les étrangers étaient obligés de
 + payer des droits d'admission. Naturellement, dans tous :
 4 _ cesétablissements, ils ne pouvaient concourir ni pour Ka -
-‘4 les, bourses, ni pour les subventions. FR n:
-._ La loi de 1899 sur l'enseignement professionnel ren- dj F2
+‘4 les, bourses, ni pour les subventions. FR
+._ La loi de 1899 sur l'enseignement professionnel ren- dj
 -. força encore ces dispositions. Dans les écoles publiques, De
 - l'éducation professionnelle était donnée gratuitement ; Si
 _ Les étrangers ne purent désormais la recevoir que si les
 …—_ Roumains laissaient des places disponibles et encore +44
 Re. « leur nombre ne pouvait dépasser la cinquième partie à ‘
-1 du nombre total des élèves ». Ceci avait un autre but, ÿ 128
+1 du nombre total des élèves ». Ceci avait un autre but,
 … il est vrai, que celui de séparer intellectuellement le Me:
 Juif du Roumain : on voulait favoriser la création d'une De.
-E classe d'artisans nationaux et les placer pour la con4 currence de chaque jour dans des conditions meilleures 4 S?
+E classe d'artisans nationaux et les placer pour la con4 currence de chaque jour dans des conditions meilleures
 - que les artisans juifs. Dans les écoles supérieures de » qe
 4 sylviculture et d'agriculture, on ne devait admettre que se RL
 E des élèves internes, boursiers de l'État, des districts eu,
 . ou des communes, ce que les étrangers ne pouvaient S bee
-_ être. Dans les écoles inférieures d'agriculture, les élèves k£ o
+_ être. Dans les écoles inférieures d'agriculture, les élèves k£
 _ reçus devaient sortir des écoles normales primaires ou
 des écoles élémentaires agricoles où il était défendu A .
 _ aux Juifs d'entrer. Quant aux taxes, le ministre les es
@@ -1259,16 +1259,16 @@ _ et de garçons et pour les écoles commerciales du LEA
 
 CE premier degré, et à 150 francs pour les écoles comee merciales du second degré.
 x L'œuvre était-elle ainsi complète? On ne le pensa
-k pas. Par cette législation, on obtenait bien la sépa- È
+k pas. Par cette législation, on obtenait bien la sépa-
 E= ration du Roumain et du Juif, mais on voulait mieux.
 | On craignait la supériorité du Juif instruit sur le
-18 Moldo-Valaque; il fallait donc l'abaisser pour le rendre
+Moldo-Valaque; il fallait donc l'abaisser pour le rendre
 4 moins dangereux et l'avilir afin de montrer qu'on ne
 ; pouvait en faire un citoyen de l'antique Dacie. Dès la
 ; promulgation de la loi de 1893, les communautés juives
 el avaient fondé des écoles pour leurs enfants chassés de
 3 l'école roumaine. On mit des entraves à ces fondations ‘4
-F5: et pour cela on eut recours à la persécution religieuse. E
+F5: et pour cela on eut recours à la persécution religieuse.
 Bien que des cours d'adultes eussent lieu le dimanche
 De - et les jours fériés, dans les établissements scolaires
 $ Ë publics, une circulaire ministérielle d'octobre 1899
@@ -1278,7 +1278,7 @@ $ Ë publics, une circulaire ministérielle d'octobre 1899
 "4 d'enseigner la religion plus d'une heure tous les deux
 à jours et de laisser les enfants se couvrir la tête pendant
 # l'instruction religieuse et la lecture de l'hébreu. De cette …
-. façon on espérait éloigner les orthodoxes, pour qui se ÿ 1j
+. façon on espérait éloigner les orthodoxes, pour qui se
 & couvrir la tête pendant les oflices ou l'étude de la loi …
 ; est une obligation rituelle. (1) Comme les écoles privées
 L en Roumanie sont de deux sortes, celles avec pro-
@@ -1286,7 +1286,7 @@ L en Roumanie sont de deux sortes, celles avec pro-
 scolaires, et celles avec programme propre, plus indé
 re pendantes, les administrateurs des écoles libres juives
 % (1) Devant les protestations, même des journaux antisémites Le
-100 modérés, le ministre dut retirer sa circulaire, dont le caractère anticonfessionnel était par trop palent. L
+100 modérés, le ministre dut retirer sa circulaire, dont le caractère anticonfessionnel était par trop palent.
 
 4 demandèrent à les transformer en écoles avec programme propre. L'autorisation leur fut refusée : « Nous
 pouvons accorder aux étrangers, dit le docteur Oncioul,
@@ -1304,7 +1304,7 @@ il s'émancipait à peine, de le renfermer de nouveau
 , dans son ghetto, de le séparer de la civilisation? C'est
 la conception de ceux-là mêmes que l'on représente
 presque comme des philosémites, de M. Carp, par
-e exemple. « Tout hérétique, dit-il (1) — ce sont, en F
+e exemple. « Tout hérétique, dit-il (1) — ce sont, en
 . Roumanie, les catholiques, les protestants, les israé-
 | lites — (2) sera tenu de par la loi de se rattacher à
 une communauté religieuse et de payer à celle-ci un
@@ -1338,7 +1338,7 @@ de diminuer pour lui la possibilité de participer à la vie
 moderne; de le rendre moins apte à s'assimiler; de
 justifier ainsi les répugnances qu'on témoignait à en
 | faire un citoyen, et de le mettre en même temps dans
-ke (1) Le gouvernement roumain comprend si bien cela, et que sa L
+ke (1) Le gouvernement roumain comprend si bien cela, et que sa
 1 théorie n'est pas défendable, qu'en 1897 il prépara un projet de loi
 ÿ qui n'aboutit pas, d'ailleurs, pour exclure complètement les Juifs du
 
@@ -1402,7 +1402,7 @@ J moins, défense fut faite au propriétaire de le tuer, …
 
 # enferma le renard dans un cercle de plus en plus
 
-CL étroit, si bien que celui-ci ne trouva plus de quoi M
+CL étroit, si bien que celui-ci ne trouva plus de quoi
 
 k engraisser; il perdit ses forces, redevint maigre, dé- fr charné, et enfin se sauva par le trou qu'il avait lui-
 
@@ -1427,29 +1427,29 @@ F1 (2) C'est en 1882 que M. Bratiano l'imagina.
 
 _ législative suflisait, puisqu'elle frappait toutes les catéÀ gories, et que bientôt, sur le sol de la Moldavie et de la !
 É Valachie, le Juif ne pourrait exercer ni une fonction, ni
-1 Ces soi-disant usuriers, aptes seulement à l'usure, à
+Ces soi-disant usuriers, aptes seulement à l'usure, à
 étaient en effet représentés dans toutes les professions, fi
 É et il fallut travailler activement à les déloger. On y nn.
-4 procéda méthodiquement. D'après la loi du 4 décembre K
+4 procéda méthodiquement. D'après la loi du 4 décembre
 ; 1864, seuls les Roumains ou naturalisés roumains pou- 3 di
-4 vaient exercer la profession d'avocat; cependant les Juifs F
+4 vaient exercer la profession d'avocat; cependant les Juifs
 i étaient tolérés comme défenseurs devant les justices de
 4 paix. La loi du 8 juin 1884 fit cesser cette tolérance. Elle
 à les autorisait encore à être secrétaires d'avocats ou à
 Ê avoir des bureaux de notariat, mais successivement, par
 1 des décisions du conseil de l'ordre, ces autorisations rs
 | leur furent enlevées et, désormais, ils ne sont même plus ‘à
-k admis à représenter, devant les tribunaux de conciliation, les propriétaires ou les fermiers roumains. Il Û
+k admis à représenter, devant les tribunaux de conciliation, les propriétaires ou les fermiers roumains. Il
 u leur était licite d'exercer la médecine et d'entrer dans
-le service sanitaire; une loi, celle du 14 juin 1893, É,
+le service sanitaire; une loi, celle du 14 juin 1893,
 : vint leur ôter cette licence. « Pour pouvoir être nommé +
 à un poste quelconque du service sanitaire, disait-elle, “4
 il faut être citoyen roumain, et avoir fait un stage dans à
 l'armée. » Les arrondissements et les villages avaient me
 1 le droit, à défaut de Roumains, d'engager des étrangers, FACE
-si ces derniers acceptaient un contrat stipulant que, N
+si ces derniers acceptaient un contrat stipulant que,
 dès qu'un citoyen roumain se présenterait pour de- ; “2
-mander la place, elle lui serait donnée immédiatement, Ë
+mander la place, elle lui serait donnée immédiatement,
 sans que l'occupant pût prétendre à une indemnité. “4
 On retenait même au Juif, pendant le temps qu'il était
 en exercice, un tantième pour la retraite, bien qu'il n'y "0
@@ -1465,14 +1465,14 @@ l'État les a rachetés. Ils ne peuvent pes davantage obtenir un emploi dans l'a
 de 1872 et celle de 1879 sur le monopole, complétées par
 les dispositions de 188r et de 1887, exigent en effet que
 k les fonctionnaires de la régie soient roumains : employés, entrepreneurs ou simples débitants.
-3 Trop de carrières restaient cependant ouvertes, car-
+Trop de carrières restaient cependant ouvertes, car-
 : rières dans lesquelles le bourgeois roumain redoutait
 \ l'activité juive; il fallait les fermer, ou les rendre d'abord
 difficile, en diminuant les droits de ceux qui y entraient -
 | et en favorisant les autochtones. La loi du 1° juin 1881
-ä visa les agents de change et les courtiers en marchandises. On ne put désormais être admis dans la cor- L
+ä visa les agents de change et les courtiers en marchandises. On ne put désormais être admis dans la cor-
 À poration que si l'on était Roumain ou naturalisé; la
-i même qualité fut exigée des mandataires des agents et Ë
+i même qualité fut exigée des mandataires des agents et
 - courtiers, et des gens à leur service. La loi était appliÀ cable immédiatement, excepté dans les ports, où elle ne
 L l'était que trois ans après la promulgation, car il y
 < avait là des étrangers chrétiens qui auraient pu
@@ -1484,7 +1484,7 @@ f faire respecter leurs droits. Des banquiers et des
 p' aggrava même les défenses, en interdisant aux non_ Roumains l'exercice des métiers de courtiers en céréa-
 …._ Jleset en vins dansles foires et marchés. Pour satisfaire
 … les électeurs, on créa un corps de dragomans, ignorants
-_ du commerce des blés et des boissons, corps privilégié È
+_ du commerce des blés et des boissons, corps privilégié
 ….… et national qui exploita durement l'éternel exploité en
 —_ Roumanie, le paysan, à qui on interdit de prendre des
 mandataires étrangers. On poursuivit même les cour-
@@ -1497,7 +1497,7 @@ __ commissionnaires et expéditeurs en douane, la loi de
 ministre. On avait voulu d'abord ne donner l'autorisa-
 ——_._ ‘tion qu'à ceux qui étaient inscrits comme électeurs;
 _ mais devant les protestations des agents diplomati_ ques, on se contenta de l'assentiment ministériel, impi-
-Le cercle se resserra encore. La loi du 16 juin 1886 et ï
+Le cercle se resserra encore. La loi du 16 juin 1886 et
 —_ le règlement du 27 octobre 1893 interdirent à tout
 … individu non Roumain d'être droguiste ou épicier ven-
 —_ dant des substances toxiques nécessaires à l'industrie.
@@ -1517,7 +1517,7 @@ ne permet pas d'en exclure les Juifs, l'arbitraire minis-
 4 en éliraient les membres « payassent une patente de ,
 à première, deuxième, troisième ou quatrième classe et .
 “ jouissent des droits civils et politiques ». Ainsi, les
-ï non-Roumains ne pouvaient discuter les intérêts de n
+ï non-Roumains ne pouvaient discuter les intérêts de
 ce leur corporation. La loi du 10 mai 1887 sur les sociétés …
 Fr en commandite et sur les sociétés anonymes restreignit
 4 leurs droits à administrer leurs propres deniers. Elle
@@ -1552,7 +1552,7 @@ Roumanie, n'a jamais été interdit; c'est sur la foi de cette liberté
 que nous l'avons pratiqué jusqu'à ce jour. Plusieurs d'entre nous
 ne pourraient même pas trouver un autre: gagne-pain. La veuve A
 Ô qui ne sait comment nourrir ses enfants, le bancal, le manchot et
-le vieillard qui ne peuvent gagner leur vie d'une autre façon, et b.
+le vieillard qui ne peuvent gagner leur vie d'une autre façon, et
 tant d'autres qui se trouvent dans une position analogue, tous per- :
 | dront leur pain si cette loi doit être votée.
 È « Dans d'autres pays où l'industrie est florissante, si on restreint
@@ -1566,7 +1566,7 @@ devons qu'à des commerçants bienveillants qui ont confiance en
 nous et nous honorent de leur crédit. $
 « Ici, dans la capitale, nous sommes quatre cents familles,
 hommes, femmes et enfants. Nous resterons demain sans pain si
-vous, messieurs les sénateurs, ne nous prenez pas en pitié et si c
+vous, messieurs les sénateurs, ne nous prenez pas en pitié et si
 vous n'écartez pas ce projet désastreux. Et ce n'est pas seulement
 nous, les quatre cents familles, ce sont les cinq mille familles ?
 dispersées sur toute la surface du pays qui resteront sans ressources. »
@@ -1584,7 +1584,7 @@ La loi votée, une circulaire ministérielle du 2 mai 1884
 en ordonna l'application rigoureuse et immédiate; les
 colporteurs demandèrent au roi un sursis de six mois,
 on ne le leur accorda pas. Les commissaires et les
-agents organisèrent la chasse (1) aux colporteurs; ils L
+agents organisèrent la chasse (1) aux colporteurs; ils
 x ne se contentèrent pas d'exécuter la loi, ils y ajoutèrent.
 à Elle ne visait pas les fripiers juifs, on appréhenda les
 fripiers ; elle autorisait la vente des produits d'agriculture, etc., on l'empêcha. On s'opposa mème à la vente
@@ -1661,20 +1661,20 @@ présentés, celui notamment de M. Filipesco, ministre du
 
 réorganiser le système corporatif. Il classe pour cela les
 | et métiers libres, et il subordonne leur exercice à
-l'obtention soit du livret de libre pratique, soit d'une in- È
+l'obtention soit du livret de libre pratique, soit d'une in-
 scription corporative, délivrés et accordés de telle sorte
 que les étrangers et les Juifs ne puissent y prétendre. à
 L'adoption d'une semblable législation est maintenant
 le but avoué des antisémites moldaves; ils n'épar-
-| gneront rien pour y parvenir (1) et il ne paraît pas F
+| gneront rien pour y parvenir (1) et il ne paraît pas
 
-| douteux qu'ils y arrivent. En attendant de pouvoir ‘à efficacement protéger le travail national, on met la loi i
+| douteux qu'ils y arrivent. En attendant de pouvoir ‘à efficacement protéger le travail national, on met la loi
 au service du capitalisme roumain. La police se fait
 l'auxiliaire des patrons. Elle menace d'expulsion, en À
 vertu de la loi sur les étrangers, les prolétaires juifs
-qui refusent le salaire offert; sous la même menace, l
+qui refusent le salaire offert; sous la même menace,
 elle les contraint à remplacer les ouvriers chrétiens qui
-se sont mis en grève, ou qui ne veulent pas accepter F
+se sont mis en grève, ou qui ne veulent pas accepter
 
 les salaires refusés par les ouvriers roumains. Et c'est : à
 
@@ -1688,7 +1688,7 @@ aimèrent mieux se laisser expulser que de prendre la
 groupements ouvriers, on les chasse, de même s'ils
 assistent à des réunions où les revendications prolétaà riennes sont discutées, (2) et surtout s'ils font de l'agi-
 
-| (1) Déjà on a embrigadé de soi-disant ouvriers roumains qui ont é
+| (1) Déjà on a embrigadé de soi-disant ouvriers roumains qui ont
 
 \ manifesté dans les rues de Bucarest et demandé au Parlement de
 
@@ -1703,7 +1703,7 @@ ne leur permet pas de s'établir dans les villages, en
 raison de la loi sur la police rurale et sur l'organisation
 communale ; aussi ne peuvent-ils pas participer aux '
 travaux agricoles, qui attirent chaque année quarante .
-Ces lois ou règlements ont porté à son comble la L
+Ces lois ou règlements ont porté à son comble la
 misère ouvrière, en même temps qu'elles ont paralysé les
 Juifs dans leur défense. La première, la loi sur les
 étrangers, était ainsi rédigée
@@ -1713,7 +1713,7 @@ son séjour dans le pays, compromettra la sûreté intérieure ou extérieure de
 publique, ou prendra part à des menées ayant pour
 objet le renversement de l'ordre politique ou social dans
 le pays ou à l'étranger, pourra être contraint par le
-gouvernement à s'éloigner de l'endroit où il se trouve, e
+gouvernement à s'éloigner de l'endroit où il se trouve,
 ou d'habiter dans un endroit spécialement désigné, ou
 encore de quitter le pays. »
 Article 2. — « La décision ministérielle d'expulsion,
@@ -1757,7 +1757,7 @@ la protestation et désormais on expulsa systématiquement. Les Juifs nés en Ro
 F4 droit de faire émigrer en masse le Juif, avant que les
 # Roumains soient en mesure de remplacer. ces bras
 A utiles, ce qui ne sera pas possible de sitôt.
-5 Le règlement sur les billets de libre séjour, complété
+Le règlement sur les billets de libre séjour, complété
 À en octobre 1881, rendit la loi plus rigoureuse. Il exigeait …
 4 que « tout étranger, voyageur ou résidant en Roumanie,
 18 prenne un billet de libre séjour ». Seuls, « les préfets de …
@@ -1791,14 +1791,14 @@ spécifiant qu'il était applicable aux étrangers, mais non er + *”.+ NT
 1 sort du Juif entre les mains de la police, qui le consi_ dérait ou non, à sa guise, comme autochtone. D'ailleurs,
 | une autre circulaire fut lancée aussitôt, recommandant
 | aux Juifs qui n'étaient pas sujets étrangers de se
-procurer des billets de légitimation. Dès lors, certains Ê
-préfets les délivrèrent difficilement, trouvant insufli- S
+procurer des billets de légitimation. Dès lors, certains
+préfets les délivrèrent difficilement, trouvant insufli-
 ; sants les actes de naissance, les certificats de tirage
 { au sort et même les pièces établissant que les deman-
 ; dants avaient satisfait au service militaire. D'autres cs
-préfets, au contraire, sommèrent les Juifs de se procurer s.
+préfets, au contraire, sommèrent les Juifs de se procurer
 £ ces billets de légitimation, sous peine d'être traités ‘
-comme étrangers. È
+comme étrangers.
 
 Cet appareil coercitif peut paraître parfait, il ne l'est !
 
@@ -1806,14 +1806,14 @@ pas aux yeux du gouvernement roumain. Pour le compléter, M. Aurélian, ministre
 4 déposer ur nouveau projet de loi sur la police rurale, à
 destiné sous un apparent libéralisme à frapper
 encore les petits trafiquants, les menus métiers et les
-ouvriers. D'après ce projet, les étrangers seront e
+ouvriers. D'après ce projet, les étrangers seront
 astreints à faire une demande à la mairie de la qe
 commune rurale où ils voudront s'installer. Le conseil :
 | communal sera libre de leur accorder ou non l'autorisation de s'établir. L'autorisation devra être approuvée
 par le ministre de l'intérieur, après l'avis du préfet. En
 | cas de refus, les intéressés pourront en appeler au même
 ministre qui statuera, toujours après avis du préfet.
-Ceux qui ne rempliront pas ces formalités pourront être g
+Ceux qui ne rempliront pas ces formalités pourront être
 expulsés, de même que ceux qui « par actes, paroles
 ou écrits menaceront la sécurité générale de l'État,
 | troubleront l'ordre ou la tranquillité, publique ou com- à
@@ -1838,7 +1838,7 @@ l'article 44 : « Seuls les Roumains et les naturalisés
 : pourront obtenir l'autorisation d'ouvrir un établisse-
 
 | ment public ». Arriver à considérer le petit détaillant, l'infime épicier, le petit quincaillier, le boulanger,comme
-une sorte de fonctionnaire préposé à la gérance d'éta- M
+une sorte de fonctionnaire préposé à la gérance d'éta-
 blissements publics, c'est le chef-d'œuvre du protec- tionnisme roumain. Un autre article atteint, indirectement mais très eflicacement, — car il met en jeu « l'intérêt patronal,— l'ouvrier juif, c'est l'article 18, ainsi
 rédigé : « Les personnes qui emploient des ouvriers
 étrangers devront faire une déclaration par laquelle ils
@@ -1942,7 +1942,7 @@ les petites villes du pays depuis leur fondation ou depuis une époque reculée,
 ayant fait un stage légal dans l'armée étaient également
 | autorisés à s'établir « dans les villages et bourgs où
 
-: ils avaient été recrutés ». (1) On tolérait aussi ceux qui J
+: ils avaient été recrutés ». (1) On tolérait aussi ceux qui
 ÿ venaient provisoirement avec leurs femmes et leurs enfants pendant la période des travaux agricoles — quand
 on ne pouvait se passer de leur concours — mais seu-
 | lement pour la durée de leur engagement. En 1896, le
@@ -1966,7 +1966,7 @@ déjà et qui voulaient rentrer dans les communes, qu'ils
 avaient des instructions pour ne pas expulser, et
 * non pour autoriser des étrangers à s'établir denouveau.
 à (1) La plupart de ces bourgs avaient été fondés ou peuplés au
-en dix-huitième siècle par des Juifs, appelés sur le territoire désert D:
+en dix-huitième siècle par des Juifs, appelés sur le territoire désert
 < par les boïars qui leur conféraient des privilèges que les princes
 régnants confirmaient par des chrysobulles. Ils jouissaient, par
 . exemple, du droit de propriété et des avantages des citoyens. Lorsque
@@ -1985,7 +1985,7 @@ h: façon dont la police et l'administration les interprètent. FETE
 è émouvoir. Les communes, excitées par les autorités,
 4 sûres de l'impunité, ont légiféré financièrement, impo4 sant aux Juifs des taxes et des capitations spéciales,
 F comme jadis au Moyen-Age. En 1880, la commission de .
-- recensement de Buzéou imposa aux contribuables juifs Ë
+- recensement de Buzéou imposa aux contribuables juifs
 É une taxe dénommée taxe d'Israélite. En 1882, à Piatra,
 4 on obligea la communauté juive à verser à la mairie
 à 1.200 francs par an pour l'entretien de la musique de la
@@ -2010,7 +2010,7 @@ d'écoles nouvelles. Mais on les oblige à prendre des billets pour
 S billets. La taxe frappa ceux mêmes des Israélites
 . qui n'avaient pas recours au sacrilicateur. En 1895, ce conseil imagina un nouvel impôt sur la viande, exclu-
 
-| sivement levé sur les Juifs. Dans le bourg de Ÿ
+| sivement levé sur les Juifs. Dans le bourg de
 
 4 ; Bivolari, le sous-préfet fit payer par les Juifs quatre
 3 mille francs par an, pour rétribuer des agents de police,
@@ -2026,7 +2026,7 @@ RS. Juif est à la discrétion des fantaisies communales, e mais il est encore �
 ‘Ts faut qu'il se rachète sans cesse, sinon l'expulsion le
 
 À menace, et, s'il ne capitule pas, elle est prononcée contre
-lui. S'il est riche, il s'incline ; s'il est pauvre, il subit. E
+lui. S'il est riche, il s'incline ; s'il est pauvre, il subit.
 L'administration, à court d'argent, menace les Juifs de « . . .
 
 ne” la commune ou du district de les expulser à moins
@@ -2036,13 +2036,13 @@ politiciens sans ressources, et les employés de ministère
 
 ; (1) Ces taxes sont absolument illégales etcontraires à la Constitution, bien que le gouvernement les tolère et les autorise. D'après la Constitution, Article 10 : « Il n'existe dans l'Etat aucune distinction de
 
-; classe. Tous les Roumains sont égaux devant la loi et tenus de con- d
+; classe. Tous les Roumains sont égaux devant la loi et tenus de con-
 
 | Article 11 : « Les étrangers jouissent, quant aux personnes et aux
-s biens, de la même protection que les Roumains. » Article 108:
+s biens, de la même protection que les Roumains. » Article
 « Tout impôt n'est établi qu'au profit de l'État, du district ou de ve la commune. » Article 109 : « Aucun impôt au profit de l'État ne.
 
-> peut être établi ou perçu qu'en vertu d'une loi. » Article 110: « Aucune È
+> peut être établi ou perçu qu'en vertu d'une loi. » Article 110: « Aucune
 
 £ charge, aucune imposition au profit du district ne peut être établie
 
@@ -2064,7 +2064,7 @@ V que du consentement du conseil de district. Aucune charge, aucune à impositio
 
 4 adversaires du gouvernement. A Calarash, un tailleur
 
-| juif est expulsé pour n'avoir pas livré les vêtements du z
+| juif est expulsé pour n'avoir pas livré les vêtements du
 
 LE. maître de police, qui était son débiteur. (1) Un autre e Israélite est expulsé, pour avoir osé demander des
 
@@ -2093,7 +2093,7 @@ depuis vingt ans c'est le flot constant des expulsés et des rappelés qui va et
 
 : et de Valachie.
 
-5 Nul ne s'émeut de ces douleurs, et qui pourrait s'en
+Nul ne s'émeut de ces douleurs, et qui pourrait s'en
 Ë émouvoir? Le paysan est courbé sous le joug, il est non
 
 À moins taillable que le Juif, pour lequel il ne ressent
@@ -2104,18 +2104,18 @@ de. il n'a pas plus de sensibilité pour le malheur des
 À autres que pour le sien. Quant à la classe dirigeante,
 
 _ celle des fonctionnaires et des politiciens, elle ne peut
-\ se maintenir qu'en sacrifiant perpétuellement le Juif à E:
+\ se maintenir qu'en sacrifiant perpétuellement le Juif à
 sa clientèle bourgeoise, qui a plus d'appétits qu'elle ne
 
 “+ peut en satisfaire. L'horreur irraisonnée du Juif permet
 
 | de tout accepter et, dans un peuple à demi barbare
 
-> encore comme le peuple roumain, qui sous un vernis i
+> encore comme le peuple roumain, qui sous un vernis
 
 , superficiel de civilisation a un fond de cruauté orien- .
 
-2 à tale, on accepte sans difliculté cette idée de l'existence F
+2 à tale, on accepte sans difliculté cette idée de l'existence
 
 à: d'une catégorie de parias sur lesquels chacun peut
 ‘1e frapper. À un imprimeur de Bucarest qui vient pro-
@@ -2125,7 +2125,7 @@ __ - : tester contre l'arrestation d'une de ses parentes, le
 
 # ne connaît pas de lois. » Un autre préfet oblige les à à Juifs à teindre en rouge les escaliers et les portes de
 
-* leurs maisons et fait rouer de coups les récalcitrants L
+* leurs maisons et fait rouer de coups les récalcitrants
 
 TE par ses policiers. Un autre réquisitionne des Juifs pour à
 transporter gratuitement les équipements militaires et
@@ -2133,7 +2133,7 @@ la matraque les fait marcher. (1) Contre ces abus, k. aucun recours en justice, 
 
 + l'acheter; le pauvre, maltraité, devra s'estimer heureux
 i de vivre encore. Après les émeutes de 1897, à Bucarest, un Juif, aveuglé par les émeutiers, vient comme témoin
-2 devant le tribunal. « Ne peux-tu pas reconnaître ceux E
+2 devant le tribunal. « Ne peux-tu pas reconnaître ceux
 
 qui t'ont frappé? » demande le président au milieu me (1) En 1885, un journaliste énuméra, dans le journal Fraternitatea, *
 a) de nombreux cas de brutalités, de meurtres même, perpétrés sur he les Juifs. On ne voulut pas le poursuivre, il aurait apporté des ke
@@ -2161,20 +2161,20 @@ des sujets de dissertations antijuives, qui figurent
 + dans tous les villages de la Moldavie les cabarets sont
 à tenus par des Juifs qui, comme des sangsues, poussent $
 k les paysans à l'ivresse », — et à côté de celui-là, men- .
-4 songer, puisque, depuis la loi sur les licences, les cabarets é
+4 songer, puisque, depuis la loi sur les licences, les cabarets
 4 sont exploités exclusivement par des chrétiens, cet -
 4 autre contradictoire : « Nos lois défendent aux Juifs
 À d'être cabaretiers dans les villages. » (1) A cela, il faut
 a ajouter les insultes qui dépriment l'âme de l'enfant, qui
 4 l'avilissent aux yeux de ses condisciples : « Éloïgne-toi,
 F. dit un professeur à un élève israélite, je ne puis supporter l'odeur du Juif. »— « Tu es en retard, dit un autre, à (1) Grammaire de la langue roumaine, par M. T. Suchianou, proÀ fesseur de langue roumaine au lycée Saint-Sava et Saint-Georges.
-Bucarest, quatrième édition, 1898, pages 28, 72 et 239.
+Bucarest, quatrième édition, 1898, pages 28, 72 et
 
-ton père a dû faire l'usure pour que tu puisses apporter N
-" __ ta taxe. » L'esprit qui anime les journaux est pire î
+ton père a dû faire l'usure pour que tu puisses apporter
+" __ ta taxe. » L'esprit qui anime les journaux est pire
 encore : à de rares exceptions près, (1) toute la presse
 est antisémite et, dans les polémiques, fait triompher le
-ton brutal qui est celui des jingoes et des antijuifs, dont j
+ton brutal qui est celui des jingoes et des antijuifs, dont
 je n'ai pas besoin de donner des exemples. Organe des
 politiciens, elle pousse aux lois restrictives, et si elle ne
 suflit pas à cette tâche, les organisations antisémites
@@ -2196,7 +2196,7 @@ dans toutes les branches de l'agriculture, principale-
 
 j religieux, la lutte contre l'action corruptrice des Juifs
 à et contre la démoralisation causée par une mauvaise
-| interprétation des services humanitaires ; Ë
+| interprétation des services humanitaires
 2 f) L'encouragement et la protection des ouvriers
 g) Comme l'élément juif n'est pas assimilable, l'Al1 liance combattra contre l'augmentation des droits politiques qu'on voudrait accorder aux Juifs;
 | h) Elle usera de tous les moyens permis qui pour-
@@ -2212,8 +2212,8 @@ Chapitre VI, $ 70 : Tout Roumain qui fait un don de
 cent à cinq cents francs aura le droit de porter les .
 s insignes de l'ordre du « Cavaler Antisemit ».
 | $ 71 : Celui qui fera un don de cinq cents à mille
-francs aura le droit de porter les insignes de l'ordre de F
-1 Saint-Michel, le patron de l'Alliance.
+francs aura le droit de porter les insignes de l'ordre de
+Saint-Michel, le patron de l'Alliance.
 $ 72 : Un an après son admission, chaque membre
 recevra un diplôme d'antisémite.
 ü $73 : Tous les membres qui possèdent le diplôme
@@ -2237,7 +2237,7 @@ Es commerciaux et industriels de leurs préjugés religieux
 1 _ et ils se servent de ceux-ci pour préserver ceux-là.
 _ Leur milice, ainsi organisée, voulut jouer un rôle actif.
 + _ Elle ne se borna pas à exercer par ses membres une
-Ë action dans le Parlement, elle contribua à organiser F
+Ë action dans le Parlement, elle contribua à organiser
 à l'émeute, quand elle parut nécessaire: à Bacau, à Le.
 à Dranceni en 1900. Les troubles de Bucarest furent les
 œ plus graves et les plus caractéristiques. Ils éclatèrent à
@@ -2253,27 +2253,27 @@ Et (1) Déposé par le général Berendei, ministre de la guerre, ce projet À
 : exemptait les Juifs du service militaire et leur imposait une taxe
 % N en échange de cette exemption. Il ne fut pas voté.
 Re quée par les étudiants orthodoxes. La veille, les orgac nisateurs, ou ceux qui les soutenaient, firent afficher,
-sur les murs de la capitale, un manifeste violent, 7e
+sur les murs de la capitale, un manifeste violent,
 | et le lendemain, à l'issue du meeting, des bandes
 parcoururent les rues, saccageant les maisons des
 | Juifs, défonçant les vitrines de leurs magasins, mettant
 au pillage leurs boutiques et les cafés fréquentés par
 | eux, dévastant les synagogues, assaillant les Israélites -
 À isolés et les maltraitant. Les émeutiers étaient armés
-de gourdins et de barres de fer; ils opéraient avec la F
+de gourdins et de barres de fer; ils opéraient avec la
 | bienveillante neutralité de la police. Ce ne fut qu'à
 } la fin de la journée que la gendarmerie intervint et "
-| arrêta les désordres. (1) A la Chambre, sur une interpellation de M. Marghiloman, le ministre de l'intérieur s
+| arrêta les désordres. (1) A la Chambre, sur une interpellation de M. Marghiloman, le ministre de l'intérieur
 couvrit sa police, rejeta sur les Juifs la responsabilité
 : des excès commis, et déclara qu'ils étaient « une réac4 tion regrettable contre leur outrecuidance ». Ce furent, -
 5 en effet, les Juifs qui durent payer les frais de la
 e guerre : on leur défendit de tenir des réunions, même à
 è intimes, (2) et leurs sociétés furent dissoutes.
-4 Que pouvaient-ils faire désormais pour se défendre?
+Que pouvaient-ils faire désormais pour se défendre?
 : On ne leur reconnaissait pas le droit de pétition; il
 ñ n'appartenait qu'aux citoyens, et en vertu de ceprincipe
 sa la pétition de l'Association générale des Juifs indigènes,
-composée exclusivement de personnes ayant fait dans f
+composée exclusivement de personnes ayant fait dans
 È l'armée leur service régulier, fut, en avril 1893, écartée %
 : (1) A ce moment, l'Association générale des Étudiants roumains crut à
 ff devoir protester contre les organisateurs des troubles, et contre la
@@ -2281,7 +2281,7 @@ QE minorité d'étudiants qui avaient coopéré à l'œuvre des bandes anti3 sé
 C4 (2) On a même interdit aux membres de lacommunauté de se réunir
 À pour délibérer sur les besoins du culte.
 
-par le Sénat. On leur déniait maintenant le droit de se e
+par le Sénat. On leur déniait maintenant le droit de se
 réunir, de s'associer, dans n'importe quel but. Ruinés par F'
 les expulsions hors des villages, par les défenses multi- à
 pliées, par l'application rigoureuse des lois d'exception, %
@@ -2297,7 +2297,7 @@ Un millier se dirigea sur Paris, autant sur Londres;
 d'autres se répandirent dans l'Europe centrale, et le
 mouvement continua. « L'émigration, écrivait le journal
 la Roumanie (journal oflicieux}), prend des proportions
-considérables, inquiétantes à certains égards », elle F
+considérables, inquiétantes à certains égards », elle
 « porte sur la classe israélite ouvrière, qui nous est
 | utile et même indispensable, puisque le Roumain ne
 veut pas exercer certains métiers ». Quelques petites
@@ -2345,7 +2345,7 @@ expulsions des villages et des campagnes, l'exclusion des
 Ru emplois et de tous les travaux publics, l'interdiction
 À à certains entrepreneurs d'occuper plus d'un tiers d'ou-
 | vriers étrangers, la défense de posséder des terres où
-3 des immeubles ruraux, les obstacles mis à l'exercice l
+3 des immeubles ruraux, les obstacles mis à l'exercice
 " des métiers et du commerce ambulant, l'accès des « : écoles interdit, l'abaissement systématique obtenu par
 À l'ignorance imposée, les vexations, les persécutions
 % . sournoises ou brutales: à ces causes particulières,
@@ -2356,11 +2356,11 @@ e ébranlé, la banqueroute menaçante, les déplorables
 ir semblables, car les conditions de vie étaient encore
 ” 4e acceptables pour eux : elles ne l'étaient désormaisplus,
 Ë ral car ils ne possédaient plus les moyens de résister.
-3 Depuis cette année de la grande exode (1900), la situaÀ tion n'a pas changé, une émigration lente a continué,
+Depuis cette année de la grande exode (1900), la situaÀ tion n'a pas changé, une émigration lente a continué,
 : elle continue encore, mais elle ne peut être une solution,
 r la masse de ceux qui émigrent n'étant pas suflisante
 24 pour remédier à l'engorgement produit parune quantité
-; de sans-travail aussi considérable. Momentanément, il L
+; de sans-travail aussi considérable. Momentanément, il
 é y a eu un soulagement. Dans quelques villes, les
 M ouvriers juifs sont restés en moins grand nombre, etles …
 Re partants n'ayant pas été remplacés par des ouvriers
@@ -2369,9 +2369,9 @@ Re partants n'ayant pas été remplacés par des ouvriers
 À cherché à retenir leurs locataires et le sentiment
 A public, en quelques endroits, s'est amélioré sous l'inrt fluence des intérêts. Les Juifs ont un instant respiré.
 + Mais les politiciens roumains n'ont pas abandonné leur
-_ œuvre, nous l'avons montré en exposant les projets de Ù
+_ œuvre, nous l'avons montré en exposant les projets de
 _ loi Aurélian et Filipesco. S'ils sont votés, ce qui paraît FFE
-& probable, que feront ces désespérés auxquels on en- D:
+& probable, que feront ces désespérés auxquels on en-
 _ lèvera leur dernière possibilité de vivre? Pourront-ils + Re
 _ agir par eux-mêmes, et dans quel sens? Des inter- ; « a ventions se produiront-elles en leur faveur, et de quel Nes
 _ ordre? Du mal arrivé à sa limite sortira-t-il un remède? ne
@@ -2392,7 +2392,7 @@ des Puissances qui l'avaient inspiré et de celle, la
 Russie, qui l'avait accepté. Quand l'Angleterre eut pris
 ._ Chypre; l'Autriche, la Bosnie et l'Herzégovine ; quand £
 la France se vit les mains libres vis-à-vis de la Tunisie;
-quand la Russie eut reçu la Bessarabie ; quand on n'eut Ù
+quand la Russie eut reçu la Bessarabie ; quand on n'eut
 - plus la crainte que la mer Noire devint un lac mos-
 . covite, on se soucia peu des stipulations réglant le sort
 - des collectivités persécutées soit dans les Balkans, soit
@@ -2403,13 +2403,13 @@ _ tint la parole donnée. L'Allemagne, poussée par ses
 financiers engagés dans les affaires roumaines, abandonna la première les revendications de parade, et
 les autres gouvernements suivirent. Ils se contentèrent
 
-d'une platonique déclaration des Roumains, et M. Ro- d
+d'une platonique déclaration des Roumains, et M. Ro-
 | setti, ministre de l'intérieur du cabinet J. Bratiano,
 put dire le 15 décembre 1881 à la Chambre : « Les …
 Roumains peuvent se féliciter d'avoir résolu dans un
 sens national la question la plus brûlante et la plus
 dangereuse, et cela, nous pouvons l'avouer maintenant, » contrairement à la volonté manifeste des Puissances, et
-: contrairement à l'esprit même du traité de Berlin. » L
+: contrairement à l'esprit même du traité de Berlin. »
 ; Les Juifs avaient eu des illusions et, poussés par
 | elles, ils avaient demandé au congrès ce que, ils
 devaient le savoir, la duplicité roumaine ne leur don2 nerait pas. La question fut mal posée par leurs repré-
@@ -2447,7 +2447,7 @@ restée insensible devant les flots de sang versé, en
 4 lui montrant un troupeau de spectres hâves qui meurent sans bruit, sans éclat désagréable et troublant,
 _ victimes d'une hypocrisie bien chrétienne, serait un vain
 et enfantin espoir. Quelle nation d'ailleurs oserait - SE
-4 parler? L'Angleterre, exterminatrice des Boers; la e
+4 parler? L'Angleterre, exterminatrice des Boers; la
 - Russie, persécutrice des Finlandais et aussi des Juifs;
 Bla France, massacreuse d'Annamites ou de Hovas et %
 : se préparant à une tuerie de Marocains; l'Italie, de
@@ -2508,7 +2508,7 @@ gi capitaux étrangers en Roumanie, une loi sur l'industrie suerièr
 
 <£ son exportation ». Cette loi eut pour résultat la création d'usines
 
-*e importantes créées par des étrangers attirés par les primes. En 490
+*e importantes créées par des étrangers attirés par les primes. En
 
 A une nouvelle loi a été votée sur la proposition du ministre Pallad
 2 reprenant la prime sous forme d'une taxe d'exportation de 0,16
@@ -2555,7 +2555,7 @@ ou s'il intervient une loi nouvelle contre les ouvriers
 juifs, (3) et les gouvernements qui redoutent le plus
 (1) L'Amérique a en fait fermé ses portes par l'application de
 quelques lois, entre autres la loi sanitaire. Quant à l'Angleterre, la
-question de l'émigration, et spécialement de l'émigration juive, vient n
+question de l'émigration, et spécialement de l'émigration juive, vient
 d'être posée à la Chambre des communes. Le major Evans Gordon
 a proposé d'insérer dans l'adresse au roi le paragraphe suivant:
 « Nous appelons respectueusement l'attention de Votre Majesté sur
@@ -2567,7 +2567,7 @@ ouverte, Des meetings ont eu lieu également, pour demander que
 l'immigration soit interdite. Leur caractère a été nettement antijuit.
 X (2) A la suite des représentations occasionnées par les mesures *
 prises contre l'industrie sucrière, le ministre Aurélian, redoutant pe
-une nouvelle intervention étrangère, a modifié l'article 40 de son L
+une nouvelle intervention étrangère, a modifié l'article 40 de son
 projet de loi sur la police rurale. Il en a enlevé le dispositif por- %
 tant interdiction aux étrangers de pratiquer le petit commerce dans "à
 les communes rurales. La commission s'est montrée fort hostile à
@@ -2629,13 +2629,13 @@ les protéger. Mais les Juifs n'oseraient jamais en arriver
 à ce moyen extrême de défense. La persécution ou la
 de domicile, s'ils ont à leur service au moins deux tiers
 d'apprentis et d'ouvriers roumains.
-ARTICLE 82. — Outre la peine d'amende, les autorités L
+ARTICLE 82. — Outre la peine d'amende, les autorités
 administratives, à la demande du Comité de la Corporation, défendront l'exercice du métier à ceux qui n'auront
-pas le Brevet de Maître prévu par l'article 8 ou le Carnet L
-d'ouvrier prévu par l'article 12. n
-ARTICLE 40. — La présente loi entrera en vigueur six mois P:
+pas le Brevet de Maître prévu par l'article 8 ou le Carnet
+d'ouvrier prévu par l'article
+ARTICLE 40. — La présente loi entrera en vigueur six mois
 après sa publication dans le Moniteur Ofjiciel.
-ARTICLE g1. — Tous ceux qui, à la publication de la pré- f
+ARTICLE g1. — Tous ceux qui, à la publication de la pré-
 sente loi, auront exercé, pendant deux ans, un métier pour
 leur propre compte, seront.considérés, par exception,
 comme maitres, et il leur sera délivré un brevet par la
@@ -2701,7 +2701,7 @@ un jour est proche où ces intérêts se coaliseront, d'autant qu'ils seront de 
 
 Le protectionnisme de la petite bourgeoisie moldave ,
 ne correspond pas en effet à la réalité; c'est un protectionnisme boutiquier de petite ville, convaincu qu'une
-minorité infime suflit à satisfaire les besoins de la consommation, et qu'elle peut imposer aux consommateurs F
+minorité infime suflit à satisfaire les besoins de la consommation, et qu'elle peut imposer aux consommateurs
 
 des tarifs maximum. La vérité est qu'il n'existe pas
 de classes roumaines pour se substituer aux Juifs,
@@ -2752,7 +2752,7 @@ de Roumanie; il est irréductible. Il n'y a de réduction
 possible que sur le budget des fonctionnaires, qui
 touchent 62 millions sur les 182 restant. Or, ces fonctionnaires, c'est-à-dire la bourgeoisie roumaine gouvernante et dirigeante, accepteront bien pendant quelque
 temps de se réduire, (2) dans l'espoir de jours meilleurs, mais si ces jours ne viennent pas, ils chercheront
-à lever de nouveaux impôts. (3) Sur qui les lèverontils ? Sur le seul, l'unique imposable, sur le corvéable H
+à lever de nouveaux impôts. (3) Sur qui les lèverontils ? Sur le seul, l'unique imposable, sur le corvéable
 dont vit la classe improductive, sur le paysan.
 Un seul parti eût pu proposer des solutions autres,
 ou s'opposer au moins à des projets dangereux. C'eût
@@ -2782,7 +2782,7 @@ __ naturalisé. A eux se joignit d'abord un tzigane, Jean
 | Nadedje, plus tard quelques autres jeunes gens, et la
 | première association communiste fut fondée. Elle avait
 uniquement pour membres des ouvriers juifs. Le
-socialisme était condamné, en Roumanie, à défendre è
+socialisme était condamné, en Roumanie, à défendre
 les droits des Juifs ou à disparaître, en l'absence d'un
 prolétariat national dont il eût été le représentant et
 surtout — étant donnée l'organisation politicienne du
@@ -2811,7 +2811,7 @@ proche encore du serf antique; il a été émancipé nominalement, mais effectiv
 crasse, qui considère ses fils comme sa chose, sa fille
 ou sa femme comme son jouet. Le politicien n'a rien
 - fait pour lui; pas un centime de l'argent des emprunts à
-n'a été consacré à une amélioration du sol, pas même n
+n'a été consacré à une amélioration du sol, pas même
 aux irrigations indispensables. L'agriculture est à
 ce point arriérée que ce sol fertile et riche donne un
 rendement à peine égal au quart du rendement obtenu
@@ -2824,7 +2824,7 @@ mesuré. J'ai dit comment on lui avait attribué son
 lopin, comment il l'avait fatalement morcelé, comment
 l'État avait été obligé de distribuer de nouveaux
 terrains, comment il était condamné à lui en vendre
-encore, quitte, comme en 1880, à lui faire remise des L.
+encore, quitte, comme en 1880, à lui faire remise des
 | sommes qu'il doit en paiement de ses annuités arrié5 rées. Cette parcelle qu'il ne peut cultiver faute des
 É moyens nécessaires, le paysan est contraint de la mor- Le
 k celer sans cesse et de l'hypothéquer. Finalement, quand
@@ -2857,7 +2857,7 @@ en se libérant lui-même et en libérant le Juif.
 le samedi 15 février 1902 Re.
 21348 à l'Imprimerie de Suresnes 3 Fa
 
-4 Je formeune entreprise quin'eut jamais d'exemple
+Je formeune entreprise quin'eut jamais d'exemple
 | et dont l'exécution n'aura. pas d''imitateur. Je pais
 . montrer à mes semblables un homme dans toute la
 | périté de la nature et cet homme c'est moi : Je me
@@ -2938,7 +2938,7 @@ avant que la force lui manque : le hasard est
 grand maître en ce monde ; il y a des braves gens,
 malheureusement leur puissance est le plus souvent
 trop faible, et l'auteur nous l'apprend lui-même "|
-dans l'épisode du curé. e
+dans l'épisode du curé.
 Bien des fois l'instituteur et sa femme envient le à
 sort du paysan et de J'ouvrier, qui ne sont pas des il
 naufragés comme eux. Écrasé par ses maîtres,
@@ -2989,15 +2989,15 @@ l'excès de la dépression, peut sortir le sursaut de
 révolte. Les seuls guesdistes peuvent s'imaginer, religieux, que de l'excès de l'inanition peut sortir, par
 miracle, de la réparation.
 Je ne sais si on entre bien dans le sens des œuvres
-en opposant les héros obscurs aux héros cornéliens, en i
+en opposant les héros obscurs aux héros cornéliens, en
 les comparant aux héros cornéliens, en mesurant leur
 supériorité. Toutes les misères humaines exigent du
 courage, et je ne serais pas étonné que dans la pensée
-des grands poètes classiques les grands personnages H
+des grands poètes classiques les grands personnages
 fussent les représentants éminents de toute l'humanité.
 Ainsi Polyeucte représenterait éminemment tous les
 martyrs obscurs, les Horaces les soldats obscurs, lé Cid
-les guerriers, et Chimène un très grand nombre de per- i
+les guerriers, et Chimène un très grand nombre de per-
 ‘ sonnes. J'entends par là qu'au lieu de s'opposer aux
 modestes ou aux humbles, les grands personnages
 cornéliens les représentent sur un plan éminent. C'est
@@ -3045,16 +3045,16 @@ Comme il se détache de la grandeur tragique même.
 mental, moral, pour l'analyse de la société, la pauvreté
 ; vaut au moins le génie. A la plupart des grands
 théoriciens socialistes, il a manqué d'être pauvres.
-L'usure des talents par la société bourgeoise est D:
+L'usure des talents par la société bourgeoise est
 ; peut-être l'usure la plus grave qu'il y ait eu depuis le
 commencement de l'humanité.
 Je ne crois pas que l'on puisse reprocher à Louise
 d'être comme elle est. Elle est exactement en femme ce
-, que Jean est en homme. Elle conduit en femme sa F
-misère de femme. Ses maladies, sa faiblesse, ne sont P:
+, que Jean est en homme. Elle conduit en femme sa
+misère de femme. Ses maladies, sa faiblesse, ne sont
 pas accidentelles, mais socialement, physiquement,
 | moralement déterminées. Il fallait, ayant les parents ‘
-qu'elle a, dans la ville où elle est, qu'elle fût petite L
+qu'elle a, dans la ville où elle est, qu'elle fût petite
 ouvrière; il fallait que son métier lui ruinât la santé; pe
 È il fallait que le mariage l'achevât. C'est la grande .
 k beauté, c'est la grande réalité de ce livre que les
@@ -3070,7 +3070,7 @@ pouvait s'en tirer; j'ai relu exprès pour trouver le ,
 défaut. Un seul détail m'a paru douteux; j'entends par
 là qu'il donnait jeu à deux effets au lieu d'un, que l'un
 des deux était contraire à Coste, que le second pouvait %
-| ne lui être pas contraire. Î
+| ne lui être pas contraire.
 On a dit : C'est trop noir; ce n'est pas l'instituteur de $
 Se village. Il est vrai que ce n'est pas l'instituteur moyen
 de village. Mais l'auteur n'a jamais dit que ce fût à
@@ -3113,7 +3113,7 @@ Un des tout prochains cahiers sera : Monographies
 d'Universités populaires, Paris et banlieue.
 Un des cahiers suivants sera : Monographies d'Uni-
 La copie de ces deux cahiers nous sera fournie par la es
-Société des Universités populaires. h
+Société des Universités populaires.
 Nous continuons à recevoir au moins un abonnement
 par jour. Nous avons fait le recensement géographique À
 de nos abonnés. Je ne sais si je pourrai en publier les

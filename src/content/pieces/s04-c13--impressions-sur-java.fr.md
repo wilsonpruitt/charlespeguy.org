@@ -24,9 +24,9 @@ six cahiers de la deuxième et de la troisième série. ci
 
 ; Nous mettons ce cahier dans le commerce; nous le *
 
-| vendons un franc 7
+| vendons un franc
 
-2 3 2
+2
 
 impressions sur Java
 
@@ -424,7 +424,7 @@ L'ardeur du volcan s'est bien atténuée depuis l'éruption. Nous attachons nos 
 précédés par le guide qui connaît les sentiers où la
 terre, moins chaude qu'ailleurs, ne brûle pas les souliers. Des champs de cendre grise; des champs de soufre
 d'un beau jaune ; de petites mares dont l'eau bout; des
-ouvertures mystérieuses, inquiétantes, d'où s'échappent l
+ouvertures mystérieuses, inquiétantes, d'où s'échappent
 des jets de fumée jaune, avec une violence irrésistible :
 on dirait qu'on ouvre la soupape d'une immense chaudière. Le vacarme est épouvantable : on ne peut s'entendre à quelques pas. L'air est plein de fumée; l'odeur
 du soufre est si intense que les yeux pleurent, qu'on
@@ -435,7 +435,7 @@ La promenade terminée, nous faisons un déjeuner
 sommaire. Les jeunes Hollandais me décrivent les sauvages forêts de Sumatra, me font un vif éloge de ce
 pays, encore plus primitif, plus pittoresque que Java.
 
-1 Je leur parle de l'Inde et de la Nouvelle-Zélande. —
+Je leur parle de l'Inde et de la Nouvelle-Zélande. —
 Puis nous remontons à cheval. La merveilleuse forêt
 est peut-être encore plus impressionnante à la descente
 qu'à la montée ; on juge mieux la hauteur des arbres,
@@ -954,7 +954,7 @@ solaire, où la terre même n'est plus qu'un tout petit
 point ! Et le monde qu'il est immense, fait de toutes les
 étoiles, de toutes les planètes, de tous les soleils !... La
 contemplation du volcan javanais fait naître en moi un
-sentiment de l'infini voisin de celui que provoque la 3
+sentiment de l'infini voisin de celui que provoque la
 vue d'un clair ciel étoilé.
 
 Essayant de raisonner les impressions que j'éprouve,
@@ -1994,15 +1994,15 @@ nouvellement débarqués : sous peu, ils deviendront des |
 citoyens français. A Philippeville, à Bône, ce sont plutôt |
 ) des Italiens qui viennent s'établir, mêlés de Maltais. Et
 partout ils trouvent des compatriotes déjà installés : la |
-plupart des villes d'Algérie ont un quartier espagnol et 4
+plupart des villes d'Algérie ont un quartier espagnol et
 un quartier italien. Ces quartiers se reconnaissent vite; |
 ce sont les plus peuplés; il y grouille une population |
 d'enfants qu'on chercherait vainement ailleurs. La pué- |
-riculture s'y développe en grand; les naïssances attei- Î
+riculture s'y développe en grand; les naïssances attei-
 gneñt un chiffre effrayant, et le nombre des étrangers |
 s'augmente ainsi sans cesse et des immigrés et des |
-nouveau-nés. Le péril croît. Déjà des tendances mena- I
-çantes se sont manifestées. Aux élections municipales, l
+nouveau-nés. Le péril croît. Déjà des tendances mena-
+çantes se sont manifestées. Aux élections municipales,
 des communes-élurent des listes entières de naturalisés; |
 et les conseillers, fiers de leur triomphe, hissèrent arro- |
 gamment sur la mairie le drapeau espagnol, en pré- |
@@ -2051,7 +2051,6 @@ militaire même, accéléra encore son progrès.
 A Alger, dès 1901, les ouvriers français se ressentirent vivement de la concurrence des étrangers et des
 
 - indigènes. Les entrepreneurs embauchaient de préfé-
-| 5
 
 rence des Espagnols et des Italiens, des Arabes et des
 Kabyles, gens sobres et accoutumés à une vie de
@@ -2124,7 +2123,7 @@ putés antijuifs n'avaient d'autre conséquence que d'indisposer le Parlement co
 nécessaire délire des candidats républicains : ils”
 furent élus.
 
-Faut-il conclure? Quand on s'occupe des affaires Ë
+Faut-il conclure? Quand on s'occupe des affaires
 algériennes, il est deux questions qui se posent naturellément : la question juive et la question étrangère.
 
 La seconde paraît de beaucoup la plus redoutable;

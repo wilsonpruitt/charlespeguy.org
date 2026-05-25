@@ -25,8 +25,6 @@ Rodrigues rassembla plusieurs feuillets épars. Il commença :
 
 (1) Paul Rodrigues, en bon philosophe, est sujet aux généralisations hâtives qui servent ses passions... C'est pourtant assez vrai qu'on voit à la plupart de nos femmes « à la mode » une expression d'insolence en quelque sorte endémique — notamment une volonté d'être « à distance » — qu'on ne voit guère aux portraits de leurs homologues des temps passés. (Comparer, par exemple, le portrait que regarde ici Rodrigues & les portraits que Latour nous a laissés des « élégantes » de son temps, la maréchale de Belle-Isle par exemple ou madame de Brienne; comparer encore celles qui entraient au lit des anciens gouvernants & celles qui aujourd'hui occupent ces emplois.) Il est vrai que la démocratie crée une nécessité de « se distinguer » que n'avaient point ces femmes d'autrefois.
 
-                         10
-
 « *rue, les hommes me regardent : je regarde droit devant moi... Dans l'alcôve, j'assiste indulgente à une avidité qui s'épuise à m'étreindre, & dont je suis affranchie.* »
 
 Eleuthère souriait. Rodrigues s'en aperçut assez pour se croire encouragé, pas assez pour croire qu'on se moquât de lui. Il continua :
@@ -39,12 +37,9 @@ Eleuthère souriait. Rodrigues s'en aperçut assez pour se croire encouragé, pa
 
 7. « *Je dispense la faveur. Car l'essence de mon corps est de se garder à soi : si bien que d'en laisser prendre la moindre part est une dérogation à ma définition,*
 
-                         11
-
 « *proprement une faveur, quelque chose comme ce que fit le Seigneur en se montrant à Moïse...* » Mais je m'arrête, dit Rodrigues, car vous riez d'un tel air que je me demande si seulement vous m'écoutez.
 — J'avoue, dit Eleuthère, que ce qui m'amuse le plus dans votre dissection des femmes, c'est l'homme que vous y révélez... Que votre sujet soit une créature de grâce & de faiblesse, ah ! ce n'est pas ça qui vous empêche de disséquer !... Je songeais, en vous écoutant, à cet écrivain juif dont parle Renan, (2) qui, établi en face des merveilles de l'Archipel, ne regarda rien de ce qu'il avait devant lui & ne s'occupa que d'organiser sa colère... Et si votre dissection découvre des choses vilaines, ce n'est encore pas la grâce du sujet qui vous empêchera de les dire... Et ça, c'est encore un des traits de votre race : l'horreur de l'impunité..., l'horreur de la galanterie, qui est en somme l'impunité de la femme,... l'horreur du Pardon, qui est au fond une galanterie de Dieu...
 — Tout ça, c'est possible... Mais ces pré-
-                         12
 
 tentions que j'attribue aux femmes, les ont-elles ou ne les ont-elles pas ?
 Eleuthère comprit la leçon. Il remisa la fantaisie.
@@ -52,35 +47,29 @@ Eleuthère comprit la leçon. Il remisa la fantaisie.
 — Quoi ! vous allez me faire croire que leur sensibilité est « délicate » ? Quand on voit combien elles sentent moins que nous la douleur physique ? Comme leur perception est grossière ? (3) Quand on voit quels hommes elles peuvent subir ? Quand on voit qu'il leur suffit d'aimer pour donner — avec joie — les soins les plus rebutants ?...
 — Leur sensibilité native est en effet très rude ; mais la vie qu'on leur fait est singulièrement douce. Les femmes n'ont peut-être pas le besoin des douceurs ; mais elles en ont cer-
 (3) Allusion à certaines expériences peu galantes, où l'on a montré que la perception des changements (notamment la perception des différences de poids) est beaucoup moins aiguë chez la femme que chez l'homme. Certains encore osent proclamer ce que chacun sait, qu'elles ont moins d'odorat que les hommes.
-                         13
 
 tainement l'habitude. Cela explique assez leur prétention. (4)
 — Et vous allez me faire croire que leur âme est une « énigme » ? Comme si on ne restait pas confondu au contraire de voir comme elle est simple, faite des mouvements du cœur les plus élémentaires, très peu nombreux, toujours les mêmes ? Comme si les grands exemples d'enchevêtrement de l'âme n'étaient pas donnés par des hommes, avec leur haute culture, avec leur sens social... ? Comme si l'âme d'une femme avait jamais été complexe comme celle d'Adolphe ou du héros du *Triomphe de la mort* ?
 — Cela est certain. Seulement cette âme complexe ou qui peut l'être, les hommes en général ne la regardent pas. Ils n'ont pas le temps. Un Adolphe est une exception, même dans sa classe, & de plus en plus... Tandis que toutes les femmes dont vous parlez la contemplent gravement, leur âme élémentaire... Or, cette gravité de l'âme à se contempler elle-
 (4) Ces dialogues présentent plusieurs invraisemblances, dont ne sont pas exempts ceux-là même de Platon, qu'on trouve si « naturels » : 1° les personnages répondent toujours à ce qu'on leur dit ; 2° ils parlent chacun leur tour ; 3° les arguments les convainquent.
-                         14
 
 même, c'est ce qu'on prend dans le monde pour sa complexité. — Prenez encore leur prétention à ne pas regarder les hommes, à ignorer l' « avidité », &c..., (5) eh bien ! elle est encore justifiée... Oh ! non pas que « l'essence de leur corps soit de se garder à soi », mais parce que l'homme actuel est assez peu tentant... Quant à leur puissance d'encombrement, de dérangement, d'accaparement, &c..., c'est bien une vérité, n'est-ce pas ?... Croyez-moi, la situation actuelle de la femme est considérable. Ne chicanons pas le fait. Cherchons-en les causes. C'est plus élégant... Pour moi, j'en vois deux. La première, c'est que le mâle s'est « civilisé » : j'entends qu'il a déposé ces « barbaries » bonnes à émouvoir la sensibilité « la plus basse » & à « frapper l'imagination » : les couleurs, les étoffes, les bijoux, les parfums, le train, (6) l'inaccessibilité, les préséances... ; qu'il a déposé l'oisiveté, & avec elle le moelleux de la vie journalière — qui fait croire au patriciat de l'épiderme, —
 (5) Ces philosophes, comme il convient, ignorent ce qui se passe dans les salons : ils sauraient que la nouvelle prétention des femmes, c'est d'être des faunesses méconnues.
 (6) Tout ce qu'on entraîne avec soi.
-                         15
 
 & le repliement sur soi-même — qui fait croire à la richesse de la conscience. Il en résulte que la femme demeure dans le monde la détentrice unique de tout ce qui flatte les sens & impose aux esprits. C'est une position formidable. (7) Ce n'est pas tout. Du même coup elle échappe à l'attrait de l'homme, devenu par sa « civilisation » même parfaitement inexcitant ; (8) & elle est désirée par lui plus âprement que jamais, car il la veut maintenant comme l'expression d'un monde dont il se sent exclu... D'où, chez elle, conscience de ces avantages, explosion d'arrogance & de mépris ; chez lui, colère, humiliations..., bref, une haine des sexes qu'on n'avait jamais vue, & presque leur rupture : car la femme ne se contente plus de mépriser l'homme, avec son linge grossier, ses trois cheveux rassemblés & son amour simpliste, elle cesse de lui
 (7) Ce qui semble vérifier l'explication qu'Eleuthère donne ici de la haute situation de la femme, c'est que, dans les pays où l'homme n'a pas déposé les attributs barbares, la femme compte beaucoup moins : dans les pays, par exemple, où règnent les militaires ou les matadors.
 (8) Ces raisonneurs tiennent vraiment trop peu de compte de la presque unanime affirmation des femmes, que pour elles l'attrait de l'homme c'est son intelligence. A moins qu'ils n'aient remarqué combien les hommes les plus intelligents sont célèbres dans l'Histoire par leurs malheurs conjugaux.
-                         16
 
 demander l'amour & s'adresse à ses pareilles.
 — La seconde cause, c'est la démocratie ; c'est que, maintenant, c'est la foule qui impose ses goûts & fait les royautés, c'est-à-dire précisément cette partie des humains essentiellement sensible à cette barbarie dont justement la femme dispose & dont elle dispose seule. (9) Aussi la femme est-elle proprement l'idole moderne... Le monde n'attire un couple que pour avoir la femme... On ne fait plus que des portraits de femmes... Tous les impresarios vous diront qu'on ne fait plus de recette qu'avec la femme... Le roman, le théâtre, le magazine, l'affiche, tout ce qui parle au « public » ne traite que de la femme... En vérité, si une chose m'étonne, c'est qu'elle soit si modeste.
 
 Rodrigues maugréait. La race voulait en lui
 (9) Que la démocratie dût conduire au culte de la femme & autres asiatismes, c'est ce qu'on pouvait déduire de sa définition. D'une part, en effet, la démocratie déchaîne le monde des simples, avec leur besoin fondamental d'étonnement, d'ébahissement, d'écarquillement d'yeux ; d'autre part, l'aliment naturel de ce besoin, la démocratie le supprime, en supprimant les rois, la cour, les grands, en contenant les militaires ; dès lors, ce besoin déchaîné se jette sur ce qu'il trouve : sur la femme, sur les comédiens, sur les rois étrangers qui viennent rendre visite.
-                         17
 
 que la femme ne comptât point. Eleuthère profita de la nuit qui tombait pour ignorer sa mauvaise humeur. Il continua comme pour lui-même :
 
 — Mais quand leurs prétentions seraient mille fois moins justes, il faudrait encore les leur laisser... C'est si nettement notre intérêt ! Quel prix aurait leur « chute », si nous ne savions de quelle hauteur elles croient tomber !... Que vaudrait le spectacle de la joie de leur chair, de leur sombre application à l'atteindre, du redoublement de cette application à mesure qu'elles en approchent, si nous ne savions leur prétention à la « divinité » & qu'à cette joie de leur chair se mêle comme une colère qu'on y assiste !... Combien leur corps perdrait de son pouvoir troublant si nous ne songions, non pas tant qu'il est désiré, mais qu'il sait qu'il l'est, & qu'il s'émeut lui-même, soulevant pour nous ses voiles, de la fortune qui nous échoit !... L'importance que les femmes attachent à leur personne, allons ! c'est les trois quarts du
-                         18
 
 désir qu'on a d'elles... C'est déjà assez triste, à mesure qu'on les connaît davantage, de s'apercevoir qu'elles en attachent beaucoup moins qu'elles ne le disent... (10)
 
@@ -95,7 +84,6 @@ Souvent, à l'écouter, il changeait ses jugements : car il était plus juste, m
 Ils refusaient l'image des plus faibles discords : ils ne voulaient penser qu'à des êtres qui s'aiment & à des choses qui se ressemblent.
 
 Ils s'assirent. Elle promena autour d'elle un
-                         23
 
 regard essentiel, & Eleuthère comprit qu'elle sentait la nature, qu'elle ne la nommait pas.
 
@@ -108,7 +96,6 @@ Ils se perdirent. Il fallut grimper, descendre, écarter des branches, passer de
 A souper, il la regardait. Pourquoi, pensait-il, est-elle si différente des nôtres ? — C'est qu'elle est libre dans sa grandeur...
 
 Ils se prirent par la main & s'en allèrent
-                         24
 
 dans l'ombre... Elle laissa tomber tout ce qui la revêtait. Et soudain Eleuthère crut comprendre Florence, ses palais, ses jardins,... aux formes magnifiques & jamais insolentes, ivres de royauté beaucoup moins que d'amour...
 
@@ -118,7 +105,6 @@ Dans la nuit, Eleuthère s'éveilla. Madame Camignani dormait, le front dans l'o
 teur du plaisir de l'amour ! Se dire que, par ce qu'on fait & par ce qu'on laisse faire, on déchoit tout d'un coup de ce *être respecté* qui semble comme cousu à votre humaine personne... Pour les femmes c'est les trois quarts du plaisir... Mais n'est-ce pas, dira-t-on, tout simplement le plaisir du retour à l'animalité ? Eh non ! le plaisir, c'est qu'à ce retour il y ait un témoin. C'est bien le plaisir d'être irrespecté, méprisé. C'est la volupté de la honte... — Ce plaisir doit être d'autant plus vif que dans la vie courante on est plus respecté. (Et Eleuthère songea au goût des magistrats de se faire traiter « par-dessous la jambe ».) — Et tout cela n'est pas sans rapport avec l'humilité mystique... Combien aimeraient d'être traités par Dieu comme Jean-Jacques aimait de l'être par Mademoiselle Lambercier !...
 
 Puis, comme il continuait à ne pas dormir & qu'il songeait maintenant aux joies qu'il avait eues il y a quelques heures à posséder cette belle femme étendue, il se mit à chercher de quelles idées était faite la joie de la possession...
-                         26
 
 Il lui parut que la principale c'était l'idée de ce fait, absolument extraordinaire quand on y pense, qui est que l'on s'installe dans un autre être.
 
@@ -132,7 +118,6 @@ Il se fit à cette idée.
 Puis il songea :
 
 Si la joie de posséder tient à l'idée que l'on
-                         27
 
 s'installe dans une conscience, le désir de posséder davantage doit conduire à vouloir pénétrer ce qui, dans le corps désiré, semble lié à la conscience la plus intime,...............
 ........................................................................
@@ -143,7 +128,6 @@ Il songea encore :
 Si la joie de posséder tient à l'idée que l'on s'installe dans une conscience, cette joie doit être d'autant plus grande que la conscience où l'on s'installe semble plus *réservée ;* (plus précisément) doit être d'autant plus grande que le *self-feeling* où l'on pénètre semble plus jaloux de soi-même... Et il songea quel surcroît de joie l'homme devait à ce que la femme fût un être qui cache la conscience de ses fonctions intimes, & quelle frustration c'était pour elle que l'homme fût un objet si peu honteux des lois de son corps.
 
 (Et il remerciait les femmes de leur science à renouveler l'aspect de la réserve ; il les
-                         28
 
 remerciait d'échelonner, à partir du retrait de leur première épingle, comme une série de *plans de pudeur* à perte de vue... L'un de ces plans tombe-t-il qu'on croyait le dernier ? Il en surgit un autre... A l'amant qui la soutient & croit qu'il vient d'avoir toutes ses intimités, voilà qu'elle interdit l'entrée de son cabinet de toilette... Et l'amour se ravive à l'idée que derrière cette porte elle recommence de se garder à elle-même... Non, jamais l'on ne dira assez tout ce qu'elles font pour nous.)
 
@@ -164,7 +148,6 @@ Et, sans chercher si loin :
 Qu'est-ce que notre conscience d'homme aura jamais de commun avec celle d'un être qui bouche le trou des serrures pour se déshabiller, & qui « se refuse ».
 
 Enfin il croyait maintenant comprendre le
-                         30
 
 goût qu'il avait des femmes belles, des tailles élevées, des formes nobles : toutes choses qui semblent liées à une plus grande quantité de conscience.
 
@@ -175,14 +158,12 @@ Et ce n'est pas seulement l'idée qu'on s'installe dans une conscience, c'est l'
 (Cela encore lui parut une joie réservée au mâle, refusée à la femme : lui seul *se sert* d'un être ; lui seul contente une joie objectivement ignoble ; lui seul la contente dans un corps dit précieux...
 
 Toutefois il lui semblait que certaines femmes (point jeunes) s'étaient *servies* de lui... Cette idée d'avoir été méprisé l'attachait au
-                         31
 
 souvenir de ces femmes par les liens les plus bas, c'est-à-dire les plus profonds.)
 
 Et la possession de la femme, ainsi décomposée, lui semblait la forme entière de la domination. La seule forme. Auprès d'elle toutes les autres faisaient rire !... Qu'est-ce que c'est que de tenir un esclave sous son fouet, un vaincu sous son genou, un soldat sous sa botte..., qu'est-ce que c'est que tout ça auprès de clouer sur un lit un être tremblant & nu, d'enserrer ses mouvements, de lui imposer son haleine, de s'installer en lui, de s'y mouvoir, & de le souiller par la rieuse expansion de sa joie la plus basse ? La femme qui hors de sa volonté, hors seulement de son désir, — par devoir, — a subi un tel sort a connu la dernière des hontes. La femme qui a dû se laver d'un homme qu'elle n'aime pas est proprement une loque humaine. Entre elle & une âme libre, plus rien de commun.
 
 Puis il pensait que c'était le sort d'à peu près toutes les femmes... Il entendait
-                         32
 
 Brünnhilde : « Que peux-tu faire, malheureuse ! » Il revoyait l'expression de déchéance qu'il avait si souvent remarquée en leurs visages quand rien n'occupe leur attention, dans les concerts, dans les tramways... Et il redoublait pour elles de pitié & de méfiance.
 
@@ -191,7 +172,6 @@ Et il songeait aussi que, n'ayant pas d'épouse, cette possession d'une femme co
 Et il cherchait à discerner d'autres idées encore, créatrices de joies d'amour :
 
 Il y a l'idée du plaisir que l'on cause. Je dis *que l'on cause*. Le plaisir de l'autre ne me réjouit que parce que je le cause... Quand les femmes viennent nous dire que le plaisir de l'aimé fait toute leur joie, elles manquent de
-                         33
 
 précision : le plaisir de l'aimé causé par une autre ne fait pas du tout leur joie.
 
@@ -895,10 +875,6 @@ gare, lui à la portière du wagon. Il l'assurait qu'il reviendrait. Elle voulai
 
 Ils étaient arrivés au lieu de la rencontre.
 
-                                                                1909
-
-                                                              155
-
     *Nous avons donné le bon à tirer après corrections*
     *pour deux mille exemplaires de ce cinquième cahier*
     *et pour quatorze exemplaires sur whatman le mardi*
@@ -923,7 +899,7 @@ III-16. — Charles Péguy. — *les élections.*
 III-17. — *cahier de courriers.* — Félicien Challaye. — impressions sur la vie japonaise. — Edmond Bernus. — la Russie vue de la Vistule. — Jean Deck. — courrier de Finlande.
 III-19. — Pierre Quillard. — Pour l'Arménie.    3 »
 III-20. — Les Universités Populaires 1900-1901 *Départementales.*
-III-21. — Jean Deck. — Pour la Finlande.    3 50
+III-21. — Jean Deck. — Pour la Finlande.
 
 Voir un fin des autres cahiers les conditions et les prix de l'abonnement.
 

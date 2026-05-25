@@ -53,7 +53,7 @@ supportée, vaillamment, glorieusement acquise pour
 ainsi dire; soutenue; et qu'il n'y a, qu'il ne peut y avoir
 
 de véritable, de totale pureté que dans V'infortune ; ét
-que c'est donc à bon droit que les grands honneurs 4
+que c'est donc à bon droit que les grands honneurs
 secrets de la gloire, les suprêmes honneurs, ont donc à
 été toujours historiquement à l'infortune; aux grands |
 désastres; et l'histoire ici, une fois dans son ordre, et
@@ -73,12 +73,12 @@ que je crois, que je suis assuré que jamais l'histoire
 n'avait rien vu de comparable. Je ne crois pas que |
 l'égoïsme notamment et les préoccupations de l'intérêt |
 soient jamais tombés à ce degré de bassesse. Cette
-grande décomposition historique, cette grande dissolution, ce grand précédent que nous nommons littérairement la pourriture de la décadence romaine, la dissolution de l'empire romain, et qu'il suffit de nommer k
-avec vous, cher monsieur Sorel, {a ruine du monde 1
+grande décomposition historique, cette grande dissolution, ce grand précédent que nous nommons littérairement la pourriture de la décadence romaine, la dissolution de l'empire romain, et qu'il suffit de nommer
+avec vous, cher monsieur Sorel, {a ruine du monde
 antique, n'était rien en comparaison de la dissolution
 de la société présente, en comparaison de la dissolution
 société moderne. Il y avait sans doute alors beaucoup |
-plus de crimes et encore un peu plus de vice(s). Mais 4
+plus de crimes et encore un peu plus de vice(s). Mais
 il y avait aussi infiniment plus de ressources. Cette pour :
 
 + _rituré était pleine de germes. Ils n'avaient pas cette
@@ -99,7 +99,7 @@ sommes nés dans un peuple de vaincus. Nous sommes
 des vaincus militaires. Nous sommes nés, peu de temps :
 _ après la défaite, après le désastre, après l'invasion,
 dans un peuple militairement vaincu. Nous sommes
-héréditairement et solidairement les vaincus d'une 6
+héréditairement et solidairement les vaincus d'une
 _ guerre désastreuse. IL faut le dire. Longtemps nous
 avons cru que nous serions des générations nouvelles, que nous ferions une œuvre nouvelle, non entachée; que nous n'étions pas marqués, entachés de ce
 désastre; de la trace de ce désastre. Une œuvre non
@@ -171,11 +171,11 @@ plus parler au monde le même langage que le vain- ;
 queur ou même que celui qui n'est ni l'un ni l'autre;
 mais en lui-même et dans son propre pays, dans son
 
-propre sang, dans son propre peuple, le vaincu, le f:
+propre sang, dans son propre peuple, le vaincu, le
 peuple vaincu ne peut pas se parler à lui-même le
 même langage que le peuple vainqueur. Car le reste du
 monde est là, qui écoute, qui intervient. Au moins
-comme témoin, sourdement, silencieusement, tacitement, présentement, par sa seule présence, même et 4
+comme témoin, sourdement, silencieusement, tacitement, présentement, par sa seule présence, même et
 surtout quand il n'intervient pas. Nos grands pères de
 la Révolution française s'en sont bien aperçus, qui
 ayant voulu parler un autre langage, un langage nouveau, substituer simplement un langage à un autre, un
@@ -192,14 +192,14 @@ la guerre, et la victoire ou la défaite. Et il fallut choisir.
 Nos moindres contemporains (et quand je dis moindres |
 je n'en sais rien, (et) je le dis par habitude, car enfin ces |
 grands révolutionnaires n'étaient point si grands avant
-la Révolution, quelques années avant la grande, et x
+la Révolution, quelques années avant la grande, et
 même au seuil de la grande, et même assez de temps
 après le commencement de la grande, et nous ne savons
 nullement, nul ne peut augurer, même par habitude, à
 nul ne peut conjecturer, nul ne sait ce que sera demain,
 quel ordre de grandeur nous arrivera demain), nos con-
 
-temporains ne pourront, ce demain, se parler (à eux56 1
+temporains ne pourront, ce demain, se parler (à eux56
 
 mêmes pourtant) le langage révolutionnaire, le langage
 
@@ -231,7 +231,7 @@ c'est-à-dire que ce sera de savoir exactement, et peut-
 être et sans doute en plus grand, ce que c'était de
 
 savoir il y a cent vingt ans; et que pour la Révolution
-syndicaliste qui est prête, et qui sera une Révolution 6
+syndicaliste qui est prête, et qui sera une Révolution
 
 _ “économique et incidemment politique, comme pour la
 Révolution française qui a été faite, et qui est demeurée
@@ -308,12 +308,12 @@ certain corpus, sans un corps de peuple, sans un appui,
 |. sans un soutien, Sans un mécanisme, sans un support
 
 de peuple, sans une matière, sans un peuple qui fût
-tout cela, sans un peuple corps, en un mot sans une 1
-patrie. Au sage il a fallu la cité hellénique; au pro- É
+tout cela, sans un peuple corps, en un mot sans une
+patrie. Au sage il a fallu la cité hellénique; au pro-
 phète il a fallu la race et le peuple d'Israël; au saint
 il a fallu le peuple chrétien: Et certains peuples de À
 l'Occident, au moins pour commencer. Et il est pas
-jusqu'à cette sorte de préformation temporelle de l'Empire romain dans et pour l'avènement du christianisme, si importante, qui charnelle,. corporelle, maté- 4
+jusqu'à cette sorte de préformation temporelle de l'Empire romain dans et pour l'avènement du christianisme, si importante, qui charnelle,. corporelle, maté-
 rielle, ne nous paraisse en effet d'une importance
 comme excessive, très vraiment inquiétante. Nos
 positivistes apprendront la métaphysique comme nos ;
@@ -321,9 +321,9 @@ pacifistes apprendront la guerre. Nos positivistes ap- : |
 prendront la métaphysique à coups de fusils. Mutuels.
 Je veux dire qu'ils donneront et qu'ils recevront. Ils
 apprendront même la psychologie. Ils apprendront da
-relation du corps d'un peuple à un esprit d'un peuple. À k
+relation du corps d'un peuple à un esprit d'un peuple. À
 Nos antimilitaristes apprendront la guerre, et la feront ;
-très bien. Nos antipatriotes apprendront le prix d'une 1
+très bien. Nos antipatriotes apprendront le prix d'une
 patrie charnelle, d'une cité, d'une race, d'une communion même charnelle, et ce que vaut, pour y appuyer.
 une Révolution, un peu de terre. ;
 Fils de vaincus, nés dans un peuple de vaincus, nous
@@ -352,7 +352,7 @@ _ similitude, intérieurement ensuite dans un cercle inté-
 _ rieur concentrique nous l'avons été nous-mêmes, sans \
 image, (cette fois), et sans délégation. Sans députation ,
 
-… aucune. La défaite enfante la défaite et jusqu'à la révo- é
+… aucune. La défaite enfante la défaite et jusqu'à la révo-
 
 _ cation de la défaite c'est un cercle vicieux de com-
 
@@ -378,13 +378,13 @@ _ coin de la cheminée. A ce coin de cette vieille cheminée
 D'autres, tout le monde, tous nos maîtres, se sont con_solés de cet échec; plus que de cet échec, infiniment
 plus; infiniment plus que d'une défaite : de cet avorte_ ment frauduleux de l'affaire Dreyfus. A force de s'en
 
-secrètement. Presque publiquement. Mais je ne m'en. 4
+secrètement. Presque publiquement. Mais je ne m'en.
 consolerai jamais. Parce que je tiens à être ridicule, et
 seul, et déplorable. Et parce que je tiens à être ridicule |
 j'en parlerai toujours. Une occasion unique (s') était
 offerte de régénérer ce peuple. Une fortune. Un coup de
 fortune. Une occasion qui ne se représentera jamais.
-Comme il n'y en a pas deux, dans la vie d'un homme. 1
+Comme il n'y en a pas deux, dans la vie d'un homme.
 ; Dans la vie d'un peuple. Comme ça n'arrive pas deux
 fois. Comme il n'en est pas donné deux à la même per_ sonne, homme ou peuple. A la même. histoire. A la
 à même aventure. Ce crime a inauguré notre vie publique,
@@ -400,9 +400,9 @@ de démagogie en démagogie il a commandé, il a fait
 cette déchéance où nous sommes; il nous a mis où nous KR
 Je ne m'en tairai jamais. J'en resterai, j'en demeure- |
 rai, je m'en laisserai toujours inconsolable. Je n'ai
-jamais tant senti, aussi nettement, ce que c'est qu'un 1
+jamais tant senti, aussi nettement, ce que c'est qu'un
 événement historique, qu'une fois, et que c'est toujours |
-un monument historique, je ne l'ai jamais autant 4
+un monument historique, je ne l'ai jamais autant
 éprouvé; qu'une fois; c'était un gamin de dix-huit ans, ;
 qui était venu; et à qui j'en vins, je ne sais comment, à ‘
 parler de l'affaire Dreyfus. Un gamin. Je me rappelle
@@ -423,7 +423,7 @@ IL était si docile. IL avait son chapeau à la main. Il
 tournait son chapeau dans ses doigts. Il m'écoutait, :
 ._  m'écoutait. Il buvait mes paroles. 1! se renseignait. Il
 _  apprenait. Hélas il apprenait de l'histoire.
-Il s'instruisait. Je n'ai jamais aussi bien compris L
+Il s'instruisait. Je n'ai jamais aussi bien compris
 .  qu'alors, dans un éclair, aussi instantanément senti ce
 que c'était que l'histoire; et l'abime irrefranchissable
 - qu'il y a, qui s'ouvre entre l'événement réel et l'évé-
@@ -436,7 +436,7 @@ Comme je parlais il m''écoutait tout, il m'entendait
 - il ne m'entendait pas. Pas un mot; il ne m'entendait
 
 aucunement. Je disais, je prononçais, j'énonçais, je “
-transmettais une certaine affaire Dreyfus, l'affaire ï
+transmettais une certaine affaire Dreyfus, l'affaire
 Dreyfus réelle, où je trempais, où je n'avais pas cessé
 de baigner; où nous n'avons pas cessé de tremper, nous “
 autres de cette génération; c'était ce que je nomme
@@ -449,21 +449,21 @@ commodément, finalement et définitivement bon àmettre
 le contentement facile, pour qui est d'avance résolu à
 s'en contenter; comme dans une vieille église française
 on peut toujours remplacer la rosace abolie, dans le
-besoïn, par quelques carreaux de plâtre. Cela tient la 1
-même place; et même, pour qui veut s'en contenter, par L
+besoïn, par quelques carreaux de plâtre. Cela tient la
+même place; et même, pour qui veut s'en contenter, par
 la substitution même cela a sensiblement la même
 Seulement cela ne fait pas le même office.
-La réalité, l'événement de la réalité, l'événement réel 4
+La réalité, l'événement de la réalité, l'événement réel
 est cette rosace réelle aux fleurs de rose infiniment
 fouillées. L'histoire, l'événement de l'histoire sont ces …
 carreaux de plâtre qu'aussitôt la rosace abolie nous …
 mettons au même lieu, chacun tous tant que nous
 sommes selon notre petit entendement, selon nos petits
-moyens et notre petite capacité. Selon notre petit com- 4
+moyens et notre petite capacité. Selon notre petit com-
 merce. Après la rosace abolie et seulement alors et à …
-défaut de la rosace abolie quand nous sommes corrects. 4
+défaut de la rosace abolie quand nous sommes corrects.
 Avant même et au besoin en la démolissant, nous
-64 4
+64
 
 _ mêmes, quand nous sommes pressés, quand nous
 faisons du zèle, ce qui est le plus fréquent.
@@ -492,29 +492,29 @@ communion, de toute communion), comme avec et à un :
 contemporain. Incontinent et comme ;immédiatement,
 3 comme instantanément dans la même forme, dans les
 
-mêmes paroles, dans le même moule il entendait ceci qu 4
-de l'histoire. Dans le même temps il m'entendait déjà h
-comme un homme d'un autre temps. (Dans le même L
-temps pour moi, car ce temps, qui était le même temps Ë
+mêmes paroles, dans le même moule il entendait ceci qu
+de l'histoire. Dans le même temps il m'entendait déjà
+comme un homme d'un autre temps. (Dans le même
+temps pour moi, car ce temps, qui était le même temps
 pour moi, pour lui au contraire, pour lui étrangèrement
 s'analysait aussitôt, se décomposaiït en un temps autre,
-en un temps étranger; en un langage autre, en un lan- 4
+en un temps étranger; en un langage autre, en un lan-
 gage étranger.) IL m'entendait en un langage étranger.:
-C'est dire, hélas, qu'il ne m'entendait pas du tout. 1
+C'est dire, hélas, qu'il ne m'entendait pas du tout.
 qui fait qu'on n'en sortira jamais, c'est que ce langage
 aussi parfaitement étranger correspond naturellement
 jusque dans ses moindres éléments. Au langage du
 réel. IL correspond mot pour mot. Et jusque dans
 ses ponctuations. De sorte qu'à mesure que nous |
 vivons un discours dans le langage du réel, à mesure à |
-- on peut le jouer, le même, aussi bien, sinon mieux, et 4
+- on peut le jouer, le même, aussi bien, sinon mieux, et
 même mieux, et on le joue dans le langage de l'histoire.
 Ce que je nommais l'affaire Dreyfus, avec une certaine
 intonation, lui aussi le nommait l'affaire Dreyfus, non ;
 d'un autre mot, vous pensez bien, avec la mêmeintonation, mais transportée seulement dans le registre du
 De sorte que ce qu'il y a de merveilleux, c'est que la ;
 conversation peut continuer tout le temps, sans qu'on à
-s'entende jamais, et qu'en fait toutes les conversations R
+s'entende jamais, et qu'en fait toutes les conversations
 continuent tout le temps, et qu'on fait semblant de se” ;
 comprendre; et que la mort déboutant promptement le ;
 réel, il n'y a bientôt plus que l'histoire qui parle; mais :
@@ -523,7 +523,7 @@ pour élément; pièce pour pièce; seulement c'est pièce A
 inorganique pour piècé organique, élément mort ét
 
 Le calcaire pour élément vivant animal ou végétal. C'est
-une pétrification. Mais nous avons trop d'intérêt à ne X
+une pétrification. Mais nous avons trop d'intérêt à ne
 pas nous apercevoir de la substitution.
 l Jamais je ne compris autant que dans ce saisisse-
 …. ment, dans cet éclair, quelle est la béante, l'invincible » conirariété intérieure de l'histoire; et qu'aussitôt que
@@ -555,32 +555,32 @@ sonne un certain coup de minuit, à une certaine horloge
 
 du village, où l'événement, de réel, tombe historique.
 Et comme il faisait très clair je profitai de cette
-grande clarté qu'il y avait pour voir du même regard à 4
+grande clarté qu'il y avait pour voir du même regard à
 la même lumière pour voir qu'on n'a jamais, qu'on ne
 se fait, que jamais on ne peut se faire d'amis que du
 même temps et du même âge, que de son même temps,
 À que des amis contemporains; amis du même temps, du
-même âge, aequales, amis de la même compagnie, de Ë
+même âge, aequales, amis de la même compagnie, de
 la même formation, de la même société, du même
-monde. Amis du même appel, d'un seul et même ban, 2
-| de la seule et même classe. Amis d'une (seule) fois, les 4
-seuls amis. Et je regardai qu'on ne recommence É
-jamais. Amis nés, formés ensemble, les seuls véritables 4
+monde. Amis du même appel, d'un seul et même ban,
+| de la seule et même classe. Amis d'une (seule) fois, les
+seuls amis. Et je regardai qu'on ne recommence
+jamais. Amis nés, formés ensemble, les seuls véritables
 
 amis. Amis d'enfance, amis de famille; amis d'école, de
 petite école, d'école primaire; amis de lycée; amis de | À
-régiment; amis de cahiers ; ensemble les seuls qui soient 4
+régiment; amis de cahiers ; ensemble les seuls qui soient
 véritablement des amis, littéralement; les seuls à qui
 
-ce nom convienne, soit exact. Les seuls que ce nom L.
+ce nom convienne, soit exact. Les seuls que ce nom
 puisse habiller jamais. Les autres ne comprennent pas.
 
 Je mets naturellement les amitiés de l'affaire Dreyfus,
 si secrètes, ensemble dans et parmi les amitiés des
-cahiers. Aussitôt après les suivants ne nous comprennent 4
+cahiers. Aussitôt après les suivants ne nous comprennent
 
 plus et ne nous comprendroni jamais. Tout le reste est ‘4
-hautement honorable, ce qui suit, et utile, et souvent 4
+hautement honorable, ce qui suit, et utile, et souvent
 
 | beau; et il y aura même les élèves, hélas, et il faut qu'il
 . y en ait. Tout cela n'est point l'amitié. L'amitié est une
@@ -602,7 +602,7 @@ d'une importance unique, irremplaçable, où l'opération
 ne se fait qu'une fois.
 Car il faut pour la déterminer un recoupement, une
 _ intersection : entre la ligne ascendante, verticale, de la
-race et la ligne horizontale du temps. Ÿ
+race et la ligne horizontale du temps.
 Toute amitié, pour chaque homme, est comme une
 promotion. Elle s'obtient en coupant une certaine race,
 _ une certaine histoire, qui monte, à chaque fois par un
@@ -614,31 +614,31 @@ _ même que cette fois-là. ‘
 
 Il est donné plusieurs fois à l'homme de faire son
 salut parce que ce n'est ni essentiellement, ni. surtout FE
-efficiemment, ni même originairement sans doute du 4
+efficiemment, ni même originairement sans doute du
 terrestre et du charnel, du temporel et du terrien. Et
-c'est même un des signes où cela se voit le mieux, M
+c'est même un des signes où cela se voit le mieux,
 que c'est une opération tout autre, pour celui qui a À
-un peu l'habitude du laboratoire. Mais de tout ce 4
-qui est temporel, de tout ce qui est destiné à tomber ù
+un peu l'habitude du laboratoire. Mais de tout ce
+qui est temporel, de tout ce qui est destiné à tomber
 dans l'histoire, de tout cet ordre au contraire, de tout à
 ce qui tombe sous la date et dans et sous le lieu se
 rien n'est recommençable ou commutable, rien n'est |
-interchangeable. Il n'est pas donné à l'homme de rien … L
-recommencer ou changer du temporel. Rien du temps . L
+interchangeable. Il n'est pas donné à l'homme de rien …
+recommencer ou changer du temporel. Rien du temps
 et du lieu ne se déplace. L'amitié est une opération %
-d'une fois. Tout le temporel est une opération d'une fois. 4
+d'une fois. Tout le temporel est une opération d'une fois.
 Une opération non inventée, non imaginaire. Ce n'est à
 pas là qu'on peut rien rattraper, qu'un éclair de génie +
 ou de la grâce paye pour toute la longueur d'une vie. Le
-plus grand génie du monde ne remplace pas d'avoir eu 3
-tel berceau, telle patrie, d'être sorti de telle race ter- e
+plus grand génie du monde ne remplace pas d'avoir eu
+tel berceau, telle patrie, d'être sorti de telle race ter-
 rienne. Le plus grand génie du monde aussi ne remplace
-pas d'avoir eu telle amitié, à telle date, en ce lieu, tel 1
+pas d'avoir eu telle amitié, à telle date, en ce lieu, tel
 berceau d'amitié. Tout homme a, par sa naissance temporelle, par sa situation temporelle, par son lieu, par |
 son temps temporel, par sa prise de date, une certaine
 zone d'amitié, et nulle autre, une certaine zone où il à
 travaille, où il peut travailler, où l'événement travaille, À
-pour ou contre lui. Une zone étroite, une sorte de coupe. 1
+pour ou contre lui. Une zone étroite, une sorte de coupe.
 Il n'est donné à l'homme de se faire une amitié, de lier à
 l'amitié que dans une seule génération, dans une seule
 promotion, dans une seule zone. Le reste est autre. Il ‘
@@ -650,7 +650,7 @@ n'est pas donné à l'homme de se faire un autre berceau,
 
 voir aussi et par cela même que comme j'ai eu l'hon-
 -  neur de l'exposer nous autres de l'affaire Dreyfus nous
-ne serons jamais pour ceux qui viennent après nous é
+ne serons jamais pour ceux qui viennent après nous
 . que des vieilles bêtes. Et ceux qui viennent après nous,
 | _ mes amis, bientôt c'est tout le monde.
 

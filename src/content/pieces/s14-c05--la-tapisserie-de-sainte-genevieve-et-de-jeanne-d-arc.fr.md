@@ -53,11 +53,11 @@ Elle veille aujourd'hui sur cette ingratitude,
 Sur cette auberge énorme et sur ce phalanstère.
 
 Et quandle soir viendra de toute plénitude,
-, = C'est elle la savante et l'antique bergère, FR É.
+, = C'est elle la savante et l'antique bergère, FR
 Qui ramassant Paris dans sa sollicitude Does
 He __ Conduira d'un pas ferme et d'une main légère NE
 LEE Dans la cour de justice et de béatitude /5 PSS
-5 Le troupeau le plus sage à la droite du père.
+Le troupeau le plus sage à la droite du père.
 
 ] Vo avait jusqu'au fond du plus secret hameau
 La réputation dans toute Seine et Oise
@@ -77,7 +77,7 @@ Dans la dernière cour par le dernier portail CR
 Ramener par la voûte et le double vantail
 Le troupeau tout entier à la droite du père.
 
-2 Lee TENTE pal 2 * ere + ta
+Lee TENTE pal 2 * ere + ta
 
 C OMME la vieille aïeule au plus fort de son âge
 Se réjouit de voir le tendre nourrisson,
@@ -90,14 +90,14 @@ Qu'on aura jamais vu dans cet humble village :
 
 la tapisserie
 Telle la vieille sainte éternellement sage :
-Connut ce que serait l'honneur de sa maison J
+Connut ce que serait l'honneur de sa maison
 Quand elle vit venir, habillée en garçon,
-Bien prise en sa cuirasse et droite sur l'arçon, k
+Bien prise en sa cuirasse et droite sur l'arçon,
 Priant sur le pommeau de son estramaçon,
 Après neuf cent vingt ans la fille au dur corsage;
-Et qu'elle vit monter de dessus l'horizon, 3
+Et qu'elle vit monter de dessus l'horizon,
 Souple sur le cheval et le caparaçon,
-La plus grande beauté de tout son parentage. 3
+La plus grande beauté de tout son parentage.
 
 : C OMME la vieille aïeule au fin fond de son âge
 
@@ -108,7 +108,7 @@ Elle en fait par avance un très grand personnage,
 Fileuse, moissonneuse à la pleine faucille,
 Le plus preste fuseau, la plus savante aiguille
 Qu'on aura jamais vu dans ce simple village ;
-4 47
+4
 
 la tapisserie
 Telle la vieille sainte éternellement sage,
@@ -173,7 +173,7 @@ Il fallut qu'elle vît sa ville endolorie,
 Et les peuples foulés et sa race flétrie,
 L'émeute suppurant comme un secret ulcère ;
 Il fallut qu'elle vît pour son anniversaire
-Les cadavres crevés que la Seine charrie, x
+Les cadavres crevés que la Seine charrie,
 Et la source de grâce apparemment tarie,
 Et l'enfant et la femme aux mains du garnisaire :
 
@@ -186,15 +186,15 @@ _ Jetant toute une armée aux pieds de la prière; nu
 . __  Arborant l'étendard semé de broderie Ms
 Te Et les armes du même en même orfèvrerie; AREAS
 __  Filant pour ses drapeaux comme une filandière,
-a. Les faisant essanger par quelque buandière, ee 4
-ee _ Les mettant à couler dans l'énorme chaudière; 375
-_ Les armes de Jésus c'est sa croix équarrie, M
-__ Voilà son armement, voilà son armoirie, a 5
+a. Les faisant essanger par quelque buandière, ee
+ee _ Les mettant à couler dans l'énorme chaudière;
+_ Les armes de Jésus c'est sa croix équarrie,
+__ Voilà son armement, voilà son armoirie, a
 es À Voilà son armature et son armurerie ; 3 RAT
 TS Rinçant ses beaux drapeaux à l'eau de la rivière,
 er Ta - Les lavant au lavoir comme une lavandière,
 , _ Les battant au battoir comme une mercenaire; RS
-__ Les armes de Jésus c'est sa face maigrie, 258
+__ Les armes de Jésus c'est sa face maigrie,
 _  Etles pleurs et le sang dans sa barbe meurtrie, RE
 __ Et l'injuré et l'outrage en sa propre patrie; TÉL RS
 
@@ -203,10 +203,10 @@ _  … Ravaudant ses drapeaux comme une roturière, ;
 … Les donnant à garder à quelque vivandière;
 Les armes de Jésus c'est la foule en furie ;
 .  Acclamant Barabbas et c'est la plaïdoirie, =
-= Et c'est le tribunal et voilà son hoirie; 5
+= Et c'est le tribunal et voilà son hoirie;
 _ | Teïgnant ses beaux drapeaux comme une teinturière, ,
 - Les faisant repasser par quelque culottière,
-Adorant le bon Dieu comme une couturière ; è
+Adorant le bon Dieu comme une couturière
 
 ._ Les armes de Jésus c'est cette barbarie, #
 Et le décurion menant la décurie,
@@ -280,21 +280,21 @@ Et fait semblant de mordre afin que l'enfant rie;
 Mais Satan les regarde et fumant du naseau
 Ce serpent venimeux, cet immonde pourceau Es
 .… S'est juré d'empester le faubourg Saint-Marceau; >
-Ce serpent à sonnette avec sa sonnerie 2
+Ce serpent à sonnette avec sa sonnerie
 ; S'est vanté qu'il ferait (voyez sa hâblerie) |
 i Jeter par ses suppôts les saints à la voirie; ES
-Les armes de Jésus c'est la paille et l'étable 3
+Les armes de Jésus c'est la paille et l'étable
 Et le plus malheureux, voilà son connétable; $
-Les armes de Satan c'est la supercherie, 4
+Les armes de Satan c'est la supercherie,
 Un aplomb infernal, une aïigre drôlerie,
-Le savoir des savants et la cafarderie; e
+Le savoir des savants et la cafarderie;
 Les armes de Jésus c'est la poignante épine,
-C'est la fleur de son sang sur la blanche aubépine, 5
+C'est la fleur de son sang sur la blanche aubépine,
 * Et les fleurs de ses pleurs sur la rouge églantine;
 
 D de eunte cenevnve  — À.
 … La perle qui descend sur sa joue attendrie, nt
-_ Voilà ses beaux cristaux et sa joaillerie; d æ
+_ Voilà ses beaux cristaux et sa joaillerie;
 - Les armes de Jésus c'est la verte couronne, nr
 C'est ce front que l'amour et la grâce environne, FRE
 _ Et l'éternelle fleur qui sur sa peau fleuronne; SSSR
@@ -307,7 +307,7 @@ L'homme, l'ange et la bête et la double nature;
 _ Les armes de Satan c'est la jobarderie, LE .
 ARE g'est le scientificisme et c'est l'artisterie, É See
 etes Les armes de Satan c'est notre forfaiture, MA dE
-C'est d'avoir dispersé la robe sans couture, Se Ù
+C'est d'avoir dispersé la robe sans couture, Se
 _ C'est la bête sous l'ange et la double nature; Ne
 Fe Les armes de Satan c'est la bouffonnerie, ess
 . Et 'est le moralisie et son infirmerie, +R SN
@@ -338,11 +338,11 @@ Les armes de Satan c'est toute diablerie;
 Les armes de Jésus c'est la croix de Lorraine,
 _ Et le sang dans l'artère et le sang dans la veine,
 … Et la source de grâce et la claire fontaine ;
-_ Les armes de Satan c'est la croix de Lorraine, é
-Et c'est la même artère et c'est la même veine ë
+_ Les armes de Satan c'est la croix de Lorraine,
+Et c'est la même artère et c'est la même veine
 Et c'est le même sang et la trouble fontaine;
 _ Les armes de Jésus c'est l'esclave et la réine
-Et toute compagnie avec son capitaine ë
+Et toute compagnie avec son capitaine
 _ Et le double destin et la détresse humaine;
 … Les armes de Satan c'est l'esclave et la reine
 _ Et toute compagnie avec son capitaine
@@ -360,7 +360,7 @@ _ C'est le glaive de Dieu qui hésite et dévie,
 | la tapisserie FÉRTAER
 
 Les armes de Satan c'est la vie et la mort,
-3 Cest l'écueil immobile en plein milieu du port, g
+Cest l'écueil immobile en plein milieu du port,
 Fe C'est la peine immuable en plein milieu du sort;
 
 Les armes de Jésus c'est la vie et la mort,
@@ -374,9 +374,9 @@ Les armes de Jésus c'est la vie et la mort,
 La beauté du plus pur, le juste dans son fort ;
 Les armes de Jésus c'est la vie et la mort, -
 C'est l'enfant et la femme et le secret du sort, :
-Le navire acouflé dans le recreux du port; g
+Le navire acouflé dans le recreux du port;
 Les armes de Satan c'est l'homme qui dévie,
-C'est les deux poings liés et c'est l'Ame asservie, ë
+C'est les deux poings liés et c'est l'Ame asservie,
 C'est la vengeance inlassablement poursuivie ;
 Les armes de Jésus ce sont les deux mains jointes,
 Et l'épine et la rose et les clous et les pointes,
@@ -395,14 +395,14 @@ _ Les armes de Jésus c'est la belle jacinthe PRIS
 _  Posée en un tapis dans une belle enceinte, HSE
 ASE Plu s douce que la laine et plus souple et mieux teinte; %
 Les armes de Jésus c'est la cloche qui tinte LS Le
-1 Pour les sept sacrements, c'est l'ordre et la contrainte, Re
-_  Etle dessin fidèle et l'image bien peinte; SAS F
+Pour les sept sacrements, c'est l'ordre et la contrainte, Re
+_  Etle dessin fidèle et l'image bien peinte; SAS
 3 es armes de Satan c'est la cloche qui tinte so 4 &
 PDA Pour le feu de l'enfer, c'est la ville contrainte NE
 Er passer par le sort, c'est toute âme repeinte 5% à
 ( A vec un faux pinceau, c'est toute règle enfreinte MM RU
 ee: u nom de quelque règle et toute foi restreinte SA à
-(40 A u- nom de quelque maître et toute ville ceinte As" 1
+(40 A u- nom de quelque maître et toute ville ceinte As"
 
 la tapisserie pe
 D'un rempart frauduleux et toute fleur déteinte Re
@@ -428,9 +428,9 @@ Les armes de Satan c'est une horlogerie,
 Un chef-d'œuvre d'adresse et de serrurerie;
 
 Maïs la clef c'est Jésus et Jésus est la porte, Re
-Pet la porte du ciel ne se prend qu'à main forte, É
+Pet la porte du ciel ne se prend qu'à main forte,
 
-8 Et tous les serruriers resteront à la porte;
+Et tous les serruriers resteront à la porte;
 “i Les armes de Jésus c'est cette grande escorte < ;
 
 _ Que Rome lui prêta, c'est la rude cohorte Se
@@ -438,13 +438,13 @@ Qui lui faisait honneur et c'est la croix qu'il porte; à
 
 Ke Les armes de Satan sont de la même sorte,
 
-_ Car c'est la même Rome et c'est la même escorte = 4
+_ Car c'est la même Rome et c'est la même escorte =
 3 … Et la même cohorte et la même mer Morte;
 
 ï Les armes de Jésus c'est qu'il nous réconforte :
 js … En notre déconfort et c'est qu'il nous reporte ;
 
-> Au premier paradis et c'est qu'il nous apporte € ë
+> Au premier paradis et c'est qu'il nous apporte €
 * _ Le pardon de son père et c'est qu'il nous emporte
 
 ÿ _ Au dernier paradis et c'est qu'il nous déporte
@@ -476,14 +476,14 @@ _ Et que l'homme est léger comme la-feuille morte :
 _ _ Et comme elle pourrit sous les pieds du cloporte; NN
 “a _ Les armes de Jésus c'est la vie et la mort, EPS
 + C'est un solide ancrage au beau milieu du port, LETTRES
-_ Et c'est le grand partage au beau milieu du sort;  . 1
+_ Et c'est le grand partage au beau milieu du sort;
 __ Les armes de Jésus c'est la vie et la mort, +: 12 RES
 & -. C'est un heureux mouillage en plein milieu du port,
 de ! ns C'est le grand héritage en plein milieu du sort; NN
 : rai  - C'est le bon voisinage en plein milieu du port TS
 _ Etle pèlerinage en plein milieu du sort; CAFE
 
-Les armes de Jésus c'est la vie et la mort, 3
+Les armes de Jésus c'est la vie et la mort,
 _ Cest le compagnonnage en plein milieu du port,
 Et c'est l'appareillage en plein milieu du sort ;
 K Les armes de Satan ce sont les sept péchés,
@@ -492,7 +492,7 @@ Et les honteux ressorts savamment déclanchés ;
 | Les armes de Jésus ce sont les trois Vertus,
 Et les torses courbés et les reins courbatus,
 Et les galériens battus et rebattus ;
-| Les armes de Satan c'est la méthode torte, s
+| Les armes de Satan c'est la méthode torte,
 Le sang de l'oreillette et le sang de l'aorte,
 Le sang du ventricule et de la veine porte;
 Les armes de Jésus c'est tout le sang du cœur,
@@ -506,13 +506,13 @@ be Qui toujours fluctuante et toujours batelière,
 Racle de ses filets le fond de la rivière ;
 
 M - rs armes de Jésus c'est la barque de Pierre, ns.
-RSS C'est le vieux pêcheur d'homme assis sur son derrière 5
+RSS C'est le vieux pêcheur d'homme assis sur son derrière
 __ Dépeuplant l'Océan, le lac et la rivière; C7 FNME
 
 à Len A Les armes de Jésus c'est les sept sacrements sg ne ET
-ESS Dans la barque de Pierre et les sept bâtiments D
+ESS Dans la barque de Pierre et les sept bâtiments
 Le ne Qui suivent par derrière et les sept monuments
-Le P Qui ne périront point, les sept couronnements, 250
+Le P Qui ne périront point, les sept couronnements,
 FACE ui sont les sept douleurs, les'sept fleuronnements
 _ De l'arbre de la grâce et les sept firmaments; DFA
 Sas _ Les armes de Jésus c'est cette unique nef, T'ES
@@ -528,32 +528,32 @@ BE Les armes de Jésus c'est la grande semaine + RSS
 Qui part du lundi saint, c'est la grande neuvaine s .
 ne l Qui part du trois janvier et c'est la barque pleine Er, is
 
-2 Les armes de Jésus c'est cette unique nef, à
+Les armes de Jésus c'est cette unique nef, à
 -_ Le bateau vers l'écluse amarré dans le bief,
 ES ; Le bateau charpenté par le vieux saint Joseph ;
 & se Mais c'est aussi Jacob et le premier Joseph, ;
 4 — Moïse sur le Nil dans une étroite nef, :
 __ Et le peuple de Dieu gouverné derechef; -
 F- - Les armes de Jésus c'est le sang de sa veine SE
-20 Et le sang de son cœur, les sanglots de sa peine
+Et le sang de son cœur, les sanglots de sa peine
 F ï _ Et l'immense sanglot de toute race humaïne;
 > = Les armes de Satan c'est la sourde gangrène
 a Et l'obscur mal de tête et la lourde migraine à
 É- Et l'orgueil et l'ivraie et la mauvaise graine; :
 Les armes de Jésus c'est la double prière, AA
 L'une marchant devant, l'autre marchant derrière,
-ne _Comme lui matinale et vers lui journalière ; é
+ne _Comme lui matinale et vers lui journalière
 : Les armes de Jésus c'est'la double prière, ;
 | L'une arrivant devant, l'autre avançant derrière,
 à . Comme lui vespérale et vers lui journalière ;
-3 C'est aussi le secret, la prière nocturne,
+C'est aussi le secret, la prière nocturne,
 x _  L'immuable regret dans un cœur taciturne,
 | Re Et la mort de l'amour et la cendre dans l'urne ;
 
 90 - Les armes de Jésus c'est l'angélus du soie
 bn Li Et celui du matin, le calme reposoir 24 Re. .
-M Dans la procession, l'éclatant ostensoir M
-TRES Balancé sur les fronts comme un soleil ardent; F2
+M Dans la procession, l'éclatant ostensoir
+TRES Balancé sur les fronts comme un soleil ardent;
 Les armes de Satan c'est la griffe et la dent, ESS
 DES Le nez mal retroussé, le regard impudent; - El sr
 Fr 24 _ Les armes de Jésus c'est le calme du soir, AS 2 RC
@@ -565,12 +565,12 @@ PR. _ Qui souffle sur la nef et c'est le cœur fervent ; | TRÈS
 7 0 _ C'est le fruit qui mûrit aux planches du dressoir, _
 RE _ C'est l'enfant qui se couche et qui vous dit bonsoir “TEE
 _ Et s'endort en priant, c'est le lourd ostensoir + pes
-_  Haussé dessus les fronts comme un soleil couchant, F3
+_  Haussé dessus les fronts comme un soleil couchant,
 —_ Cest le souple vallon, c'est le coteau penchant, Free
 _ L'église dans la plaine et la prose et le chant; L'F
 DANS C'est la grappe giclant sous l'énorme pressoir, à +
-_ Cest l'étang répandu dessus le déversoir, : | 4
-CNT Cest l'encens balancé dans le lourd encensoir ; 5e
+_ Cest l'étang répandu dessus le déversoir, :
+CNT Cest l'encens balancé dans le lourd encensoir
 
 <. Les armes de Satan c'est l'écu trébuchant,
 Le propos alléchant, le souffle desséchant,
@@ -584,7 +584,7 @@ Et l'avoine et le seigle et c'est la bonne graine ;
 Et c'est le seneçon et c'est les sept péchés
 ; Par la contrition et les nœuds relâchés
 Du filet de Satan et les cordons tranchés;
-; Les armes de Satan c'est les sept débauchés, 5
+; Les armes de Satan c'est les sept débauchés,
 Et c'est le prince-évêque et les sept évêchés,
 Et les tentations courant sur les marchés ; :
 Les armes de Jésus c'est sept cents évêchés,
@@ -604,23 +604,23 @@ Au calice d'or pur, la pauvresse penchée ESS
 A | Dans l'âme la plus pauvre et la douleur couchée Le #
 ee S Dans le lit de tout homme et toute orge fauchée ; ee Ke a
 . Les armes de Jésus c'est toute onde épanchée FT:
-S _: Dans un gosier de fièvre et toute âme ébauchée D Fa À É
+S _: Dans un gosier de fièvre et toute âme ébauchée D Fa À
 5 . Au coin de toute lèvre et toute fleur jonchée ER
 APE Au pied des pieds saignants et toute arme ébréchée
-__ A force de servir et la tige ébranchée F4
+__ A force de servir et la tige ébranchée
 _ A force de produire et la paille hachée; RE
 de Les armes de Jésus c'est l'amour et la peine, EL
 __ Et l'amour est aux mains des suppôts de la haine, * À
 À _ Et la mort est aux mains de toute châtelaine; L+. RÈPERES
-__ Les armes de Jésus c'est la vie et la mort, : Vr2
+__ Les armes de Jésus c'est la vie et la mort,
 RAA _ C'est le fleuve fécond, c'est l'éternel apport j sx à
 
 _ Les armes de Jésus c'est ce gamin qui dort, .
 __ C'est la honte et la peine et son frère le sort,
 . Et l'amour est aux mains des suppôts de la mort; à
 … Les armes de Satan c'est la sensiblerie, ;
-3 C'est censément le droit, l'humanitairerie, ;
-| Et c'est la fourberie et c'est la ladrerie; É
+C'est censément le droit, l'humanitairerie, ;
+| Et c'est la fourberie et c'est la ladrerie;
 Les armes de Satan c'est la bête lâchée,
 & Le déshonneur gratuit, la honte remâchée,
 … Le troupeau mal conduit, la terre mal bêchée; ;
@@ -634,11 +634,11 @@ D'où retombe en jet d'eau la source de la grâce, -
 Aux coins de toute lèvre et la gluante trace
 Que laisse sur la fleur la visqueuse limace ;
 ds Les armes de Satan c'est un esprit pointu,
-C'est le corps en lambeaux, c'est le cœur combattu, 4
+C'est le corps en lambeaux, c'est le cœur combattu,
 É Le bourreau mal payé, le procès débattu;
 
-la tapisserie FESSES ê
-Les armes de Jésus c'est le cœur combattu, 4 7
+la tapisserie FESSES
+Les armes de Jésus c'est le cœur combattu,
 C'est le corps tout entier et la même vertu £
 Et la grappe écrasée et le froment battu;
 Les armes de Jésus c'est le grain sous la meule,
@@ -689,15 +689,15 @@ SEX “ * C'est le propos douteux et le sous-entendu, F4 200 £
 _ Et toute controverse et tout malentendu; 11 ES
 Les armes de Satan c'est Jésus-Christ vendu, |
 
-_ C'est les trente deniers, c'est Joseph descendu 2
+_ C'est les trente deniers, c'est Joseph descendu
 Au fond de la citerne et captif revendu; . rs nue
 Ë __ Les armes de Satan c'est la race perdue, : 1° PRE NCEES
 de ne _ C'est le lacet tressé, c'est la corde tordue, L'RÉFOEES
-a LS Toute chair assaillie et toute chair mordue; . # + P.
+a LS Toute chair assaillie et toute chair mordue; . # +
 Les armes de Satan c'est tout le résidu d ras &
-#4 Et la lie et l'écume et c'est l'individu As 72
+#4 Et la lie et l'écume et c'est l'individu As
 Les armes de Satan c'est toute dette due +5 ER
-+ + __ Irrémissiblement, la honte suspendue, 1
++ + __ Irrémissiblement, la honte suspendue,
 Et par son gouverneur toute ville rendue; RAS : SOS
 _ Les armes de Jésus c'est Satan confondu, Fa LS
 Tout fossé remparé, tout rempart défendu A ÉLIRE
@@ -710,12 +710,12 @@ Li Par le frère à son frère et la brebis perdue TES
 _ Pour le repos de l'homme et la ferme vendue Le
 ne _ Pour payer les impôts et la brebis tondue;
 - Les armes de Jésus c'est la neige fondue
-2 Au soleil du printemps, la hache suspendue ; :
+Au soleil du printemps, la hache suspendue ; :
 - Au jour du jugement et c'est l'âme éperdue Se
 ._ De son indignité, c'est la grande étendue
 - Et l'arbre de Noël et la bûche fendue
 ._ Et c'est depuis Adam la nouvelle attendue;
-4 Les armes de Jésus c'est la bonne aventure, :
+Les armes de Jésus c'est la bonne aventure, :
 De _ Et c'est le Créateur créant la créature,
 _ Et le sceau du Seigneur mettant la signature;
 LS Les armes de Satan c'est la caricature |
@@ -727,9 +727,9 @@ _ Les armes de Satan c'est la plaisanterie, :
 F.- Cette sauce tournée et c'est l'hôtellerie
 k Pour les mauvais passants et c'est l'ivrognerie
 
-à Les coudes sur la table et la clabauderie 3
+à Les coudes sur la table et la clabauderie
 e Les armes de Jésus c'est la charpenterie, ï |
-L'établi, la varlope et la menuiserie, Ù
+L'établi, la varlope et la menuiserie,
 Le denier de la veuve et le bon ouvrier; ;
 Les armes de Satan c'est le vil usurier,
 L'armurier, le guerrier, le manufacturier; .
@@ -737,8 +737,8 @@ L'armurier, le guerrier, le manufacturier; .
 Le mauvais compagnon, la camaraderie,
 Le mauvais camarade et la cafarderie
 Et le mauvais garçon; c'est le regard oblique £
-Jeté sur le voisin, le peuple famélique 3
-Sous la bombance énorme et pantagruélique; j
+Jeté sur le voisin, le peuple famélique
+Sous la bombance énorme et pantagruélique;
 Les armes de Jésus c'est la foi catholique
 Enchâssée à prix d'or, la ronde basilique,
 Et c'est la paix publique et la sainte relique;
@@ -747,7 +747,7 @@ La très simple existence et c'est quand il implique
 L'innocent dans le crime et dans le diabolique;
 
 à _ Les armes de Jésus c'est le cèdre biblique,
-- La salutation, la ferveur angélique, s
+- La salutation, la ferveur angélique,
 ._  L'annonciation de l'ère évangélique;
 % Les armes de Satan c'est sa ruse et sa clique
 _ Et sa claque sournoise et méphistophélique, ;
@@ -755,12 +755,12 @@ Et sa noise en sourdine et machiavélique;
 | Les armes de Jésus c'est le léger caïque :
 | De Pierre sur le lac, c'est l'archange archaïque
 Fermant le paradis, c'est la foi judaïque
-5 Et la première loi, c'est la race hébraïque
+Et la première loi, c'est la race hébraïque
 Et le tronc d'Israël, et c'est la mosaïque
 … De la vertu des clercs, de la vertu laïque;
 _ Les armes de Jésus c'est la loi mosaique,
 ; Les dix commandements au peuple liturgique, .
-Ù Et qu'il n'a point rayés de Rome apostolique; S
+Ù Et qu'il n'a point rayés de Rome apostolique;
 Les armes de Jésus c'est la mort héroïque
 Du martyr dans l'arène et la douceur stoïque
 : Du saint et c'est aussi la vertu prosaïque;
@@ -772,7 +772,7 @@ sh. UE le pire de tout c'est bien quand il explique; a A
 Sr te _ Les armes de Jésus c'est l'ardente supplique Eire À < 00 ;
 do: _ Du pauvre au gouverneur, c'est le parabolique, ie ia
 _ Et c'est les huit bonheurs sous Rome apostolique, :
-ne Et c'est le roi de France et c'est la république Te 5
+ne Et c'est le roi de France et c'est la république Te
 _ Et c'est le bref du pape et la lourde encyclique € Le0s
 _ Parmi les deuils privés et la vertu publique; ERP TASER
 a _ Les armes de Satan c'est le vil publicain, “11: ÈS
@@ -786,7 +786,7 @@ LE _ Sur l'armure de guerre et le lourd troussequin RES
 
 ._ Sur le cheval de guerre et l'ennuyeux pasquin:; Fra
 “ag __ Les armes de Jésus c'est le Samaritain, TU
-._ Le blessé recueilli, le pauvre franciscain, ASE 50
+._ Le blessé recueilli, le pauvre franciscain, ASE
 _ Les armes de Jésus c'est le républicain; "L FRS
 
 —_ Les armes de Satan c'est le faux symbolique, pe
@@ -794,7 +794,7 @@ a. Ta pierre en comprimé, le marbre en majolique, ARTS
 … (La pierre de Jésus, c'est le pur pentélique); er
 à . Les armes de Satan c'est toute hyperbolique, |
 - Le masque de Satan c'est toute bucolique ns FEES
-_  Modulant sous le hêtre une pure idyllique; ë
+_  Modulant sous le hêtre une pure idyllique;
 F Les armes de tous deux c'est le mélancolique er
 … Soit qu'il soit descendu du vieux cèdre biblique, #4
 - = Soit qu'il soit remonté de jeune république; Re,
@@ -811,22 +811,22 @@ ie Retourne vers Satan avec zoolâtrie, »_ Avec psychiätrie, avec chimiâtrie,
 
 pe la tapisserie PAT
 Les armes de Jésus c'est la pauvre monture, LE RES
-AIT L'ânon de cette ânesse et c'est la courbature #4 4
+AIT L'ânon de cette ânesse et c'est la courbature #4
 SRE De ses reins bâtonnés et c'est la sépulture eee.
-# Dans un caveau prêté, c'est l'agneau sans pâture, 2 2
+# Dans un caveau prêté, c'est l'agneau sans pâture,
 FA C'est la barque de Pierre errante et sans mâture, ; “4
 | Et le préteur de Rome et c'est la préfecture es
 : Et le préfet de Rome et cette humble toiture, +2
 ï Ce chaume au ras du sol et l'unique voiture Feà
 > Avec un seul cheval et la vieille clôture Le
-2 Attendant sous la lampe une humble nourriture, É
-: _Espérant vaguement un pot de confiture ; 7
+Attendant sous la lampe une humble nourriture,
+: _Espérant vaguement un pot de confiture
 - Les armes de Satan c'est cette dictature No.
 De ces sept qui sont sept sur la même monture, Re.
 Sur un cheval pourri tenus par la ceinture ; 7%
-Les armes de Jésus c'est la sainte Écriture 7
-; Depuis le premier livre et c'est toute droiture 3
-4 Depuis le premier pas et c'est toute armature ;
+Les armes de Jésus c'est la sainte Écriture
+; Depuis le premier livre et c'est toute droiture
+Depuis le premier pas et c'est toute armature ;
 Tenant son homme roïde et c'est toute ossature “
 ; Tenant son homme ferme et toute architecture &
 ne Tenant la maison pleine et basse de stature ; .
@@ -845,7 +845,7 @@ Qui dit d'abord : Mais non, c'est l'antique licteur
 Et l'antique faisceau, c'est Satan destructeur ;
 Les armes de Satan c'est Satan constructeur $
 Du satané parvis, c'est Satan conducteur
-De l'homme vers sa perte et Satan rédacteur f
+De l'homme vers sa perte et Satan rédacteur
 | De la fausse nouvelle et c'est tout abstracteur
 , .
 De la cinquième essence et tout contrefacteur
@@ -853,22 +853,21 @@ Qui sera poursuivi, c'est Satan collecteur
 D'impôts pour son État, c'est Satan correcteur
 Dans son mauvais journal, et traître traducteur
 Dans son mauvais patois, et fourbe producteur
-| 95
 
 pee de Rue 8 e produits frelatés, brillant introducteër
 
-“a el Au royaume d'enfer, décevant instructeur Fa CA Ce 0
+“a el Au royaume d'enfer, décevant instructeur Fa CA Ce
 _ De mauvaise recrue et sinistre amateur SERRES
 Sas 54 . D'art pour ses collections et savant armateur Er Re
 .__ De naufrage et superbe et docile imposteur, PE Va x"
 te Les armes de Satan c'est Satan séducteur; Rose. | Le à
-Les armes de Satan c'est la sévère cotte <: 020
-52 Le De maille et c'est aussi le regard qui clignotte LC
-NA _ Les armes de Jésus c'est la race future, RE - e
-AE _ C'est le riche missel, c'est la miniature ; ETS C4
+Les armes de Satan c'est la sévère cotte <:
+Le De maille et c'est aussi le regard qui clignotte LC
+NA _ Les armes de Jésus c'est la race future, RE
+AE _ C'est le riche missel, c'est la miniature ; ETS
 MER "Etle ciel et l'enfer et la terre en peinture; SES
 Les armes de Satan c'est la mésaventure, SE
-4 De Le traître couronné, la mauvaise lecture, . k ne
+De Le traître couronné, la mauvaise lecture, . k ne
 ._  : Les armes de Satan c'est la littérature; = Fe
 * |_ Les armes de Jésus c'est noblesse et roture : HRXE :
 . Égales vers sa face et la belle sculpture FES
@@ -888,7 +887,7 @@ Et toute liaison qui n'est pas la rupture, He
 - Les armes de Satan c'est la désinvolture,
 C'est la fausse élégance et toute conjoncture
 Où l'homme droit est mis en oblique posture ;
-. Les armes de Satan c'est la fausse culture D
+. Les armes de Satan c'est la fausse culture
 | Qui sème le chiendent et c'est la couverture -
 Volée au vieux cheval et c'est toute ouverture
 Que l'on n'a pas ouverte et toute fermeture ë » Que l'on n'a pas fermée et toute quadrature
@@ -901,7 +900,7 @@ la tapisserie se
 Qui n'est pas pour la fleur, toute arboriculture
 Qui n'est pas pour le fruit, toute viticulture
 Qui n'est pas pour le vin, c'est toute agriculture |
-3 Qui n'est pas pour le blé, c'est toute apiculture
+Qui n'est pas pour le blé, c'est toute apiculture
 Qui n'est pas pour le miel, toute sylviculture
 f ui n'est pas pour le bois et c'est toute bouture —
 Qui n'a pas pris racine et c'est toute mouture
@@ -935,7 +934,7 @@ He Des dix commandements et c'est la tablature RMC: Se
 es tables de la loi, c'est la nonciature LR :
 _ : Quand le nonce est du pape et la judicature 4 Es
 FR and le juge craint Dieu, c'est la magistrature M ;
-ss Quand elle est magistrale et la cléricature LS RER 3
+ss Quand elle est magistrale et la cléricature LS RER
 Quand le clerc est prudhomme et c'est la prélature ei A
 : S _ Quand l'évêque est Aignan ou saint Bonaventure _ nus
 - - Ou saint Côme ou saint Loup, la sacrificature Re
@@ -944,8 +943,8 @@ Re Qui vêt l'âme et le corps et c'est toute tonture sr Se
 Qui n'écorchera pas la faible créature ; VS
 
 _ Les armes de Jésus c'est la belle paroisse t#4
-am _ Assise au cœur de France et c'est la noble angoisse 4 x
-__ Du curé soucieux que son troupeau recroisse; de: T4
+am _ Assise au cœur de France et c'est la noble angoisse
+__ Du curé soucieux que son troupeau recroisse; de:
 Que te Les armes de Jésus c'est la belle provende NÉE be
 __  Éparse au râtelier, c'est le thym, la lavande, FL LENS
 __  Etla rose et l'œillet et la souple guirlande;,
@@ -962,15 +961,15 @@ RS Les armes de Satan c'est les magiciens ELISA . :
 _. Etla magicerie et les faux entretiens LLC
 GS Et les libres discours au conseil des anciens; LES à
 AVE Les armes de Jésus c'est la pauvre famille, : ar ER
-En Les frères et la sœur, les garçons et la fille, ide F3
+En Les frères et la sœur, les garçons et la fille, ide
 Le fuseau lourd de laine et la savante aiguilles
 
 Fe _ Les armes de Jésus c'est tous les cœurs païens :
-Pourvu qu'on les baptise et les rende chrétiens, 2
+Pourvu qu'on les baptise et les rende chrétiens,
 À Il en fait les plus purs de tous ses paroïissiens ;
 _ Les armes de Jésus c'est tous les plébéiens :
 “ A moins qu'on les courtise et les rende vauriens
-Il en fait les plus durs de ses fermes soutiens ; ÿ
+Il en fait les plus durs de ses fermes soutiens
 ‘2 Les armes de Jésus c'est les bons citoyens : » Quand la grâce les prend par ses secrets moyens, :
 mn. Il en fait les plus sûrs de ses curés doyens ; ne
 — Les armes de Jésus c'est la docilité,
@@ -988,14 +987,14 @@ Tout un fleuve de grâce et de félicité ;
 
 _ Les armes de Jésus c'est la sagacité, ; : FFE es.
 Dire Le pardon de l'offense et c'est dans la cité Le Br, FE
-Tout un fleuve de grâce et de vivacité; 5 PE 53
+Tout un fleuve de grâce et de vivacité; 5 PE
 _ Les armes de Jésus c'est la mendicité FILTRE
 _ Du dernier misérable et c'est dans la cité 1 SAS
 _ Tout un fleuve de grâce et de ténacité; Mn |
 à Les armes de Satan c'est le chemin tortu, NE
 _ Le sentier dérobé, le cheval abattu LT
 ee _ Les quatre fers en l'air et le mulet têtu; FER
-Les armes de Satan c'est la fausse tendresse LAS S
+Les armes de Satan c'est la fausse tendresse LAS
 __ …  Couchée au lit de l'homme et la molle paresse LS LEE
 … Qui dort le long du jour et se désintéresse TER
 à Avec ses mots savants et la devineresse \ FES
@@ -1011,14 +1010,14 @@ x Les armes de Satan c'est l'homme qui s'engraisse ae
 . … La tête et c'est aussi le vigneron qui presse
 La grappe et fait jaïllir le vin doux et l'ivresse ;
 
-- Les armes de Jésus c'est toute forteresse 4
+- Les armes de Jésus c'est toute forteresse
 Qui tient et c'est la noble et la pure caresse
 …_ De la mère à l'enfant et c'est la maladresse
 - De l'homme pas malin et la sourde tendresse .
 Me ._ De la mère à la fille afin que reparaisse #
 - En cette enfant naissante une même tendresse
-2 Et dans le temps futur une même caresse Se
-à __ Et ce même regard et cette même tresse É
+Et dans le temps futur une même caresse Se
+à __ Et ce même regard et cette même tresse
 _ Blonde qui fleurira, cette même détresse
 …_ | Qui sera consolée, et cette âme pauvresse
 
@@ -1075,8 +1074,8 @@ Sur le livre éternel et c'est le cœur contrit
 Qui sera fomenté, c'est le billet souscrit
 Qui sera présenté, c'est le bonheur décrit
 
-nr De par le roi du ciel et le pardon prescrit D.
-1 Par la nouvelle loi, c'est Dieu même transcrit RO,
+nr De par le roi du ciel et le pardon prescrit
+Par la nouvelle loi, c'est Dieu même transcrit RO,
 “Re De Moïse en Jésus, c'est Satan circonscrit,. 1 S : ;
 _ C'est tout ce qu'il fallait pour que Jésus souffrit, À £ Ds :
 _ Les armes de Jésus c'est surtout Jésus-Christ; LT
@@ -1085,7 +1084,7 @@ _ C'est tout ce qu'il fallait pour que Jésus ouvrit.
 _ — Le premier sacrifice et qu'il rendit l'esprit; LR +8
 AS C'est tout ce qu'il fallait pour que Jésus couvrit ras
 _ Le pécheur devant Dieu, pour qu'il redécouvrit < “IV
-__ Le chemin du salut et pour qu'il entreprit 22 2
+__ Le chemin du salut et pour qu'il entreprit
 ee Et qu'il reprît le monde et pour que l'homme apprit & Rec
 _- Le chemin difficile et pour qu'il désapprit a
 _ , La route sans cailloux et pour qu'un jour en Gaule,
@@ -1109,12 +1108,12 @@ Le secret mal gardé, le secret manuscrit
 k Qui n'est pas dans la lettre et se cache en esprit;
 Les armes de Jésus c'est le chemin fleuri,
 : Mais plus que le printemps galamment refleuri,
-5 C'est le sévère automne à l'instant défleuri ;
+C'est le sévère automne à l'instant défleuri ;
 Et la fleur de Marie est la rose fleurie,
 è Mais plus que l'humble rose au printemps refleurie,
 _ C'est la rose d'automne humblement défleurie ;
 - Les armes de Jésus c'est le vallon fleuri,
-* Mais plus que le printemps incessamment fleuri, É
+* Mais plus que le printemps incessamment fleuri,
 Et plus que le printemps insolemment fleuri,
 
 Lo Et plus que le printemps impudemment fleuri, PTE Hs
@@ -1123,14 +1122,14 @@ RQ C'est le pudique automne à jamais défleuri ; Re |
 ES _ Les armes de Jésus c'est un peuple chéri FEES
 __ Comme un fils qui revient, c'est un mourant guéri
 __ Par son extrême onction, c'est un peuple aguerri >
-TT Par une juste guerre et le marin péri a 2e
+TT Par une juste guerre et le marin péri a
 
-3 PR Au péril de la mer, le navire atterri “TT
+PR Au péril de la mer, le navire atterri “TT
 Dans le recreux du port, tout un peuple nourri LPS
 _. De quelques poissons secs, tout un monde nourri cu
 
 _ D'une seule victime et le raisin müûri Re
-. Pour le vin du calice et l'autre vin suri 4
+. Pour le vin du calice et l'autre vin suri
 at Pour l'éponge et la lance et le vinaigre aigri; RE Fe
 _ Les armes de Jésus c'est le levain pétri LE
 __ Au milieu de la pâte et lui-même suri; LA STE
@@ -1166,20 +1165,20 @@ Le$ armes de Satan c'est l'horreur de la guerre, Ÿ N'ES
 . Les peuples affolés, Jésus sur le Calvaire, . à RES
 Le sang, le cri de mort, le meurtre volontaire; # LS
 Les armes de Jésus c'est l'honneur de la guerre, .
-Les peuples rétablis, Jésus sur le Calvaire, F
+Les peuples rétablis, Jésus sur le Calvaire,
 Le sang, le sacrifice et la mort volontaire : RE
-Pour qu'elle vît venir sous un tel étendard | x
+Pour qu'elle vît venir sous un tel étendard
 De Jésus-Christ soldat contre Satan soudard, A
-Vers le vieux saint Étienne et le vieux saint Médard; 138 è
+Vers le vieux saint Étienne et le vieux saint Médard;
 Pour qu'elle vit venir par un chemin de terre, : : -
 Comme une jeune enfant qui vient vers sa grand-mère, el
 Par les bois de Puteaux, par les champs de Nanterre; 7 Fe
 _ Pour qu'elle vit venir ardente et militaire, JE
 Obéissante et ferme et douce et volontaire, ESS
-Sur Boulogne et Neuilly, sur Puteaux et Nanterre; à F
+Sur Boulogne et Neuilly, sur Puteaux et Nanterre; à
 
 __ Hauturière et docile, alerte et droiturière, LE
-s Et prompte à la manœuvre et peu procédurière, pe 3
+s Et prompte à la manœuvre et peu procédurière, pe
 Destinée à périr comme une aventurière; Ps :
 Bien en selle en avant de sa cavalerie, Re
 
@@ -1192,7 +1191,7 @@ _ Gourmandant ces brigands qui couraient à confesse, :
 …_  Déférente aux trois voix qui scellaient leur promesse;
 É _ Ayant mis les soldats au pas sacramentaire, ;
 % Ayant mis les curés au pas réglementaire,
-3 Et logé les Vertus au train régimentaire;
+Et logé les Vertus au train régimentaire;
 À Bien allante et vaillante et sans étourderie,
 -_ Bien venante et plaisante et sans coquetterie,
 … Bien disante et parlante et sans bavarderie;
@@ -1206,7 +1205,7 @@ ne Révérant les coffrets sertis de pierrerie
 -_ Grave et les yeux plus clairs que d'une chanoinesse,
 La sainte la plus grande après sainte Marie.
 
-| Draps Dieu ne fait rien que par compagnonnage, d
+| Draps Dieu ne fait rien que par compagnonnage,
 Il fallut qu'elle vit ces mauvais compagnons,
 Les Anglais, (les Français), les traîtres Bourguignons
 Dépecer le royaume ainsi qu'un apanage;
@@ -1229,14 +1228,14 @@ Sn Mais plus que le cortège et que les apogées LES
 _ I fallut qu'elle vit par ce libertinage FACE
 __ Dissiper ce trésor d'honneur que nous gagnons, Es
 4 _ Et déserter le Dieu que nous accompagnons, FE Rs.
-_ Comme on déserte un mort dans un pauvre village; 5
-7 Il fallut qu'elle vit par ce vagabondage à Re”
+_ Comme on déserte un mort dans un pauvre village;
+Il fallut qu'elle vit par ce vagabondage à Re”
 _ Retourner ce passé dont nous nous éloignons, PSS SE
 
 Il fallut qu'elle vît les maux que nous soignons “RD ER
 Monter le long de nous comme un échafaudage ; SR
 
-ne. CE fallut qu'elle vit par le faux témoignage f
+ne. CE fallut qu'elle vit par le faux témoignage
 
 2 _  Démentir le propos pour qui nous témoignons,
 
@@ -1258,7 +1257,7 @@ D: Avilir cette foi dont nous nous imprégnons,
 
 À | - Il fallut qu'elle vit le sang dont nous saignons <
 
-8 Saigner du même cœur et du même courage;
+Saigner du même cœur et du même courage;
 
 RS Il fallut qu'elle vit par un sot bavardage
 
@@ -1273,30 +1272,30 @@ Commettre les forfaits dont nous nous indignons,
 Et les écus sonnants et que nous alignons
 
 S Fondre au creuset d'orgueil et de faux monnayage;
-3 119
+3
 
 RURI fallut qu'elle vit par tout ce forlignage FT SET
 _  Dégénérer la race où nous nous alignons LL TER
 VER Et les mots éternels et que nous soulignons RAR
-= Tomber dans le silence et dans le persiflage; 2
+= Tomber dans le silence et dans le persiflage;
 . Il fallut qu'elle vit par tout ce maquillage 127 Fa
 _  Fausser la signature où nous contresignons, on: "à
-EE _ Et le terme et la mort que nous nous assignons Ph 70
+EE _ Et le terme et la mort que nous nous assignons Ph
 mure  Approcher tous les jours comme un lointain rivage;
 . _ Il fallut qu'elle vit cette jalouse rage = CN
 she Assaillir la caserne où nous nous consignons, = pe:
 _ Et la taverne infâme et que nous désignons LES
 D'un nom injurieux déborder sur la plage; FR
-I fallut qu'elle vit cette haine sauvage 255
+I fallut qu'elle vit cette haine sauvage
 __ Dénaturer le sort où nous nous résignons, 4 Le
 5 _ Et la ronce et l'ortie où nous égratignons [RSS
 _ Nos mains s'enchevêtrer dans le jeune bocage; en.
-_ Il fallut qu'elle vit au chemin de halage rs : 44
+_ Il fallut qu'elle vit au chemin de halage rs
 __  Déraciner la borne à qui nous nous cognons, FLO
 _ Et qu'elle vit le coin où nous nous rencoignons Le
-_ Nous refuser le gîte et le pain du voyage; D
+_ Nous refuser le gîte et le pain du voyage;
 
-4 Il fallut qu'elle vit dans ce commun naufrage
+Il fallut qu'elle vit dans ce commun naufrage
 
 __  Sombrer l'arche rompue et que nous empoignons,
 
@@ -1323,16 +1322,16 @@ S'évanouir de froid l'ardeur que nous feignons,
 Et qu'elle vit la peine où nous nous renfrognons
 - S'évanouir de mort dans un beau sarcophage;
 Il fallut qu'elle vît dans cet appareïllage
-S'avancer la galère où captifs nous geignons, k
+S'avancer la galère où captifs nous geignons,
 Et qu'elle vit la nef lourde où nous nous plaignons
 Gémir dans ses haubans et ses boïs d'assemblage;
 
 He fallut qu'elle vit par un commun partage
 nc” Arriver justement le sort que nous craignons,
-rue _ Et la loi qui nous sauve et que nous enfreignons M
+rue _ Et la loi qui nous sauve et que nous enfreignons
 208 _ Exposée à périr dans ce même naufrage; es: Re
 Il fallut qu'elle vit dans le même mouillage TRES
-_  Sombrer le désespoir que seul nous étreignons, 7
+_  Sombrer le désespoir que seul nous étreignons,
 ex Et qu'elle vît cet ordre où nous nous astreignons 7004 <;
 __… Perdre ses bancs de rame et son amarinage; pu E ee es
 Il fallut qu'elle vît dans ce commun dommage HER er :
@@ -1343,7 +1342,7 @@ Il fallut qu'elle vît dans le mouvant sillage FI FRE
 __  Flotter et s'enfoncer la mort que nous ceignons, Re
 _ Et qu'elle vît couler le sang dont nous teignons ee
 _ Notre robe lustrale et notre enfantillage; FL THERE
--_ Al fallut qu'elle vît par un jeu de mirage 270
+-_ Al fallut qu'elle vît par un jeu de mirage
 FE} Reculer le but fixe et que nous atteignons, Frs LR
 fe Et qu'elle vit le terme où nous nous rejoignons EE
 PEN Se dérober à nous en plein atterrissage; OS SE

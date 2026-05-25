@@ -13,7 +13,7 @@ histoire de quatre à
 paraissant vingt fois par an
 8, rue de la Sorbonne, au rez-de-chaussé
 
-Sur les œuvres, poèmes, drames et romans publiés ï
+Sur les œuvres, poèmes, drames et romans publiés
 dans les éditions des cahiers antérieures à la fondation
 des cahiers et dans les trois premières séries des cahiers,
 Sixième cahier de la quatrième série, cahier de courrier, courrier de Paris, inventaire des cahiers, en forme
@@ -22,7 +22,7 @@ Nous publierons dans un cahier de la cinquième série
 le relevé sommaire des œuvres, poèmes, drames et
 romans publiés dans la quatrième série de nos cahiers.
 
-histoire de quatre ans 1
+histoire de quatre ans
 
 — Adieu, les camarades, adieu ! nous partons !
 
@@ -94,7 +94,7 @@ et le lait dans les jattes. |
 penché sur un beau lac de crème, examinait avec
 minutie un petit appareil.
 
-Les deux jeunes gens se tinrentimmobiles, humant j
+Les deux jeunes gens se tinrentimmobiles, humant
 l'odeur délicieuse.
 
 — Dix, trois dixièmes, murmura l'homme, après
@@ -170,7 +170,6 @@ Comment avait pu s'accomplir une telle trans-
 
 formation ? Il faut dire cette curieuse histoire où la
 . chimie tient plus de place que la politique.
-| 13
 
 histoire de quatre ans
 
@@ -307,7 +306,7 @@ Une élite recrutée parmi les universitaires, les
 
 médecins, les ouvriers d'art, ou mécaniciens, ou
 chimistes, donnaït en vain l'exemple. Elle employait
-ses heures vacantes à des exercices variés de culture, à la gymnastique et à la musique. Quelquesuns eurent l'idée d'organiser des concerts gratuits 3
+ses heures vacantes à des exercices variés de culture, à la gymnastique et à la musique. Quelquesuns eurent l'idée d'organiser des concerts gratuits
 où les œuvres de Palestrina, Bach, Haendel, Beetho- ‘
 ven, Mozart et Gluck furent exécutées par des
 orchestres et des chœurs d'amateurs. Ils croyaient
@@ -382,8 +381,8 @@ Un physiologue russe, Novgorod, inventa des
 excitants grâce auxquels on put mourir dans
 des spasmes de joie après cinquante heures d'éro-
 
-histoire de quatre ans 1
-tisme continu. C'était un homme austère qui j
+histoire de quatre ans
+tisme continu. C'était un homme austère qui
 publia sa découverte, parce qu'un homme de
 science, pensait-il, doit publier toute chose.
 Une société financière exploita bientôt cette
@@ -455,7 +454,7 @@ prix de la liberté lui fit écrire ses mémoires. Les
 allemand, en anglais, en français, étaient répandues à plus d'un million d'exemplaires. Luther,
 caché dans la Wartbourg, avait moins agité le
 monde avec ses manifestes que ce héros du crime
-avec le récit de ses expériences. è
+avec le récit de ses expériences.
 
 On oublia les événements de Limoges, et les
 élections générales de 1973envoyèrent aux Chambres
@@ -656,7 +655,7 @@ Ils parurent en effet : Trois jeunes gens, une jeune
 
 fille, et le gérant fit les présentations. Il y eut pen- Ne
 dant quelques minutes un rapide échange de paroles.
-On nomma les colonies de chacun, on se découvrit F
+On nomma les colonies de chacun, on se découvrit
 des amis communs, puis, connaissance faite, on |
 mangea silencieusement. Le gérant lisait un jour- À
 
@@ -681,7 +680,7 @@ que nous pensons tous, à savoir que les pourris
 feraient bien mieux de mourir un peu vite, et de
 faire place.
 
-— À nous, termina Jean avec un rire. f
+— À nous, termina Jean avec un rire.
 
 On entendit une voix qui, de la rue, criait :
 
@@ -711,7 +710,7 @@ Le gérant eut un joyeux rire.
 — La Chambre ! vous êtes jeune. Croyez-vous
 que ça existe, la Chambre? Que les bonnes gens
 
-aillent voter, et nomment qui leur plaît! Moi, 4
+aillent voter, et nomment qui leur plaît! Moi,
 j'irai me promener aux champs, avec ma compagne À
 et mes deux filles; c'est plus sérieux. “#
 
@@ -892,12 +891,12 @@ gardé tout son charme animal.
 Les six jeunes puritains avançaient dans une
 foule étrange qui les bousculait et parfois les sépa- |
 
-rait : ils se rejoignaient aussitôt avec une hâte 1 L
+rait : ils se rejoignaient aussitôt avec une hâte
 inquiète. Ils ouvraient grands leurs yeux troublés \
 et regardaient sans comprendre. Ils ne savaient pas =
-respirer cet air subtil, chargé de senteurs amou- 1
+respirer cet air subtil, chargé de senteurs amou-
 reuses et d'émanations intellectuelles. Huit heures |
-avaient sonné; la majestueuse après-midi de juillet ë
+avaient sonné; la majestueuse après-midi de juillet
 expirait dans une lumière équivoque, faite d'élec- |
 tricité, de gaz et de soleil. -
 Jean Schrader, qui marchait à côté de Claire
@@ -915,15 +914,15 @@ ien vu, rien imaginé de si beau.
 Qu'elle était belle en effet, la puissante cité! Le |
 nonument triomphal détachait au loin, sur le ciel
 ouge, son arche ouverte; un frémissement de
-umières, de murmures, s'insinuait à travers les ë
+umières, de murmures, s'insinuait à travers les
 euillages des arbres centenaires ; des fusées mon41
 
-histoire de quatre ans È
+histoire de quatre ans
 taient et s'inclinaient dans l'air en bruissant; des
 chose de la grandeur des ancêtres avait passé dans à
-la corruption des fils. e
+la corruption des fils.
 
-Les jeunes gens, rendus silencieux par l'admiration, échangèrent un regard : ils pensaient à la Î
+Les jeunes gens, rendus silencieux par l'admiration, échangèrent un regard : ils pensaient à la
 ville du dix-neuvième siècle, et, l'orgueil du passé
 faisant plus cruelle la tristesse du présent, ils |
 avancèrent sans mot dire sur la voie grandiose que
@@ -971,7 +970,7 @@ On y échangeait à mi-voix des observations
 banales : — La canaïille triomphe encore! — Que
 fera-t-elle? — Rien, parbleu! Est-elle capable? — |
 
-histoire de quatre ans 1
+histoire de quatre ans
 _ Elle fera quelque chose; écoutez comme elle
 
 crie! — Voilà cent ans! — Elle fermera nos écoles, +
@@ -979,12 +978,12 @@ vous verrez; elle exclura nos maîtres. — Qu'elle
 
 Pendant une heure, les jeunes gens écoutèrent ces -
 propos et les cris. La scène leur semblait horrible .
-et attachante. Cette masse noire qui s'agitait confu- É
+et attachante. Cette masse noire qui s'agitait confu-
 sément, fluant et refluant comme de la boue qu'on ;
-pousse ; ces yeux vides, ces physionomies stupides i
-et furieuses, les impressionnaient ainsi qu'une 1
+pousse ; ces yeux vides, ces physionomies stupides
+et furieuses, les impressionnaient ainsi qu'une
 chose immonde. Pourtant ils restaient là. Touron
-dit enfin : 1
+dit enfin
 
 — Il faut partir, ou nous arriverons trop tard à
 
@@ -1004,7 +1003,7 @@ semble-t-il, ne lut ou n'attacha la moindre importance à une courte dépêche, 
 
 « Hôpital de Villejuif ; neuf heures. — Quatre-
 
-d'un mal étrange et foudroyant. Dix ont suc- C4
+d'un mal étrange et foudroyant. Dix ont suc-
 combé et l'état de la plupart des autres est déses- |
 péré. Le bruit court que des cas ont éclaté dans
 le pays. L'administration croit à un empoisonnement. »
@@ -1013,12 +1012,12 @@ Quand ils eurent franchi, une heure plus tard, la
 porte du collège des hautes études scientifiques, les
 jeunes gens furent soulagés. La propreté éblouissante des murs, les fleurs dans les jardinières, la |
 grâce digne de l'étudiant qui les accueillit, tout les |
-ramenait dans un milieu familier. d
+ramenait dans un milieu familier.
 
 Ils furent introduits au salon, d'où sortaient des
 bruits de rire et de musique. On y dansait. Les
 couples s'arrêtèrent pour fêter les nouveaux arrivants. On les fit asseoir, on les interrogea. D'où
-vénaient-ils ? Pourquoi si tard? On avait déses- u
+vénaient-ils ? Pourquoi si tard? On avait déses-
 péré de les voir. Ils dirent quelle curiosité les
 avait retenus à Paris : Les élections! Le télé-
 phone renseignait à Bellevue, et les nouvelles
@@ -1036,25 +1035,25 @@ histoire de quatre ans |
 reçut un petit mot : Vincent Tillier les invitait à .
 déjeuner avec lui. À
 
-Tillier était un homme de cinquante ans. Il avait É
+Tillier était un homme de cinquante ans. Il avait
 au cours de sa vie beaucoup joui par son travail, ;
 beaucoup souffert par ses affections. Agé de trente ;
-ans à peine, il avait perdu, dans un accident d'au- 4
+ans à peine, il avait perdu, dans un accident d'au-
 tomobile, sa jeune femme et sa fille unique. (4
 Tillier avait toujours été un laborieux; sa ressource contre le désespoir fut un redoublement |
 
 d'ardeur au travail. Aïdé par une dizaine d'élèves,
 
-en moins de sept années, il rédigea cette admirable 1
+en moins de sept années, il rédigea cette admirable
 bibliographie systématique des sciences chimiques, À
-: œuvre devant laquelle avait reculé la patience alle- 4
-mande. Il crut qu'il pourrait s'accorder un peu de 1
+: œuvre devant laquelle avait reculé la patience alle-
+mande. Il crut qu'il pourrait s'accorder un peu de
 relâche après ce long effort, et il essaya de se
-reposer. Mais il s'aperçut aussitôt que sa peine 4
+reposer. Mais il s'aperçut aussitôt que sa peine
 était entière dans son cœur : les visages des deux
-mortes l'accompagnaient toujours. Il comprit que 1
-désormais sa tristesse ne le quitterait plus, et il È
-accepta cette destinée. Il souffrirait, il travaillerait, 4
+mortes l'accompagnaient toujours. Il comprit que
+désormais sa tristesse ne le quitterait plus, et il
+accepta cette destinée. Il souffrirait, il travaillerait,
 et constamment il entendrait les deux voix inces- |
 santes de la vie : celle-là, plaintive et lamentable, ;
 qui prolonge les destructions; celle-ci, glorieuse et .
@@ -1098,7 +1097,7 @@ au travail sa fécondité et sa douceur entières. Les
 élèves étaient heureux. Tillier, s'il avait pu l'être,
 l'eût été. Mais il sentait toujours sa brisure inté- .-
 rieure. Les menus faits de la vie, en le touchant,
-rendaient un son douteux comme le marteau qui 1
+rendaient un son douteux comme le marteau qui
 tombe sur une cloche fêlée et quand il se retrouvait |
 chaque soir, seul à table, il s'étonnait de n'être pas :
 découragé : ce sentiment lui était tout à fait inconnu. ‘|
@@ -1109,10 +1108,10 @@ Le lendemain, à l'heure convenue, les jeunesgens
 se dirigèrent vers la maison de Tillier. Très simple, |
 et restée telle qu'au dix-neuvième siècle Berthelot \
 l'avait construite, elle s'élevait en haut de la
-colline, dominant un verger en pente qui laissait 4
-entrevoir, à travers ses verdures, l'étendue im- l
+colline, dominant un verger en pente qui laissait
+entrevoir, à travers ses verdures, l'étendue im-
 mense de Paris, hérissée de flèches et de dômes : |
-vue de loin et de haut la vieille cité avait grand air. 1
+vue de loin et de haut la vieille cité avait grand air.
 
 Tillier apparut sur le perron de la modeste entrée,
 et voyant les nouveaux venus, tout de suite il alla
@@ -1143,27 +1142,27 @@ se servait à sa guise, car il n'y avait aucun domestique dans l'établissement.
 
 — Ah! mademoiselle, dit Herdey, s'adressant à
 
-histoire de quatre ans 1
-Claire, vous ne trouverez ici ni le lait, ni le miel de k
+histoire de quatre ans
+Claire, vous ne trouverez ici ni le lait, ni le miel de
 vos montagnes. Comme il est bon, votre miel! et À
-votre pain d'épices! Il faut le manger au sortir du 4
+votre pain d'épices! Il faut le manger au sortir du
 four, tout chaud! quel régal! ; n ||
 — N'êtes-vous pas de Poligny, mademoiselle ? ne ||
-— Je connais votre colonie, et nous la connaissons tous en Italie par les livres qu'elle a produits, 1
+— Je connais votre colonie, et nous la connaissons tous en Italie par les livres qu'elle a produits,
 de bien beaux livres sur l'apiculture, bien beaux! À
 — Remarquablement exacts, dit Bergougnan. |
 — Nous tâchons de travailler avec méthode,
 répondit la jeune fille, rose de joie et troublée
 comme si on l'eût vantée elle-même. À
-Vincent Tillier écoutait en silence. Posément il È
+Vincent Tillier écoutait en silence. Posément il
 arrêtait son regard sur celui qui parlait, — regard |
-un peu tendu, et qui semblait fixé par une conti- 1
-nuelle recherche. Il avait du plaisir à voir cesjeunes M
-gens. Il aimait leurs voix franches, leurs teints 1
-clairs, leurs manières aisées; il aimait à retrouver E
+un peu tendu, et qui semblait fixé par une conti-
+nuelle recherche. Il avait du plaisir à voir cesjeunes
+gens. Il aimait leurs voix franches, leurs teints
+clairs, leurs manières aisées; il aimait à retrouver
 en eux ces qualités que le vingtième siècle, après 1 |
 le dix-neuvième, avait lentement désapprises : le L |
-goût, en toutes choses, d'une forte et gracieuse 1
+goût, en toutes choses, d'une forte et gracieuse
 — J'ai su qu'on avait essayé de nouvelles |
 
 méthodes pédagogiques à Poligny ; pourriez-vous
@@ -1191,32 +1190,32 @@ On ne jouit en réalité que de la peine qu'on s'est
 
 — L'erreur, dit-il, je la comprends. C'est une
 
-histoire de quatre ans È
-sorte d'illusion optique. La situation des hommes 1
+histoire de quatre ans
+sorte d'illusion optique. La situation des hommes
 aujourd'hui est tout à fait étrange, pitoyable. Non |
 seulement ils sont privés d'instinct, et tous les .
-animaux en ont; c'est bien pis. Ils ont des instincts 1
+animaux en ont; c'est bien pis. Ils ont des instincts
 qui les trompent. Ils sont restés, n'est-ce pas?
 identiquement tels que la nature les a façonnés en à
-trois ou quatre cent mille années. Ils ont des in- 1
+trois ou quatre cent mille années. Ils ont des in-
 stincts qui les inclinent à bien manger, à bien
-dormir, à préférer les choses agréables. Et ces 1
-goûts étaient sans danger pour des malheureux que 4
+dormir, à préférer les choses agréables. Et ces
+goûts étaient sans danger pour des malheureux que
 la vie pressait terriblement, et qui avaient le choix
-entre peu de douceurs. Mais voici qu'en deux siècles 4
+entre peu de douceurs. Mais voici qu'en deux siècles
 à peine, nous, savants, nous avons transformé la {
 réalité, diminué les périls, atténué les souffrances,
-multiplié les plaisirs. Résultat : nos instincts 4
-portent à faux, ils nous font trébucher en aveugles È
+multiplié les plaisirs. Résultat : nos instincts
+portent à faux, ils nous font trébucher en aveugles
 dans une nature pour laquelle ils n'ont pas été faits. +
 Herdey se tut ; puis, nul ne répondant, il pour- |
-— Tenez, dit-il ; il y a un effort dont la nature É
+— Tenez, dit-il ; il y a un effort dont la nature
 nous avait donné l'habitude et presque l'instinct, à
-c'était l'effort guerrier. Pour la guerre, l'humanité 1
+c'était l'effort guerrier. Pour la guerre, l'humanité
 sortait de son apathie. Et depuis cent ans on ne ;
 s'est pas battu. Notre seul instinct héroïque est ;
-devenu inutile. Pour moi, je plains les hommes: 4
-ce sont de pauvres êtres désorientés dans le monde ÿ
+devenu inutile. Pour moi, je plains les hommes:
+ce sont de pauvres êtres désorientés dans le monde
 nouveau de la science. ,
 
 Un des nouveaux venus, qui jusqu'alors avait
@@ -1224,7 +1223,7 @@ Un des nouveaux venus, qui jusqu'alors avait
 naturiens qui renoncent aux machines et qui.
 labourent la terre ?
 — Eh! répondit Tillier, peut-on retourner en
-arrière ? Nous n'avons plus le choix, il faut que Ù
+arrière ? Nous n'avons plus le choix, il faut que
 nous nous transformions nous-mêmes pour nous
 adapter à ce nouveau monde de la science dont
 parle Herdey. Nous transformer : déterminer de
@@ -1234,7 +1233,7 @@ conscience si superficielle, des images qui fuient,
 des motifs qui s'ignorent, des aspirations qui se
 contrarient, et des désirs, surtout, des désirs de ,
 faiblesse, nos plus antiques instincts qui s'opposent
-à la tâche nécessaire. Nous-même : un objet, un 1
+à la tâche nécessaire. Nous-même : un objet, un
 sujet; un objet toujours en fuite, un sujet toujours <
 “en révolte. La nature est commode : elle tient dans
 nos cornues, mais nous-même! et quel jeu vain est
@@ -1245,29 +1244,29 @@ science, ou plutôt l'inconscience des hommes ! c'est
 là-dedans qu'il faut travailler aujourd'hui!
 Bergougnan leva son visage grave et carré.
 
-histoire de quatre ans 1
+histoire de quatre ans
 
 — Je ne crois pas au succès, dit-il. |
 — L'humanité est mal équilibrée; trop d'intelli- à
-gence, trop peu de caractère. Le désaccord ira tou- d
-jours augmentant et il y aura une catastrophe au 1
+gence, trop peu de caractère. Le désaccord ira tou-
+jours augmentant et il y aura une catastrophe au
 — Que vos prédictions sont rapides ! répondit À
-Tillier. L'humanité, pensez quelle multitude d'êtres 1
-elle enferme, combien de races, de possibilités; et 4
-pensez combien de catastrophes elle a traversées, - M
-depuis le grand déluge jusqu'à la dégradation d'au- 1
-jourd'hui, qui est aussi une catastrophe. Elle a É
-survécu aux famines de l'ancien régime. Pourquoi 4
-la pléthore actuelle. 1
-— Elle est beaucoup plus dangereuse. Pour sim- F
-plifier le cas : prenez un homme qui depuis long- f
+Tillier. L'humanité, pensez quelle multitude d'êtres
+elle enferme, combien de races, de possibilités; et
+pensez combien de catastrophes elle a traversées,
+depuis le grand déluge jusqu'à la dégradation d'au-
+jourd'hui, qui est aussi une catastrophe. Elle a
+survécu aux famines de l'ancien régime. Pourquoi
+la pléthore actuelle.
+— Elle est beaucoup plus dangereuse. Pour sim-
+plifier le cas : prenez un homme qui depuis long-
 temps a été mal nourri, mal, mais sainement, et $
 fournissez-lui un bon régime : en dix jours vous le
 ravigotez. Prenez au contraire un homme qui s'est à
-alimenté avec excès. Il n'y a rien à faire. Ses 1
+alimenté avec excès. Il n'y a rien à faire. Ses
 organes sont détériorés pour toujours. Il est un À
 dégénéré, et vous savez, Herdey, vous qui êtes
-médecin, qu'on ne relève pas un dégénéré. Mourir k
+médecin, qu'on ne relève pas un dégénéré. Mourir
 de faim, c'est désagréable, mais ce n'est pas mauvais pour la santé.
 Bezoukoff, le Slave aux traits de Kalmouk, leva |
 un visage irrité où clignotaient deux petits yeux. |
@@ -1297,51 +1296,51 @@ demande à vous dire un mot.
 histoire de quatre ans
 — Il parle d'une interview sur cette maladie. À
 : — Ah! cette maladie dont on parlait hier... cela À
-paraissait curieux. Qu'il vienne, il nous en donnera 1
+paraissait curieux. Qu'il vienne, il nous en donnera
 les nouvelles. ;
 M. Blaise de Bruyère fut bientôt introduit. Il entra,
-chapeau bas, avec des pas menus et des courbettes 4
+chapeau bas, avec des pas menus et des courbettes
 circulaires. C'était un petit homme décharné. Il res- }
-semblait à ces insectes qui ont pour tout visage Ë L.
+semblait à ces insectes qui ont pour tout visage
 deux yeux ronds comme des boules dominant de
 larges mandibules ; il était fort laïd. Tillier alla vers
 — Vous venez m'interroger sur cette maladie,
-paraît-il? Mais il faudra, monsieur, que vous me L
+paraît-il? Mais il faudra, monsieur, que vous me
 renseigniez d'abord, car je ne suis pas au courant. #
-— N'avez-vous pas lu les journaux, ce matin ? E
+— N'avez-vous pas lu les journaux, ce matin ?
 — Maïs c'est affreux, monsieur ! Il est mort cette |
-nuit plus de cinq cents personnes. La terreur est 3
+nuit plus de cinq cents personnes. La terreur est
 Le malheureux semblait , effectivement très
 effrayé. Il serrait un journal dans ses mains fié- à
-vreuses. Tillier le prit et l'ouvrit. C'était une sorte 1
+vreuses. Tillier le prit et l'ouvrit. C'était une sorte
 d'immense liasse, un imbroglio de douze pages acco- !
-lées les unes aux autres. Il n'y avait pas d'article à k
+lées les unes aux autres. Il n'y avait pas d'article à
 proprement parler, mais une multitude de petites À
 dépêches, précédées chacune d'un gros titre et d'une
 
-image qui épargnaient presque au lecteur la peine è
-de lire. Tillier, perdu dans ce fatras, demanda : j
+image qui épargnaient presque au lecteur la peine
+de lire. Tillier, perdu dans ce fatras, demanda
 — Où sont vos nouvelles ? ;
 — Ici, les dernières, fit le petit homme, et il à
 accommoda ses feuilles d'une main preste. ;
 — Voyons les chiffres, murmura Tillier. Tel |
-asile... cela commence toujours dans les asiles… 1
+asile... cela commence toujours dans les asiles…
 tel asile, la Ville-Évrard, quarante-deux décès, huit :
 pour cent; Villebon, sept pour cent; Saint-Germain, %
-onze pour cent... tous ces décès parmi les hospita- 4
+onze pour cent... tous ces décès parmi les hospita-
 lisés ; le personnel indemne. |
 — Le personnel est presque toujours tempérant,
-interrompit Herdey. Il semble que le mal frappe l
+interrompit Herdey. Il semble que le mal frappe
 exclusivement les dégénérés. |
-— Les symptômes, poursuivit Tillier : chaleur 6
+— Les symptômes, poursuivit Tillier : chaleur
 interne, soif, gangrène des extrémités annoncée par
 des taches bleues sous les ongles... c'est singulier !
-Cela me fait songer au travail de Vermorel. Mon- 4
-sieur de Bruyère, pour moi, je ne sais rien. Mais è
+Cela me fait songer au travail de Vermorel. Mon-
+sieur de Bruyère, pour moi, je ne sais rien. Mais
 procurez-vous un ouvrage du docteur Vermorel, paru
-voici quinze jours, et intitulé : Observations sur 1
+voici quinze jours, et intitulé : Observations sur
 quelques cas récents de pathologie anormale. Tout ;
-ce que vous y lirez concorde étrangement, et dans 4
+ce que vous y lirez concorde étrangement, et dans
 une certaine mesure annonce vos nouvelles d'au- +
 — Mais n'avez-vous pas une appréciation géné- É À
 
@@ -1351,19 +1350,19 @@ histoire de quatre ans dé
 Vermorel n'a pas écrit, mais ce qu'il dit en conversation : il croit possible qu'une maladie inconnue
 apparaisse et élimine durement les affaiblis que
 nous traitons dans nos hôpitaux. Un tel événement,
-monsieur, ne serait pas tout à fait un mal. La mort 1
+monsieur, ne serait pas tout à fait un mal. La mort
 est une bonne éducatrice, — plus exactement, la
 peur de la mort.
 
 — Non, monsieur, je ne plaisante pas, répondit -
 Tillier avec une violence soudaine. Ces morts dont
-vous m'apportez la nouvelle, j'en parle sans ironie, F
+vous m'apportez la nouvelle, j'en parle sans ironie,
 mais sans pitié, je vous le déclare, Quoi, monsieur! |
 depuis cent années vous piétinez, vous et les vôtres,
 et vous vous enlizez dans le monde admirable que |
 nous savants, nous seuls, avions inventé; vous vous À
 perdez avec vos folies et vous perdez en même
-temps ce que nous avions créé ; et quand vous êtes 4
+temps ce que nous avions créé ; et quand vous êtes
 châtiés, il faudrait que nous eussions pitié? C'est
 impossible. Vous avez choisi l'ivresse, l'extatisme ; :
 subissez les conséquences. Tenez: je me souviens |
@@ -1385,7 +1384,7 @@ doutez pas, dit le journaliste tout blême.
 
 Il se retira ; et, dans le court silence qui suivit son départ, Bezoukoff se leva et de même
 
-— Bezoukoff ne paraît guère content, remarqua l
+— Bezoukoff ne paraît guère content, remarqua
 un des camarades.
 
 Et un autre, qui était assis auprès de Jean
@@ -1405,7 +1404,7 @@ histoire de quatre ans "à
 
 Raoul Herdey confirma la parole qui venait d'être
 
-— Bezoukoff est un extatique, un fanatique. Vous 4
+— Bezoukoff est un extatique, un fanatique. Vous
 êtes trop bon de l'inviter ici, monsieur Tillier. Il
 vous déteste, — et avec vous nous tous, d'ailleurs.
 
@@ -1417,11 +1416,11 @@ Puis, s'adressant à Claire :
 _ — Mademoiselle, lui dit-il, voudriez-vous passer
 
 un instant dans mon bureau ? Il faut que nous cau- .
-sions travail. Messieurs, je vous verrai ensuite. 1
+sions travail. Messieurs, je vous verrai ensuite.
 
 ACER L'ordre poursuit le désordre. FFRUSES
 
-Les journaux du soir publièrent d''effrayantes ë
+Les journaux du soir publièrent d''effrayantes
 dépêches. Expédiées de tous les coins de France
 et d'Europe, elles disaient toutes: le mal est
 apparu ; tant d'atteints, autant de morts. Presque
@@ -1449,7 +1448,7 @@ Et si quelque modéré protestait, les voix, jusqu'alors isolées, se pressaient
 
 — Ah, vous en êtes, des buveurs d'eau, des
 buveurs de lait! Ne restez donc pas avec nous, |
-puisque nous empoisonnons ! Les empoisonneurs, É
+puisque nous empoisonnons ! Les empoisonneurs,
 c'est eux-mêmes, les intellectuels et leurs quarante
 cliques, les pédagogues et les hygiénistes! La |
 preuve qu'ils l'ont voulue et faite, leur maladie, :
@@ -1457,14 +1456,14 @@ c'est qu'elle éclate partout à la fois, — est-ce |
 naturel? Et dans les asiles, où ils sont les maîtres ! (
 Ils veulent tout détruire pour régner entre eux. à
 
-Ces formules de colère, à peine trouvées, se pro- k
+Ces formules de colère, à peine trouvées, se pro-
 pageaient de groupe en groupe. Elles entraient ;
-vite dans ces cerveaux, énervés par les excès et par x
+vite dans ces cerveaux, énervés par les excès et par
 la peur. Elles les fanatisaient. Une invincible asso- £
 ciation d'idées unit la défaite électorale des positi- ;
 vistes et l'explosion de l'épidémie : celle-ci était une ;
-vengeance, et le commencement du grand attentat 4
-de la caste orgueilleuse contre la multitude des M
+vengeance, et le commencement du grand attentat
+de la caste orgueilleuse contre la multitude des
 
 Des bandes se formèrent, grondant des menaces
 
@@ -1552,28 +1551,28 @@ même instant, un cri s'éleva, un cri furieux et
 — Qu'est-ce donc?
 — Nos silhouettes se détachent sur le ciel clair. ©
 
-histoire de quatre ans 4
+histoire de quatre ans
 
 — Retirons-nous. À
-Comme ils remontaient à pas lents vers le jardin, j
+Comme ils remontaient à pas lents vers le jardin,
 À une clameur triomphante salua leur retraite, que À
 suivit une nouvelle et drue volée de projectiles. ]
 
-— Avez-vous lu dans {a Dépêche du Soir ? dit 1
+— Avez-vous lu dans {a Dépêche du Soir ? dit
 Raoul Herdey. A Varsovie, on a cerné et brûlé le ;
 quartier des Juifs. Il y a plus detrois cents vic
-times. On les accusait d'avoir empoisonné les 4
+times. On les accusait d'avoir empoisonné les
 
-— Ce fut de même en 1832, dit le docteur Ver- 4
+— Ce fut de même en 1832, dit le docteur Ver-
 
-morel, quand éclata le choléra. Et, ou je me trompe 4
+morel, quand éclata le choléra. Et, ou je me trompe
 fort, ou le choléra n'était qu'un jeu d'enfant com- à
 
-paré au fléau qui nous frappe. Alors, la maladie 1
-était relativement connue, et l'humanité à peu près L
+paré au fléau qui nous frappe. Alors, la maladie
+était relativement connue, et l'humanité à peu près
 — Qui donc vient en courant vers nous? dit *
 
-Tillier. Ah! c'est le citoyen Jouandanne, le secrétaire j
+Tillier. Ah! c'est le citoyen Jouandanne, le secrétaire
 
 de l'Union coopérative de Meudon. Qu'est-ce qui |
 
@@ -1586,8 +1585,8 @@ vahir votre établissement et de tout casser dans } |
 vos laboratoires? Ils disent que la maladieestdans
 
 vos cornues. Mais ne craignez rien. Il y a cin- .
-quante militants là-haut, qui font bonne garde. t
-— Quoi, fit Tillier en pressant le pas, les choses 4
+quante militants là-haut, qui font bonne garde.
+— Quoi, fit Tillier en pressant le pas, les choses
 
 en sont là? Merci beaucoup, à vous et à vos amis.
 d'autant qu'hier nous étions en querelle, vous libertaires et moi positiviste….
@@ -1633,7 +1632,7 @@ Leur Fédération répondit par un hautain refus
 que tous les journaux imprimèrent :
 « Monsieur le Ministre,
 « En 1945, dès l'année de sa fondation, la Fédé- ;
-ration des sociétés savantes déclarait : E
+ration des sociétés savantes déclarait
 « Nous avons le droit et, vis-à-vis de l'humanité, |
 « nous avons le devoir de gouverner la consom-
 « mation des richesses que nous avons créées. }
@@ -1770,7 +1769,7 @@ les avait rendus persistants. Ils avaient bravement |
 pratiqué la vie rustique et ne voulaient pas laisser
 perdre l'énergie qu'ils avaient reconquise. Parmi
 -ux il y avait beaucoup de mères, de femmes
-nceintes, qui, même abandonnées des hommes, ï
+nceintes, qui, même abandonnées des hommes,
 restaient là maintenues par la volonté de sauver
 eurs enfants, par un instinct de maternité que
 a civilisation n'avait pu abolir. Mais à l'entrée de
@@ -1848,7 +1847,7 @@ Les sujets d'entretien étaient peu variés. Ils
 étaient imposés par la nature, constamment répétés
 et pareils à eux-mêmes. L'extermination des foules
 
-histoire de quatre ans L
+histoire de quatre ans
 siens eurent péri, et dans les colonies même, le
 nombre des atteints croissait un peu.
 
@@ -1862,17 +1861,17 @@ confirmé les vôtres. Beaucoup de colonies nous ont |
 écrit : elles suivent vos indications pour le recrutement de leurs stations hygiéniques, et s'en trouvent
 
 — C'est drôle, n'est-ce pas? fit Vermorel avec une
-expression de gaieté sur son visage d'ordinaire w
+expression de gaieté sur son visage d'ordinaire
 absorbé. Voilà que nous ressuscitons une science
-généalogique, des quartiers de noblesse physiolo- « gique ! Et cela ne fait que commencer, yous verrez. M
+généalogique, des quartiers de noblesse physiolo- « gique ! Et cela ne fait que commencer, yous verrez.
 
 — Je n'appartiens pas à votre aristocratie, dit
-Tillier. Un de mes grands-pères m'inquiète. Les plus M
+Tillier. Un de mes grands-pères m'inquiète. Les plus
 purs d'entre nous, je crois, ce sont ces jeunes gens,
 
 : Schrader et mademoiselle Claire. Ils appartiennent #
-à ces familles de militants jurassiens qui s'entre- M
-croisent depuis un siècle, N'y avait-il pas, en 1398, « un Vuillemot qui luttait à Poligny contre les antisémites ? Î
+à ces familles de militants jurassiens qui s'entre-
+croisent depuis un siècle, N'y avait-il pas, en 1398, « un Vuillemot qui luttait à Poligny contre les antisémites ?
 
 — C'est exact, dit la jeune fille.
 
@@ -2010,7 +2009,7 @@ sa jeune sérénité n'osant pas affronter la tristesse
 d'un homme d'âge, elle se tut.
 
 Ils rentrèrent. Un courrier volumineux les attendait. De toutes paris on écrivait à Tillier pour lui
-donner et lui demander des renseignements sur C
+donner et lui demander des renseignements sur
 l'organisation des stations hygiéniques. La soirée
 fut occupée par un travail de classement.
 
@@ -2084,33 +2083,33 @@ trains ne circulèrent plus qu'à très longs intervalles. Les correspondances n
 
 Les tempérants valides travaillèrent pour sauver
 
-histoire de quatre ans M
+histoire de quatre ans
 de la faim leurs camarades et les masses. Ils ne "120
 réussirent pas à prévenir les famines. "
 Les habitants de Bellevue s'étaient dispersés ; ‘à
-Claire et Jean avaient été rejoindre Herdey à la 4
-cité hygiénique de Port-Royal. Vittoria était partie Î
-pour l'Auvergne, où elle était tombée malade. i
+Claire et Jean avaient été rejoindre Herdey à la
+cité hygiénique de Port-Royal. Vittoria était partie
+pour l'Auvergne, où elle était tombée malade.
 + Peut-être elle était morte : Tillier, Marie ne sa- }
-.  vaient pas. k
+.  vaient pas.
 Tillier ressentit les malaises qu'il avait éprouvés À
 l'autre année, et reconnut les premiers symptômes
 du mal. Il voulut s'arracher à cette torpeur où il
-fonçait. Il essaya d'aider dans leur travail les quel- 4
+fonçait. Il essaya d'aider dans leur travail les quel-
 ques militants dont l'énergie et la santé faisaient  - #
-vivre les habitants de Meudon. En peu de jours, il 4
-s'épuisa et dut se renfermer chez lui. Alors il tenta K
-de fixer sa pensée sur les fins générales qu'il se L.
+vivre les habitants de Meudon. En peu de jours, il
+s'épuisa et dut se renfermer chez lui. Alors il tenta
+de fixer sa pensée sur les fins générales qu'il se
 souvenait avoir tant aimées : la culture de l'esprit be:
-et du caractère, honneur de la pauvre race des ÿ
+et du caractère, honneur de la pauvre race des
 hommes. Il s'imposa de relire quotidiennement À
 cinq pages de Marc Aurèle. La voix du grand em- | É'
-pereur le toucha d'abord, puis cessa de le per- 4
-suader. En vain il relisait : « Regarde au dedans 4
+pereur le toucha d'abord, puis cessa de le per-
+suader. En vain il relisait : « Regarde au dedans
 de toi; c'est au dedans de toi qu'est la source du à
-bien, une source intarissable, pourvu que tu fouilles 1
+bien, une source intarissable, pourvu que tu fouilles
 toujours. » Au dedans de lui-même il ne découvrait %
-que le frémissement de ses hérédités malsaines, sa F:
+que le frémissement de ses hérédités malsaines, sa
 tête encombrée, ses fonctions difficiles, son haleine |
 
 fétide. Tillier, renonçant à toute résistance, se laissa
@@ -2141,27 +2140,27 @@ dans son plus vieil instinct, — l'honneur militaire.
 Des malades s'intéressèrent à la poignée d'hommes
 
 histoire de quatre ans ee
-qui tenaient dans Bizerte: Bizerte tomba, et les 4
+qui tenaient dans Bizerte: Bizerte tomba, et les
 pirates arabes descendirent aux côtes de Sicile. L'
 Hélas, ils n'étaient plus, les Doriens de Timoléon, à
 les légionnaires de Scipion, les Gaulois de César, À
-les Francs de Théodose, les Côtes-de-Fer de 4
-Cromwell, les Suédois de Gustave-Adolphe, les Ÿ
-grognards de Napoléon : l'Occident avait perdu ses R.
+les Francs de Théodose, les Côtes-de-Fer de
+Cromwell, les Suédois de Gustave-Adolphe, les
+grognards de Napoléon : l'Occident avait perdu ses
 Les uns rompus d'un coup, les autres lentement Ù 1 |
 minés, n'était-ce pas la fin de l'humanité ? La mala- à
 die développait un triste et féroce égoïsme. Chacun 4 :
-se sentant mourir, on était seul. f
+se sentant mourir, on était seul.
 C'était le troisième retour des saisons depuis ||
 l'origine du fléau. Les jours suivaient les jours, À
-brûlés de soleil, mouillés de pluie, balayés par le 1
+brûlés de soleil, mouillés de pluie, balayés par le
 vent ; ils traversaient un astre de mort. | <
 Vers la mi-octobre quelqu'un sonna à la porte du 4 |
-Collège de Bellevue. Vincent Tillier souleva la tête j
+Collège de Bellevue. Vincent Tillier souleva la tête
 au bruit amical qui depuis plusieurs mois n'avait ?
-pas retenti. Il pensa : « J'ai rêvé... » Mais derechef 5
-la sonnette carillonna. k
-— Marie! fit-il. k
+pas retenti. Il pensa : « J'ai rêvé... » Mais derechef
+la sonnette carillonna.
+— Marie! fit-il.
 Marie, toute somnolente, ouvrit les yeux. À
 
 l — On a sonné... regarde par la fenêtre.
@@ -2196,30 +2195,30 @@ crier les fous. 11 y a beaucoup de fous à Vic-surCère ?
 dû en fusiller une centaine. Nous n'étions pas
 
 histoire de quatre ans bs
-assez nombreux pour les surveiller et ils entra- L
-vaient le travail. C'a été affreux. J'entends leurs 4
-— Horrible chose ! Combien êtes-vous là-bas ? 1
-vous rendez-vous compte du nombre des morts, 4
-des vivants ? 1
+assez nombreux pour les surveiller et ils entra-
+vaient le travail. C'a été affreux. J'entends leurs
+— Horrible chose ! Combien êtes-vous là-bas ?
+vous rendez-vous compte du nombre des morts,
+des vivants ?
 — Difficilement. Nous n'avons aucune statistique. à
-Je croirais que, dans le Cantal, où il y avait avant 3
-l'épidémie 180.000 habitants, il en reste aujourd'hui k
-moins de 60.000, beaucoup moins. 4
-— Mais par le nombre des rations d'albumine É
+Je croirais que, dans le Cantal, où il y avait avant
+l'épidémie 180.000 habitants, il en reste aujourd'hui
+moins de 60.000, beaucoup moins.
+— Mais par le nombre des rations d'albumine
 que vous distribuez, on doit savoir. 4 !
 — Nous ne sommes pas seuls à fabriquer : il y a à
-les juifs. 1
-— Même là-bas, ils trafiquent ? 4
+les juifs.
+— Même là-bas, ils trafiquent ?
 — Naturellement, puisque leur hygiène, leur %
 sang, je ne sais quoi, les met relativement à l'abri ;
 du mal. Ils sont partout, fabricants, commerçants. ne.
-Et avec l'albumine, ils vendent la morphine ; ils en 4
-introduisent même parmi nos stagiaires, quelque- 4
-fois. C'est une plaie, vous savez, ces juifs ; eux E
+Et avec l'albumine, ils vendent la morphine ; ils en
+introduisent même parmi nos stagiaires, quelque-
+fois. C'est une plaie, vous savez, ces juifs ; eux
 aussi, il faudrait les fusiller. à
-— Enfin, murmura Tillier avec une voix anxieuse, 4
-que dit-on ? Que dites-vous ? Tout est perdu, n'est- 4
-— Non ! Moi, j'espère... ce mal de langueur qui 4
+— Enfin, murmura Tillier avec une voix anxieuse,
+que dit-on ? Que dites-vous ? Tout est perdu, n'est-
+— Non ! Moi, j'espère... ce mal de langueur qui
 nous abat est guérissable : j'ai été malade comme |
 
 | vous l'êtes, je suis guérie. Je vous assure, je vais
@@ -2254,7 +2253,7 @@ pour la visiteuse, causa, refusant toujours d'espérer.
 — Non, disait-il, c'est la fin... Vous souvenezvous. du travail de Defnet sur l'Extinction des
 espèces ? Defnet montre parfaitement que les plus
 
-histoire de quatre ans 4
+histoire de quatre ans
 grands serpents, les plus grands fauves, disparais- |
 sént au moment où ils ont éliminé tous leurs
 croit le problème insoluble. Mais je me demande
@@ -2266,7 +2265,7 @@ triomphe : ils n'ont plus rien à combattre, et ils
 tombent... La force, la perfection pratiquées pour
 elles-mêmes, quelques-uns en étaient capables,
 mais quelques-uns seulement : c'était un rêve
-héroïque, et l'héroïsme.… k
+héroïque, et l'héroïsme.…
 
 Sa voix, qui s'était ranimée, s'éteignit.
 
@@ -2310,7 +2309,7 @@ dell” Arte Italiana, par Venturi. Puis il interrogea :
 
 — Où irez-vous d'abord ?
 
-. histoire de quatre ans | f
+. histoire de quatre ans
 
 — À Messine. Depuis neuf mois j'ignore tout des
 
@@ -2342,11 +2341,11 @@ Sa tête s'était inclinée tandis qu'il murmurait
 ainsi. Quand il la releva, il y avait des larmes dans
 ses yeux, et quelques-unes roulaient sur ses joues.
 
-Vittoria s'en aperçut : elle resta silencieuse, remuée 4
-dans son cœur de femme par cette vue d'un homme i
+Vittoria s'en aperçut : elle resta silencieuse, remuée
+dans son cœur de femme par cette vue d'un homme
 Vers le printemps, Tillier fut mieux. Un jour il |
 s'éveilla moins épuisé, et puis, de réveil en réveil,
-il se trouva plus dispos. Marie aussi était moins Ë
+il se trouva plus dispos. Marie aussi était moins
 languissante. Sollicités par la tiédeur d'une matinée,
 ils sortirent, et, appuyés au bras l'un de l'autre,
 firent quelques pas sur la terrasse d'où l'on découvrait Paris. Les mauvaises herbes avaient envahi
@@ -2358,10 +2357,10 @@ porte les retint un instant.
 — C'est la voiture de Port-Royal, dit Marie; elle
 nous apporte des fromages et du lait.
 Jean Schrader parut, tenant à la main les provisions hebdomadaires. Claire le suivait.
-— Nous avons demandé à faire la tournée aujour_dhui, parce que nous avions une nouvelle à vous k
+— Nous avons demandé à faire la tournée aujour_dhui, parce que nous avions une nouvelle à vous
 dire.
 
-3 4
+3
 histoire de quatre ans
 
 Il prit la main de sa compagne, qui se tenait un
@@ -2394,14 +2393,14 @@ Ils partirent. Le frère et la sœur rentrèrent au
 logis, silencieux tous deux. Pour nous sauver,
 avait dit Vincent Tillier. Depuis longtemps, l'idée
 
-ne lui était venue qu'il restait une possibilité de 1
+ne lui était venue qu'il restait une possibilité de
 Après diner, la soirée étant douce, il eut la ten- :
 tation de faire quelques pas, et sortit. La vue était À
 immense et sombre: depuis deux ans les lumières |
-de Paris ne brillaient plus. -1
+de Paris ne brillaient plus.
 Tillier fut attiré par le bâtiment du laboratoire. |
 Avec peine il manœuvra la serrure, et entra. Il |
-rôda dans la salle des appareils, dont l'aspect E
+rôda dans la salle des appareils, dont l'aspect
 rouillé était lamentable. Il monta l'escalier, poussa
 la porte entrouverte de son cabinet, et le cadre
 familier de son ancienne vie lui apparut soudain. |
@@ -2415,7 +2414,7 @@ avança ; il s'assit à sa table de travail et se cacha la
 tête dans les mains.
 Il lui vint des souvenirs innombrables, précis et
 minutieux parfois jusqu'au ridicule. Tel jour il
-avait ouvert tel livre pour trouver tel renseignement, et avait cherché en vain, — et tels autres 2
+avait ouvert tel livre pour trouver tel renseignement, et avait cherché en vain, — et tels autres
 jours, tels autres petits faits. C'était comme un flot
 qui venait du plus loin de sa vie laborieuse, un
 
@@ -2444,7 +2443,7 @@ l'Éternel dit: « J'exterminerai de dessus la Terre
 « bétail, jusqu'au reptile, et jusqu'à l'oiseau des
 
 « cieux, car je me repens de les avoir faits. » Pourtant toute la vie ne disparaîtra pas, car « Noé
-trouva grâce aux yeux de l'Éternel ». « Et les eaux R
+trouva grâce aux yeux de l'Éternel ». « Et les eaux
 crûrent, et les eaux grossirent prodigieusement sur
 la terre ; et toutes les hautes montagnes qui sont
 sous les cieux furent couvertes. Et toute chair, qui
@@ -2502,7 +2501,7 @@ vous ?
 
 — Je l'observe partout, répondait Tillier.
 
-4 Il donnait aux uns des nouvelles des autres, et on
+Il donnait aux uns des nouvelles des autres, et on
 - l'écoutait avec avidité.
 
 à Mais plus Tillier savait et voyait, plus il voulait
@@ -2764,7 +2763,7 @@ dans la classe du conjoint inférieur.
 La rapide guérison obligeait à l'action rapide.
 De même qu'ils avaient été menés de l'organisation régionale à la nationale, les chefs de la France
 et de l'Europe furent bientôt menés aux problèmes
-de l'organisation internationale. La reprise des f
+de l'organisation internationale. La reprise des
 transports, des postes nécessita des conciliabules
 fréquents : Bâle fut choisie comme ville de rencontre.
 
@@ -3188,7 +3187,7 @@ Et quand, le lendemain matin, ils se rencontrèrent
 dans le cabinet de Tillier, jeunes gens devenus
 
 histoire de quatre ans
-hommes, jeunes filles devenues femmes, tous müris, Ë
+hommes, jeunes filles devenues femmes, tous müris,
 avec des physionomies, des voix et des regards
 aggravés par la sévérité des temps, ils eurent une
 minute d'émotion profonde et de rires nerveux.
@@ -3203,7 +3202,7 @@ premier jour? Il n'était pas des nôtres, celui-là !
 Où est-il passé ?
 
 — En mai 1998, il était docteur spirite et se conduisait bravement, m'a-t-on dit. Je crois qu'ensuite
-il est tombé malade. Sans doute ïl est mort. d
+il est tombé malade. Sans doute ïl est mort.
 C'était un détraqué, mais un honnête homme.
 
 Ils se mirent à table et s'entre-regardèrent pendant une minute, silencieux et pleins de souvenirs.
@@ -3246,7 +3245,7 @@ vrai. J'ai toujours pensé que l'amitié était une
 force dans l'histoire, et si nous avons pu, nous qui
 sommes ici, en fournir une preuve nouvelle, Vittoria, ma vie est comblée.
 
-histoire de quatre ans É
+histoire de quatre ans
 
 Jusqu'à la fin du repas on parla des deux morts,
 
@@ -3272,7 +3271,7 @@ une complaisance pour la Fédération ouvrière. Le
 baron Gourvitch donna une grande fête en l'honneur
 des congressistes et la baronne eut une gracieuseté
 
-pour chacun. Elle causa une demi-heure avec les Ë
+pour chacun. Elle causa une demi-heure avec les
 deux célèbres anthropologues, Ernest Damm, de
 Heidelberg, et Guglielmo Corradini, de Turin. Les
 séductions slaves enveloppaient l'Europe.
@@ -3649,7 +3648,7 @@ c'est Bezoukoff. Vous entendez, Herdey ? Bezoukoff!
 
 — Nous l'avons vu cette après-midi, Vittoria et
 
-histoire de quatre ans Ù
+histoire de quatre ans
 moi, dit Claire; il regardait les drapeaux. Il nous
 a reconnues, et saluées.
 

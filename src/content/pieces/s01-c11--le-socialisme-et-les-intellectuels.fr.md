@@ -9,12 +9,12 @@ wordCount: 10477
 ---
 Le Socialiste du 10 juin publiait la note sur ;
 Les intellectuels ne sont pas satisfaits de ma conférence,
-c'est leur droit; elle n'était pas faite pour leur plaire, raie Ë f
+c'est leur droit; elle n'était pas faite pour leur plaire, raie
 pour leur dire des vérités déplaisantes. Une de teurs: its « FE
-ques est cependant mal fondée : ils me reprochent de n'avoir W: (4 4
+ques est cependant mal fondée : ils me reprochent de n'avoir W: (4
 pas défini l'intellectuel, bien que je me sois évertué à le
 caractériser en énumérant ses vertus ; mais il était impor
-sible de les signaler toutes ; ainsi j'ai négligé de mentionner fi C4
+sible de les signaler toutes ; ainsi j'ai négligé de mentionner fi
 ses instincts pratiques, qu'il tient de la classe bourgeoise, fe
 d'où il sort. Le Mouvement socialiste, qui est un petit refuge "
 d'intellectuels, m'en fait souvenir. . as .
@@ -32,38 +32,38 @@ dont exploiter : ils ont traduit et publié deux
 umes de Marx, sans en demander l'autorisation à sa
 fille, Laura Lafargue, et sans même dai er lui
 un exemplaire, gner lui remettre
-On doit s'attendre à tou i
+On doit s'attendre à tou
 
 cation suivante : di 15 publiait La rect. Eù pr
 Voulez-vous donner l'hospitalité à la rectificati mn
 suivante, que je fais parveni tation su
 Hé P venir au secrétaire de rédac- lis
-Merci d'avance et bien à vous, é
-Monsieur le secrétaire de rédaction du Socialiste, 4
+Merci d'avance et bien à vous,
+Monsieur le secrétaire de rédaction du Socialiste,
 Le numéro du 10 juin 1900 de votre journal porte contre
 les rédacteurs du Mouvement Socialiste des accusations + Ph
 inexactes, que je vous prie de rectifier. L gui
 il Votre collaborateur P. L., parlant des « instincts praL tiques » que tout « intellectuel tient de la classe bourgeoise, +
 d'où il sort », ajoute, sans préciser davantage : fra!
-Te Mouvement Socialiste sont coutumiers du fait. Les œuvres de Marx 4 1
+Te Mouvement Socialiste sont coutumiers du fait. Les œuvres de Marx
 ont dernièrement acquis une valeur commerciale qu'ils entendent L Je
 à 5 exploiter : ils ont traduit ef publié deux volumes de Marx, sans en k d'u
-pie demander l'autorisation à sa fille, Laura Lafargue, et sans même l.
+pie demander l'autorisation à sa fille, Laura Lafargue, et sans même
 daigner lui remettre un exemplaire. On doit s'attendre à tout dela
 Tr politesse et de la piraterie de ces intellectuels-là. 1 mer
 à 74) 4 Il est faux que, par les soins du Mouvement Socialiste, où Î au
 à é de la Librairie qui l'édite, une* Â se
-F4 œuvre quelconque de Marx ait été traduite ét poire “ 4 k
+F4 œuvre quelconque de Marx ait été traduite ét poire “
 ee Il est faux que nous ayons ainsi divulgué une parie
 be salé js qui veulent Soci
 ‘5 œuvres de Marx à ceux des socialistes français qu de 1 rad
 se ranger parmi ses héritiers intellectuels, et à qui dr
 Ge avait cachées jusqu 1cl. ë atteinte à la : la « : À IL est faux que, de ce fait, nous ayons porté attell
 propriété privée des héritiers juridiques du théori
-même du communisme révolutionnaire. 2e È F: 1!
+même du communisme révolutionnaire.
 Je n'invoque pas un droit de réponse d'origine bourgeoise
-pour vous « sommer » de publier celte En 5 à Ÿ
-même place où a paru l'accusation. Je compte simp emen à LE f
+pour vous « sommer » de publier celte En 5 à
+même place où a paru l'accusation. Je compte simp emen à LE
 sur votre bonne foi, et vous donne mes salutations socla- NET
 Directeur du Mouvement Socialiste us Ë ‘À
 La Petite République du dimanche 17 publiait la ‘Tr
@@ -79,41 +79,41 @@ Lafargue, et sans même dai ae l'autorisation à sa fille, Laura JS Lo
 lectuels-là, se et de la piraterie de ces intel- Lo -
 Je n'ai jamais publié ee.
 poste, la librairie qui lé ce dans le Mouvement ol
-aduction d'une seule ligne de Ma: Jmais fait paraitre Ja 2h
+aduction d'une seule ligne de Ma: Jmais fait paraitre Ja
 Mais j'ai publié chez Schleiche ri sous mon nom. ÿ i}
-Monsieur l'administrateur délégué, ‘ EE 16 26
+Monsieur l'administrateur délégué, ‘ EE
 Je lis dans Le Socialiste du 10 juin, sous ce titre (ES
-ed: de publier ma conférence sur « le Socialisme et les Intellec- Î
-tuels », sans m'en demander l'autorisation et sans me communiquer Hp: F
-l'épreuve eténographique. Les intellectuels qui déblatérent sur les Ë 14:
+ed: de publier ma conférence sur « le Socialisme et les Intellec-
+tuels », sans m'en demander l'autorisation et sans me communiquer Hp:
+l'épreuve eténographique. Les intellectuels qui déblatérent sur les
 mœurs grossières des ouvriers ont d'étranges belles manières. Il est
 d'usage par tout pays de faire reviser la sténographie par l'orateur, BE
 mais avec un socialiste, ces messieurs se croient dispensés de la
 politesse la plus banale.
 ‘on doit s'attendre à tout de la politesse et de la piraterie de ces
 Les Cahiers de la Quinsaine ont donné, le 5 mai, le compte î Et
-rendu sténographique de la conférence Lafargue. 111 7
+rendu sténographique de la conférence Lafargue.
 Ils avaient annoncé, le 20 avril, cette publication. Nous {l +
 avions alors présenté quelques-unes des raisons pour les- DES
 quelles nous l'avions préparée. à ri
-La nouvelle attaque de M. Lafargue demande une réponse FI 4° k
+La nouvelle attaque de M. Lafargue demande une réponse FI 4°
 définitive. Cette réponse passera dans le treizième cahier, à
-du 5 juillet (1). Nous espérons pouvoir y démontrer, enparti- n:
+du 5 juillet (1). Nous espérons pouvoir y démontrer, enparti-
 cülier, que la révolution sociale que nous voulons et que
-bn totale et universelle n'a pas plus à respecter Ÿ
+bn totale et universelle n'a pas plus à respecter
 Me “aus de M. Lafargue que les richesses des autres bour- à
 rectification avait été insérée au Socialiste, car a 5 Ne
 numéro du Sociali i ; pin (100
-a talisie ne lui est plus parvenu. Mais un A ù
+a talisie ne lui est plus parvenu. Mais un A
 Onné payant et régulier di j Fr
 Que le nom, de peur qu'on ne lui coupe , EN
 (1) Rectifions nous-mé
-même i
+même
 fargue Passera non pas à “he & Fer canine : la réponse à M. Lamn . devenu bien différent das 1 cahier, du 5 juillet, mais
-série, ; le treizième cahier de la pre: 11
+série, ; le treizième cahier de la pre:
 
 1 € la première série
-nous ass È Æ
+nous ass
 &s assure qu'à l'heure où nous mettons sou: '
 bliée par l'Organe central du Parti Ouvrier Pr té pu- À fe
 Notre amil abonné, cherchant la rectification. es Ré ë 4 Te
@@ -137,7 +137,7 @@ morts, comme le lui a crié Walter, — il a couvert les 1 ee
 patrons affameurs, couvert son préfet et sa Poe à Pal
 É 1 couvert les battues ouvrières de ses chasseurs à chev : 4 aa
 ren 0 couvert les revolvers de Pandore, jetant trois cadavres
-ci des blessés sur le pavé ensanglanté de Chalon. ue D È
+ci des blessés sur le pavé ensanglanté de Chalon. ue
 à Il a été plus loin, théorisant le nes au rare
 prêt à recommencer, c'est-à-dire à maintenir OPEN ME
 N Fe ouvrier, fût-il seul, à travailler », contre }'ensem
@@ -146,17 +146,17 @@ le Waldeck-Rousseau _ comme endarmes deux ouvriers
 ct mis sous la protection de ne que nous n'avons
 qui voulaient rentrer à l'usine; J'a -
 
-fait que notre devoir en sauvegardant la lib re À i
+fait que notre devoir en sauvegardant la lib re À
 déclaration, que le capitalisme du
 Et lorsqu'après Cet! à ime—payable
 Temps proclame drrposnaness nee ps La ps * EL
 en cadavres — à la trahison prolé DE ordre
 vote, e'est par 299 voix contre 203 qu'a été adopté L Hits
-du jour ratificateur suivant : 4 1 14
+du jour ratificateur suivant
 
 La Chambre, comptant sur le gouvernement pour poursuivre tou: MAPS
-tes les responsabités qui seront établies par l'enquête judiciaire, à “4 i
-passe à l'ordre du jour. 1e) 1!
+tes les responsabités qui seront établies par l'enquête judiciaire, à “4
+passe à l'ordre du jour. 1e)
 
 Et parmi ces 292 membres se trouvent 22 membres du +
 Jourde, Krauss, Labussière, Lassalle, Narbonne, Palix, Ë l Et
@@ -170,10 +170,10 @@ Palix, Rouanet, Viviani. — Albert Poulain, Cadenat, Car- LR
 naud, Pastre n'ont pas pris part au vote. "Pre
 
 qu'il s'est imaginé quen puni
-ë Tete de perdus mon temps et d.
-e mes lecte j
+ë Tete de perdus mon temps et
+e mes lecte
 comparaison. urs, je dédie cette
-Le Parti ouvrier (1) du 3 juin 1900 publiait en pre- ë
+Le Parti ouvrier (1) du 3 juin 1900 publiait en pre-
 ! mière place l'article suivant : À
 É Voulant aider de toutes ses forces à la définitive
 défaite des ennemis de la justice sociale, le Parti
@@ -189,7 +189,7 @@ y “44 centralisatrices ; il revendiquera pour les municipalités
 Parti ouvrier, organe des travailleurs soci
 fe Paris. — Adresser lettres et communications qu a don.
 ne à he : E'émancipation des trabai
-nu que l'œuvre Es er à dus Abonnement, sx fran i
+nu que l'œuvre Es er à dus Abonnement, sx fran
 ‘# 2 spi Le Parti ouvrier est dans sa treizième année, FO ?
 à ictrative, la généralisation
 l'entière indépendance administrative, : AE ll
@@ -199,7 +199,7 @@ et l'État, la libre coalition des communes, la fin © a tie
 bureaucratie aussi coûteuse qu'étouffante “ RE ; il
 moins d'un siècle, a plus appauvr! la re be pit
 tères de valeur et de ressources que vingt invasions. j (l
-Avec la même vigueur, il continuera le combat contre i
+Avec la même vigueur, il continuera le combat contre
 toutes les réactions : militariste, cléricale, nationaliste
 etcapitaliste ; partisan de l'armement général du peuple,
 il combattra l'armée permanente, ce fléau des temps ie
@@ -209,15 +209,15 @@ tous les vices qu'engendre la paresse. iii
 cette servitude, à cette promiscuité, faites à l'usage LE À
 de la gent galonnée et improductive, nous voulons
 opposer les milices, formées de citoyens libres. ; - fi
-La camarilla parasitaire (soldats, prêtres et autres rs À î
-oisifs) a pour principal complice l'État centralisateur, D
+La camarilla parasitaire (soldats, prêtres et autres rs À
+oisifs) a pour principal complice l'État centralisateur,
 dont les ministres ne sont que les humbles commis. Ces .
 destructeurs de toute initiative, de tout ressort chez les
 individus, ont amené notre malheureux pays à un degré - À
 tel de veulerie qu'il leur livre son or et son sang sans
-compter, sans exiger le moindre contrôle. Or, c'est Let D: 3
-contre ce honteux état de choses que le Parti ouvrier * + D:
-Sachant par expérience que l'émancipation du monde À e
+compter, sans exiger le moindre contrôle. Or, c'est Let
+contre ce honteux état de choses que le Parti ouvrier * +
+Sachant par expérience que l'émancipation du monde À
 du travail est intimement liée à scati
 ini : son organisation écononique, nous aiderons de tout notre pouvoir à L At
 tion de nouveaux groupe a créa. ,
@@ -227,15 +227,15 @@ Ouvriers, nous nous efforcerons de les fair ments
 conseils amicaux, vers un b 8 faire évoluer, par hi .
 plus tôt se consti a
 défier tont Sreue des forces aésez Püissantes pour
-à La Science étant la résultante de sacrifices sans ‘1 é
+à La Science étant la résultante de sacrifices sans ‘1
 consentis par les générations passées et cell 1 à
 nous la considérons Comme la propriété de tous 12. Be, à
 ! cmbres de la société et, de ce fait, D  Pantes
 | d'elle : progrès mécaniques, chimiques, tous les enfan.
 tements merveilleux ne doivent servir qu'à allégef le
 s fardeau des producteurs, à vulgariser le biendtre età :
-faire disparaître tout le cortège de misères et de crimes : 1 F
-il qui afiligent l'humanité, o 1 D.
+faire disparaître tout le cortège de misères et de crimes
+il qui afiligent l'humanité,
 Nous tenons également à protester contre la soite
 légende qui tend à faire considérer notre journal comme
 le porte-paroles de nous ne savons quels sectaires enne-
@@ -251,9 +251,9 @@ encore aujourd'hui ce que des sots ou des hypocrits
 appellent l'instruction du peuple.
 "ses Dans la campagne contre les haines religieuses, dont -.
 BR | la récente affaire Dreyfus peut servir de type, combien. ‘4
-e/ 07 de fois ne fmes-nous pas appel aux savants, aux “ 4
+e/ 07 de fois ne fmes-nous pas appel aux savants, aux “
 fesseurs, aux esprits d'élite! Nous nous efforcions
-faire ressortir les dangers de lines de ae 4.
+faire ressortir les dangers de lines de ae
 Fil d'instruire, d'éclairer le peuple, victime ee a
 M 7 des gredins de la politique, des parasites su ue
 les églises et les temples, de toute la gen
@@ -270,7 +270,7 @@ religieuses avivées par les empoisonneurs de la chaire is:
 et de la presse, des savants, des philosophes s'arra- Eh
 chérent à leur solitude et vinrent se mêler aux rares - PR
 défenseurs de la justice combattänt pour arracher un
-bourgeois, un officier, des griffes de ses congénères stylés : : Ë
+bourgeois, un officier, des griffes de ses congénères stylés :
 par les jésuites. ; :
 Ainsi agissant, les hommes de science faisaient à leur
 insu — les savants ont aussi leur côté faible (1) — le à Là
@@ -278,16 +278,16 @@ premier pas vers le Socialisme qui, seul, peut accom- Di
 plir la complète et définitive délivrance de l'humanité nn.
 en “nur la propriété commune et désormais impos- LP
 sible l'exploitation de l'homme par l'homme.
-ticulier, nous croyons devoir faire allemaniste. Ici, en par- ÿ
+ticulier, nous croyons devoir faire allemaniste. Ici, en par-
 intellectuels, des universitaires qui nr que beaucoup des !
 laires avec les socialistes étaient valllent aux Universités popu- Ni "à
 de l'affaire Dreyfus: — que b istes avant le commencement 1 mu
-consciemment socialistes par TUE sont devenus sincèrement et k = S
+consciemment socialistes par TUE sont devenus sincèrement et k =
 parmi ceux qui ne le sont pas de ation de l'affaire Dreyfus ; — que Der
 leur Uberté, la plupart en réservant ce qu'ils nomment
 mulent pas la forcé révol le Bertheroy de Zola, ne se dissicependant que. pl es utionnaire de la science et de la vé rité
 tuellement le socialisme, sf Cet fe errant EUX, acceptant éven- à
-droit chemin, e socialisme qui est au bout du # n;
+droit chemin, e socialisme qui est au bout du #
 
 Î Ajoutons encore qu'en ce qui .
 ll i Concerne l'
@@ -295,11 +295,11 @@ ll i Concerne l'
 l toute loyauté et liberté d'esprit 4 “ 'echercherons en
 cher ces éléments combatifs : "ce qui peut rappro- LE.
 de réclamer les garanties ; sue Nous ne cesserons ‘
-#1 Socialis ARS que l'intérêt supérieur d
+#1 Socialis ARS que l'intérêt supérieur
 sme révolutionnaire nous fait un devoi
 à | pas négliger, car nous n'entendons pas pa du : ne
 tis à modéranne outré, pas plus que de sournois calculs mettent
-en défaut notre bonné foi, : J
+en défaut notre bonné foi,
 Le e la besogne de Propagande vigilante, d'édu-
 af. nue révolutionnaire que nous continuerons
 d'égalité n d'aider à implanter en ce pays les idées
@@ -321,9 +321,9 @@ l'exploitation capitaliste 8a EE sauce de Saint-Mandé.
 e vaut un ministre socialiste à la k ilié avec le L'ee
 M. Motte, le patronat fait homme, est no US rh LE dt
 i 'est proclamé socialiste.
-cites absolument indispensable que le spectre (| LME F
-quel épouvantail jetant la terreur dans l'âme imbécile - 4
-bourgeois, suffit: Palmerston, un des plus cyniques pol- j!
+cites absolument indispensable que le spectre (| LME
+quel épouvantail jetant la terreur dans l'âme imbécile
+bourgeois, suffit: Palmerston, un des plus cyniques pol-
 ticiens du siècle, pour consolider son pouvoir ébranlé, LE
 agitait, dans la Chambre des Communes, le spectre de la
 France menaçant l'Angleterre et demandant la revanche de
@@ -343,10 +343,10 @@ l'abus.
 . Les nationalistes l'ont exhibé à la Chambre et au Sénat, !
 il a semé la frousse dans les rangs des républicains bour- Pr
 . La colique au ventre, ils l'aspergent d'eau bénite
-— Est-ce vous, Trarieux ui v
+— Est-ce vous, Trarieux ui
 Dreyfus ? Est-ce vous, pe ? Est-ce ram
 vous, Reinach ? vous, Monod? Est-ce
-Tous de répondre : Jamai i
+Tous de répondre : Jamai
 ais de la vie, pk
 la 1 5 > Plutôt nous mordre us:
 pd Jusqu'au sang que d'en parler! .
@@ -355,9 +355,9 @@ Journaux ministériels battent la cam nr
 
 jamais Millerand, tam: Première série
 dirigeai » Jamais Baudin
-i 1 rigeait et que l'aut: din, du temps qe l
+i 1 rigeait et que l'aut: din, du temps qe
 die t le plus faible parfum de dr Sa Sert une, ligne
-enthousi. , e; ils ont : i
+enthousi. , e; ils ont
 Cavaignac (1); si asme l'affichage du di
 Î , 3 Si plus tard leur anti ge du discotrs de
 ‘1 ste cran et même de plusieurs gendre fosieme a baissé
@@ -385,36 +385,36 @@ dd... 0 combattu l'État-major pour sauver la République, nous le
 è ont voté cet affichage; et, si nous avons bonne mémoire, M. MilleNE. 7. rand fit le lendemain dans son journal un édiforial déplorable; en
 ce temps-là il marchait d'accord là-dessus et sur beaucoup de
 +” questions avec le Parti Ouvrier Français; on n'a pas oublié la colla50 boration de Guesde à la Lanterne.
-“hi @) Nous nous faisons un devoir de reconnaître que ces afirma- ; L
+“hi @) Nous nous faisons un devoir de reconnaître que ces afirma-
 ee tions de Lafargue sont en grande partie fondées. Les suivantes le sont -
 à moins ou ne le sont pas. -
 
-jaissons vivre tranquille, toujours pour sauver la Républi- : 1
+jaissons vivre tranquille, toujours pour sauver la Républi-
 que. Périssent les principes immortels, plutôt que le minis-
 tère ne chute. Est-ce sublime, hein ?
-Tous les justiciards et tous les véritards, soulevés par un Î Ï
+Tous les justiciards et tous les véritards, soulevés par un
 souffle d'en haut, jurent sur la tête des électeurs de ne ME re:
 jamais plus prononcer le nom de Dreyfus ; et à pleins pou-
-mons ils entonnent les éloges de l'armée, l'espoir de la LE: 4H
-Patrie, l'honneur de la Nation, et patati, et patata. ls 1F
+mons ils entonnent les éloges de l'armée, l'espoir de la LE:
+Patrie, l'honneur de la Nation, et patati, et patata. ls
 dament le pion aux nationalistes dans le concert qui cha-
 touille délicieusement les oreilles des capitalistes, qui s'en- 1: ee
-richissenten armant les soldats, en les habillant et en les 5 Ï
-empoisonnant avec des conserves avariées: h
+richissenten armant les soldats, en les habillant et en les
+empoisonnant avec des conserves avariées:
 ca vée en marche, ils l'ont fait asseoir, la Justice éter- A+
 jobs ils l'ont fourrée dans la poche ; ces belles petites (1) +.
-qu'ils promenaient en parade, ils les trouvent compromet- & 4
+qu'ils promenaient en parade, ils les trouvent compromet- &
 tantes. Le vieux Pam avait bi i il disai
 it bien raison quand il disait
 la saleté est de la matière hors de sa place; l'en
 sur les caractères d'imprimerie et en lettres moulé de : À
 papier est ce qu'il y a de plus propre ; mais sur les doi ° ; on
-des temps de l'Affaire, ne sont plus . ces vierges pures “ 41
+des temps de l'Affaire, ne sont plus . ces vierges pures “
 Ça leur arrive à ces drôlesses ds les impures.
 d'être hors de place. Il a ouvent qu'à leurtour % 6]
 et les véritards partaient en a dr ses les Justidiaeun
 Christ, contre l'in guerre, avec les adorateurs d 2)
-voulaient affranchir la Grèce. Le € vraie croisade, ils x
+voulaient affranchir la Grèce. Le € vraie croisade, ils
 chose, dit le proverbe : + Le malheur est bon à quel
 erbe ; la Turquie le sai quelque _
 ne d'être devenue la terre mers t: elle avait eu le Ds
@@ -439,9 +439,9 @@ l | contre les nations faibles, comme la Turquie ed
 fallut que les chrétiens donnassent la permission : car la
 campagne européenne contre la Turquie était un écho des
 1h guerres de religion, un relent de la haine du christianisme
-contre le Mahométanisme. Dans le cœur de tout justiciard, 1
+contre le Mahométanisme. Dans le cœur de tout justiciard,
 un chrétien sommeille,
-Kant, que les intellectuels essaient de donner comme phi- Ë
+Kant, que les intellectuels essaient de donner comme phi-
 losophe du socialisme, est le vrai maître éthique des justi-
 ciards et des véritards (1), lui qui fonde la morale sur les
 { principes éternels et qui préconise le christianisme comme
@@ -452,8 +452,8 @@ A : leurs appartements secrets les belles petites du dreyfuLe | sisme, mais le s
 et bientôt les drôlesses éternelles pourront reprendre leur
 commerce sur les boulevards...
 La Petite République du dimanche 10 publiait cet
-À. On lit dans l'Intransigeant : Î
-x a jaliste révoluici en quels termes le citoyen Paul Lafargue, s0C d
+À. On lit dans l'Intransigeant
+x a jaliste révoluici en quels termes le citoyen Paul Lafargue,
 “y hé papier à la Petite Moucharde : ublique,
 A É: « — Moi, j'ai été dreyfusarde, mugit la tapageuse Petite Républiqi
 Fe olémique récente a per n du citoyen
@@ -462,27 +462,27 @@ E. " ae Voir dans la Revue Socialiste les bonnes réponses
 je le proclame bien haut ; j'ai crié par toutes mes colonnes
 Fred Dreyfus, les infamies, les crimes, les illégalités, les immon- Î si
 dices et je ne sais quoi encore des conseils de guerre; mais j'ai (à
-soudainement tourné le robinet de mes fureurs dès que Galliffet 1 Œ
+soudainement tourné le robinet de mes fureurs dès que Galliffet
 nous en a donné l'ordre, dès qu'il a prononcé son célèbre « L'incident il di}
-est clos ». Dès cet instant historique, sans souffler un traître mot, { 1H
+est clos ». Dès cet instant historique, sans souffler un traître mot, {
 nous avons laissé nos simples soldats, victimes des conseils de i : di
 guerre, pourrir dans les silos des compagnies de discipline et tomber 14 [
 sous les balles des pelotons d'exécution. Dreyfus est gracié, nous
-sommes satisfaits ; nous n'avons plus rien à réclamer. Périssent les BE 46
+sommes satisfaits ; nous n'avons plus rien à réclamer. Périssent les BE
 principes immortels plutôt que le ministère ne chute. Est-ce 1 À
-M. Paul Lafargue connaît bien les renégats du socialisme passés Re: î
+M. Paul Lafargue connaît bien les renégats du socialisme passés Re:
 avec armes et bagages à la suite de Dreyfus le traître. : ‘
-Chaque numéro de la Petite République donne un dé- l
+Chaque numéro de la Petite République donne un dé-
 ment aveuglant à ce gribouillage d'ineptes mensonges. Ÿ dk
 Mais! Intransigeant, depuis qu'il combat l'article 7, a adopté
-système de Basile (1). Par exemple, il en use bien mala- + 4
+système de Basile (1). Par exemple, il en use bien mala- +
 mére Pour ne citer qu'un exemple : Le jour même où
-et écrivait sa phrase : « L'incident est clos », nous y 4:
+et écrivait sa phrase : « L'incident est clos », nous y
 éme parun article intitulé : « L'incident cols puyert »
 outes les arti i g à Le
 ten ticulations de l'Intransigeant sont de cette
 (1) Faut-il voir d: ra
-Basile une allusion — tt insistance à faire i
+Basile une allusion — tt insistance à faire
 une remarquable à au véritable nom Pr pere le nom de
 Mathieu Basile, oïncidence le véritable tôt æ On sait que par
 le Jules Guesde est D Li
@@ -502,23 +502,23 @@ tendances plutôt économiques. Rosa Luxemburg prit place dans
 ‘4 bientôt entre les deux organismes, sur la question de l'indépendance
 de la Pologne. Deux partis très distincts se formérent : — D'une part,
 le Parti Socialiste Polonais, mettant à la base de son action l'indé L :
-pendance de la Pologne, et formé par l'Union Ouvrière, par'une 4:
+pendance de la Pologne, et formé par l'Union Ouvrière, par'une
 Late ancienne organisation terroriste — le pren Rs ne Le
 4 \ t uelques autres socialistes patriotes polonais; — de
 r L cher côte à côte avec le prolétariat russe, et Re rte € Lu
 ‘1 ndance de la Pologne — en tant qu'elle peut dépendre de l'inibi sn
 è étariat — à la conquête préalable des
-tive ou de l'action du prolétaria Rue « 4,
+tive ou de l'action du prolétaria Rue «
 pouvoirs publics par la classe ou' parti, Elle fut
 Fe. Rosa Luxemburg fut un des fondateurs de ce dernler part. osé
-DES 1 placée pendant quelque temps à la tête de ps e
+DES 1 placée pendant quelque temps à la tête de ps
 ‘ ie Paris, sous le titre de Sprawa Robotnicza {la Cause 0! SE Le
 “ Depuis, elle est passée en de te, Ja place que -
-d s uis, dans la démocratie socialiste, Ia place A: 4
+d s uis, dans la démocratie socialiste, Ia place A:
 ser, et pre rés de Stuttgart, en 180, ainsi que danpla prete
 doclaliste allemande, elle a vivement attaqué Jes théories
 ts Prigé Dar Schoenlank : La Leipziger Volkszeitung, età la
-revue du parti : La Neue Zeit. À L
+revue du parti : La Neue Zeit. À
 Le principe socialiste de Ja lutte de classe exige l'action
 du prolétariat partout où ses intérêts en tant que classe sont
 en cause. Cela est le cas pour {ous les conflits qui divisent
@@ -528,12 +528,12 @@ ment dans les rapports politiques du pays influe aussi en
 première ligne sur la situation de la classe ouvrière. Nous
 bourgeoisie, comme des témoins indifférents, qu'au cas où
 le socialisme pourrait être réalisé à l'extérieur de la société
-bourgeoise, par exemple par la fondation dans chaque : Ë
+bourgeoise, par exemple par la fondation dans chaque
 pays d'une colonie séparée. Mais comme nous ne songeons
 pas à émigrer pour ainsi dire de ka société bourgeoise dans :
 la société socialiste, mais au contraire à renverser la société
 bourgeoise par des moyens créés au sein même de cette
-société, le prolétariat doit s'efforcer, dans sa marche en À æ
+société, le prolétariat doit s'efforcer, dans sa marche en À
 avant vers la victoire, d'influencer tous les événements ; A
 “Het dans le sens qui lui est favorable. Il doit tâcher Es ‘Æ
 
@@ -550,7 +550,7 @@ our ce qui est de l'affair. li * %
 ventiô de l'affaire Dreyfus en particulier, l'inter- n ?
 ventiôn du prolétariat dans ce cas n'a besoi ä FF. Nate
 justifiée ni de ce point de vue géné esoin pour être le”. es
-bomgeoit; ni du Doft-de me seal au sujet de conflits . 5 ÿ
+bomgeoit; ni du Doft-de me seal au sujet de conflits
 pour la société, Car dans le cas Dre Fab de l'humanité
 quatre facteurs sociaux ait li Fe us se sont manifestés
 
@@ -564,8 +564,8 @@ parole et la Plume en vertu et de gi tion générale par pe
 f nos principes et de nos He
 
 (f] donc de ne pas entrer en latte one nPréHensible sérait-il
-Hi gissait de les démasquer, non Pas en tant que abs si s'a: 1
-sx “A se servant des Vivants événements du jour! : ê
+Hi gissait de les démasquer, non Pas en tant que abs si s'a:
+sx “A se servant des Vivants événements du jour!
 Participation méme des socialistes au mouvement Li
 fi provoqué par l'affaire Dreyfus ne Peut donc faire aucun
 1h doute au point de vue de la lutte de classe, Il ne peut donc
@@ -607,14 +607,14 @@ lutte de classe, les enseignements de aura saisi la fr: à
 lorsque l'ensemble des ne our la cause du prolétariat.
 portée de cet événement Socla P nt dite de l'affaire Dreyfus
 L'importance politique propreme À nous ex 08: dE i se
-pendant de longues années par la propagande a ste La i
+pendant de longues années par la propagande a ste La
 ee cela que ce mouvement a entraîné dans son
 courant irrésistible les socialistes de plusieurs organisations.
 Et si le mouvement dreyfusard a provoqué dans ‘les rangs +4
-socialistes une forte répulsion, cela vient, selon nous, du : À L
+socialistes une forte répulsion, cela vient, selon nous, du : À
 sentiment vrai, quoique instinctif, que tout grand mouvement spontané de classe du prolétariat français ne s'arrête nn
 pas devant les limites des différentes organisations et
-menace de les balayer. Mais c'est à cause de cela, précisé- : L
+menace de les balayer. Mais c'est à cause de cela, précisé-
 ment, que la réunion des forces éparpillées du socialisme E À
 français est apparue comme la condition préalable de toute ti
 action large et énergique. Et nous, personnellement, nous nn
@@ -626,7 +626,7 @@ racine en France, Il n'y a pas pour la Démocratie Socialiste 4 ui
 de meilleure école que la grande et vivante lutte de classe
 délivrée des clichés abstraits. La conception matérialiste à 2 À
 de l'histoire ne nous Permet pas ici non plus de croire au
-Et AE d'un mouvement populaire vivant, engendré TES : > 7
+Et AE d'un mouvement populaire vivant, engendré TES : >
 embrassant tout le re sp . ins dde
 
 den Den nonnale de non deiiton — Soit comme
@@ -638,19 +638,19 @@ Il y pose la question clairement et nes Fe ee
 socialiste peut-il dans un temps de crise pie . +.
 ! temps déterminé répondre à l'appel des partis Fi
 geois ets associer à eux pour un acte gouvernemental? »
-l ll dit ensuite, en se référant à un article de nous 1.
+l ll dit ensuite, en se référant à un article de nous
 paru dans la Leipsiger Volksseitung — 6 juillet — dans
 lequel nous aussi nous ne reconnaissions comme admis-
 sible l'entrée d'un socialiste dans le gouvernement que
 i dans les cas absolument exceptionnels, mais doutions ‘4
-France : « C'est là une question de fait » (et non de prin- 1P
+France : « C'est là une question de fait » (et non de prin-
 cipe). Si on pose la question de cette façon, si on n'en-
 visage qu'une œuvre déterminée, alors ce serait vrai-
 ment du doctrinarisme étroit que d'opposer un non
 catégorique aux exigences du moment et aux complicaLe tions de la situation.
 hi Alors dans le cas Millerand, la question se ramèneraità ‘©
 his. savoir si la situation donnée en France rendait vraiment
-de. nécessaire l'entrée d'un socialiste dans le ministère. Ici, ne l
+de. nécessaire l'entrée d'un socialiste dans le ministère. Ici, ne
 Le D peuvent entrer en considération les conditions de fait que
 SON © les camarades français sont seuls capables de juger. Mais
 f A dans la mesure où il est permis à une personne du dehors
@@ -669,31 +669,31 @@ les institutions et “apte les pouvoirs sans 56 HE
 laisser absorber par la société bourgeoise. » : LAN
 Avec cela nous accepterions en principe la pénétration hi
 dans le gouvernement comme l'un des nombreux moyens Ë #1
-de l'action socialiste, mais cela n'est pas en harmonie avec} “a f
-le caractère essentiel du socialisme. Les points de vue qui 1 6
+de l'action socialiste, mais cela n'est pas en harmonie avec} “a
+le caractère essentiel du socialisme. Les points de vue qui
 d'après nous doivent servir de guides, nous les avons dé- CE
-veloppés dans l'article du 6 juillet cité plus haut — traduit + 4
+veloppés dans l'article du 6 juillet cité plus haut — traduit +
 dans le Mouvement Socialiste, numéro 14 (2) — etnous ne tr
 pouvons ici que nous limiter à l'essentiel. à
 L'unique méthode à l'aide de laquelle nous puissions
-atteindre la réalisation du socialisme est la lutte de classe. 1 4
+atteindre la réalisation du socialisme est la lutte de classe.
 Nous pouvons et nous devons pénétrer dans toutes les in- LE
-stitutions de la société bourgeoise et utiliser tous les événe- : i
+stitutions de la société bourgeoise et utiliser tous les événe-
 ments qui s'y passent et qui permettent de mener la lutte &'E
 de classe. C'est à ce point de vue que la participation à l'af- &
 faire Dreyfus était imposée pour les socialistes par l'ésprit ne
 de conservation. Mais c'est précisément à ce point de vue
 aussi que la participation au pouvoir bourgeois parait
-contre-indiquée, car la nature même du gouvernement bour- x
+contre-indiquée, car la nature même du gouvernement bour-
 ie en exclut la possibilité de la lutte de classe socialiste
 e n'est pas que nous craignions pour les sociali ; à
 ï ialistes les 2 "Toi"
-dangers et les difficultés de l'activité ministérielle : nous ne ne \ J
+dangers et les difficultés de l'activité ministérielle : nous ne ne \
 devons reculer devant aucun danger ‘et aucune difficulté \ Fe S ne"
-produisons plus Lies We GAL pie) de Jaurès. Nous le re- ”, 3
-donné sur la préparation du Congrès Ssons par là que nous avons , a: s!
+produisons plus Lies We GAL pie) de Jaurès. Nous le re- ”,
+donné sur la préparation du Congrès Ssons par là que nous avons , a:
 « renseignements en excès, comme D des documents et des
-peu nombreux, nous | ont éiea de nos lecteurs, d'ailleurs F5
+peu nombreux, nous | ont éiea de nos lecteurs, d'ailleurs
 le Mouvement Socialiste Fe Quetor de Tactique : Le cas Millerand
 traduit par le cit Premier août 1899, numéro 14 ? cl
 burg, para dans he Lan ere l'article de la citoyenne Roëa Lunent”
@@ -704,18 +704,18 @@ ere n'est pas, d' Fe
 l un champ d'action pour un er ri façon générale, à
 nest pas déterminé par le En tè 'rement bourgeois
 membres, mais Par sa fonction és on
-bourgeoise, Le 8ouvernement de l'État PA cho e
+bourgeoise, Le 8ouvernement de l'État PA cho
 { tiellement une organisation de dirai 1. Pei eétene
 Le i la fonction réguliè Se asse dont
 ! cre est une des conditions dexi
 ss l'État de classe, Avec l'entrée d'un socialisté dans le
-: Renan la domination de classe continuant à exister, E.
+: Renan la domination de classe continuant à exister,
 € gouvernement bourgeois ne se transforme pas en un
 |} gouv ernement socialiste, mais un socialiste se transforme
 en un ministre bourgeois, Les réformes sociales qu'un mi-
 nistre ami des ouvriers peut réaliser n'ont en elles-mêmes
 rien de socialistes, elles ne sont socialistes qu'en tant qu'elles
-ont été obtenues par la lutte de classe, Mais venant d'un mi- L
+ont été obtenues par la lutte de classe, Mais venant d'un mi-
 nistre, les réformes sociales ne peuvent pas avoir le carac-
 tère de classe prolétarien, mais uniquement le caractère de
 classe bourgeois, car le ministre, par le poste qu'il occupe, :}
@@ -733,16 +733,16 @@ su | l'article de Jaurès auquel Rosa Luxemburg . reIen
 ne de dans sa réponse à la consultation internationalé:.
 J'ai appris hier, par une lettre d pee he .
 ques-uns de nos camarades socialis
-paient texte du discours que jai prononcé Mai j
-à Toulouse sur la coopération pour m'accuser 2 : l
+paient texte du discours que jai prononcé Mai
+à Toulouse sur la coopération pour m'accuser
 rdllier « à la tactique bourgeoise ». Je préviens no (i
-camarades qu'en jugeant ma pensée sur une phrase k
+camarades qu'en jugeant ma pensée sur une phrase
 isolée d'un très bref compte rendu télégraphique, ils Æt
 s'exposeraient à de très graves erreurs. J us recom- ni: LE
 mandé aux ouvriers français d'imiter les ouvriers belges
 qui ont fondé de grandes coopératives de conso il
-‘ tion et qui affectent une partie des bénéfices, soit à une f
-œuvre d'intérêt ouvrier commun, comme la Maison du 1 l
+‘ tion et qui affectent une partie des bénéfices, soit à une
+œuvre d'intérêt ouvrier commun, comme la Maison du
 Peuple de Bruxelles, soit à la propagande socialiste. f :
 Et j'ai dit, je ne.cesserai de redire qu'en notre pays
 d'individualisme paysan, les coopératives de consom-
@@ -752,10 +752,10 @@ de culture scientifique, et pour y assurer aux travailleurs 4 à
 agricoles des conditions de bien-être et de dignité qui .… ET
 dissipent un peu leurs pesants préjugés contre le com- 28 à
 munisme, — Mais j'ai rappelé, comme le font toujours Aa
-les vrais socialistes, que la coopération, même très e.
+les vrais socialistes, que la coopération, même très
 Sante, 0 peut être pour la classe ouvrière qu'un 3)
-nus Nrnai € pouvoir tout entier et en Pr. Ds T8
-Mais ce qui ést vrai, © Sr ; 2e
+nus Nrnai € pouvoir tout entier et en Pr. Ds
+Mais ce qui ést vrai, © Sr
 S #Pproprier tous les pouvoirs sans s sx et er a
 par la société bourgeoise. + “Msser absorber
 
@@ -786,12 +786,12 @@ quête des mandats législatifs e pot de
 j pr que par là le socialisme à subi une déchéance Ah
 
 clamé à la tribune du Parlement ie nue Fe
-toute bataille, le droit souverain du Pr0 À ï
-Pie ue bien que quelques-uns, sefrayant Mae 4 f
+toute bataille, le droit souverain du Pr0 À
+Pie ue bien que quelques-uns, sefrayant Mae
 cet agrandissement de l'action socialiste, parlaient o à ff
 de « déviations et de compromissions ». Ils opposaien
 Et nous, nous répondons que ces distinctions su id
-vaines, que ces oppositions sont factices, qu'en réalité + È
+vaines, que ces oppositions sont factices, qu'en réalité +
 la Révolution doit être présente partout, parce qu'elle
 Maintenant on a renoncé. à opposer le socialisme
 socialisme électoral ou socialisme parlementaire. On y
@@ -801,7 +801,7 @@ et pénétré le syndicat, la coopération, le suffrage uni- A
 versel, le Parlement. Fe
 Mais on parle aujourd'hui avec scandale du socialisme
 « ministériel » parce qu'un socialiste est entré dans un Fe .
-ministère bourgeois. De même, quelques jours avant, D
+ministère bourgeois. De même, quelques jours avant,
 quand, dans la belle journée militante et triomphante 7 Ve
 de Longchamp, les socialistes, Vaillant en tête, accla- RE À —
 mérent la République et son président outragés par la RSR Le
@@ -810,7 +810,7 @@ plus d'éclat. PEUR Ce Paris ne se manifesta avec ni
 Ah! que toutes ces chicanes sont vaines! et comme
 - © la première sers
 sh aps ne de la Révolution ellemême
-_Guesde, dans sa lettre explicative au Parti ouvrier.‘ 4
+_Guesde, dans sa lettre explicative au Parti ouvrier.‘
 dit : « La différence est grande. Quand nos élus entrent
 EE Parlement, dans les municipalités, c'est la classe
 ouvrière elle-même qui force la porte. La porte s'ouvre
@@ -821,7 +821,7 @@ Ce sont là d'ingénieuses et vaines distinctions.
 En réalité, si la classe bourgeoise était réduite, dans pu:
 l'avenir, à appeler dans ses ministères des élus
 socialistes, c'est que la classe ouvrière aurait conquis
-un tel ascendant politique et social que, même en i
+un tel ascendant politique et social que, même en
 régime bourgeois, le gouvernement ne pourrait ‘fonc-
 tionner sans elle. C'est bien la classe ouvrière qui ,
 aurait alors forcé la porte, même si, par politesse, elle
@@ -830,14 +830,14 @@ je. paraître l'ouvrir. ns
 à \ Et je demande à Guesde: lorsqu'une municipalité
 socialiste ne s'installe que grâce à l'appoint des voix
 a/'A. radicales, si la classe bourgeoise né Pe aidé au:noN
-} vement de la porte. Dans ces municipalités mixtes; for- î
+} vement de la porte. Dans ces municipalités mixtes; for-
 mées de socialistes révolutionnaires et de de { » te Er bourgeois, la porte a été tout à la fois poussée du dehors -
 4 : Mais je ne veux pas m'arrêter davantage Re Me
 de serrurerie. Et je dis qu'à mon sens n08 MÉMT
 
 Fe de posent mal la ques- il
 cateurs et amis Vaillant et Guesde p il !
-Fi A n'est pas d'interdire au socialisme Se \ E j
+Fi A n'est pas d'interdire au socialisme Se \
 tionnaire tel ou tel ra à i caractère de
 que partout où il pénètre, il gare sn é exerce un Er
 classe. L'essentiel, c'est que le parti 0rganis fe de ses'
@@ -846,25 +846,25 @@ Oui, ily a péril de déviation et de corpromission
 dans l'action électorale. Ce n'est pas une raison De : Li
 interdire aux socialistes l'action électorale; mais ü bs
 faut la soumettre au contrôle du parti unifié afin
-qu'aucun candidat ne puisse, sous le nom usurpé de + 4
+qu'aucun candidat ne puisse, sous le nom usurpé de +
 socialisme, glisser en contrebande des idées bour- dE !
-Oui, il peut y avoir déviation et compromission dans x
+Oui, il peut y avoir déviation et compromission dans
 l'action parlementaire. Ce n'est pas une raison pour
 interdire aux socialistes le Parlement, — mais il faut Dh
 soumettre tous les ans au contrôle du Parti unifié et :.HÈ
 organisé l'action parlementaire des élus.
 dans la participation directe d'un socialiste à un minis-
-tère bourgeois. Le péril est même là bien plus grand, È
-précisément parce que là est la force centrale de la  , r
-PAIAnee bourgeoise et que, comme une roue animée r € a s,
+tère bourgeois. Le péril est même là bien plus grand,
+précisément parce que là est la force centrale de la
+PAIAnee bourgeoise et que, comme une roue animée r € a
 d un mouvement violent, elle peut entraîner, rejeter ou *:. Je
-Re tout ce qui ne se meut pas dans le même sens & De © è
+Re tout ce qui ne se meut pas dans le même sens & De ©
 al: ?, n ; Æ8 « ne m'est pas une raison pour refuser en tout
 et a priori toute participation d'un élu socialiste ML. 2 -
 geois. C'est une raison suprême
 Organiser et unifier | i nez
 er le Parti, afin qu'il contrôl
-délégué gouvernemental et qu'il impri Mae 5:
+délégué gouvernemental et qu'il impri Mae
 qu'il imprime son carac- ea
 
 geois. ? ME À celle parcelle de Pouvoir bour.
@@ -898,20 +898,20 @@ propriation de la bourgeoisie au profit de la commu- on
 norité. Dès lors ou bien ces programmes ne sont qu'une “14l
 illusion ou Guesde et Vaillant comptent, pour les réa- 78 4 !
 liser, sur l'action combinée de la minorité socialiste, L :
-qui, seule, serait impuissante, et d'une fraction de la ; Î
-bourgeoisie. Voilà le véritable appel à la classe bour- . ( i
+qui, seule, serait impuissante, et d'une fraction de la
+bourgeoisie. Voilà le véritable appel à la classe bour- . (
 Je défie Vaillant et Guesde de dire comment ils réali-
 seront la journée de huit heures. Ce n'est point par la Se +.
 Révolution, qui ira bien au delà. La journée de huit ‘es ne
-heures est, comme l'a proclamé Marx, la réforme la Le 4i h
+heures est, comme l'a proclamé Marx, la réforme la Le
 plus féconde que comporte le régime bourgeois. Mais _Ns
-c'est une réforme de régime bourgeois et qui ne sera 4 Î
+c'est une réforme de régime bourgeois et qui ne sera
 accomplie que par une collaboration partielle de la
 Promulguer un programme de transiti : 1 Faut
 se ansition, c'est donc »,: CNT
 solliciter publiquement, officiellement, au nom du socia- . F Fes
 concours d'une partie des éléments bourgeois.
-n que le socialisme cesse par là d'être révolu- Ÿ
+n que le socialisme cesse par là d'être révolu-
 tionnaire ? Ce serait une erreur absolue. Mai 4 2 à
 deviennent alors les reproches de déviati + Mais que ne.
 
@@ -928,12 +928,12 @@ et quand même un parti d'opposition, ne faisant añcune
 { différence entre les divers éléments bourgeois: il fant
 (à qu'ils déchirent leur programme on qu'il déchirent leur
 
-ee Ce cahier a été composé par adm, 9, rue du Pont — 250
+ee Ce cahier a été composé par adm, 9, rue du Pont
 
 respondants le LE)
 Toutes les _Jois A torisent nous les mettons en
 désirent et nous JOUR ous dannons à Chacun
-otion. C'est-à-dire que NOUS 0 C : k
+otion. C'est-à-dire que NOUS
 ce t l'adresse de la personne — qui reçoit Ed « des deux le nom € S QE tre ‘
 L'abonnement pué. — qui pUre l'abon hi
 Nous prions CEUX de nos correspondante eh 2 À
@@ -945,26 +945,26 @@ envoient des documents et des renseignements de vouloir nl
 bien écrire trs lisiblement et d'un seul côté de la page. ji
 Quand leurs études sont d'ensemble et un peu longues, LE À
 ils peuvent les rédiger. Mais toutes les fois qu'ils nous “F4
-envoient des renseignements pour ainsi dire instantanés, He. À É
-mieux vaut nous écrire privément et laisser au citoyen F4 4
+envoient des renseignements pour ainsi dire instantanés, He. À
+mieux vaut nous écrire privément et laisser au citoyen
 rédacteur le soin d'exercer son métier.
-Ces cahiers ne sont jamais vendus séparément. 14 M
+Ces cahiers ne sont jamais vendus séparément.
 Jusqu'au jeudi 23 août inclus, administration et
 na le jeudi seulement, de trois heures à six
 Ds vingt-huit Jours, — l'administration et la Di
-ne ion se feront par correspondance. Adresser toute k
+ne ion se feront par correspondance. Adresser toute
 (0 correspondance à M. Charles Péguy, 19. rue des An
 Nous publions vraiment notre état de situati
 avons tiré le dixième cahier à BAUERON © nous
 tuits et % exemplaires d'a Roue annuels gra- . Pa
-t nous avons fait 6o série Di . entuels : S
+t nous avons fait 6o série Di . entuels
 prions tous c2 Pr
 TOUS Ceux de nos corres
 Fe le rs encore aucune réponse RS qui ne li
 en le faire sans que ‘ l'eponse ferme .
-nous avons encarté 9.08 listes définiti : È 157
+nous avons encarté 9.08 listes définiti
 enCarté dans le dixià ‘Jinitives. À cet eff
-et des for. NS le dixième cahier 2 effet f
+et des for. NS le dixième cahier 2 effet
 tre toutes prêtes. ‘ahier une enveloppe
 ne & loujours été enten
 abon ne l'engageait mora lement à pa Le nent d'un.
@@ -987,7 +987,7 @@ toute latitude à ceux de nos abonnés. fermes qui ne}
 sont pas riches, nous sommes autorisés “moralement
 demander une certaine exactitude à ceux de nos
 abonnés fermes qui ne sont pas tout à fait pauvres.
-Nous prions instamment ceux de nos abonnés qui ne: M
+Nous prions instamment ceux de nos abonnés qui ne:
 quittent leur habituelle résidence que pour Ja durée des
 vacances de vouloir bien re nous demander “aucun:
 changement d'adresse. Qu'ils donnent les ins ructions
@@ -1006,5 +1006,5 @@ pendant les vacances des tete de ei
 Nous avons donné le one si rs mardi 3 juillé
 onsième cahier, -pour Link es donné le bon à Hrenæele
 Û À rimeurs ont eux-mêmes ( Es
-les imp le mercredi 4.
+les imp le mercredi
 la couverture. ter a

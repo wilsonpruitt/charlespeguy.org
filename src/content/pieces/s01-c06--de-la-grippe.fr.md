@@ -32,7 +32,7 @@ l'espérer. Mes parents et mes amis le désiraient, le
 voulaient, et plusieurs l'espéraient. J'étais d'accord avec
 eux là-dessus. Le médecin aussi le voulait. Enfin je suis
 assuré que tous mes adversaires le désiraient sincèrement et je crois que la plupart de mes ennemis ne le & f)
-désiraient pas moins. 4 L C
+désiraient pas moins.
 — Voilà beaucoup d'accords. Voulez-vous que je .
 commence par vous ?
 — Je vous dirai que je serai sans doute embarrassé
@@ -64,9 +64,9 @@ comme il convient à un convalescent. Pour quelles raisons vouliez-vous échappe
 
 je savais que ma mort causerait une épouvantable souffrance à quelques-uns, une grande souffrance à plusieurs, (34
 une souflrance à beaucoup. '
-— Bien. Nous sommes ainsi reconduits de la consi- 1Ë
+— Bien. Nous sommes ainsi reconduits de la consi-
 — J'aurais eu de la peine réciproquement si je m'étais
-représenté que la mort consistait sans doute à quitter l
+représenté que la mort consistait sans doute à quitter
 les survivants. Mais je n'arrivais pas à me donner cette
 
 — C'est un défaut de l'imagination.
@@ -74,7 +74,7 @@ les survivants. Mais je n'arrivais pas à me donner cette
 — Je pensais très vivement au contraire que je
 laisserais inachevées plusieurs entreprises que jai
 commencées, un livre que j'ai commencé, plusieurs ei
-livres que j'espérais commencer, continuer et finir, ces Ÿ
+livres que j'espérais commencer, continuer et finir, ces
 cahiers mêmes, essayés au moins pour un an, où vous
 savez que je mets tous mes soins.
 — Cela prouve, citoyen convalescent, que vous vous
@@ -319,7 +319,7 @@ rience de l'univers se fait sur l'infini des mondes. »
 proprement un charme. Il faudrait le rompre. Il faudrait
 lire du commencement à la fin, mot par mot, puis phrase
 à phrase, puis dialogue à dialogue, puis d'ensemble, et
-à tous les degrés on commenterait et on critiquerait cet k
+à tous les degrés on commenterait et on critiquerait cet
 admirable texte comme un texte ancien. Au peu que
 vous m'avez cité, docteur, que de commentaires et que
 de critiques ! Sous l'apparente humilité de la forme,
@@ -425,7 +425,7 @@ hommes; le salut se fera par des grands hommes.
 L'œuvre du Messie, du libérateur, c'est un homme, non
 une masse qui l'accomplira. On est injuste pour les
 pays qui, comme la France, ne produisent que de
-l'exquis, qui fabriquent de la dentelle, non de la toile r
+l'exquis, qui fabriquent de la dentelle, non de la toile
 de ménage. Ce sont ces pays-là qui servent le plus au
 progrès. L'essentiel est moins de produire des masses
 éclairées que de produire de grands génies et un public
@@ -544,7 +544,7 @@ bres théologiques, nous n'en sommes pas encore tout
 fait sortis. Ou pour mieux dire, dans la marche inégale
 et lente de la famille humaine, quand déjà la tête de la
 caravane est entrée dans les régions lumineuses de la
-science, le reste se traîne encore sous les nuées épaisses t
+science, le reste se traîne encore sous les nuées épaisses
 de la superstition, dans des contrées obscures, pleines
 de larves et de spectres.
 
@@ -883,7 +883,7 @@ qu'elle était sérieuse. Quand je fus devenu grand je lai
 à peu près entendue. Elle est simple. C'était une pauvre
 femme, une assez vieille dame, riche, mariée à un officier de l'Empire, qui vivait en retraite, un pur voyou,
 comme il y en avait tant parmi les officiers de l'Empire
-La malheureuse était tombée dans la dévotion. Quand k
+La malheureuse était tombée dans la dévotion. Quand
 je dis tombée, je cède à l'habitude, car je ne sais nullement si elle en fut remontée ou descendue. Elle devint
 en proie aux bons Pères, comme on les nommait, qui
 avaient une petite chapelle dans le faubourg.
@@ -944,7 +944,7 @@ il convient, rigoureusement exacte. Avez-vous cette
 petite édition des Pensées où vous avez lu le texte?
 Merci. Vie de Blaise Pascal, par madame Perier (Gilberte Pascal), sœur aînée de Pascal, —
 
-— Histoire un peu favorable — F
+— Histoire un peu favorable
 
 — Histoire où transparaît la piété fraternelle, presque
 
@@ -1139,7 +1139,7 @@ force d'esprit et un grand courage, il endurait ses douleurs avec une patience a
 de se lever tous les jours et de prendre lui-même ses
 remèdes, sans vouloir souffrir qu'on lui rendit le moindre service. Les médecins qui le traitaient voyaient que
 
-ses douleurs étaient considérables; mais parce qu'il f
+ses douleurs étaient considérables; mais parce qu'il
 avait le pouls fort bon, sans aucune altération ni appa-
 rence de fièvre, ils assuraient qu'il n'y avait aucun péril,
 se servant même de ces mots : Il n'y a pas la moindre
@@ -1376,8 +1376,8 @@ son conseil central.
 Député de la circonscription de West-Ham à la Chambre des com-
 
 munes, Keir Hardie fut battu aux élections de 1895 par une coalition
-scandaleuse des conservateurs et des radicaux. e : F
-Keir Hardie, qui est comme Tom Mann un ancien ouvrier manuel, J
+scandaleuse des conservateurs et des radicaux.
+Keir Hardie, qui est comme Tom Mann un ancien ouvrier manuel,
 vit à Glasgow, en Écosse, où il dirige l'organe central de son parti,
 Je viens de recevoir votre lettre et je regrette d'être obligé
 de vous envoyer ma réponse en anglais, mais le citoyen qui
@@ -1385,14 +1385,14 @@ est chargé des traductions par notre parti est actuellement
 Je veux avant tout vous dire que je crois qu'il est impossible à quelqu'un vivant en Angleterre de condamner ou
 d'approuver complètement l'action d'un camarade du parti
 en France, car dans chacun des deux cas que vous me soumettez, l'on doit juger d'après les circonstances. Ces réserves
-faites, je réponds. Ÿ
+faites, je réponds.
 Il n'est pas à souhaiter que le parti socialiste se confonde
-avec les partis bourgeois, là où on peut l'éviter. C'est pour k
-cela que l'Independent Labour Party (Parti Ouvrier Indé- x
-pendant) d'Angleterre se tient strictement à l'écart des partis politiques vulgaires. Pour la même raison, le programme e
+avec les partis bourgeois, là où on peut l'éviter. C'est pour
+cela que l'Independent Labour Party (Parti Ouvrier Indé-
+pendant) d'Angleterre se tient strictement à l'écart des partis politiques vulgaires. Pour la même raison, le programme
 du Parti ne contient aucune réforme purement politique, ;
 mais s'occupe exclusivement de réformes économiques et
-Mais aussi nous ne pouvons pas oublier ce fait qu'un so- k
+Mais aussi nous ne pouvons pas oublier ce fait qu'un so-
 cialiste est un homme et un citoyen et que des occasions
 peuvent se présenter à propos desquelles il est obligé de
 faire connaître ses opinions et d'agir, même lorsqu'en ce

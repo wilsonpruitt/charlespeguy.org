@@ -13,7 +13,7 @@ M Du paraissant vingt fois par an Nr -
 Nous avons publié dans nos éditions antérieures et #
 dans nos cinq premières séries, 1900-1904, un Si FE
 grand nombre de cahiers de lettres, — nouvelles, ,
-romans, drames, dialogues, poèmes et contes : — un si F
+romans, drames, dialogues, poèmes et contes : — un si
 grand nombre de cahiers d'histoire et de philosophie ;
 et ces cahiers de lettres, d'histoire et de philosophie |
 : étaient si considérables que nous ne pouvons pas songer ;
@@ -21,30 +21,30 @@ et ces cahiers de lettres, d'histoire et de philosophie |
 savoir ce qui a paru dans les cinq premières séries des
 cahiers, il suffit d'envoyer un mandat de cing francs à
 M. André Bourgeois, administrateur des cahiers, 8,rue
-de la Sorbonne, rez-de-chaussée, Paris, cinquième 3
-arrondissement; on recevra en retour le catalogue 1
-analytique sommaire, 1900-190/, de nos cinq premières séries. 4
+de la Sorbonne, rez-de-chaussée, Paris, cinquième
+arrondissement; on recevra en retour le catalogue
+analytique sommaire, 1900-190/, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner, :
 autant qu'il se pouvait, une image en bref. un raccourci, ni
 une idée, abrégée, mais complète, de nos éditions anté- #
-rieures et de nos cinq premières séries ; tout y est classé j
-dans l'ordre ; il suffit de le lire pour trouver, à leur É
-place, les références demandées. x
+rieures et de nos cinq premières séries ; tout y est classé
+dans l'ordre ; il suffit de le lire pour trouver, à leur
+place, les références demandées.
 Ce catalogue, in-18 grand jésus, forme un cahier <
-très épais de XI1+/08 pages très denses, marqué cinq 5
-francs ; ce cahier comptait comme premier cahier de la 74
-sixième série et nos abonnés l'ont reçu à sa date, le 2
+très épais de XI1+/08 pages très denses, marqué cinq
+francs ; ce cahier comptait comme premier cahier de la
+sixième série et nos abonnés l'ont reçu à sa date, le
 2 octobre, comme premier cahier de la sixième série; *
 toute personne qui s'abonne à la sixième série Le reçoit,
-par le fait même de son abonnement, en tête de la 4
-série ; nous l'envoyons contre un mandat de cinq francs 4
+par le fait même de son abonnement, en tête de la
+série ; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande
 
 _ Je vois qu'il faut que les auteurs pour qui je travaille
 _ comme gérant me pardonnent beaucoup ces quinZ aines-Ci ; je n'ai déjà pas fait le cahier de la délation
 aux Droits de l'Homme ainsi que Bouglé se le repré-
 _ sentait ; et voici qu'aujourd'hui je manque de parole à
-_ notre nouveau collaborateur Brenn. j
+_ notre nouveau collaborateur Brenn.
 _ Il navait demandé de présenter Yves Madec au public
 de s cahiers ; je le lui avais promis formellement; je suis
 hors d'état de tenir ma promesse. ;
@@ -61,7 +61,7 @@ de l'Homme et du Citoyen, de la vie universitaire, du
 primaire et du secondaire, enfin de toutes les questions
 qui sont traitées dans ce roman. )
 C'était un commentaire infini; je ne suis pas en me- ;
-sure de le commencer même; les cahiers précédents, 4
+sure de le commencer même; les cahiers précédents,
 $ qui étaient considérables, et celui-ci, qui est encore |
 plus considérable, m'ont donné beaucoup de retard ; je :
 prévois que la fin de la série ne sera pas moins lourde; |
@@ -69,17 +69,17 @@ je vois venir incontinent six cahiers énormes; je me
 vois à la tête de quinze ou dix-huit cents pages
 d'épreuves, comme on les nomme, à corriger ; si donc |
 on me le permet, nous allons profiter de ce que ces
-quinze ou dix-huit cents pages m'interdisent d'écrire un É
-peu pleinement pendant trois mois pour mettre au pair 1
+quinze ou dix-huit cents pages m'interdisent d'écrire un
+peu pleinement pendant trois mois pour mettre au pair
 un certain nombre de travaux qui restaient en souf- ;
-Demandant à nos abonnés comme auteur ce congé de F:
+Demandant à nos abonnés comme auteur ce congé de
 trois mois, je pourrai consacrer entièrement ces trois à
 mois aux devoirs de ma gérance; il faut que j'assure la . À
-fabrication de cahiers énormes; je vais essayer de ÿ
-mettre au pair mon courrier, qui a un retard énorme, i
+fabrication de cahiers énormes; je vais essayer de
+mettre au pair mon courrier, qui a un retard énorme,
 mes correspondants le savent; enfin le temps est venu de |
-procéder à une réinstallation, à l'installation définitive È
-de nos cahiers. 1
+procéder à une réinstallation, à l'installation définitive
+de nos cahiers.
 Pendant le commencement de cette sixième série {
 
 même, et sans qu'il en soit résulté aucun dommage pour
@@ -170,24 +170,24 @@ térielle, si longtemps attendue, venait enfin de le délivrer à jamais du dort
 il avait été répétiteur dans trois lycées : il avait
 compté environ trois cents nuits de dortoir par an, et
 
-une moyenne, par an, de soixante-dix promenades. Il i
-revivait ces trois années par la pensée. Il revisitait les 1
+une moyenne, par an, de soixante-dix promenades. Il
+revivait ces trois années par la pensée. Il revisitait les
 trois « Boîtes ». — Boissy, d'abord, où le censeur lui avait ;
 reproché, comme une faute, d'avoir une discipline trop |
 personnelle, toute d'autorité morale : ;
 
-— Oui, monsieur ! vous faites là de bel ouvrage ! Et È
+— Oui, monsieur ! vous faites là de bel ouvrage ! Et
 vous pouvez vous vanter qu'on ne vous remplacera |
-pas ! avait grasseyé le gros homme, dans sa fureur. k
+pas ! avait grasseyé le gros homme, dans sa fureur.
 
 C'est là qu'il avait connu Toiron, bi-licencié de sciences,
-dix-sept ans de service, dont une douzaine de dortoirs, 4
-l'homme à la barbe baveuse, aux yeux et au cerveau 3
-noyés d'ivresse. Mais là aussi il avait rencontré ce frère 4
+dix-sept ans de service, dont une douzaine de dortoirs,
+l'homme à la barbe baveuse, aux yeux et au cerveau
+noyés d'ivresse. Mais là aussi il avait rencontré ce frère
 d'âme, Hoiste, l'ardent révolutionnaire, au beau visage +
 blond, aux yeux de divin songe, qui sans cesse donnait
 tout de lui, si doux envers les petits, si fier devant ses
-supérieurs hiérarchiques. Là aussi il avait connu l'ex- 1
+supérieurs hiérarchiques. Là aussi il avait connu l'ex-
 cellent Devaiges, au bon visage toujours épanoui, à la
 belle humeur généreuse, qui, aux heures où Madec
 avait le cœur déchiré encore entre le vieux mysticisme
@@ -236,33 +236,33 @@ _ ‘Trois ou quatre fois il en avait parlé au proviseur. Il
 
 les avait montrés tous deux assis l'un près de l'autre À
 sur une même pierre, dans la cour de récréation, objet à
-de scandale, de rires, de chuchotements pour les ca- Ë
+de scandale, de rires, de chuchotements pour les ca-
 marades. Monsieur le proviseur n'avait jamais osé “4
 intervenir, et Madec avait dû tolérer le spectacle de “4
-cette ignominie chaque heure de sa vie, durant toute b.
-une anpée. 4
+cette ignominie chaque heure de sa vie, durant toute
+une anpée.
 Mais son plus hideux souvenir était celui qui lui restait de Bourdes. Là c'était l'enfer vraiment et son cœur y
-avait saigné comme au martyre. Plus d'un millier L
+avait saigné comme au martyre. Plus d'un millier
 d'élèves, dans une immense maison, où, à vrai dire, ne }
-manquait ni l'air, ni la lumière. Mais dix-huit études de 4
-quarante élèves; mais douze dortoirs; mais vingt-neuf 1
+manquait ni l'air, ni la lumière. Mais dix-huit études de
+quarante élèves; mais douze dortoirs; mais vingt-neuf
 répétiteurs ! Vingt-neuf répétiteurs, tous égaux hiérar
-chiquement, — et cependant sitraîtreusement pourvus de M
-services inégaux, qu'aucun d'eux ne pouvait se mouvoir L
-sans déranger l'harmonie savante et perverse de l'en- L
-semble et mettre tous les autres contre lui. Vingt-neuf È
-répétiteurs, dont les uns jouissaient à ce point des faveurs de l'administration, qu'ils étaient presque con- 4
-stamment exempts de service. Ils ne paraissaient que E
-deux, trois heures au lycée, on eût dit pour simplement 4
+chiquement, — et cependant sitraîtreusement pourvus de
+services inégaux, qu'aucun d'eux ne pouvait se mouvoir
+sans déranger l'harmonie savante et perverse de l'en-
+semble et mettre tous les autres contre lui. Vingt-neuf
+répétiteurs, dont les uns jouissaient à ce point des faveurs de l'administration, qu'ils étaient presque con-
+stamment exempts de service. Ils ne paraissaient que
+deux, trois heures au lycée, on eût dit pour simplement
 épier leurs collègues... Et d'autres n'avaient point le |
-nombre réglementaire d'heures de liberté; ou bien ces 4
+nombre réglementaire d'heures de liberté; ou bien ces
 heures étaient si menu-hachées, par le service, qu'il
-n'en restait que des minutes ajoutées à des minutes : le ù,
+n'en restait que des minutes ajoutées à des minutes : le
 dortoir, de huit heures du soir au matin, et huit heures ;
 d'études, surveillance ou cour, dans la journée. Il ne ;
 pouvait sans écœurement se rappeler les scènes du ré-
-fectoire des maîtres. De onze heures à une heure, dans 1
-la salle étroite, à deux tables parallèles, des répéti- 1
+fectoire des maîtres. De onze heures à une heure, dans
+la salle étroite, à deux tables parallèles, des répéti-
 teurs entraient, par groupes de quatre, cinq, claquant |
 
 la porte, hurlant, flanquant les chaises à terre, à coups
@@ -307,29 +307,29 @@ s lait, brisant assiettes, verres, bouteilles, répandant le
 
 “ vinet l'eau, dans un charivari épouvantable, au milieu
 
-de cris féroces. Parfois le censeur, grand, gros, rouge, 4
-le haut de forme sur le front, paraissait, haletant : 3
-— Ignoble ! messieurs. Dégoûtant !.. On appelle le 3
-Et la porte claquait derrière lui. Après un demi- t
+de cris féroces. Parfois le censeur, grand, gros, rouge,
+le haut de forme sur le front, paraissait, haletant
+— Ignoble ! messieurs. Dégoûtant !.. On appelle le
+Et la porte claquait derrière lui. Après un demi-
 silence, les hüurlements recommençaient : |
-— Brute ! Va donc, eh ! jésuite ! F
+— Brute ! Va donc, eh ! jésuite !
 C'était toute leur rancœur contre l'imbécile métier, \
 tout leur chagrin d'hommes quotidiennement humiliés |
 par les élèves ou les supérieurs, contrariés dans leurs |
 aspirations, leurs besoins les plus naturels, les plus {
-humains, qui se soulageaient ainsi ! 4
-Un seul collègue encore, — mais ses élèves surtout, — 4
+humains, qui se soulageaient ainsi !
+Un seul collègue encore, — mais ses élèves surtout,
 avaient été sa consolation. Il avait une étude de trente
 cinq « grands ». Philosophes, vétérans pour Normale- à
-Le proviseur l'avait prévenu que c'était « une collec- 3
-tion de mauvaises têtes ! » Yves y était entré anxieux. 4
-Plus tard il avait compris ce que M. le Proviseur vou- l
-lait dire : l'Affaire avait influencé ces jeunes cerveaux. i
-Les deux études d'à côté étaient composées de quelque 4
+Le proviseur l'avait prévenu que c'était « une collec-
+tion de mauvaises têtes ! » Yves y était entré anxieux.
+Plus tard il avait compris ce que M. le Proviseur vou-
+lait dire : l'Affaire avait influencé ces jeunes cerveaux.
+Les deux études d'à côté étaient composées de quelque
 vattés, bottés, éperonnés, la cravache à la main, la bou- #
 tonnière fleurie, le monocle à l'œil, on les voyait aller à
-et venir librement dans les couloirs et les cours. Il était L
-clair que le lycée était à eux, pour eux. C'étaient eux 4
+et venir librement dans les couloirs et les cours. Il était
+clair que le lycée était à eux, pour eux. C'étaient eux
 d'abord qu'on conduisait au théâtre, et pour eux qu'on |
 donnait des fêtes, aux anniversaires de batailles glo- A
 rieuses. Ils avaient un répétiteur spécial, particulièrement choyé de l'administration... Quoi d'étonnant à ce
@@ -375,23 +375,23 @@ privilégié. Il ne lui échappait point que la plupart de ses
 nouveaux collègues, — à moins qu'ils ne fussent d'an-
 
 ciens admissibles à l'agrégation, — avaient passé huit,
-dix, et même quinze ans dans le répétitorat avant d'ob- e
+dix, et même quinze ans dans le répétitorat avant d'ob-
 tenir la chaire de collège tant désirée. Lui avait
-débuté comme licencié, dans le répétitorat. Il ne savait 4
+débuté comme licencié, dans le répétitorat. Il ne savait
 donc que par sympathie ce que les rares claires heures |
 
 È de liberté, entre les noires heures de surveillance, recèlent de minutes d'angoisses pour les malheureux qui,
 éloignés de tous cours, de toutes facultés et biblio- à
-thèques, doivent y peiner, se priver d'air et de joie phy- 4
-sique, pour préparer un examen qui les sauve enfin de 4
+thèques, doivent y peiner, se priver d'air et de joie phy-
+sique, pour préparer un examen qui les sauve enfin de
 l'esclavage. Ceux-ci, Yves les comparait à des aveugles
 qui veulent voir, à des sourds qui veulent entendre...Ils .
 vont, tâtonnant, errant, au long des jours. Leurs forces
 s'appauvrissent, leur visage pâlit, leur cerveau s'ané-
 mie, leur caractère s'aigrit. Lentement les années s'é- à
 coulent, emportant les heures libres sacrifiées en vain. à
-Ils arrivent aux examens, stupides, et ils s'en re- F
-tournent, pour recommencer encore. 4
+Ils arrivent aux examens, stupides, et ils s'en re-
+tournent, pour recommencer encore.
 
 En outre Yves n'avait jamais été interne. Il avait (
 suivi, comme externe, les cours du lycée. Sa toute jeu- ;
@@ -402,9 +402,9 @@ de son père loyal et généreux, et de sa mère pleine
 de tendresse. Grâce à cela, il n'avait point l'âme
 boueuse ; grâce à cela il avait gardé quelque fraîcheur ;
 d'imagination et de sens ; et la vision joyeuse dela vie:
-il n'avait pas été abèti dès l'enfance. F
+il n'avait pas été abèti dès l'enfance.
 Sans orgueil, avec pitié, — et non sans indignation
-contre les contingences dont le mal dérivait, — Yves l
+contre les contingences dont le mal dérivait, — Yves
 comparait son sort à celui de la plupart de ses collègues, les autres professeurs de collèges. Ils arrivaient |
 
 au professorat épuisés déjà, blasés, amortis, anémiés
@@ -438,9 +438,9 @@ _ mettre tout son cœur à la besogne..
 
 Bien qu'il plaisantät et rit très haut avec son ami
 Camille Devaiges, professeur dans ur collège des en- À
-xirons, qui avait tou à venir | « installer », le cœur li 4
+xirons, qui avait tou à venir | « installer », le cœur li
 battait fort, en passant la rustique barrière de la gare,
-où il avait rendu à l'emplové son billet de chemin de j
+où il avait rendu à l'emplové son billet de chemin de
 
 fer. Les deux jeunes gens s'amusaient beaucoup de cette
 
@@ -452,9 +452,9 @@ d'arbres, et le seule route qui s'offrit à leurs yeux. ;
 C'était un après-midi de dimanche des derniers jours
 d'octobre. et déjà les choses — arbres s'effeuillant, ter
 rains boueux, maisons closes aux murailles plaquées de
-— Mon cher, criait Yves, serrant le bras de Devaiges ï
+— Mon cher, criait Yves, serrant le bras de Devaiges
 e2 Bretagne ! Pourvu qu'il ne fasse pas froid ici! C'est
-toute La grâce que je demande à ce pays de la vie nos- k
+toute La grâce que je demande à ce pays de la vie nos-
 Leurs pas, fermes et rapides, et leurs voix hautes
 remplissaient de bruit l'avenue déserte. Instinctivement,
 
@@ -509,10 +509,10 @@ la chaussée.
 
 È | Une des trouées qui, de l'autre côté, leur avait semblé
 
-trop étroite pour être autre chose qu'une ruelle, s'élar- 4
-gissait, en effet, en montant, avec une chaussée et des : 4
-trottoirs. Ils pénétrèrent ainsi dans la ville, ne sachant E
-trop où ils allaient, résolus à découvrir le collège tout 3
+trop étroite pour être autre chose qu'une ruelle, s'élar-
+gissait, en effet, en montant, avec une chaussée et des
+trottoirs. Ils pénétrèrent ainsi dans la ville, ne sachant
+trop où ils allaient, résolus à découvrir le collège tout
 seuls. Ils triomphèrent enfin, au tournant de gauche. %
 Une place était là, où trônait une haute et vaste construction de deux étages, et à grandes fenêtres, précé- |
 dée d'un square entouré de grilles.
@@ -526,23 +526,23 @@ de lumière, des cris d'oiseaux et d'enfants, — la sortie ‘2
 de la classe, et lui, péripatétisant en jeune docteur des
 jardins d'Academus. Ils gravissaient déjà l'allée sablée
 menant au perron, quand ils aperçurent un vieillard re- “
-plet, coiffé d'une casquette de cuir. ï
+plet, coiffé d'une casquette de cuir.
 
 Yves déclara : « Voici mon concierge! » ;
 
-— N'est-ce pas le collège, je vous prie? 4
+— N'est-ce pas le collège, je vous prie?
 
-Le « concierge » toucha sa coiffure que la pluie ne lui 4
+Le « concierge » toucha sa coiffure que la pluie ne lui
 permit pas d'enlever. Il souriait :
 
-— Non, messieurs! non. Le collège est tout à fait au 4
+— Non, messieurs! non. Le collège est tout à fait au
 bas de la ville, sur le boulevard.
 
 Puis, se redressant avec dignité :
 
-— Ceci est le Palais de justice! 4
+— Ceci est le Palais de justice!
 
-Un peu déconfits les jeunes gens rebroussèrent che- f
+Un peu déconfits les jeunes gens rebroussèrent che-
 min aussitôt. Ils passèrent des ruelles encore, puis des :
 places grandes comme un mouchoir, s'observant à des- ;
 cendre toujours. ;
@@ -589,15 +589,15 @@ d'une étable!
 &. durant une centaine de mètres jusqu'au pont et la rue
 : montante qu'on leur avait désignée, s'élevait une mai-
 …_ sonnette de deux étages, en tuffeau gris sale, coiffée
-4 19
+4
 
-d'ardoises, près d'un long pavillon sans ouverture, 4
+d'ardoises, près d'un long pavillon sans ouverture,
 
-d'une hauteur de premier étage, coiffé de tuile; sem- 3
+d'une hauteur de premier étage, coiffé de tuile; sem-
 
-blable à une grosse ferme flanquée d'une longue étable 3
+blable à une grosse ferme flanquée d'une longue étable
 
-plutôt qu'à un établissement d'enseignement secon- 3
+plutôt qu'à un établissement d'enseignement secon-
 
 Plus ils approchaient, et moins ils pouvaient se convaincre. Le cœur d'Yves se serrait, comme s'il pressen- !
 tait un gros chagrin. Rien à l'extérieur n'annonçait que “04
@@ -606,18 +606,18 @@ entr'ouverte; et ils voyaient une femme en tablier blanc !
 étreignant un linge. Ils s'avancèrent jusqu'au trottoir.
 
 La muraille devant eux croulait; la pierre, jaune de
-vieillesse, s'était crevassée, trouée, fondue en niches, 4
-ouvertes comme sous de grands coups de pioches. 4
+vieillesse, s'était crevassée, trouée, fondue en niches,
+ouvertes comme sous de grands coups de pioches.
 
 Ils arrivèrent devant une porte cochère dont les bat- à
-tants d'épaisse boiserie grossière et fendue, badi- Ë
+tants d'épaisse boiserie grossière et fendue, badi-
 geonnés en rouge brique, boulonnés comme ceux d'une ;
 prison, étaient soigneusement clos. Ils se reculèrent
 pour inspecter l'entrée. Sur les pierres molles du linteau roman, des mots étaient peints en noir, à demi
 
 Il n'y avait plus à douter. Résignés, ils allèrent à
 une porte étroite et basse, ouverte, celle-là; toute
-proche du portail, et au-dessus de laquelle une plaque L
+proche du portail, et au-dessus de laquelle une plaque
 carrée très noire portait des mots qu'ils ne distinguèrent
 
 — Il y a tout de même bien un concierge, dit Yves.
@@ -628,7 +628,7 @@ briques, avec une fenêtre donnant sur une cour inté-
 
 Cette pièce était meublée d'une table de bois noir,
 
-20 4
+20
 
 au-dessus de laquelle s'étageaient des planchettes à
 petits casiers étroits portant les noms des fonctionnaires, comme il s'en trouve chez les concierges des
@@ -639,7 +639,7 @@ Non ! attendons un moment... Pas de sonnette? »
 
 toute l'excitation fiévreuse de l'arrivée commençait à
 Il appela du pied, puis sortit, s'avança dans le large
-couloir, où donnait aussi accès le portail fermé. Un f
+couloir, où donnait aussi accès le portail fermé. Un
 bac de jardin était là, et, devant lui, il découvrait
 une grande cour avec un tilleul à droite, un vieux bâtiment à gauche, au fond un pavillon d'aspect neuf à un
 étage. Une domestique en tablier blanc, la même sans
@@ -667,35 +667,35 @@ après, il entrait dans le cabinet de monsieur le prin-
 ; cipal. Un gros homme court, à cheveux blancs,
 
 d'épaisse figure poupine, trop grasse, trop blanche, aux Le ‘2
-yeux d'un bleu de faïence, se leva aussitôt, de derrière 1
+yeux d'un bleu de faïence, se leva aussitôt, de derrière
 un bureau planté au milieu de la vaste chambre toute
-tapissée de bouquins. Le gros homme marcha à lui 3
-avec je ne sais quel air de gaieté sans vie. 4
+tapissée de bouquins. Le gros homme marcha à lui
+avec je ne sais quel air de gaieté sans vie.
 — Ah! monsieur Madec? Le professeur d'anglais?
 Vous êtes le bienvenu, monsieur. Asseyez-vous donc, À
 je vous prie ! 1 TT
-— Monsieur le principal, je vous demande pardon de 4
-mon retard, mais. F
-— Oui! Nous vous attendions avec impatience 4
-__. depuis la rentrée, mais je savais que vous ne pouviez x
-venir sans être assuré de votre remplaçant là-bas. 3
-— Ah! vous m'entendez bien (et le bonhomme scan- 4
+— Monsieur le principal, je vous demande pardon de
+mon retard, mais.
+— Oui! Nous vous attendions avec impatience
+__. depuis la rentrée, mais je savais que vous ne pouviez
+venir sans être assuré de votre remplaçant là-bas.
+— Ah! vous m'entendez bien (et le bonhomme scan-
 dait durement, à la façon méridionale, les deux syllabes #4
-en en de ce mot)... Vous m'entendez bien, je n'ai pas 1
-fait d'anglais depuis des années, et aucun de ces 4
-messieurs n'en savait assez non plus... Il m'a bien fallu f
+en en de ce mot)... Vous m'entendez bien, je n'ai pas
+fait d'anglais depuis des années, et aucun de ces
+messieurs n'en savait assez non plus... Il m'a bien fallu
 faire l'affaire moi-même. Ah! sapristi! |
-Le principal s'étala dans son fauteuil à large dossier 4
+Le principal s'étala dans son fauteuil à large dossier
 bas et demi-circulaire, dodelinant de la tête, dont le ‘]
 : poil rare laissait luire le crâne rose. Il maniaït me
-grosse chaîne de montre d'or qui roulait de ses doiïgts 4
+grosse chaîne de montre d'or qui roulait de ses doiïgts
 aux plis profonds du vaste gilet, et toute la large face |
-s'épanouissait dans un sourire de brave homme. M
-Ils parlèrent du pays qu'Yves quittait, du répétitorat, 4
-: ils parlèrent encore des élèves, du collège, de la 4
-Yves s'était levé : F
-— Eh bien, monsieur le principal, je ne vous déran- 4
-gerai pas plus longtemps. 4
+s'épanouissait dans un sourire de brave homme.
+Ils parlèrent du pays qu'Yves quittait, du répétitorat,
+: ils parlèrent encore des élèves, du collège, de la
+Yves s'était levé
+— Eh bien, monsieur le principal, je ne vous déran-
+gerai pas plus longtemps.
 — Ah! mon cher monsieur, vous m'entendez bien! ;
 
 Familièrement déjà la grasse menotte s'était posée
@@ -733,17 +733,17 @@ _ bonasse lourdaud, né pour la vie rustique, pour le
 
 Pauvre diable, songeait Yves, en dégringolant l'escalier en bigorneau, il me fait mal quand il rit! Il n'y a è ‘à
 que sa peau qui rit; ses yeux sont morts, son cœur à
-aussi. Il souffre de n'avoir pas une blouse bleue sur le È R:
+aussi. Il souffre de n'avoir pas une blouse bleue sur le
 dos et une trogne au nez bourgeonné ! »
 Quand il reprit le bras de Devaiges, impatient dans ;
-un pâle soleil sur le pavé brillant et fumant, il l'en- 4
-traîna tout de suite vers le haut de la rue qui menait 4
+un pâle soleil sur le pavé brillant et fumant, il l'en-
+traîna tout de suite vers le haut de la rue qui menait
 — Eh bien quoi? lui demanda son ami. Tu m'as l'air À
-bien décidé. Te plaît-il, ton principal? 3
+bien décidé. Te plaît-il, ton principal?
 Yves rapidement lui conta ses impressions : à
-— Pour le moment nous allons vers un certain hôtel M
+— Pour le moment nous allons vers un certain hôtel
 des Blés, que me recommande le père Binelle. J'y trou- “4
-verai, paraît-il, un ancien répétiteur comme toi-z et 4
+verai, paraît-il, un ancien répétiteur comme toi-z et
 moi; un mathématicien bi-licencié, qui me donnera tous à
 les renseignements possibles. ‘4
 
@@ -771,25 +771,25 @@ nom... 'Le professeur de mathématiques du collège”?
 — Monsieur Arverne! il n'est pas encore arrivé, mon- LE.
 sieur, mais il ne tardera pas! À
 — Merci. Vous me préviendrez, n'est-ce pas?
-Yves et Devaiges échangèrent de nouveau leurs impressions. 4
+Yves et Devaiges échangèrent de nouveau leurs impressions.
 £ — Ah! ça n'a pas l'air fameux! pouffait Devaiges, que
 l'air déconfit d'Yves amusait.. Ce que tu vas tembêter
 — Mais non, mais non, mon cher! Tu sais bien, le
 silence, la solitude, la campagne. Je ne demande que ‘
-ça. Ah! comme j'y rêvais, dans le hideux métier de s
+ça. Ah! comme j'y rêvais, dans le hideux métier de
 Ils évoquaient le passé, cette année de début, où
 Devaiges et lui s'étaient connus, les matins où ils s'amue
-Un homme corpulent, à face pleine et vermeille, si L
+Un homme corpulent, à face pleine et vermeille, si
 raide dans sa démarche qu'il semblait porter son ventre
 devant soi avec orgueil, avec ostentation, avec délice, {
-parut tout à coup, et, s'adressant à Yves : 4
-— Pardon, messieurs... Monsieur est le nouveau professeur, sans doute ? 4
+parut tout à coup, et, s'adressant à Yves
+— Pardon, messieurs... Monsieur est le nouveau professeur, sans doute ?
 — Oui, monsieur, dit Yves, sans dissimuler le plaisir
 tout frais que lui faisait cette appellation de pro
 — Monsieur arrive. Monsieur ne connaît pas la
 ville... Monsieur le Professeur prendra-t-il pension ici?
-Monsieur le Professeur n'est pas marié, je crois? L
-— Ah diable! dit Yves, attendez un peu! Je vous Ê
+Monsieur le Professeur n'est pas marié, je crois?
+— Ah diable! dit Yves, attendez un peu! Je vous
 dir@i tout cela plus tard... Laissez-moi descendre du
 train. Vous me donnerez tout de même à dîner pour ce
 — Je demande pardon à Monsieur, dit la face ven
@@ -819,14 +819,14 @@ Br, en inclinant la tête sur son bedon, et avec un léger ac-
 qe — Ah! Monsieur le Professeur peut chercher ailleurs.
 … Il m'en dira des nouvelles., à un prix inférieur, Mon-
 
-sieur le Professeur ne trouvera à manger qu'avec des 4
-maçons et des balayeurs de rues. 4
-| Il s'était retiré. Ÿ
+sieur le Professeur ne trouvera à manger qu'avec des
+maçons et des balayeurs de rues.
+| Il s'était retiré.
 
-— Il membête cet animal! grommela Yves, que le 4
+— Il membête cet animal! grommela Yves, que le
 ton ironique de l'hôtelier avait échauffé un peu. À
 
-— Qu'est-ce qu'il nous fiche! éclata Devaiges, qui, l
+— Qu'est-ce qu'il nous fiche! éclata Devaiges, qui,
 pendant toute la scène, se mordait les lèvres pour ne à
 
 Il t'en paie, du Monsieur le Professeur! Ça ne lui coûte
@@ -835,12 +835,12 @@ pas cher! |
 — Au contraire, conclut Yves. C'est à moi que ça À
 peut coûter, pauvre pion à peine dégrossi, et professeur |
 
-Les deux amis continuaient à plaisanter, attendant 1
+Les deux amis continuaient à plaisanter, attendant
 impatiemment l'heure du diner. Tout à coup l''hôtelier |
 
 ; reparut, marcha droit à leur table : |
 
-— Si ces messieurs veulent permettre. Voyons, Mon- È
+— Si ces messieurs veulent permettre. Voyons, Mon-
 sieur le Professeur, quel prix mettez-vous ? |
 
 — Décidément vous êtes impatient, Monsieur l'Hôte-
@@ -857,11 +857,11 @@ ni alcool, ni café », comme s'il recevait un coup sur le |
 ventre. Instinctivement il glissa un regard oblique vers ,
 la table où se consommaient, avec une savante lenteur, |
 deux petits verres de quinquina. Il crut ensuite devoir
-sourire, comme frappé d'une heureuse pensée : l
+sourire, comme frappé d'une heureuse pensée
 
 — Oh, mais, Monsieur le Professeur, c'est bien diffé- |
 
-28 4
+28
 
 rent! Si Monsieur le Professeur ne prend ni vin, ni
 alcool, ni café, (il clignaïit de l'œil, avec incrédulité ou
@@ -908,15 +908,15 @@ au courant de bien des choses. Pourvu que ce soit un
 
 Quelques instants, et ils passèrent à la table d'hôte. “Æ
 C'était une haute salle rectangulaire, à panneaux de
-bois blanc, enguirlandés de fruits et de feuilles de bois E
-sculpté. Deux lampes de gaz éclairaient la longue table 3
+bois blanc, enguirlandés de fruits et de feuilles de bois
+sculpté. Deux lampes de gaz éclairaient la longue table
 
-. à nappe, serviettes et service bien blancs. 1
+. à nappe, serviettes et service bien blancs.
 
 — Ces messieurs diîneront seuls ce soir, leur dit le ‘
 garçon en habit et tablier blanc. les pensionnaires.
 
-— Combien en avez-vous? 4
+— Combien en avez-vous?
 
 — Cinq, monsieur. Ils diînent en ville généralement, Es
 le dimanche soir. À
@@ -925,17 +925,17 @@ Tous deux étaient las. Il fallait se presser d'ailleurs,
 le train qui devait ramener Devaiges partant à huit
 heures et demie. Yves reconduisit son ami à la gare, et ‘à
 rentra à l'hôtel, dans une chambre au second, qu'il A.
-avait retenue pour la nuit. 4
+avait retenue pour la nuit.
 
-Il se recueillit un instant avant de se mettre au lit... k
+Il se recueillit un instant avant de se mettre au lit...
 Son voyage, les émotions de la journée l'avaient fati- |
-gué. Mais de rombreuses appréhensions le tenaient 4
+gué. Mais de rombreuses appréhensions le tenaient
 
-Allait-il enfin pouvoir « vivre sa vraie vie », comme il 4
+Allait-il enfin pouvoir « vivre sa vraie vie », comme il
 avait dit plaisamment à Devaiges. Était-ce enfin l'heure
-tant appelée? Autour de cette chambre, au-delà de ce 1
-court rayon pâle de sa chandelle, que voilait l'ombre 4
-de la ville? Qu'apportaient à sa destinée toutes les J
+tant appelée? Autour de cette chambre, au-delà de ce
+court rayon pâle de sa chandelle, que voilait l'ombre
+de la ville? Qu'apportaient à sa destinée toutes les
 vagues formes qui se pressaient sous son regard méditatif? Serait-il libre de faire un peu du bien qu'il rêvait?
 Allait-il pouvoir agir selon sa conscience? Les conditions
 
@@ -944,10 +944,10 @@ chir, si elles lui étaient contraires ?
 
 Quelque angoisse lointaine, — pressentiment de dé-
 
-_ faite, — ou émotion de l'action, —tourmentait son cœur. 4
+_ faite, — ou émotion de l'action, —tourmentait son cœur.
 LE ist lement il sourit en songeant que déjà, s'iln'yprenait ‘5
-ga de, il s'était laissé violenter par ce vulgaire hôtelier. { 18
-4 Re aonÇait-il donc du premier coup à l'un des premiers
+ga de, il s'était laissé violenter par ce vulgaire hôtelier. {
+Re aonÇait-il donc du premier coup à l'un des premiers
 es iicles de la Loi lentement élaborée de sa vie nouvelle:
 ÿ <æ endre mes repas seul, —les confectionner moi-même,
 _ ou avec des ouvriers ? » LT
@@ -955,24 +955,24 @@ _ Ii s'endormit, résolu à être frais et plein de force,
 
 pour les classes qu'il commençait le lendemain. (8
 
-Le lendemain matin, à sa grande stupéfaction, le 3
+Le lendemain matin, à sa grande stupéfaction, le
 Principal, — dont la grosse tête blanche s'agitait dans
 le soleil d'octobre de la cour, parmi les feutres de ces
 . messieurs, et tandis que les écoliers allaient et venaient
 en grande bruyance, — lui dit :
-— Ah! Monsieur Madec! Voici vos élèves; vous com- j
+— Ah! Monsieur Madec! Voici vos élèves; vous com-
 mencez justement par une classe d'allemand. |
 — D'allemand? interrogea Yves, croyant à une mé-
 Le bonhomme eut un sourire d'enfant :
 — Mais oui, d'allemand! Comment? Est-ce que vous
-ne savez pas? Mais vous avez l'allemand, avec l'an- 1
+ne savez pas? Mais vous avez l'allemand, avec l'an-
 glais, huit heures pour chaque langue. |
 Yves était bouleversé : de l'allemand? Ainsi on le ;
-bombardait professeur d'allemand, lui? Mais il ne sa- ÿ
+bombardait professeur d'allemand, lui? Mais il ne sa-
 vait pas l'allemand? Il n'avait d'ailleurs aucune qualité,
-aucun titre pour le faire. L
+aucun titre pour le faire.
 — Mais, monsieur le Principal, je ne suis pas licencié |
-d'allemand. Mes deux licences sont d'anglais et de philosophie!. Il y a une erreur! Il se voyait déjà, le 1
+d'allemand. Mes deux licences sont d'anglais et de philosophie!. Il y a une erreur! Il se voyait déjà, le
 pauvre, renvoyé au dortoir. pour combien de siècles!
 
 Cependant les autres professeurs, au bruit infernal de
@@ -1012,7 +1012,7 @@ lemand à un débutant. Or, voici que, de but en blanc,
 et sans qu'il pût se défendre, on lui confiait huit heures “
 de classes, une cinquantaine d'élèves peut-être, dont :
 combien ? dix, douze, à préparer pour le baccalauréat
-que lui-même n'aurait pu affronter ? C'était trop fort ! 4
+que lui-même n'aurait pu affronter ? C'était trop fort !
 
 — Monsieur le Principal, il doit y avoir erreur... Il ‘4
 n'est pas possible. ;
@@ -1023,21 +1023,21 @@ Le recrutement des professeurs n'était pas chose
 facile, pour cette petite ville médiocre, à la campagne
 nulle, éloignée de tout grand centre. Quand il pouvait . ‘à
 mettre la main sur l'un d'eux, il ne voulait pas, le
-pauvre diable, le lâcher de sitôt. 4
-— Mais non, vous m'entendez bien ! Il n'y a pas que È
-les Principaux qui soient marchands de soupe, heïn ? É
-Et il riait, le naïf Principal, de plus en plus fort, à 4
+pauvre diable, le lâcher de sitôt.
+— Mais non, vous m'entendez bien ! Il n'y a pas que
+les Principaux qui soient marchands de soupe, heïn ?
+Et il riait, le naïf Principal, de plus en plus fort, à
 voir air de déconfiture de Madec. À
 — Enfin, écoutez! Vous réfléchirez. Il est l'heure
 d'entrer en classe... Si par hasard le Recteur ou l'Inspecteur d'Académie arrivait... Il est le quart... Allez!
-fit-il aux élèves... Tenez, je vais vous accompagner, 1
+fit-il aux élèves... Tenez, je vais vous accompagner,
 vous allez voir que vous en savez plus long que vous
 ne croyez. Ouf! ce que j'en ai appris de choses, moi! #4
 simple bachelier es-sciences, depuis que je suis dans ‘4
 l'enseignement ! Ah ! mon cher, vous m'entendez bien!
 On est bon à tout... Votre prédécesseur, d'ailleurs, était
 comme vous. Il ne savait que l'anglais, — il était licencié d'anglais. Eh bien, au bout de cinq ans qu'il est ,
-resté ici, il savait l'allemand ! Il sait l'allemand, main- f
+resté ici, il savait l'allemand ! Il sait l'allemand, main-
 tenant. — Dites-vous donc, vous m'entendez bien, que
 
 l'Université vous offre d'apprendre l'allemand à ses
@@ -1051,7 +1051,7 @@ qu'on lui demandait. Il renfonça tout un chagrin qui lui |
 “ constamment devant les enfants, affecter de savoir.
 La tâche lui apparut d'une amertume intolérable.
  < — Quels livres aviez-vous l'an dernier ?
-1 C'étaient heureusement Halbwachs et Weber, puis
+C'étaient heureusement Halbwachs et Weber, puis
 gs Jeanne d'Arc, de Schiller. — Qu''allait-il faire, dire,
 À durant deux mortelles heures ? Si seulement il avait eu
 — Je temps de refeuilleter cette grammaire. S'il avait su
@@ -1137,7 +1137,7 @@ k A petite classe du pavillon neuf, au fond de la cour. Ils
 grands que lui, forts garçons, doni lun,, plus fluet “4
 cependant, l'air gamin et malin, semblait déjà le
 sonder. Yves lisait dans les yeux moqueurs cette ques- Rs
-- — Es-tu calé en allemand ? Vas-tu faire de moi un 4
+- — Es-tu calé en allemand ? Vas-tu faire de moi un
 
 F. Il retrouva dans la troisième année de Halbwachs le …
 petit poème de Goethe, Mignon, qu'il savait par cœur,
@@ -1156,16 +1156,16 @@ mercredi et le samedi après-midi, trois heures et demie
 d'allemand en tout, mais avec des débutants, cela irait
 bien. À
 Il sortit de sa classe un peu honteux de son bonheur, ;
-qu'il ne devait, pensait-il, qu'à une supercherie. 1
+qu'il ne devait, pensait-il, qu'à une supercherie.
 —- Eh bien ? lui dit le père Binelle, toujours tête nue,
-| et roulant de droite à gauche. è
-” — Ça a marché à peu près ! J'ai eu la veine de « savoir par cœur... d
+| et roulant de droite à gauche.
+” — Ça a marché à peu près ! J'ai eu la veine de « savoir par cœur...
 Binelle tapa sur ses cuisses : n..
 — Quand je vous le disais ! C'est pas plus malin que
 ça ! Vous n'entendez bien ! :
-Puis, se rapprochant de Yves, qu'il heurta du coude, k
+Puis, se rapprochant de Yves, qu'il heurta du coude,
 les yeux de gamine gaîté levés vers les yeux graves de ;
-— Sont pas forts ! hein ? 4
+— Sont pas forts ! hein ?
 
 _ Yves passa le reste de l'après-midi, jusqu'au diner, :
 avec Arverne, à la recherche d'un logement. Il avait
@@ -1193,17 +1193,17 @@ Mais ça commence à aller au bal... Petite rosse ! Ah!
 
 Tout en bavardant ainsi, il ramenait Yves par un #
 couloir, une chambre de débarras, un palier, qu'ils
-avaient déjà traversés, devant une porte près de la M
+avaient déjà traversés, devant une porte près de la
 rampe de l'escalier. Arverne l'y poussa : |
 
 — Entrez donc. C'est simple et familial; je crois que « vous avez ces goûts-là !.…
 
 — La fenêtre ! dit Yves, qui y cout et l'ouvrit.
 
-C'était pour lui la grande chose : la fenêtre, où don- M
+C'était pour lui la grande chose : la fenêtre, où don-
 nait-elle ? Sur un jardinet, que le soleil penchant em-
 
-:  plissait de clartés rousses, et d'ombres longues, à travers le vaste et délicat feuillage d'un antique sophora, M
+:  plissait de clartés rousses, et d'ombres longues, à travers le vaste et délicat feuillage d'un antique sophora,
 plein d'oiseaux, — non loin d'un autre arbre, mince et
 élancé, qu'Yves ne connaissait point. Par delà le jardinet, obstruant la vue, un pavillon d'allure neuve, qui
 paraissait être un entrepôt, et, dans l'angle renversé
@@ -1249,10 +1249,10 @@ vêtus, en habit de travail? de leur donner un lit, le
 
 sien en cas de besoin ?... Cependant, comment faire É> ;
 Rien de ce qu'il visita ne lui plut. Cette compagnie -
-d'Arverne d'ailleurs le gênait. Il aurait voulu être F4
+d'Arverne d'ailleurs le gênait. Il aurait voulu être
 seul... mais il ne connaissait rien, ni personne. Alors ii
 conclut tout à coup, à part lui, pour la chambrette de :
-madame Guiraud, comme il avait fait pour la pension : î
+madame Guiraud, comme il avait fait pour la pension
 — Je verrai toujours, d'ici un mois... j'aurai le temps
 de chercher, de trouver autre chose...
 Il revint donc avec son compagnon, retenir la
@@ -1264,41 +1264,41 @@ ralysie du fils aîné. Madame Guiraud le mit à l'aise |
 aussitôt. Elle lui fit l'effet d'une bonne grand mère avec
 qui il n'y avait point à songer à faire des manières. Elle
 n'avait jamais loué encore qu'à M. Arverne; elle était }
-: toute intimidée et comme un peu honteuse de son nouveau rôle de loueuse de garnis. Ù
+: toute intimidée et comme un peu honteuse de son nouveau rôle de loueuse de garnis.
 ; — Elle a tenu autrefois une boutique de nouveautés, |
 lui avait dit Arverne ; je crois qu'elle est un peu dans
 la dèche. Louis est marié à une grande et forte femme
 qui a l'air un peu paysan, vous verrez ça. braves gens!
-et puis, vous savez, on vous laissera tranquille ! È
+et puis, vous savez, on vous laissera tranquille !
 En peu de temps, Yves, rassuré par ce qu'Arverne lui
 avait dit des opinions de la veuve Guiraud et de celles …
-qu'avaient eues son mari et son fils aîné (car pour Louis, k
-il lisait l'Intransigeant) s'accoutuma. IL chérit tout de È
+qu'avaient eues son mari et son fils aîné (car pour Louis,
+il lisait l'Intransigeant) s'accoutuma. IL chérit tout de
 suite l''absolue tranquillité de la maison, le silence pro- Ni
 fond des soirs de la petite ville, quand, à sa table,
 fenêtre ouverte aux crépuscules doux de l'automne, il
 
 l feuilletait ses livres, sans percevoir d'autre bruit que &
-_ les « hou-hou » flûtés des crapauds ; — ou le frou-frou 4
-_ des feuillages. 1
+_ les « hou-hou » flûtés des crapauds ; — ou le frou-frou
+_ des feuillages.
 4 - Tout ce premier mois s'écoula vite, sans qu'il eût le |
 7 temps de songer à autre chose qu'à se perfectionner ,
 _ dans les éléments de la langue allemande. Il travailla $
-im se fit une grammaire manuscrite, retraduisit tous 2:
+im se fit une grammaire manuscrite, retraduisit tous
 _ les. thèmes et toutes les versions des trois années de
-ie Ha bwachs, expliqua, pour lui, Jeanne d'Arc et Guil- 4
+ie Ha bwachs, expliqua, pour lui, Jeanne d'Arc et Guil-
 — laume Tell, corrigea ses quatre-vingts copies hebdoma7 d ai res. On le « laissa tranquille ». Arverne lui-même ne
 S lé dérangeait jamais. Le professeur de mathématiques
 avait ses habitudes au dehors, ses classes; et le cercle. IL 23 di
-“y avait un cercle à Villetaupier; il y avait deux cercles : 1
-Lun à peu près désert, selon Arverne, le cercle réaction- 5
+“y avait un cercle à Villetaupier; il y avait deux cercles
+Lun à peu près désert, selon Arverne, le cercle réaction-
 naire ; l'autre, auquel il appartenait, au premier étage
 “duc grand café » au coin de la place, en face la maison
 Guiraud, le cercle républicain dont faisaient partie tous
 2 les fonctionnaires. Arverne y emmena Yves, une fois :
-_salle de billards, jolie bibliothèque, salle de lecture e
+_salle de billards, jolie bibliothèque, salle de lecture
 “derrière, donnant sur les tertres du café : trente francs
-pe an de cotisation. Yves déclara ne vouloir point ô
+pe an de cotisation. Yves déclara ne vouloir point
 fai e partie du cercle... d'aucune association fermée. En
 —outre, il fit remarquer que, pour le moment, il avait trop
 _ de travail. Jusqu'à la Toussaint, il vit peu de monde et
@@ -1307,7 +1307,7 @@ _ de travail. Jusqu'à la Toussaint, il vit peu de monde et
 Répétiteurs de collège |
 Cependant il fit connaissance avec les répétiteurs. |
 Ils étaient trois, dont l'un recevait et portait fièrement
-le titre de « Surveillant général ». C'était un jeune et ÿ
+le titre de « Surveillant général ». C'était un jeune et
 beau garçon de vingt-cinq à vingt-six ans, ancien insti- ;
 tuteur, que l'éclat de l'enseignement secondaire avait
 sans doute ébloui. Il se trouvait un peu dépaysé dans
@@ -1317,8 +1317,8 @@ tout pour la maigre rétribution de 1100 francs; comme
 en outre son temps était pris à raison de quarante-cinq
 heures de service par semaine; il ne pouvait frayer
 avec les professeurs qui le négligeaient un peu, et dont
-il n'approchait qu'avec une certaine méfiance. D'autre M
-part, ses deux collègues — purs et simples répétiteurs, 1
+il n'approchait qu'avec une certaine méfiance. D'autre
+part, ses deux collègues — purs et simples répétiteurs,
 — ne pouvaient se familiariser avec un homme defonctions si hautes, qui ne couchait pas au dortoir; d'au
 tant que le principal le traitait à la fois d'un air familier et bourru, comme son factoton, et le secrétaire intime de sa gargote. Le pauvre faisait peine à Yves, à
 qui il s'ouvrit presque aussitôt, pressentant quelqu'un

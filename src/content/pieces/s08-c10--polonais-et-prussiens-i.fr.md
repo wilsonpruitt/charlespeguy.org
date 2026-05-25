@@ -7,21 +7,21 @@ author: edmond-bernus
 isAvertissement: false
 wordCount: 75228
 ---
-NC la délivrance 15
-| 180 1
+NC la délivrance
+|
 
 | Il n'avait plus personne. Tous ses amis avaient dis- fi
 | paru. Le cher Gottfried, qui lui était venu en aïde, à +6
-| des heures difficiles, et dont il aurait eu tant besoin en 4 F
+| des heures difficiles, et dont il aurait eu tant besoin en
 ce moment, était parti depuis des mois, et cette fois, : ïe
-pour toujours. Un soir de l'été dernier, une lettre, écrite 4
+pour toujours. Un soir de l'été dernier, une lettre, écrite
 d'une grosse écriture, et qui portait l'adresse d'un vil- ES
-_ lage lointain, avaït appris à Louisa que son frère était 44
+_ lage lointain, avaït appris à Louisa que son frère était
 | mort, dans une de ces tournées vagabondes, que le ‘4
-petit colporteur s'obstinait à continuer, malgré sa É:
-mauvaise santé. On l'avait enterré là-bas, dans le 3
-; cimetière du pays. La dernière amitié virile et sereine, 4
-$ qui eût été capable de soutenir Christophe, s'était 14
+petit colporteur s'obstinait à continuer, malgré sa
+mauvaise santé. On l'avait enterré là-bas, dans le
+; cimetière du pays. La dernière amitié virile et sereine,
+$ qui eût été capable de soutenir Christophe, s'était
 4 engloutie dans le gouffre. Il restait seul, avec sa mère
 vieillie et indifférente à sa pensée, — qui ne pouvait que à
 ; l'aimer, qui ne le comprenait pas. Autour de lui, l'im- Ps
@@ -30,49 +30,49 @@ effort pour en sortir, il s'enfonçait davantage. La ville Re
 ennemie le regardait se noyer... ie.
 + Et comme il se débattait, dans un éclair lui apparut,
 BV au milieu de sa nuit, l'image de Hassler, le grand musik TA
-à cien qu'il avait tant aimé, quand il était enfant, et dont b Le è
+à cien qu'il avait tant aimé, quand il était enfant, et dont b Le
 k la gloire maintenant rayonnait sur tout le pays allemand. Le
 Il se souvint des promesses que Hassler lui avait faites %
-3 autrefois. Et il se raccrocha aussitôt à cette épave avec 4
+3 autrefois. Et il se raccrocha aussitôt à cette épave avec
 
 1} ne vigueur désespérée. assler pouvait le sauver!
 Der Hassler devait le sauver ! Que lui demandait-il ? Ni Du }
 les. | secours, ni argent, ni aide matérielle d'aucune sorte.
 is Rien autre, sinon qu'il le comprit. Hassler avait été per- :
 __  sécuté comme lui. Hassler était un homme libre. Il com- À
-ji prendrait un homme libre, que la médiocrité allemande 010
+ji prendrait un homme libre, que la médiocrité allemande
 _  poursuivait de ses rancunes et tâchait d'écraser. Ils M)
  combattaient le même combat. #1
 ‘VE Aussitôt qu'il ent cette idée, il l'exécuta. Il prévintsa
 pi mère qu'il serait absent, huit jours; et il prit, le soir no
 | ler même, le train pour la grande vilie du nord de l'Alle- Lo:
 HU . magne, où Hassler était Xapellmeister. Il ne pouvait Vue,
-(a lus attendre. C'était le dernier effort pour respirer. 1
+(a lus attendre. C'était le dernier effort pour respirer.
 
-4 1
+4
 
 Hassler était célèbre. Ses ennemis n'avaient pas Kt
 __ désarmé; mais ses amis criaient qu'il était le plus grand Hi y
-musicien présent, passé, et futur. Il était entouré de 1
-partisans et de dénigrants également absurdes. Comme s
+musicien présent, passé, et futur. Il était entouré de
+partisans et de dénigrants également absurdes. Comme
 il n'était pas d'une forte trempe, il avait été aigri par |
 ceux-ci, et amolli par ceux-là. Il mettait toute son énergie à faire ce qui était désagréable à ses critiques et À
-pouvait les faire crier; il était comme un gamin qui 4
-joue des niches. Ces niches étaient souvent du goût le 2
+pouvait les faire crier; il était comme un gamin qui
+joue des niches. Ces niches étaient souvent du goût le
 plus détestable : non seulement, il employait son talent
 prodigieux à des excentricités musicales, qui faisaient &
 hérisser les cheveux sur la tête des pontifes; mais il “
 manifestait une prédilection taquine pour des textes
-baroques, pour des sujets bizarres, souvent aussi pour ë
+baroques, pour des sujets bizarres, souvent aussi pour
 des situations équivoques et scabreuses, en un mot, À
 pour tout ce qui pouvait blesser le bon sens et la ”
-décence ordinaires. Il était content, quand le bourgeois 5e
+décence ordinaires. Il était content, quand le bourgeois
 hurlaïit; et le bourgeois ne s'en faisait pas faute. Fa
 L'empereur même, qui se mêlait d'art, comme chacun dé
 sait, avec l'insolente présomption des parvenus et des fi
 princes, regardait comme un scandale public la renom- je
 . mée de Hassler, et ne laissait échapper aucune occasion Ro
-de manifester à ses œuvres effrontées une indifférence k
+de manifester à ses œuvres effrontées une indifférence
 méprisante. Hassler, enragé et enchanté de cette auguste {
 opposition, qui, four les partis avancés de l'art alle- “
 
@@ -80,29 +80,29 @@ SL à mand, était presque devenue une consécration, continuait ke at
 Lo “ag de plus belle à casser les vitres. A chaque nouvelle sot- MES
 _ tise, les amis s'extasiaient, et criaient au génie. JET
 Gi Fr La coterie de Hassler $e composait surtout de littéra-
-‘1 A teurs, de peintres, et de critiques décadents, qui avaient. 4
-512 assurément le mérite de représenter le parti de la Ë
-‘à d: révolte contre la réaction — éternellement menaçante j
-4 dans l'Allemagne du Nord — de l'esprit piétiste et de la # U
-_ morale d'État; mais leur indépendance s'était exaspérée, 1
-ur . dans la lutte, jusqu'au ridicule, dont ils n'avaient pas 4
+‘1 A teurs, de peintres, et de critiques décadents, qui avaient.
+512 assurément le mérite de représenter le parti de la
+‘à d: révolte contre la réaction — éternellement menaçante
+4 dans l'Allemagne du Nord — de l'esprit piétiste et de la #
+_ morale d'État; mais leur indépendance s'était exaspérée,
+ur . dans la lutte, jusqu'au ridicule, dont ils n'avaient pas
 xt conscience; car si beaucoup d'entre eux ne manquaient de
-1 ; point d'un talent assez âpre, ils avaient peu d'intelli- È
-de gence, et moins encore de goût. Ils ne pouvaient plus ; 4
-li sortir de l'atmosphère factice, qu'ils s'étaient fabriquée; 4
+1 ; point d'un talent assez âpre, ils avaient peu d'intelli-
+de gence, et moins encore de goût. Ils ne pouvaient plus
+li sortir de l'atmosphère factice, qu'ils s'étaient fabriquée;
 Gi ; et, comme tous les cénacles, ils avaient fini par perdre Ki
-ni _ entièrement le sens de la vie réelle. Ils faisaient loi pour k
+ni _ entièrement le sens de la vie réelle. Ils faisaient loi pour
 à eux-mêmes et pour les centaines de nigauds, qui lisaïent
-ei leurs revues et acceptaient bouche bée tout ce qu'il j
-144 leur plaisait d'édicter. Leur adulation avait été funeste 4
+ei leurs revues et acceptaient bouche bée tout ce qu'il
+144 leur plaisait d'édicter. Leur adulation avait été funeste
 : à Hassler, en le rendant trop complaisant pour lui.
 MA Il acceptait sans examén toutes les idées musicales qui <
 : lui passaient par la tête; et il était intimement persuadé  « ?
 : que, quoi qu'il pût écrire d'inférieur à lui-même, c'était he
-À . . encore supérieur au reste des musiciens. De ceque cette ï
+À . . encore supérieur au reste des musiciens. De ceque cette
 pe pensée fût malheureusement trop vraie dans la plupart à
-D: des cas, il ne s'en suivait pas qu'elle fût très saine et 3
-4 propre à faire naître les grandes œuvres. Hassler avait j 1
+D: des cas, il ne s'en suivait pas qu'elle fût très saine et
+4 propre à faire naître les grandes œuvres. Hassler avait
 ju au fond un parfait mépris pour tous, amis et ennemis; et ‘à
 HE Ÿ ce mépris amer et goguenard s'étendait à lui et à toute y »
 3] la vie. Il s'enfonçait d'autant plus dans son scepticisme 1)
@@ -113,27 +113,27 @@ les défendre contre la lente destruction des jours, ni ;
 Et lhypocrisie de se persuader qu'il croyait à ce qu'ilne
 5 croyait plus, il s'acharnait à en persifler le souvenir. Il SE
 À avait d'ailleurs une nature d'Allemand du Sud, indolente me
-“ et molle, peu faite pour résister à l'excès de la fortune M:
+“ et molle, peu faite pour résister à l'excès de la fortune
 rs pour conserver son équilibre, d'une température modé- AU:
-;; rée. Il s'était laissé aller, d'une façon insensible, à jouir 08
+;; rée. Il s'était laissé aller, d'une façon insensible, à jouir
 he paresseusement de la vie : il aimait la bonne chère, les ds,
 
 lourdes boissons, les flâneries oisives, et les molles ‘30
 
-| pensées. Tout son art s'en ressentait, quoiqu'il fût trop E
+| pensées. Tout son art s'en ressentait, quoiqu'il fût trop
 bien doué pour que des étincelles de génie n'éclatassent ‘4
 
 pas encore au milieu de sa musique lâchée, qui s'aban- kr. ;
 
-donnait au goût de la mode. Nul ne sentait mieux que 1e 1
+donnait au goût de la mode. Nul ne sentait mieux que
 
-£ lui sa déchéance. A vrai dire, il était le seul qui la 4
+£ lui sa déchéance. A vrai dire, il était le seul qui la
 “ul sentit, — à de rares moments, que, naturellement, “
 il évitait. Alors, il était misanthrope, absorbé par
-‘E ses humeurs noires, ses préoccupations égoïstes, ses a ñ
+‘E ses humeurs noires, ses préoccupations égoïstes, ses a
 soucis de santé, — indifférent à tout ce qui avait excité Nr:
 
-# autrefois son enthousiasme ou sa haine. 12
+# autrefois son enthousiasme ou sa haine.
 
 Ne Tel était l'homme, auprès duquel Christophe venait
 
@@ -155,7 +155,7 @@ ha sans désarmer un seul jour : car, comme l'a dit Schiller, “.
 
 1 « la seule relation avec le public, dont on ne se repente
 
-fr . Jamais, — c'est la guerre. » : ' J
+fr . Jamais, — c'est la guerre. » : '
 
 L Christophe était si impatient qu'il prit à peine le
 
@@ -183,16 +183,16 @@ fi avoir du génie. Au milieu de la ville banale, aux rues |
 
 A droites et sans caractère, s'élevaient brusquement des
 
-| hypogées d'Égypte, des fermes carolingienhes, des cha- 4
+| hypogées d'Égypte, des fermes carolingienhes, des cha-
 
 lets norvégiens, des cloîtres, des bastions, des pavillons j à
 d'Exposition universelle, des maisons ventrues, culs-de- Er:
 jatte, enfoncées dans la terre, avec une face inerte, un
 œil unique, énorme, des grilles de cachot, des portes
-écrasées de sous-marins, des cerceaux de fer, des cryp- F
+écrasées de sous-marins, des cerceaux de fer, des cryp-
 togrammes d'or dans les barreaux des fenêtres grillées,
 des monstres vomissants au-dessus de la porte d'entrée,
-des carreaux de faïence bleue, plaqués par ci, par là, S
+des carreaux de faïence bleue, plaqués par ci, par là,
 partout où on ne les attendait pas, des mosaïques
 bariolées, représentant Adam et Eve, des toits couverts
 en tuiles de couleurs disparates; des maisons-châteaux- |
@@ -211,11 +211,11 @@ Christophe, uniquement absorbé par idée de Hassler,
 ; regardait avec des veux ahuris, et n'essayait point de
 : comprendre. IL arriva à la maison qu'il cherchait, une
 
-0 des plus simples, — en style romano-byzantin. A l'inté- 2
+0 des plus simples, — en style romano-byzantin. A l'inté-
 "4 rieur, un luxe cossu et banal; dans l'escalier, une de
 “1e atmosphère lourde de calorifère surchauffé; un ascen-
 
-0 Ve seur étroit, dont Christophe ne profita point, pour avoir
+Ve seur étroit, dont Christophe ne profita point, pour avoir
 Es le temps de se préparer à sa visite, en montant les …
 ‘11 . quatre étages, à petits pas, les jambes fléchissantes et
 Nu le cœur tremblant d'émotion. Durant ce court trajet, son
@@ -241,42 +241,42 @@ ik. français : car Hassler prétendait se connaître à tous les
 4 selon les indications qu'il avait reçues du cénacle. Le
 JA même mélange de styles se montrait dans l'ameuble- . :
 4] ment, où un fort beau bureau Louis XV était encadré
-L de fauteuils & art nouveau », et d'un divan oriental, 3
+L de fauteuils & art nouveau », et d'un divan oriental,
 ‘ avec une montagne de coussins multicolores. Les portes
 k: étaient ornées de glaces; et une bibeloterie japonaise ;
 
-| couvrait les étagères et le dessus de la cheminée, où 28
-À trônait le buste de Hassler. Dans une coupe, sur un 14
+| couvrait les étagères et le dessus de la cheminée, où
+À trônait le buste de Hassler. Dans une coupe, sur un
 __ guéridon, s'étalaient une profusion de photographies de Ne
-chanteuses, d''admiratrices et d'amis, avec des mots 44
+chanteuses, d''admiratrices et d'amis, avec des mots
 | d'esprit et des exclamations enthousiastes. Un désordre Fe ni
 incroyable régnait sur le bureau; le piano était ouvert; FE.
 j il y avait de la poussière sur les étagères, et des -#0
-cigares à demi brûlés traînaient dans tous les coins. 10
-6 Christophe entendit, dans la chambre voisine, une n
+cigares à demi brûlés traînaient dans tous les coins.
+Christophe entendit, dans la chambre voisine, une
 voix maussade qui grognait; le verbe tranchant de la ‘18
 petite bonne lui répliquait. Il était clair que Hassler . “4
 manifestait peu d'enthousiasme à se montrer. Il était #2
-clair aussi que la demoiselle avait mis sous son bonnet 11
+clair aussi que la demoiselle avait mis sous son bonnet
 que Hassler se montrerait ; et elle ne se génait pas pour à
 lui répondre avec une extrême familiarité : sa voix ‘4
 | aiguë perçait les murs. Christophe était mal à l'aise |
 | d'entendre certaines remarques qu'elle faisait à son ne
-| maître, Mais celui-ci ne s'en affectait point. Au M
-contraire : on eût dit que ces impertinences l'amu- F4
-_ saient; et, tout en continuant de grogner, il gouaillait la k:
-fille#et prenait plaisir à l'exciter. Enfin Christophe 4
+| maître, Mais celui-ci ne s'en affectait point. Au
+contraire : on eût dit que ces impertinences l'amu-
+_ saient; et, tout en continuant de grogner, il gouaillait la
+fille#et prenait plaisir à l'exciter. Enfin Christophe
 | entendit une porte s'ouvrir, et, toujours grognant et de,
-goguenardant, Hassler qui venait en trainant les pieds. 3
-| Il entra. Christophe eut un serrement de cœur. Il le F5
+goguenardant, Hassler qui venait en trainant les pieds.
+| Il entra. Christophe eut un serrement de cœur. Il le
 _  reconnaissait. Plût à Dieu qu'il ne l'eût pas reconnu! à
 _ C'était bien Hassler, et ce n'était pas lui. Il avait AR
-toujours son grand front sans une ride, son visage sans é
+toujours son grand front sans une ride, son visage sans
 un pli, comme celui d'un enfant; mais il était chauve, - ‘4e
 __ empâté, le teint jaune, l'air endormi, la lèvre inférieure ‘4
-un peu pendante, la bouche ennuyée et boudeuse. Il 14
+un peu pendante, la bouche ennuyée et boudeuse. Il
 à voûtait les épaules, enfonçait ses deux mains dans les ; À
-à poches de son veston débraillé, et traînait &@es savates j
+à poches de son veston débraillé, et traînait &@es savates
 
 aux pieds; sa chemise formait un bourrelet au-dessus
 à de sa culotte, qu'il n'avait même pas achevé de bouA tonner. Il regarda Christophe de ses yeux somnolents,
@@ -302,13 +302,13 @@ balancer son genou, en silence, comme s'il attendait
 que Christophe continuât. Puis, il dit :
 — Oui... Cela ne nous rajeunit pas...
 et s'étira.
-Après avoir bâillé, il ajouta : j
+Après avoir bâillé, il ajouta
 | — .… Demande pardon.. Pas dormi... Soupé au théâtre,
 cette nuit...
-et bâilla de nouveau. , ÿ
+et bâilla de nouveau.
 Christophe espérait que Hassler ferait une allusion à |
 
-: ce qu'il venait de lui raconter; mais Hassler, que toute è
+: ce qu'il venait de lui raconter; mais Hassler, que toute
 cette histoire n'avait aucunement intéressé, n'en parla >
 plus; et il n'adressa nulle question à Christophe sur
 sa vié. Quand il eut fini de bâiller, il lui demanda :
@@ -317,7 +317,7 @@ sa vié. Quand il eut fini de bâiller, il lui demanda :
 
 — Je suis arrivé, ce matin, dit Christophe.
 
-— Ah! — fit Hassler, sans s'étonner autrement. — 1
+— Ah! — fit Hassler, sans s'étonner autrement.
 Quel hôtel? je
 
 Sans paraître écouter la réponse, il se souleva paresseusement, atteignit un bouton électrique, et sonna. lg
@@ -330,7 +330,7 @@ La petite bonne parut, avec son air impertinent.
 faire passer de déjeuner, aujourd'hui? |
 
 — Vous ne pensez pourtant pas, dit-elle, que je vais
-vous apporter votre manger ici, pendant que vous avez 1
+vous apporter votre manger ici, pendant que vous avez
 quelqu'un ?
 
 — Pourquoi donc pas? — fit-il, désignant Christophe ah.
@@ -347,35 +347,35 @@ Hassler, au lieu de se fâcher, se mit à rire, et corrigea : A
 - — Apporte toujours, continua-t-il, je mangerai la #
 honte avec.
 
-Elle se retira, en haussant les épaules. Ù
+Elle se retira, en haussant les épaules.
 
 Christophe, voyant que Hassler ne cherchait toujours “0
 pas à s'informer de ce qu'il faisait, tâcha de renouer
-l'entretien. Il parla de la difficulté de la vie en province; F4
+l'entretien. Il parla de la difficulté de la vie en province;
 de la médiocrité des gens, de leur étroitesse d'esprit, de
 l'isolement où on était. Il s'efforçait de l'intéresser à sa |
 
-LA détresse morale. Mais Hassler, affalé dans le divan, la 1
+LA détresse morale. Mais Hassler, affalé dans le divan, la
 14 tête renversée en arrière sur un coussin, et les yeux à à *
 + demi fermés, le laissait parler, semblant ne pas #4
 écouter; ou bien il soulevait un moment ses paupières, ‘2
 et lançait quelques mots d'une ironie froide, une hi
-‘ve saillie bouffonne sur les gens de province, qui cou- 4
+‘ve saillie bouffonne sur les gens de province, qui cou-
 ‘1 _ pait net les tentatives de Christophe pour parler plus ph
 15 intimement. — Kitty était revenue avec le plateau du À \
-1 boudeuse, sur le bureau, au milieu des papiers en 4
+1 boudeuse, sur le bureau, au milieu des papiers en
 114 désordre. Christophe attendit qu'elle fût ressortie, pour ‘4
 FA reprendre son douloureux récit, qu'il avait tant de "
-4 4 Hassler avait attiré à lui le plateau; il se versa le 4
-ee café, y trempa les lèvres; puis, familier et bonhomme, k
-: un peu méprisant, il interrompit Christophe au milieu 4
-ne: d'une phrase pour lui offrir : È
-ji k Christophe refusa. Il s'évertuait à renouer le fil de sa 4
+4 4 Hassler avait attiré à lui le plateau; il se versa le
+ee café, y trempa les lèvres; puis, familier et bonhomme,
+: un peu méprisant, il interrompit Christophe au milieu
+ne: d'une phrase pour lui offrir
+ji k Christophe refusa. Il s'évertuait à renouer le fil de sa
 is phrase; mais, de plus en plus démonté, il ne savait plus :
-‘& ce qu'il disait. Il était distrait par le spectacle de 4
+‘& ce qu'il disait. Il était distrait par le spectacle de
 f Hassler, qui, son assiette sous le menton, se bourrait, ‘5
 ù comme un enfant, de tartines beurrées et de tranches "1
-But de jambon, qu'il tenait avec ses doigts. Il réussit pour- ÿ
+But de jambon, qu'il tenait avec ses doigts. Il réussit pour-
 “. tant à raconter qu'il composait, qu'il avait fait jouer |
 ie une ouverture pour la Judith de Hebbel. Hassler écou- [E
 à — Was? (Quoi?) demanda-t-il. À
@@ -386,7 +386,7 @@ ie une ouverture pour la Judith de Hebbel. Hassler écou- [E
 { Christophe, découragé, était sur le point de se lever À de
 et de partir; mais il pensa à tout ce long voyage fait en A
 vain; et, ramassant son courage, il proposa à Hassler, va
-en balbutiant, de lui jouer quelques-unes de ses œuvres. 1
+en balbutiant, de lui jouer quelques-unes de ses œuvres.
 
 Aux premiers mois, Hassler l'arrêta : 14 à
 
@@ -396,44 +396,44 @@ ironie goguenarde et un peu insultante. — Et puis, je Le:
 Christophe en eut les larmes aux yeux. Mais il s'était fs
 
 juré de ne pas sortir de là, sans avoir l'avis de Hassler De
-sur ses compositions. Il dit, avec un mélange de confu- L.
-sion et de colère :. ÿ
+sur ses compositions. Il dit, avec un mélange de confu-
+sion et de colère :.
 — Je vous demande pardon; maïs vous m'avez pro- He
 mis autrefois de m'entendre; je suis venu uniquement | a
 pour cela, du fond de l'Allemagne : vous m'entendrez. ‘à
 | Hassler, qui n'était pas habitué à ces façons, regarda he
 le jeune homme gauche, furieux, rougissant, près de ‘à
 pleurer : cela l'amuüsa; et, haussant les épaules avec me
-lassitude, il lui montra le piano du doigt, et dit, d'un 5 4
+lassitude, il lui montra le piano du doigt, et dit, d'un
 
-air de résignation comique : 4
+air de résignation comique
 
 -  Là-dessus, il s'enfonça dans son divan, comme un de
-homme qui va faire un, somme, bourra les coussins à 74
-coups de poing, les disposa sous ses bras étendus, 12
-. ferma les yeux à demi, les rouvrit un instant pour éva- 7
+homme qui va faire un, somme, bourra les coussins à
+coups de poing, les disposa sous ses bras étendus,
+. ferma les yeux à demi, les rouvrit un instant pour éva-
 luer les dimensions du rouleau de musique que Chris- : ne
-R tophe avait sorti d'une de ses poches, poussa un petit 38
+R tophe avait sorti d'une de ses poches, poussa un petit
 . soupir, et se disposa à écouter avec ennui. Les
 | + Christophe, intimidé et mortifié, commença à jouer. “4
-Hassler ne tarda pas à rouvrir l'œil et l'oreille, avec 4
-| l'intérêt professionnel de l'artiste qui est repris, malgré | ÿ
+Hassler ne tarda pas à rouvrir l'œil et l'oreille, avec
+| l'intérêt professionnel de l'artiste qui est repris, malgré
 50 lui, par une belle chose. D'abord, il ne dit rien, et resta Fi
 
 ; immobile; mais ses yeux devinrent moins vagues, et ses ‘4
-ex lèvres boudeuses remuaïent. Puis, il se réveilla tout à É
+ex lèvres boudeuses remuaïent. Puis, il se réveilla tout à
 ae fait, grognant son étonnement et son assentiment. ‘
-nou C'étaient des interjections inarticulées; mais le ton ne ÿ
+nou C'étaient des interjections inarticulées; mais le ton ne
 D pa laissait aucun doute sur ses sentiments; et Christophe |
 ni en éprouvait un bien-être inexprimable. Hassler ne son- ‘A
 4 geait plus à calculer le nombre de pages qui étaient k À
 be jouées, et celles qui restaient à jouer. Quand Christophe À
-‘ avait fini un morceau, il disait : Ù 4
+‘ avait fini un morceau, il disait
 
 ne 11 commençait à faire usage du langage humain. À
-— Bon, cela! Bon! (s'exclamait-il.) Fameux!.…. 4
+— Bon, cela! Bon! (s'exclamait-il.) Fameux!.….
 Effroyablement fameux! (Schrecklich famos!).. Mais |
-que diable! (grommelait-il, stupéfait,) qu'est-ce que c'est 4
+que diable! (grommelait-il, stupéfait,) qu'est-ce que c'est
 
 Il s'était redressé sur son siège, penchaït la tête en
 
@@ -442,35 +442,35 @@ avant, se faisait un cornet avec sa main, se parlait à
 | lui-même, riait de contentement, et, à certaines curio- ‘
 sités d'harmonies, tirait légèrement la langue, comme À
 
-pour se lécher les lèvres. Une modulation inattendue 1
-_ eut un tel effet sur lui qu'il se leva brusquement, avec 4
+pour se lécher les lèvres. Une modulation inattendue
+_ eut un tel effet sur lui qu'il se leva brusquement, avec
 une exclamation, et vint s'asseoir au piano, à côté de
 k Christophe. Il n'avait pas l'air de s'apercevoir que |
-Christophe fat là. Il ne s'occupait que de la musique; L
-et, quand le morceau fut fini, il saisit le cahier, se mit 1
-à relire la page, puis lut les pages suivantes, continuant 4
-de monologuer son admiration et sa surprise, comme Ë
-s'il eñt été seul dans la chambre : q
+Christophe fat là. Il ne s'occupait que de la musique;
+et, quand le morceau fut fini, il saisit le cahier, se mit
+à relire la page, puis lut les pages suivantes, continuant
+de monologuer son admiration et sa surprise, comme
+s'il eñt été seul dans la chambre
 — Que le diable! (faisait-il). Où cet animal at-il |
 trouvé cela?.…. Colossal!.. Et cela! Ah! le gueux! }
-Repoussant Christophe de l'épaule, il joua lui-même 3
-certains passages. Il avait au piano de charmants J
+Repoussant Christophe de l'épaule, il joua lui-même
+certains passages. Il avait au piano de charmants
 
 doigts, très doux, caressants et légers. Christophe MA
 remarqua ses mains fines, longues, bien soignées, d'un
 aristocratisme un peu maladif, qui ne répondait pas au
 reste de la personne. Hassler s'arrêtait à certains
-accords, les répétait, en clignant de l'œil et faisant cla- 1
+accords, les répétait, en clignant de l'œil et faisant cla-
 quer sa langue; il bourdonnait avec ses lèvres, imitant à
 , la sonorité des instruments, et il continuait d'entre- |
-mêler à cette musique ses apostrophes, où il y avait à 1
+mêler à cette musique ses apostrophes, où il y avait à
 la fois du plaisir et du dépit : il ne pouvait se défendre
 d'une secrète irritation, d'une jalousie inavouée; et, en à
 même temps, il jouissait avidement.
 
 Bien qu'il persistät à se parler à lui seul, comme si
 Christophe n'existait pas, Christophe, rouge de plaisir, |
-ne pouvait s'empêcher de prendre pour son compte F4
+ne pouvait s'empêcher de prendre pour son compte
 les exclamations de Hassler; et il ‘expliquait ce
 qu'il avait voulu faire. Hassler sembla d'abord ne faire
 aucune attention à ce que le jeune homme disait, et
@@ -493,61 +493,61 @@ qui l'attendaient.
 
 ‘13 Christophe parlait, les yeux baiïssés, dans la crainte ge:
 
-mi. Hassler l'encourageait. Il sentait que Hassler l'obser- Fi ë
+mi. Hassler l'encourageait. Il sentait que Hassler l'obser- Fi
 
 “a vait, qu'il ne perdait pas une de ses paroles; il lui sem- à
 _  blait avoir brisé la glace qui les séparait, et son cœur ‘4
 
 _  rayonnait. Quand il eut fini, il leva la tête avec timi- ‘4
-Un | dité, — avec confiance aussi, — et regardä Hassler. 4
-1 Toute sa joie naissante gela d'un coup, comme les 3
-‘1 _ pousses trop précoces, quand il vit les yeux mornes et 2.
+Un | dité, — avec confiance aussi, — et regardä Hassler.
+Toute sa joie naissante gela d'un coup, comme les
+‘1 _ pousses trop précoces, quand il vit les yeux mornes et
 +  railleurs sans bonté qui le fixaient. Il se tut. ‘4
-à Ÿ Après une pause glaciale, Hassler parla, d'une voix 4
+à Ÿ Après une pause glaciale, Hassler parla, d'une voix
 sèche. Il avait de nouveau changé : il affectait une #4
 
-}, sorte de dureté pour le jeune homme; il persiflait 4
+}, sorte de dureté pour le jeune homme; il persiflait
 à cruellement ses projets, ses espoirs de succès, comme À
-de s'il eût voulu se persifler lui-même, puisqu'il se retrou- 4
+de s'il eût voulu se persifler lui-même, puisqu'il se retrou-
 6 vait en lui. Il s'acharnait froidement à détruire sa ‘3
 
 d foi dans la vie, sa foi dans l'art, sa foi en soi. I se
-‘4à donna lui-même en exemple, avec amertume, parlant D
-un de ses œuvres d'aujourd'hui, d'une façon insultante. Ë
+‘4à donna lui-même en exemple, avec amertume, parlant
+un de ses œuvres d'aujourd'hui, d'une façon insultante.
 pee — Des cochonneries! dit-il. C'est ce qu'il faut pour ei
-À ces cochons. Est-ce que vous croyez qu'il y a dix per- 4
+À ces cochons. Est-ce que vous croyez qu'il y a dix per-
 j .sonnes au monde, qui aiment la musique ? Est-ce qu'il ‘ii
-ii | — Il y a moi! dit Christophe, avec emportement. E
+ii | — Il y a moi! dit Christophe, avec emportement.
 & *  Hassier le regarda, haussa les épaules, et dit, d'une %
 ‘4 — Vous serez comme les autres. Vous ferez comme
-REA les autres. Vous penserez à arriver, à vous amuser, 4
+REA les autres. Vous penserez à arriver, à vous amuser,
 Ya comme les autres. Et vous aurez raison... ni
-ph Christophe essaya de protester; mais Hassler lui 4
-1:11 coupa la parole, et, reprenant son cahier, se mit à cri- 2
+ph Christophe essaya de protester; mais Hassler lui
+1:11 coupa la parole, et, reprenant son cahier, se mit à cri-
 W tiquer aigrement les œuvres qu'il louait tout à l'heure. (7
 
 de Non seulement il relevait avec une dureté blessante les À à
 _  négligences réelles, les incorrections d'écriture, les fautes ‘4
 de goût ou d'expression, qui avaient échappé au jeune +:
 homme; mais il lui faisait des critiques absurdes, des BE.
-critiques comme en eût pu faire le plus étroit et le plus 4
+critiques comme en eût pu faire le plus étroit et le plus
 arriéré des musiciens, dont lui-même, Hassler, avait eu, :
-toute sa vie, à souffrir. Il demandait à quoi tout cela 4
+toute sa vie, à souffrir. Il demandait à quoi tout cela
 
 rimait. Il ne critiquait même plus, il niait : on eût ni
 
-dit qu'il s'efforçait d'effacer haineusement l'impres- 14
+dit qu'il s'efforçait d'effacer haineusement l'impres-
 
 sion que ces œuvres lui avaient faite, en dépit de lui- $,
-Christophe, consterné, n'essayait pas de répondre. # 4
+Christophe, consterné, n'essayait pas de répondre. #
 Comment répondre à des absurdités, qu'on rougit d'en- Be
-tendre dans la bouche de quelqu'un qu'on estimait et 4
+tendre dans la bouche de quelqu'un qu'on estimait et
 qu'on aimait? Au reste, Hassler n'écoutait rien. Il | fi
 
 restait là, butté, le cahier fermé entre les maïns, les ;
 yeux sans expression, la bouche amère. A la fin, il dit, à
 comme si de nouveau il avait oublié la présence de “
-— Ah! la pire misère, c'est qu'il n'y a pas un homme, 14
+— Ah! la pire misère, c'est qu'il n'y a pas un homme,
 
 pas un qui soit capable de vous comprendre ! F ‘#
 Christophe se sentit transpercé d'émotion; il se #4
@@ -564,25 +564,25 @@ qui regardèrent Christophe. L'ironie et l'égoïsme prirent a
 
 1 _  — Je m'en fiche bien! Crois-tu que ce soit pour toi ‘4
 (18 que j'ai perdu ma vie? -}
-1 11 se leva, jeta le cahier sur le piano, et, de ses 4
+1 11 se leva, jeta le cahier sur le piano, et, de ses
 di À longues jambes qui flageolaient, s'en alla reprendre sa à
-rt place sur le divan. Christophe, qui avait saisi sa pensée, 1
-1h et qui en avait senti l'insultante blessure, essayait fière- 4
+rt place sur le divan. Christophe, qui avait saisi sa pensée,
+1h et qui en avait senti l'insultante blessure, essayait fière-
 ci ment de répondre que l'on n'a pas besoin d'être compris he
-" de tous : certaines âmes à elles seules valent un peuple 4
-} tout entier; elles pensent pour lui; et, ce qu'elles ont 14
+" de tous : certaines âmes à elles seules valent un peuple
+} tout entier; elles pensent pour lui; et, ce qu'elles ont
 pensé, il faudra qu'il le pense. — Mais Hassler n'écou- ‘à
 
-à tait plus. Il était retombé dans son apathie, causée par 4
-; _ J'affaiblissement de la vie qui s'endormait en lui. Chris- î
+à tait plus. Il était retombé dans son apathie, causée par
+; _ J'affaiblissement de la vie qui s'endormait en lui. Chris-
 | tophe, trop sain pour comprendre ce revirement subit, ne
-sentait vaguement que la partie était perdue; mais il ne 4
+sentait vaguement que la partie était perdue; mais il ne
 
-; pouvait s'y résigner, après avoir été si près de la 1
+; pouvait s'y résigner, après avoir été si près de la
 croire gagnée. Il faisait des efforts désespérés pour À
-ranimer l'attention de Hassler; il avait repris son cahier i
+ranimer l'attention de Hassler; il avait repris son cahier
 
-de musique, et cherchait à lui expliquer la raison des È
+de musique, et cherchait à lui expliquer la raison des
 irrégularités, que Hassler avait notées. Hassler, enfoncé ‘à
 däns le sofa, gardait un silence morne; il n'approuvait, %
 
@@ -599,7 +599,7 @@ l''accompagna jusqu'à la porte d'entrée, sans un mot ;
 pour le retenir, ou pour l'inviter à revenir. le
 
 Christophe se retrouva dans la rue, anéanti. Il allait
-au hasard, il ne savait où aller. Après avoir suivi 5
+au hasard, il ne savait où aller. Après avoir suivi
 machinalement deux ou trois rues, il se retrouva à la
 station du tram, qui l'avait amené. Il le reprit, sans
 penser à ce qu'il faisait. Il s'affaissa sur la banquette, }
@@ -615,7 +615,7 @@ désillusion qu'il y avait trouvée.
 Il retourna à son hôtel. Il n'était pas midi et demie. Il
 y avait deux heures qu'il y était entré, — avec quelle
 lumière ‘au cœur! — Maintenant, tout était éteint,
-3 I ne déjeuna point. Il ne monta pas dans sa chambre.
+I ne déjeuna point. Il ne monta pas dans sa chambre.
 | A la stupéfaction des gens, il demanda sa note, paya
 comme s'il avait passé la nuit, et dit qu'il voulait |
 | partir. En vain, lui expliquait-on qu'il n'avait pas à se
@@ -623,72 +623,72 @@ comme s'il avait passé la nuit, et dit qu'il voulait |
 pas avant plusieurs heures, qu'il ferait mieux d'attendre
 
 11 à l'hôtel. Il voulut aller tout de suite à la gare: il était de:
-De comme un enfant, il voulait prendre le premier train, 41
+De comme un enfant, il voulait prendre le premier train,
 21 n'importe lequel, ne plus rester une heure dans ce pays. À
 F4 Fa Après ce long voyage et toutes les dépenses qu'il avait Ne.
-4 faites pour venir, — bien qu'il se fût fait une fête non k
+4 faites pour venir, — bien qu'il se fût fait une fête non
 je seulement de voir Hassler, mais de voir des musées,
 "4 ‘ d'entendre des concerts, de faire certaines connaïis- à
 10 sances, — il n'avait plus qu'une idée en tête : #4
-14 Il revint à la gare. Ainsi qu'on le lui avait dit, son |
+Il revint à la gare. Ainsi qu'on le lui avait dit, son |
 ‘4 train ne partait pas avant trois heures. Encore ce train,
 ni qui n'était pas express, — (car Christophe était forcé à
 1 de prendre la dernière classe) — s'arrêtait-il en route;
-4 Christophe aurait eu avantage à monter dans le train E
-+00 suivant, qui partait deux heures plus tard, et qui rejoi- 4
+Christophe aurait eu avantage à monter dans le train
++00 suivant, qui partait deux heures plus tard, et qui rejoi-
 À gnait le premier. Mais c'était deux heures de plus à
-# | passer ici, et Christophe ne pouvait le supporter. Il ne 4
+# | passer ici, et Christophe ne pouvait le supporter. Il ne
 d voulut même plus sortir de la gare, en attendant. — Le
-0 Lugubre attente, dans ces salles vastes et vides, tumul-
+Lugubre attente, dans ces salles vastes et vides, tumul-
 À tueuses et funèbres, où entrent et sortent, toujours affai- ‘4
-Re rées, toujours courant, des ombres étrangères, toutes 1
+Re rées, toujours courant, des ombres étrangères, toutes
 4 étrangères, toutes indifférentes, pas une qu'on con- \
-# naisse, pas un visage ami. Le jour blafard s'éteignait. 1
+# naisse, pas un visage ami. Le jour blafard s'éteignait.
 Les lampes électriques, enveloppées de brouillard, \
 de mouchetaient la nuit et semblaient la rendre plus ?
-Ni sombre. Christophe, plus oppressé d'heure en heure, L.
-; attendait avec angoisse le moment de partir, Il allait, M
-î dix fois par heure, revoir les affiches des trains pour 4
+Ni sombre. Christophe, plus oppressé d'heure en heure,
+; attendait avec angoisse le moment de partir, Il allait,
+î dix fois par heure, revoir les affiches des trains pour
 Ÿ 144 s'assurer qu'il ne s'était pas trompé. Comme il les reli- NU
-! sait d'un bout à l'autre, une fois de plus, pour passer le L:
+! sait d'un bout à l'autre, une fois de plus, pour passer le
 4 temps, un nom de pays le frappa : il se dit quille
 a connaissait; ce ne fut qu'après un moment qu'il se
 
 rappela que c'était le pays du vieux Universitätsmusik- ÿ Le
 direktor Schulz, qui lui avait écrit de si bonnes et de.
-epthousiastes lettres. L'idée lui vint aussitôt, dans le x 2
+epthousiastes lettres. L'idée lui vint aussitôt, dans le
 désarroi où il était, d'aller voir cet ami inconnu. La à
-ville n'était pas sur son chemin direct de retour, mais À S
+ville n'était pas sur son chemin direct de retour, mais À
 
-à une ou deux heures, par un chemin de fer local; 4
+à une ou deux heures, par un chemin de fer local;
 c'était un voyage de toute une nuit, avec deux ou trois .
-changements de train, d'interminables attentes : Chris- 1
+changements de train, d'interminables attentes : Chris-
 tophe ne caleula rien. Sur-le-champ, il décida d'y aller : he
 
-_ c'était pour lui un besoin instinctif de se raccrocher à # é
+_ c'était pour lui un besoin instinctif de se raccrocher à #
 une sympathie. Sans se donner le temps de réfléchir, il #
 rédigea une dépêche, et télégraphia.à Schulz son arri- |
 
-vée pour le lendemain matin. Il n'avait pas envoyé ce ê
+vée pour le lendemain matin. Il n'avait pas envoyé ce
 mot, qu'il le regrettait déjà. Il se plaisantait amèrement &
 
-| sur ses illusions éternelles. Pourquoi aller au devant N
+| sur ses illusions éternelles. Pourquoi aller au devant
 _ d'un nouveau chagrin? — Mais c'était fait maintenant. | à
 : Il était trop tard pour changer. *
 Ces pensées occupèrent sa dernière heure d'attente. pen
 
 | — Son train était enfin formé. Il y monta, le premier; |, ‘4
-et son enfantillage était tel, qu'il ne commença à res- É:
+et son enfantillage était tel, qu'il ne commença à res-
 pirer que lorsque le train s'ébranla, et que, par la por- ‘1
-| tière du wagon, il vit derrière lui s'effacer dans le ciel 0
-gris, sous les tristes averses, la silhouette de la ville, 1
+| tière du wagon, il vit derrière lui s'effacer dans le ciel
+gris, sous les tristes averses, la silhouette de la ville,
 sur laguelle la nuit tombait. Il lui semblait qu'il serait À
 _ mort, s'il avait passé la nuit la. us.
-A cette même heure, — vers six heures du soir, — 4
+A cette même heure, — vers six heures du soir,
 
-. une lettre de Hassler arrivait pour Christophe, à son 14
+. une lettre de Hassler arrivait pour Christophe, à son
 _ hôtel. La visite de Christophe avait remué bien des HA
-- choses en lui. Pendant tout l'après-midi, il y avait x
+- choses en lui. Pendant tout l'après-midi, il y avait
 _ songé avec amertume, et aussi, avec sympathie pour s)
 É { le pauvre garçon qui était venu à lui avec une telle à
 
@@ -703,33 +703,33 @@ af nt un mot qui lui donnait rendez-vous, à l'issue de lare |
 ‘#10 le voyant pas venir, Hassler pensa : ) ÿ ‘
 ii É — Ilest fâché. Tant pis pour lui! * mal.
 Mu Il haussa les épaules, et n'en chercha pas plus long.
-10 Le lendemain, il ne pensait plus à lui. "
+Le lendemain, il ne pensait plus à lui. "
 4 } Le lendemain, Christophe était loin de lui, —siloin
 ‘139 que toute l'éternité n'eût pas suffi à les rapprocher lun
 1° À de l'autre. Et tous deux étaient seuls pour jamais. ‘à
-1 4
+1
 
 Peter Schulz avait soixante-quinze ans. Il avait toü- a
 jours eu une santé délicate, et l'âge ne l'avait pas "3
 
-. épargné. Assez grand, mais voûté, et la tête penchée sur 7
+. épargné. Assez grand, mais voûté, et la tête penchée sur
 la poitrine, il avait les bronches faibles, et respirait ‘4
 avec peine. Asthme, catarrhe, bronchite, s'acharnaient "1
 après lui; et la trace des luttes qu'il lui fallait subir, #
-— bien des nuits, assis dans son lit, le corps penché en. 5
+— bien des nuits, assis dans son lit, le corps penché en.
 avant, et trempé de sueur, pour tâcher de faire entrer de.
-un soufile d'air dans sa poitrine qui étouffait, — était é
+un soufile d'air dans sa poitrine qui étouffait, — était
 gravée dans les plis douloureux de sa longue figure, .
-maigre et rasée. Le nez était long et un peu gonflé au Ë
+maigre et rasée. Le nez était long et un peu gonflé au
 sommet. Des rides profondes, partant du dessous des Fe
 
 yeux, coupaient transversalement les joues creusées ‘4
-par les vides de la mâchoire. L'âge et les infirmités 5
-- navaient pas été les seuls sculpteurs de ce pauvre g.
+par les vides de la mâchoire. L'âge et les infirmités
+- navaient pas été les seuls sculpteurs de ce pauvre
 masque délabré; les chagrins de la vie y avaient eu à
-part aussi. — Et malgré tout, il n'était point triste. La F4 L
-grande ‘bouche tranquille avait une douceur sereine. » F
-Mais c'étaient surtout les yeux qui donnaient à 18
+part aussi. — Et malgré tout, il n'était point triste. La
+grande ‘bouche tranquille avait une douceur sereine. »
+Mais c'étaient surtout les yeux qui donnaient à
 ce vieux. visage une douceur touchante : ils étaient à
 d'un gris-clair limpide et transparent; ils regardaient no
 | bien en face, avec calme et candeur; ils ne cachaïient nr.
@@ -739,70 +739,70 @@ L rien de l'âme : on eût pu lire au fond. EN
 
 ‘0 aile Jean-Christophe TE du À
 04 pas très bonne, pas très intelligente, pas du tout belle. &
-pa Mais il en conservait un souvenir attendri. Il y avait … Ô
+pa Mais il en conservait un souvenir attendri. Il y avait …
 je vingt-cinq ans qu'il l'avait perdue; et, pas un soir de- ‘à
-D. puis, il ne s'était endormi, sans avoir un petit entretien 1
+D. puis, il ne s'était endormi, sans avoir un petit entretien
 ‘1e mental, triste et tendre, avec elle; il lassociait à chaD cune de ses journées. — Il n'avait pas eu d'enfant: |
 j ‘à c'était le grand regret de sa vie. Il avait reporté son |
 14 | besoin d'affection sur ses élèves, auxquels il était atta128 ché, comme un père à ses fils. Il avait trouvé peu de
 A0 reiour. Un vieux cœur peut se sentir très près d'un
 ‘4 jeune cœur, et presque du même âge : il sait combien
-“0 sont brèves les années qui les séparent. Maïs le jeune 4
-D homme ne s'en doute point : le vieillard est pour lui un 1
-7 . homme d'une autre époque; au reste, il est absorbé par D
+“0 sont brèves les années qui les séparent. Maïs le jeune
+D homme ne s'en doute point : le vieillard est pour lui un
+7 . homme d'une autre époque; au reste, il est absorbé par
 N. trop de soucis immédiats, et il détourne instinctive- À
-à ment les yeux du but mélancolique de ses efforts. Le L
+à ment les yeux du but mélancolique de ses efforts. Le
 À 1 vieux Schulz avait rencontré parfois quelque recon- À
-qe naissance chez des élèves, touchés par lintérêt E
+qe naissance chez des élèves, touchés par lintérêt
 1 | vif et frais qu'il prenait à tout ce qui leur arrivait
 ti d'heureux ou de malheureux; ils venaient le voir de
-1 temps en temps; ils lui écrivaient, pour le remercier, 4
+1 temps en temps; ils lui écrivaient, pour le remercier,
 UE quand ils quittaient l'université; certains lui écrivaien
 # F encore, une ou deux fois, les années suivantes. Puis, le =: A
 À vieux Schulz n'entendait plus parler d'eux, sinon par À
 o les journaux, qui lui faisaient connaître l'avancement 3}
-h de tel ou tel : et il se réjouissait de leurs succès, comme F
-si c'étaient les siens. Il ne leur en voulait pas de leur 1
+h de tel ou tel : et il se réjouissait de leurs succès, comme
+si c'étaient les siens. Il ne leur en voulait pas de leur
 is silence : il y trouvait mille excuses; il ne doutait point
-à de leur affection, et prêtait aux plus égoïstes les senti- 4
-ments qu'il avait pour eux. ; 4
+à de leur affection, et prêtait aux plus égoïstes les senti-
+ments qu'il avait pour eux.
 ‘0 Mais ses livres étaient pour lui le meilleur des re- a
 16 fuges : ils n'étaient point oublieux, ni trompeurs. Les “4
 
 âmes, qu'il chérissait en eux, étaient maintenant sorties ‘à
 
 du flot du temps : elles étaient immuables, fixées pour :
-l'éternité dans l'amour qu'elles inspiraient et qu'elles F F:
+l'éternité dans l'amour qu'elles inspiraient et qu'elles
 semblaient ressentir, qu'elles rayonnaient à leur tour ;
-sur ceux qui les aimaient. Professeur d'esthétique et 14
+sur ceux qui les aimaient. Professeur d'esthétique et
 d'histoire de la musique, il était comme un vieux bois, a
-vibrant de chants d'oiseaux. Certains de ces chants ré- 3e
-sonnaient très loin, ils venaient du fond des siècles : ils 4
-n'étaient pas les moins doux et les moins mystérieux. 5
-— Il en était d'autres qui lui étaient familiers et in- 4
-x times : c'étaient de chers compagnons; chacune de 2
-leurs phrases lui rappelait des joies et des douleurs de L:
-sa vie passée, consciente ou inconsciente : — (car sous 4
+vibrant de chants d'oiseaux. Certains de ces chants ré-
+sonnaient très loin, ils venaient du fond des siècles : ils
+n'étaient pas les moins doux et les moins mystérieux.
+— Il en était d'autres qui lui étaient familiers et in-
+x times : c'étaient de chers compagnons; chacune de
+leurs phrases lui rappelait des joies et des douleurs de
+sa vie passée, consciente ou inconsciente : — (car sous
 chacun des jours, que la lumière du soleil éclaire, ur
-d'autres jours ‘se déroulent, qu'éclaire une lumière B:
-inconnue.) — Il y en avait enfin qu'on n'avait jamais 4
+d'autres jours ‘se déroulent, qu'éclaire une lumière
+inconnue.) — Il y en avait enfin qu'on n'avait jamais
 entendus encore, et qui disaient des choses qu'on atten- ‘4
-dait depuis longtemps, dont on avait besoin : le cœur ÿ.
+dait depuis longtemps, dont on avait besoin : le cœur
 s'ouvrait pour les recevoir, comme la terre sous la à
 pluie. Ainsi, le vieux Schulz écoutait, dans le silence de ‘10
 sa vie solitaire, la forêt pleine d'oiseaux; et, comme le { à
 moine de la légende, endormi dans l'extase du chant de re
-l'oiseau magique, les années passaient pour lui, et le 4
+l'oiseau magique, les années passaient pour lui, et le
 
-soir de la vie était venu; mais il avait toujours son ÿ
+soir de la vie était venu; mais il avait toujours son
 âme de vingt ans. ne
 Il n'était pas seulement riche de musique. Il aimait à
-les poètes, — les anciens et les nouveaux. Il avait une ë
+les poètes, — les anciens et les nouveaux. Il avait une
 : prédilection pour ceux de son pays, surtout pour : À
-Goethe; mais il aimait aussi ceux des autres pays. 5
-Il était instruit et lisait plusieurs langues. Il était, d'es- ù
+Goethe; mais il aimait aussi ceux des autres pays.
+Il était instruit et lisait plusieurs langues. Il était, d'es-
 prit, un contemporain de Herder et des grands Welt- à
-L bürger, — des « citoyens du monde », de la fin du dix- 7
+L bürger, — des « citoyens du monde », de la fin du dix-
 
 Fa huitième siècle. Il avait vécu les années d'âpres luttes, |
 
@@ -813,7 +813,7 @@ W KA « glorieux ». Il pensait avec Herder, qu' « entre tous les
 
 he accompli », et avec Schiller, que « c'est un bien pauvre |
 
-de idéal de n'écrire que pour une seule nation ». Son 4
+de idéal de n'écrire que pour une seule nation ». Son
 
 que esprit était parfois timide; mais son cœur était d'une ‘
 
@@ -821,11 +821,11 @@ N: ÿ largeur admirable, et prêt à accueillir avec amour tout |
 
 ; ce qui était beau dans le monde. Peut-être était-il trop
 
-k indulgent pour la médiocrité; mais son instinct n'avait n
+k indulgent pour la médiocrité; mais son instinct n'avait
 
 18 point de doute sur ce qui était le meilleur; et sil $
 
-n'avait pas la force de condamner les faux artistes que k
+n'avait pas la force de condamner les faux artistes que
 
 JE l'opinion publique admirait, il avait toujours celle de |
 
@@ -865,13 +865,13 @@ d'un seul coup, — tout un monde à aimer. Sa vie en :
 
 avait été illuminée. L !
 
-, 2
+,
 
-Depuis un an, il avait dû résigner ses fonctions à M
-l'Université : sa santé de plus en plus précaire ne lui { k
+Depuis un an, il avait dû résigner ses fonctions à
+l'Université : sa santé de plus en plus précaire ne lui {
 permettait plus de professer. Il était malade, et au lit, k à
 
-; quand le libraire Wolf lui avait fait porter, comme , ï
+; quand le libraire Wolf lui avait fait porter, comme
 il en avait l'habitude, un paquet des dernières nou- %
 veautés musicales qu'il avait reçues, et où se trouvaient, : ,
 
@@ -879,53 +879,53 @@ cette fois, les Lieder de Christophe. Il était seul. Nul à
 parent auprès de lui; le peu qu'il avait de famille était ire
 
 mort depuis longtemps. Il était livré aux soins d'une #
-vieille bonne, qui abusait de sa faiblesse, pour lui j
-imposer tout ce qu'elle voulait. Deux ou trois amis, 4
-guère moins âgés que lui, venaient le voir de temps en ! j
+vieille bonne, qui abusait de sa faiblesse, pour lui
+imposer tout ce qu'elle voulait. Deux ou trois amis,
+guère moins âgés que lui, venaient le voir de temps en !
 temps; mais ils n'étaient pas non plus d'une très bonne à
 
 ” santé ; et, quand le temps était mauvais, ils se tenaient se
 clos aussi, et espaçaient leurs visites. Justement, c'était à
-l'hiver alors, les rues étaient couvertes d'une neige qui k:
+l'hiver alors, les rues étaient couvertes d'une neige qui
 fondait : Schulz n'avait vu personne, de tout le jour. Il We
 faisait sombre dans la chambre : un brouillard jaune ie
 
 était tendu contre les vitres, comme un écran, et murait De
 
-les regards; la chaleur du poële était lourde et fatigante. 700
+les regards; la chaleur du poële était lourde et fatigante.
 
-De l'église voisine, un vieux carillon du dix-septième D
+De l'église voisine, un vieux carillon du dix-septième
 
 j siècle chantait, tous les quarts d'heure, d'une voix je
 | boiteuse et horriblement fausse, des bribes de chorals te
 monotones, dont la jovialité paraissait un peu grima- He
-çante, quand on n'était pas très gai, soi-même. Le vieux : 4
-Schulz toussait, le dos appuyé contre une pile d'oreil- s
+çante, quand on n'était pas très gai, soi-même. Le vieux
+Schulz toussait, le dos appuyé contre une pile d'oreil-
 
 ‘4 __ lers. Il essayait de relire Montaigne, qu'il aimait; mais Le
-bol _ cette lecture ne lui faisait pas aujourd'hui autant de 28
-1 ie plaisir qu'à l'ordinaire; il avait laissé tomber le livre, il R.
+bol _ cette lecture ne lui faisait pas aujourd'hui autant de
+1 ie plaisir qu'à l'ordinaire; il avait laissé tomber le livre, il
 ni respirait avec peine, et rêvait. Le paquet de musique à
-pen à était là, sur son lit : il n'avait pas le courage de l'ouvrir; 11
+pen à était là, sur son lit : il n'avait pas le courage de l'ouvrir;
 10 _ il se sentait le cœur triste. Enfin, il soupira, et, après ‘#1
-le ; avoir défait très soigneusement la ficelle, il remit 4
+le ; avoir défait très soigneusement la ficelle, il remit
 ‘14 ses lunettes, et commença à lire les morceaux de à
 1 musique. Sa pensée était ailleurs : elle revenait toujours À
-F 4 à des souvenirs qu'il voulait écarter. « 4
+F 4 à des souvenirs qu'il voulait écarter. «
 #3 à Le cahier qu'il, tenait était celui de Christophe. Ses à
-l yeux tombèrent sur un vieux Cantique, dont Christophe 4
-à j avait repris les paroles à un naïf et pieux poète du dix- L
+l yeux tombèrent sur un vieux Cantique, dont Christophe
+à j avait repris les paroles à un naïf et pieux poète du dix-
 hi septième siècle, en renouvelant leur expression : le à
-ï Christliches Wanderlied (chant du voyageur chrétien) 4
-jh de Paul Gerhardt. 21
+ï Christliches Wanderlied (chant du voyageur chrétien)
+jh de Paul Gerhardt.
 F. Hoff, o du arme Seele, : A
-ki Û So wirst du schon erblicken 14
+ki Û So wirst du schon erblicken
 k « Espère, à toi, pauvre âme, ‘a À
 # . espère, et sois intrépide! an
 ie et voici que tu vas voir À
 f le soleil de la belle Joie. »
-“: Le vieux Schulz connaissait bien ces candides paroles; 1
-7 mais jamais elles ne lui avaient parlé ainsi, ainsi... Ce h
+“: Le vieux Schulz connaissait bien ces candides paroles;
+7 mais jamais elles ne lui avaient parlé ainsi, ainsi... Ce
 ne. n'était plus la tranquille piété, qui calme et endort À
 ï lâme par sa monotonie. C'était une âme comme la Re
 i sienne, c'était son âme même, mais plus jeune et plus #
@@ -936,51 +936,51 @@ forte, qui souffrait, qui voulait espérer, qui voulait voir ne.
 larmes coulaient le long de ses joues. Il continua : 4 ty
 Auf, auf! gieb deinem Schmerze 4 Le
 
-« Debout, debout! donne à ta douleur : 14
+« Debout, debout! donne à ta douleur
 
 et à tes soucis bonne nuit! ) °"9
 j Laisse partir ce qui trouble ‘13
-le cœur et le rend triste! » : 19
-« Christophe communiquait à ces pensées une jeune | 4
+le cœur et le rend triste! »
+« Christophe communiquait à ces pensées une jeune
 
 ardeur intrépide, dont le rire héroïque s'épanouissait +
-dans ces derniers vers confiants et naïfs : 1
+dans ces derniers vers confiants et naïfs
 
 Bist du doch nicht Regente, ‘4
 
 « Ce n'est pas toi, voyons! qui règnes à fs
 
-et qui dois tout conduire. I P. 4
+et qui dois tout conduire.
 
-C'est Dieu. Dieu est le roi, 14
+C'est Dieu. Dieu est le roi,
 
 et mène tout comme il faut! » AN:
-Et lorsque venait cette strophe de superbe défi, qu'il 12
+Et lorsque venait cette strophe de superbe défi, qu'il
 
-avait, avec son insolence de jeune barbare, arrachée 5
-tranquillement de sa place primitive dans l'ensemble du 191
+avait, avec son insolence de jeune barbare, arrachée
+tranquillement de sa place primitive dans l'ensemble du
 poème, pour en faire la conclusion de son Lied : ‘1028
-| F : Hier wollten widerstehn, 0
-8 Gott nicht zurücke gehn : ne.
+| F : Hier wollten widerstehn,
+Gott nicht zurücke gehn : ne.
 
-qui Das muss doch endlich kommen 1
+qui Das muss doch endlich kommen
 1 ! « Et quand bien même tous les diables à
-fs sois tranquille, ne doute pas! U
+fs sois tranquille, ne doute pas!
 j 4 Dieu ne reculera point. : |
-12 Ce qu'il s'est proposé, h
+Ce qu'il s'est proposé,
 a ce qu'il veut accomplir,
 0 1 cela finira bien par arriver À
 ui … alors, c'était un transport d'allégresse, l'ivresse de
 la bataille, un triomphe d'{mperator Romain.
 h Le vieillard tremblait de tout son corps. Il suivait, |
-haletant, l'impétueuse musique, comme un enfant qu'un 7.
+haletant, l'impétueuse musique, comme un enfant qu'un
 \ compagnon entraîne dans sa course, en le tenant par |
 la main. Son cœur battait. Ses larmes ruisselaient. À
 — Ah! mon Dieu! Ah! mon Dieu!
 Il se mit à sangloter, et il riait : il était heureux. à
-400 Il suffoquait. Il fut pris d'une terrible quinte de toux. l
+Il suffoquait. Il fut pris d'une terrible quinte de toux.
 He Salomé, la vieille servante, accourut, et elle crut que le
-vieux allait y passer. Il continuait de pleurer, de tous- È
+vieux allait y passer. Il continuait de pleurer, de tous-
 ser, et de répéter :
 — Ah! mon Dieu! mon Dieu!...
 et, dans ses courts moments de répit, entre deux
@@ -993,22 +993,22 @@ comprendre la cause de cette agitation, elle le gronda
 Vous ne le verrez plus. - }
 Mais le vieux tenait bon, toujours toussant ; et il criait à
 à Salomé de le laisser tranquille. Comme elle insistait, : f |
-il se mit en fureur, il jurait, et il s'étranglait dans ses 40
+il se mit en fureur, il jurait, et il s'étranglait dans ses
 jurements. Jamais elle ne l'avait vu se fâcher et oser 2 À
 lui tenir tête. Elle en fut ébahie, et elle lâcha prise; 6 f ‘4
 mais elle ne lui ménagea pas les paroles sévères : elle Le
-le traita de vieux fou, elle dit qu'elle avait cru jusqu'à F
+le traita de vieux fou, elle dit qu'elle avait cru jusqu'à
 présent avoir affaire à un homme bien élevé, mais ; ;
 qu'elle voyait maintenant qu'elle s'était trompée, qu'il EL
 disait des blasphèmes à faire rougir un charretier, que
 les yeux lui sortaient de la tête, et que s'ils étaient des |
-pistolets, ils l'auraient tuée. Elle en eût eu pour long- è
+pistolets, ils l'auraient tuée. Elle en eût eu pour long-
 temps à continuer cette chanson, s'il ne s'était soulevé, à
 furieux, sur ses oreillers, et ne lui avait crié : <
 d'un ton si péremptoire, qu'elle était partie en faisant de
 battre la porte, et déclarant qu'il pourrait bien l'appe- De
-ler maintenant, qu'elle ne se dérangerait pas, qu'elle le ; 5
-laisserait claquer tout seul. r
+ler maintenant, qu'elle ne se dérangerait pas, qu'elle le
+laisserait claquer tout seul.
 Alors, le silence reiomba de nouveau dans la de
 chambre où la nuit s'étendait. De nouveau, le carillon #
 égrena dans la paix du soir ses sonneries placides et “à
@@ -1017,80 +1017,80 @@ Schulz, immobile, étendu sur le dos, attendait, haletant, ;
 ‘ que le tumulte de son cœur s'apaisât; il serrait sur sa VA
 poitrine les précieux Lieder, et il riait comme un enfant. ‘1
 
-“0 Il passa les journées solitaires qui suivirent dans une d
+“0 Il passa les journées solitaires qui suivirent dans une
 2 _ sorte d'extase. Il ne pensait plus à son mal, à l'hiver, à
-Fi à la triste lumière, à sa solitude. Tout était lumineux et 11
+Fi à la triste lumière, à sa solitude. Tout était lumineux et
 4 f aimant autour de lui. Tout près de la mort, il se sentait nl
-‘ revivre dans l'âme jeune d'un ami inconnu. 4
-. : Il tâchait de se figurer Christophe. Il ne le voyait pas 14
+‘ revivre dans l'âme jeune d'un ami inconnu.
+. : Il tâchait de se figurer Christophe. Il ne le voyait pas
 ne du tout comme il était. Il le voyait un peu à sa propre |
 A W image idéalisée, et tel que lui-même eût voulu être:
 4 blond, mince, les yeux bleus, parlant d'une voix un peu |
-i, faible et voilée, doux, timide et tendre. Mais quel qu'il 4
-1 fût, il était toujours prêt à l'idéaliser. Il idéalisait tout s
-\ a ce qui l'entourait : ses élèves, ses voisins, ses amis, sa 4
+i, faible et voilée, doux, timide et tendre. Mais quel qu'il
+1 fût, il était toujours prêt à l'idéaliser. Il idéalisait tout
+\ a ce qui l'entourait : ses élèves, ses voisins, ses amis, sa
 i vieille bonne. Sa douceur affectueuse et son manque de ‘4
 ÿ critique, — en partie volontaire, pour écarter toute
 ji / pensée troublante, — tissaient autour de lui des images à
-à sereines et pures, comme la sienne. C'était un men- 4
-10 songe de bonté, dont il avait besoin pour vivre. J
+à sereines et pures, comme la sienne. C'était un men-
+10 songe de bonté, dont il avait besoin pour vivre.
 Il n'en était pas tout à fait dupe; et souvent, dans +1
 % son lit, la nuit, il soupirait en songeant à mille \
-Ë N petites choses, arrivées dans le jour, qui contre- k
+Ë N petites choses, arrivées dans le jour, qui contre-
 fl disaient son idéalisme. Il savait bien que la vieille {
 je Salomé se moquait de lui, derrière son dos, avec
-h les commères du quartier, et qu'elle le volait régu- 4
+h les commères du quartier, et qu'elle le volait régu-
 
-| lièrement dans ses comptes de chaque semaine. 1
+| lièrement dans ses comptes de chaque semaine.
 Il savait bien que ses élèves étaient obséquieux ‘14
 
 avec lui, tant qu'ils avaient besoin de lui, puis, qu'après nu
 qu'ils avaient reçu de lui tous les services qu'ils en pou- &
-vaient attendre, ils le laissaient de côté. IL savait que à 4
+vaient attendre, ils le laissaient de côté. IL savait que à
 ses anciens collègues de l'Université l'avaient tout à fait. #5
-oublié, depuis qu'il avait pris sa retraite, et que son 4
-successeur le pillait dans ses articles, sans le nommer, 1e
+oublié, depuis qu'il avait pris sa retraite, et que son
+successeur le pillait dans ses articles, sans le nommer,
 ou en le nommant d'une façon perfidé, pour citer de lui “4
 
 une phrase sans valeur, et pour relever ses erreurs : — :
 (procédé, qui est courant dans le monde de la critique). Ke
-— Il savait que son vieil ami Kunz lui avait encore fait 73
-un gros mensonge, cet après-midi, et qu'il ne reverrait ë ô
+— Il savait que son vieil ami Kunz lui avait encore fait
+un gros mensonge, cet après-midi, et qu'il ne reverrait
 jamais les livres, que son autre ami, Pottpetschmidt, lui fe
 . avait empruntés pour quelques jours, — ce qui était #1
-douloureux pour quelqu'un, qui, comme lui, était 1
-attaché à ses livres ainsi qu'à des personnes vivantes. d
+douloureux pour quelqu'un, qui, comme lui, était
+attaché à ses livres ainsi qu'à des personnes vivantes.
 Beaucoup d'autres choses tristes, anciennes ou récentes, Ft
 lui revenaient à l'esprit; il ne voulait pas y penser; à ‘4
 mais elles étaient quand même en lui : il les sentait. #
-Leur souvenir le traversait parfois, comme une douleur 4
+Leur souvenir le traversait parfois, comme une douleur
 lancinante. ne
 
 — Ah! mon Dieu! mon Dieu ! st
 gémissait-il, dans le silence de la nuit. — Puis, il
 écartait les fâcheuses pensées : il les niaït; il voulait no:
-être confiant, optimiste, croire aux hommes : et il y è
+être confiant, optimiste, croire aux hommes : et il y
 croyait. Combien de fois ses illusions avaient-elles été ‘14
-brutalement détruites ! — Mais il en renaissait d'autres, 3
+brutalement détruites ! — Mais il en renaissait d'autres,
 toujours, toujours. Ïl ne pouvait s'en passer. É £
-Christophe inconnu devint un foyer lumineux dans sa d:
+Christophe inconnu devint un foyer lumineux dans sa
 | vie. La première lettre froide et maussade, qu'il reçut à
 de lui, eût dû lui faire de la peine; — (peut-être, lui en À
-| 307 4
+|
 
-k fit-elle); — mais il n'en avait pas voulu convenir, et il 1
-Au) en eut une joie d'enfant. Il était si modeste, et deman- h
+k fit-elle); — mais il n'en avait pas voulu convenir, et il
+Au) en eut une joie d'enfant. Il était si modeste, et deman-
 é daït si peu aux hommes, que le peu qu'il en recevait ;
 pts suffisait à nourrir son besoin de les aimer et de leur à
 “1 être reconnaissant. Voir Christophe était un bonheur
-ik f qu'il n'eût jamais osé espérer : car il était maintenant p
+ik f qu'il n'eût jamais osé espérer : car il était maintenant
 “a trop vieux pour faire le voyage des bords du Rhin; et,
 1] quant à solliciter sa visite, la pensée ne lui en venaït
-à La dépêche de Christophe lui arriva, le soir, au 4
+à La dépêche de Christophe lui arriva, le soir, au
 % moment où il se mettait à table. Il ne comprit pas (
-1 d'abord : la signature lui semblait inconnue, il pensa 4
-si qu'on s'était trompé, que la dépêche n'était pas pour 4
-k lui; il la relut trois fois; dans son trouble, ses lunettes L:
+1 d'abord : la signature lui semblait inconnue, il pensa
+si qu'on s'était trompé, que la dépêche n'était pas pour
+k lui; il la relut trois fois; dans son trouble, ses lunettes
 f ne voulaient pas tenir, la lampe éclairait mal, les lettres +
 dansaient devant ses yeux. Quand il eut compris, il fut |
 / si bouleversé qu'il oublia de dîner. Salomé eut beau
@@ -1102,90 +1102,90 @@ alla chercher son chapeau et sa canne, et sortit. La
 | bonheur, avait été de le partager avec d'autres, et
 d'avertir ses amis de l'arrivée de Christophe. ;
 Il avait deux amis, comme lui mélomanes, à qui il La
-avait réussi à communiquer son enthousiasme pour î
+avait réussi à communiquer son enthousiasme pour
 Christophe : le juge Samuel Kunz, et le dentiste %
 Oscar Potipetschmidt, qui était un chanteur excellent. (l
-Les trois vieux camarades avaient souvent parlé de ù
+Les trois vieux camarades avaient souvent parlé de
 Christophe, ensemble; et ils avaient joué toute la mu- di
 .Sique de lui qu'ils avaient pu trouver. Pottpetschmidt pe
-| chantait, Schulz accompagnait, et Kunz écoutait. Et ils 1
+| chantait, Schulz accompagnait, et Kunz écoutait. Et ils
 
 s'extasiaient ensuite pendant des heures. Combien de :
-fois avaient-ils dit, quand ils faisaient de la musique : 4
+fois avaient-ils dit, quand ils faisaient de la musique
 Schulz riait tout seul, dans la rue, de la joie qu'il avait ‘4
 et de celle qu'il allait faire. La nuit venait; et Kunz {
 habitait dans un petit village, à une demi-heure de la #4
 ville. Maïs le ciel était clair; c'était un soir d'avril très é ;
-doux; les rossignols chantaient. Le vieux Schulz avait 8
+doux; les rossignols chantaient. Le vieux Schulz avait
 le cœur inondé de bonheur; il respirait sans oppres- pe
 sion, et il avait des jambes de vingt ans. Il marchait |
 allègrement, sans prendre garde aux pierres, contre Hi
-lesquelles il butait dans l'ombre. Il seæangeait gaillar- 1
+lesquelles il butait dans l'ombre. Il seæangeait gaillar-
 dement sur le côté de la route, à l'arrivée des voitures, ‘ À
 et il échangeait un joyeux salut avec le conducteur, :
 qui le considérait avec étonnement, quand la lanterne fs
 éclairait en passant le vieillard grimpé sur le talus du
-La nuit était complète, lorsqu'il arriva à la maison 1 F
-de Kunz, un peu en dehors du village, dans un petit 4
+La nuit était complète, lorsqu'il arriva à la maison
+de Kunz, un peu en dehors du village, dans un petit
 jardin. Il tambourina à sa porte, et l'appela à tue-tête. A
 Une fenêtre s'ouvrit, et Kunz, effaré, parut. Il essayait à
-de voir dans l'obscurité, et demanda : 14
-- Schulz, essoufllé et joyeux, criait: :E0
+de voir dans l'obscurité, et demanda
+- Schulz, essoufllé et joyeux, criait:
 . Kunz n'y comprenait rien; mais il reconnut la voix : |
 — Schulz!.… Comment! A cette heure ? Qu'y at-il? Fe
-— Il vient demain, demain matin !.…. s È
+— Il vient demain, demain matin !.….
 — Quoi ? demandait toujours Kunz, ahuri. ÿ}
-Kunz resta un moment à méditer le sens de cette É
+Kunz resta un moment à méditer le sens de cette
 
-1 parole; puis une exclamation retentissante témoigna É.
-10 qu'il avait compris. 1
-0 — Je descends! cria-t-il. S
+1 parole; puis une exclamation retentissante témoigna
+10 qu'il avait compris.
+0 — Je descends! cria-t-il.
 d La fenêtre se referma. Il parut sur le perron de l'esca- !
 hi lier, une lampe à la main, et descendit dans le jardin.
-4 C'était un petit vieux bedonnant, avec une grosse tête
+C'était un petit vieux bedonnant, avec une grosse tête
 11 grise, une barbe rouge, des taches de rousseur sur Ich
-ne visage et sur les mains. Il venait à petits pas, en fumant 4
-ie sa pipe de porcelaine. Cet homme débonnaire et un peu 1
-‘1 ! endormi ne s'était jamais fait grands soucis dans sa vie. 4
+ne visage et sur les mains. Il venait à petits pas, en fumant
+ie sa pipe de porcelaine. Cet homme débonnaire et un peu
+‘1 ! endormi ne s'était jamais fait grands soucis dans sa vie.
 À La nouvelle que lui apportait Schulz n'en était pas
-. moins capablesde le faire sortir de son calme; et il Î
-n. agitait ses bras courts et sa lampe, en demandant : Ë
+. moins capablesde le faire sortir de son calme; et il
+n. agitait ses bras courts et sa lampe, en demandant
 LS — Quoi? c'est vrai? Il vient? ]
 ‘0 agitant la dépêche.
-k Les deux vieux amis allèrent s'asseoir sur un bane, F
-“4 sous la tonnelle. Schulz prit la lampe. Kunz déplia 4
+k Les deux vieux amis allèrent s'asseoir sur un bane,
+“4 sous la tonnelle. Schulz prit la lampe. Kunz déplia
 ti soigneusement la dépêche, lut lentement, ,à mi-voix : |
 À Schulz relisait tout haut, par dessus son épaule. Kunz |
 | regarda encore le papier, les indications qui encadraient
 il le télégramme, l'heure où il avait été envoyé, l'heure où (
-il était arrivé, le nombre des mots. Puis, il rendit le pré- 4
-ÿ cieux papier à Schulz, qui riait d'aise, le regarda en s
-; hochant la tête, et répétant : 1
-ï * Après avoir réfléchi un instant, aspiré et expiré une L
+il était arrivé, le nombre des mots. Puis, il rendit le pré-
+ÿ cieux papier à Schulz, qui riait d'aise, le regarda en
+; hochant la tête, et répétant
+ï * Après avoir réfléchi un instant, aspiré et expiré une
 V grosse bouffée de tabac, il posa sa main sur le genou de |
-2 Schulz, et dit : {
-ÿ — Il faut avertir Pottpetschmidt. 0
-! — J'y allais, dit Schulz. 4
-| — Je viens avec toi, dit Kunz. 2
+Schulz, et dit : {
+ÿ — Il faut avertir Pottpetschmidt.
+! — J'y allais, dit Schulz.
+| — Je viens avec toi, dit Kunz.
 
 | Il rentra pour déposer la lampe, et revint aussitôt. :%
-Les deux vieux s'en allèrent, bras dessus bras dessous. 0
-Pottpetschmidt habitait à l'autre bout du village. Schulz N:
+Les deux vieux s'en allèrent, bras dessus bras dessous.
+Pottpetschmidt habitait à l'autre bout du village. Schulz
 et Kunz échangeaient des mots distraits, en ruminant “ti
 la nouvelle. Tout à coup, Kunz s'arrêta, et tapa le sol,
 
 — Ah! tonnerre! fit-il... Il n'est pas ici! <a
 
-IL se rappelait maintenant que Pottpeischmidt avait el 4
+IL se rappelait maintenant que Pottpeischmidt avait el
 \ dû partir dans l'après-midi pour une opération dans #ÿ :
-une ville voisine, où il devait passer la nuit et séjourner 4
+une ville voisine, où il devait passer la nuit et séjourner
 un jour ou deux. Schulz était consterné. Kunz ne l'était AE
 
 pas moins. Ils étaient fiers de Pottpetschmidt; ils "A
 ” eussent voulu s'en faire honneur. Is restaient au milieu %
-de la route, ne sachant que décider. ” 4
+de la route, ne sachant que décider. ”
 
-— Comment faire ? Comment faire? demandait 5
+— Comment faire ? Comment faire? demandait
 
 — Il faut absolument que Krafft entende Pottpet- à
 
@@ -1203,77 +1203,77 @@ de rien comprendre. Puis, ils revinrent. Schulz calcu- Î #
 — Il pourra être encore ici demain matin, en prenant ve
 
 L le premier train. '
-Mais Kunz fit remarquer qu'il était tard, et que la e 4
+Mais Kunz fit remarquer qu'il était tard, et que la
 dépêche ne lui serait remise sans doute que le lende- RS
-main. Schulz hocha la tête; et ils se répétaient : - 1
+main. Schulz hocha la tête; et ils se répétaient :
 Ils se séparèrent à la porte de Kunz; car, quelle que ‘4
-| fût l'amitié de celui-ci pour Schulz, elle r'allait pas k
+| fût l'amitié de celui-ci pour Schulz, elle r'allait pas
 
 ia À : jusqu'à lui faire commettre l'imprudence d'accompagner
- Schulz hors du village, ne fût-ce qu'un bout de chemin,” où 1
+ Schulz hors du village, ne fût-ce qu'un bout de chemin,” où
 1 qu'il lui eût fallu refaire seul, dans la nuit. Il futconvenu
 1100 que Kunz viendrait dîner, le lendemain, chez Schulz.
 4 ne Schulz regardait le ciel, avec anxiété : à à
 nu — Pourvu qu'il fasse beau, demain! SR
-1 Et il eut un poids de moins sur le cœur, quand Kunz, …
+Et il eut un poids de moins sur le cœur, quand Kunz, …
 °11 qui passait pour se connaître admirablement en météoAu rologie, dit, après avoir gravement examiné le ciel
-set (car il n'avait pas moins que Schulz le souci que Christi tophe vit leur petit pays dans toute sa beauté) : 4
-PS — Il fera beau, demain. 1
+set (car il n'avait pas moins que Schulz le souci que Christi tophe vit leur petit pays dans toute sa beauté)
+PS — Il fera beau, demain.
 
-Schulz reprit le chemin de la ville, où il parvint ï
-non sans avoir trébuché plus d'une fois dans les 4
-ornières, ou contre les tas de pierres élevés le long 5
-de la route. Il ne rentra pas chez lui, avant d'être K
+Schulz reprit le chemin de la ville, où il parvint
+non sans avoir trébuché plus d'une fois dans les
+ornières, ou contre les tas de pierres élevés le long
+de la route. Il ne rentra pas chez lui, avant d'être
 = passé chez le pâtissier, pour lui commander une cer- ra
-taine tarte, qui était la gloire de la ville. Puis, il É
+taine tarte, qui était la gloire de la ville. Puis, il
 revint à sa maison; mais, au moment d'y rentrer, il )
 rebroussa chemin, pour aller s'informer à la gare de Fe
-lheure exacte de l'arrivée des trains. Enfin, il rentra, , 4
-appela Salomé, et discuta longuement avec elle le 3
+lheure exacte de l'arrivée des trains. Enfin, il rentra,
+appela Salomé, et discuta longuement avec elle le
 diner du lendemain, Alors seulement, il se coucha, ‘4
 harassé; mais il était aussi surexcité qu'un enfant, ‘8
-dans la veillée de Noël, et il se retourna toute la nuit 1
-dans ses draps, sans trouver un instant de sommeil. F
-Vers une heure du matin, il eut l'idée de se lever, pour 2
-aller dire à Salomé de faire plutôt, pour le diner, une carpe à ÿ
-à l'étuvée; car elle réussissait ce plat à merveille. Il ne le 14
+dans la veillée de Noël, et il se retourna toute la nuit
+dans ses draps, sans trouver un instant de sommeil.
+Vers une heure du matin, il eut l'idée de se lever, pour
+aller dire à Salomé de faire plutôt, pour le diner, une carpe à
+à l'étuvée; car elle réussissait ce plat à merveille. Il ne le
 lui dit pas : et il fit bien, sans doute. Il ne s'en leva pas ; à.
 moins pour arranger diverses choses dans la chambre ‘4
 qu'il destinait à Christophe; il prenait mille précau- |
-tions, pour que Salomé ne l'entendit pas : car il crai- 14
+tions, pour que Salomé ne l'entendit pas : car il crai-
 gnaït d'être grondé. Toute la nuit, il eut peur de ‘7%
 manquer l'heure du train, bien que Christophe ne dût ÿ |
-pas arriver avant huit heures. Il fut debout, de grand 4
-matin. Son premier regard fut pour le ciel : Kunz ne 14
+pas arriver avant huit heures. Il fut debout, de grand
+matin. Son premier regard fut pour le ciel : Kunz ne
 
 io s'était pas trompé, il faisait un temps magnifique. Sur "à
-‘40 la pointe des pieds, Schulz descendit à sa cave, où il 14
-hs n'allait plus depuis longtemps, de peur du froid et des 1
-Li escaliers raides; il y fit un choix de ses meilleures 4
-ke. bouteilles, se heurta rudement la tête contre la voûte, 4
-A en remontant, et crut qu'il allait étouffer, quand il par- 4
-‘4 vint au haut de l'escalier avec son panier chargé. 4
+‘40 la pointe des pieds, Schulz descendit à sa cave, où il
+hs n'allait plus depuis longtemps, de peur du froid et des
+Li escaliers raides; il y fit un choix de ses meilleures
+ke. bouteilles, se heurta rudement la tête contre la voûte,
+A en remontant, et crut qu'il allait étouffer, quand il par-
+‘4 vint au haut de l'escalier avec son panier chargé.
 bi Ensuite, il alla au jardin, armé de son sécateur; il
 14 î coupa impitoyablement ses plus belles roses et les premo mières branches de ses lilas en fleurs. Puis, il remonta À
-#4 dans sa chambre, fit fiévreusement sa barbe, se coupa E
-Lt une ou deux fois, s'habilla avec soin, et partit pour la : F.
-k gare. Il était sept heures. Salomé ne réussit pas à lui 4
-(à ne prendre ne de lait; car . prétendit que Ë
-tt Christophe n'aurait sans doute pas déjeuné non plus, 4
-‘0 quand.il arriverait, et qu'ils mangeraient ensemble en 4
-À revenant de la gare. 4
-de . Il se trouva au chemin de fer, trois quarts d'heure en 4
-à avance. Il se morfondit à attendre Christophe, et finale- 1
+#4 dans sa chambre, fit fiévreusement sa barbe, se coupa
+Lt une ou deux fois, s'habilla avec soin, et partit pour la
+k gare. Il était sept heures. Salomé ne réussit pas à lui
+(à ne prendre ne de lait; car . prétendit que
+tt Christophe n'aurait sans doute pas déjeuné non plus,
+‘0 quand.il arriverait, et qu'ils mangeraient ensemble en
+À revenant de la gare.
+de . Il se trouva au chemin de fer, trois quarts d'heure en
+à avance. Il se morfondit à attendre Christophe, et finale-
 Ne ment le manqua. Au lieu d'avoir la patience de rester à ‘1
-Fi la porte de sortie, il alla sur le quai, et perdit la tête au 4
-! milieu du tourbillon des arrivées et des départs. Malgré M
-4 les indications précises de la dépêche, il s'était imaginé, R È
-L Dieu sait pourquoi! que Christophe arriverait par un ÿ
-4 autre train que celui qui l'amena; et d'ailleurs, il ne lui 4
-i serait pas venu à l'idée que Christophe püût descendre 4
+Fi la porte de sortie, il alla sur le quai, et perdit la tête au
+! milieu du tourbillon des arrivées et des départs. Malgré
+4 les indications précises de la dépêche, il s'était imaginé,
+L Dieu sait pourquoi! que Christophe arriverait par un
+4 autre train que celui qui l'amena; et d'ailleurs, il ne lui
+i serait pas venu à l'idée que Christophe püût descendre
 C4 d'un wagon de quatrième classe. Il resta plus d'une +4
 à demi-heure encore à l'attendre à la gare, quand Chris- *
-h tophe, arrivé depuis longtemps, était allé tout droit 4
+h tophe, arrivé depuis longtemps, était allé tout droit
 frapper à sa maison. Pour comble de malheur, Salomé }
 à venait d'en sortir, pour se rendre au marché : Christophe L .
 ÿ trouva porte close. La voisine, que Salomé avait simple- à
@@ -1283,32 +1283,32 @@ ment chargée de dire, au cas où quelqu'un sonneraïit, ‘4
 .. qu'elle serait bientôt de retour, fit la commission, sans Ke
 rien ajouter de plus. Christophe, qui n'était pas venu À
 ” pour voir Salomé, et qui ne savait même pas qui elle ‘54
-était, trouva la plaisanterie mauvaise; il demanda si le Re 1:
+était, trouva la plaisanterie mauvaise; il demanda si le Re
 Herr Universitätsmusikdirektor Schulz n'était donc pas “2
-au pays. On lui répondit que si; mais on ne put lui dire 4
+au pays. On lui répondit que si; mais on ne put lui dire
 où il était. Furieux, il s'en alla. nue
-Quand le vieux Schulz rentra, la figure longue d'une 4
+Quand le vieux Schulz rentra, la figure longue d'une
 
 * aune, et quand il apprit de Salomé, qui venait aussi de "
-rentrer, ce qui s'était passé, il fut dans la désolation : 0
-il faillit pleurer. Il se mit en rage contre la sottise de 1
+rentrer, ce qui s'était passé, il fut dans la désolation
+il faillit pleurer. Il se mit en rage contre la sottise de
 la domestique, qui était sortie en son absence, et qui VA
-n'avait même pas été capable de donner des instruc- ÿ
+n'avait même pas été capable de donner des instruc-
 tions pour qu'on fit attendre Christophe, au cas où il ne
-viendrait. Salomé lui répondit, sur le même ton, qu'elle 1
-ne pouvait non plus s'imaginer qu'il serait assez sot 4
-pour manquer celui qu'il attendait. Mais le vieux ne 2à
+viendrait. Salomé lui répondit, sur le même ton, qu'elle
+ne pouvait non plus s'imaginer qu'il serait assez sot
+pour manquer celui qu'il attendait. Mais le vieux ne
 s'attarda pas à discuter avec elle; sans perdre un ‘
 | instant, il dégringola de nouveau son escalier, et à
 repartit à la recherche de Christophe, sur la piste très $ |
 vague que les voisins lui indiquèrent. ER:
-Christophe ayait été froissé de ne trouver personne, É.
+Christophe ayait été froissé de ne trouver personne,
 
 ni même un mot d'excuses. Ne sachant que faire avant *
 
 le prochain train, il était allé se promener dans la ville “E
 
-et les champs qui lui paraissaient jolis. C'était une -74
+et les champs qui lui paraissaient jolis. C'était une
 petite ville tranquille, reposante, abritée entre des ne
 collines molles; des jardins autour des maisons, des HA
 cerisiers en fleurs, des pelouses vertes, de beaux om- À ‘M
@@ -1318,49 +1318,49 @@ au milieu de la verdure, des visages doux et gentils. x fe
 
 A Tout autour de la ville, des prairies, des collines. Dans
 4 ie les buissons fleuris, les merles sifilaient à cœur-joie, ‘à
-ne formant de petits concerts de flûtes rieuses et sonores. h
+ne formant de petits concerts de flûtes rieuses et sonores.
 hi La mauvaise humeur de Christophe ne tarda pas à
-1 tomber : il oublia Peter Schulz. 41
+1 tomber : il oublia Peter Schulz.
 4h Le vieillard parcourait en vain les rues, interrogeant A
-1 les gens; il monta jusqu'au vieux château, sur la col- 4
+1 les gens; il monta jusqu'au vieux château, sur la col-
 M line, au-dessus de la ville ; et il revenait, navré, quand, ‘1
-k de ses yeux perçanis qui voyaient de très loin, il aper- 7
-cut à quelque distance un homme couché dans un pré, 1
+k de ses yeux perçanis qui voyaient de très loin, il aper-
+cut à quelque distance un homme couché dans un pré,
 x à l'ombre d'un buisson. Il ne connaissait pas Chris- ‘4
-ue tophe : il ne pouvait savoir si c'était lui. D'ailleurs, L
+ue tophe : il ne pouvait savoir si c'était lui. D'ailleurs,
 3 l'homme lui tournait le dos, la tête à moitié enfouie
-; “in dans l'herbe. Schulz rôdait sur la route, tournait autour 4
-ÿ du pré, le cœur battant : 11
+; “in dans l'herbe. Schulz rôdait sur la route, tournait autour
+ÿ du pré, le cœur battant
 — C'est lui... Non, ce n'est pas lui... À
 é T1 n'osait pas l'appeler. Une idée lui vint : il se mit |.
-| à chanter la première phrase du Lied de Christophe : M
+| à chanter la première phrase du Lied de Christophe
 | Christophe ressauta, comme un poisson hors de l'eau, À
 pi et il cria la suite à tue-tête. Il se retourna tout joyeux. ‘4
-Il avait la figure rouge et des herbes dans les cheveux. M
-” Ils s'interpellèrent tous deux par leurs noms, et cou- ù
-rurent l'un à l'autre. Schulz enjamba le fossé de la 4
-‘ .. route, Christophe sauta par dessus la barrière. Ils . 4
+Il avait la figure rouge et des herbes dans les cheveux.
+” Ils s'interpellèrent tous deux par leurs noms, et cou-
+rurent l'un à l'autre. Schulz enjamba le fossé de la
+‘ .. route, Christophe sauta par dessus la barrière. Ils
 se serrèrent la main avec effusion, et revinrent ensemble \
 à la maison, riant et parlant très fort. Le vieux contait le
 
 | sa mésaventure. Christophe, qui, un moment avant,
 
-j était bien décidé à continuer sa route sans faire une h:
-? nouvelle tentative pour voir Schulz, sentit immédia- d
-tement la candide bonté de cette âme, et se prit à F.
+j était bien décidé à continuer sa route sans faire une
+? nouvelle tentative pour voir Schulz, sentit immédia-
+tement la candide bonté de cette âme, et se prit à
 
 l'aimer. Avant d'être arrivés, ils s'étaient déjà confié Fi
-une multitude de choses. via d
+une multitude de choses. via
 
-En entrant, ils trouvèrent Kunz, qui, ayant appris que j:
+En entrant, ils trouvèrent Kunz, qui, ayant appris que
 Schulz était parti à la recherche de Christophe, atten- à
 dait tranquillement. On servit le café au lait. Mais Fi.
 Christophe dit qu'il avait déjeuné dans une auberge "4
 de la ville. Le vieux fut désolé : c'était un vrai cha- à
-grin pour jui que le premier repas que Christophe 11
-avait pris dans le pays ne l'eût pas été chez lui; ces ÿ
+grin pour jui que le premier repas que Christophe
+avait pris dans le pays ne l'eût pas été chez lui; ces
 petites choses avaient une importance énorme pour son RU
-cœur affectueux. Christophe, qui le comprit, s'en amusa é
+cœur affectueux. Christophe, qui le comprit, s'en amusa
 en secret, et il l'en aima davantage. Afin de le consoler, .
 il lui certifia qu'il avait assez bon appétit pour déjeuner ta
 deux fois : et il le lui prouya.
@@ -1368,15 +1368,15 @@ deux fois : et il le lui prouya.
 Il était d'admirable humeur; tous ses ennuis lui de
 étaient sortis de la tête : il se sentait au milieu de vrais
 amis, il ressuscitait. Il racontait son voyage, ses dé-
-boires, d'une facon humoristique : il avait l'air d'un ï
+boires, d'une facon humoristique : il avait l'air d'un
 écolier en vacances. Schuiz, rayonnant, le couvait des
-yeux, et il riait de tout son cœur. 4
+yeux, et il riait de tout son cœur.
 
-L'entretien ne tarda pas à rouler sur ce qui les unis- p
-sait tous trois d'un lien secret : la musique de Chris- k
-tophe. Schulz mourait d'envie d'entendre Christophe 4
+L'entretien ne tarda pas à rouler sur ce qui les unis-
+sait tous trois d'un lien secret : la musique de Chris-
+tophe. Schulz mourait d'envie d'entendre Christophe
 jouer quelques-unes de ses œuvres; mais il n'osait à
-le lui demander. Tout en causant, Christophe arpen- f
+le lui demander. Tout en causant, Christophe arpen-
 tait la chambre. Schulz guettait ses pas, quand il pas- À
 sait près du piano ouvert; et il faisait des vœux pour :UPA
 
@@ -1387,36 +1387,36 @@ parler, puis, sans regarder l'instrument, promener ses
 
 mains au hasard sur les touches. Comme Schulz s'y , à
 
-14 Jean-Christophe di du
+Jean-Christophe di du
 \ 10 attendait, à peine Christophe eut-il fait quelques “a
 D | arpèges, que le son s'empara de lui; il continua d'en
 “0 chaïîner des accords, en causant; puis, ce furent des \
 418 phrases entières; et alors, il se tut, et commença à
-1; TR jouer. Les deux vieux échangèrent un coup d'œil d'intel- 1
+1; TR jouer. Les deux vieux échangèrent un coup d'œil d'intel-
 ‘4 ligence, malicieux et heureux. . |
-711 — Connaissez-vous cela? demanda Christophe, en j
-Le js jouant “un de ses Lieder. 1
+711 — Connaissez-vous cela? demanda Christophe, en
+Le js jouant “un de ses Lieder.
 110 — Si je le connais! dit Schulz, ravi. ]
-ne Christophe, sans s'interrompre, dit, en tournant à 4
-10 demi la tête : Ê
+ne Christophe, sans s'interrompre, dit, en tournant à
+10 demi la tête
 pa. — Hé! Il n'est pas très bon, votre piano ! (
-N'a Le vieux fut très contrit. IL s'excusa : 1
+N'a Le vieux fut très contrit. IL s'excusa
 11 : — Il est vieux, dit-il humblement, il est comme
 ' é Christophe se retourna tout à fait, regarda le .
 REA vieillard qui semblait demander pardon de sa vieillesse,
 ‘4 et lui prit les deux mains, en riant. Il contemplait ses \
-à — Oh! vous, dit-il, vous êtes plus jeune que moi. 4
+à — Oh! vous, dit-il, vous êtes plus jeune que moi.
 Schulz riait d'un bon rire, et parlait de son vieux |
-4 corps, de ses infirmités. 1
+4 corps, de ses infirmités.
 à | vel je sais ce que je dis. Est-ce que ce n'est pas À
-‘1 (I avait déjà supprimé le : « Monsieur ».) k U
-4 Kunz approuvait de toutes ses forces. N
-pi Schulz essayait d'associer à sa cause celle de son 4
-‘4 — Il a encore de très jolies notes, dit-il timidement. 4
-11 Et il les toucha : — quatre ou cinq notes assez M
+‘1 (I avait déjà supprimé le : « Monsieur ».)
+Kunz approuvait de toutes ses forces.
+pi Schulz essayait d'associer à sa cause celle de son
+‘4 — Il a encore de très jolies notes, dit-il timidement.
+Et il les toucha : — quatre ou cinq notes assez
 ‘ fraîches, une demi-octave, dans le registre moyen de À
 
-| l'instrument. Christophe comprit que c'était un vieil 1
+| l'instrument. Christophe comprit que c'était un vieil
 
 ami pour lui, et il dit gentiment, — pensant aux yeux "4
 
@@ -1424,10 +1424,10 @@ La figure de Schulz s'éclaira. Il s'embarqua dans un Eee
 
 éloge embrouillé de son vieux piano, mais se tut aussi- Ne
 
-! tôt : car Christophe s'était remis à jouer. Les Lieder 1
+! tôt : car Christophe s'était remis à jouer. Les Lieder
 succédaient aux Lieder;, Christophe chantait à mi- |
 
-voix. Schulz, les yeux humides, suivait chacun de ses ; 4
+voix. Schulz, les yeux humides, suivait chacun de ses
 mouvements. Kunz, les mains croisées sur son ventre, 44)
 fermait les yeux pour mieux jouir. De temps en temps, à
 Christophe se retournait, radieux, vers les deux vieilles i ni
@@ -1435,21 +1435,21 @@ Christophe se retournait, radieux, vers les deux vieilles i ni
 un enthousiasme naïf, dont ils ne pensaient pas àrire:
 — Hein! Est-ce beau! Et cela! Qu'est-ce que CURE
 vous en dites ?.. Et celui-là! Celui-là est le plus beau à
-de tous. — Maintenant, je vais vous jouer quelque 4
-, chose, qui va vous faire dresser les cheveux sur la 4
-Comme il terminait un morceau rêveur, le coucou de 4
-: la pendule se mit à sonner. Christophe bondit, et cria F
-de colère. Kunz, réveillé en sursaut, roulait de gros x.
+de tous. — Maintenant, je vais vous jouer quelque
+, chose, qui va vous faire dresser les cheveux sur la
+Comme il terminait un morceau rêveur, le coucou de
+: la pendule se mit à sonner. Christophe bondit, et cria
+de colère. Kunz, réveillé en sursaut, roulait de gros
 yeux effarés. Schulz lui-même ne comprenait pas a
-d'abord. Puis, quand il vit Christophe montrer le poing 9 ë
-à, l'oiseau qui saluaït, et crier qu'au nom du ciel on 4
+d'abord. Puis, quand il vit Christophe montrer le poing
+à, l'oiseau qui saluaït, et crier qu'au nom du ciel on
 :  emportât de là cet idiot, ce spectre ventriloque, il ki
-trouva aussitôt, pour la première fois de sa vie, que ce , 4
+trouva aussitôt, pour la première fois de sa vie, que ce
 L/ bruit était en effet intolérable; et, prenant une chaise, RE
 il voulut grimper dessus, pour décrocher le trouble- #0
-ï fête. Mais il faillit tomber, et Kunz l'empêcha de re- 2
-ï monter; il appela Salomé. Elle arriva sans se presser, 4
-à suivant son habitude, et fut stupéfaite de se voir ÿ
+ï fête. Mais il faillit tomber, et Kunz l'empêcha de re-
+ï monter; il appela Salomé. Elle arriva sans se presser,
+à suivant son habitude, et fut stupéfaite de se voir
 
 u : mettre sur les bras l'horloge, que Christophe impatient |
 
@@ -1461,11 +1461,11 @@ DL: dait-elle.
 
 à — Ce que tu voudras. Emporte! Qu'on ne le revoie
 
-\ ; ‘plus ici! disait Schulz, non moins impatient que Chris- ù
+\ ; ‘plus ici! disait Schulz, non moins impatient que Chris-
 
 le. (EH se demandait comment il avait pu supporter si
 
-longtemps cette horreur.) ï
+longtemps cette horreur.)
 
 Bi: Salomé pensa que décidément ils étaient tous toqués.
 
@@ -1517,8 +1517,8 @@ pour un restaurateur. Schulz n'était pas moins sensible
 plaignait pas : s'il était malade, au moins, il savait
 pourquoi. Il avait lui-même, comme Kunz, des recettes
 culinaires, héritées de père en fils, depuis des générations. Salomé avait donc l'habitude d'opérer pour des
-connaisseurs. Mais, cette fois, elle s'était ingéniée pour È
-rassembler en un seul programme tous ses chefs- è
+connaisseurs. Mais, cette fois, elle s'était ingéniée pour
+rassembler en un seul programme tous ses chefs-
 d'œuvre à la fois : c'était comme une exposition de
 cette inoubliable cuisine allemande, honnête, point frelatée, avec tous ses parfums de toutes herbes, et ses
 épaisses sauces, ses potages substantiels, ses pot-aufeu modèles, ses carpes monumentales, ses choucroutes,
@@ -1577,9 +1577,9 @@ Il était comme un enfant, à qui demain semble si :
 
 loin, si loin, qu'il n'y a pas à y penser. Christophe ne "
 
-partait pas aujourd'hui, tout le jour leur appartenait, f
+partait pas aujourd'hui, tout le jour leur appartenait,
 
-ils passeraient toute la soirée ensemble, il dormirait 3
+ils passeraient toute la soirée ensemble, il dormirait
 
 sous son toit : voilà tout ce que voyait Schulz; il ne
 
@@ -1587,32 +1587,32 @@ voulait pas regarder plus loin. a
 
 La gaieté reprit. Schulz se leva tout à coup, prit un |
 
-É- air solennel, et porta un toast ému et emphatique à son H
+É- air solennel, et porta un toast ému et emphatique à son
 
-hôte, qui lui avait fait l'immense joie et l'honneur de E
+hôte, qui lui avait fait l'immense joie et l'honneur de
 visiter sa petite ville et son humble maison; il but à son
 
 heureux retour, à ses succès, à sa gloire, à tout le |
 
-bonheur de la terre, qu'il lui souhaitait de toute son ÿ
+bonheur de la terre, qu'il lui souhaitait de toute son
 
 âme. Ensuite, il porta un autre toast à « la noble °
 
-musique », — un autre à son vieil ami Kunz, — un N
+musique », — un autre à son vieil ami Kunz, — un
 
 autre au printemps; — et il n'oublia pas non plus *
 
 Pottpetschmidt. Kunz but à son tour à Schulz et à #
 
-quelques autres; et Christophe, pour mettre fin aux 2
+quelques autres; et Christophe, pour mettre fin aux
 
-toasts, but à dame Salomé, qui en devint cramoisie. E
+toasts, but à dame Salomé, qui en devint cramoisie.
 
 Après quoi, sans laisser aux orateurs le temps de |
 
 riposter, il entama une chanson connue, que les deux (
 
-| vieux reprirent avec lui, puis après celle-là une autre, É
+| vieux reprirent avec lui, puis après celle-là une autre,
 
 | et encore une autre à trois voix, où il était question ;
 . d'amitié, de musique et de vin : le tout accompagné de
@@ -1635,12 +1635,12 @@ Hi Schünbuchwälder. Kunz fit un peu la grimace; mais il |
 # ne protesta point, et se leva avec les autres : il était
 18 aussi désireux que Schulz de montrer à Christophe les |
 | beautés du pays. 1 #4
-108 Ils sortirent. Christophe avait pris le bras de Schulz,
+Ils sortirent. Christophe avait pris le bras de Schulz,
 f et le faisait marcher un peu plus vite que le vieux n'eût |
 Qi: voulu. Kunz suivait, en s'épongeant. Ils péroraient
-| gaiement. Les gens, sur le seuil de leurs portes, les È
+| gaiement. Les gens, sur le seuil de leurs portes, les
 ‘ regardaient passer, et ipuvaient que Herr Professor à
-1 Schulz avait l'air d'un jeune homme. Au sortir de la
+Schulz avait l'air d'un jeune homme. Au sortir de la
 ville, ils prirent à travers prés. Kunz se plaignait de la }
 Fe: chaleur. Christophe, sans pitié, trouvait que l'air était
 à exquis. Par bonheur pour les deux vieilles gens, on
@@ -1663,13 +1663,13 @@ toutes les manifestations de l'art présent, que connaissait Christophe; mais il
 choses sur des musiciens passés ou étrangers, dont
 Christophe n'avait jamais entendu parler. Sa mémoire
 était une citerne profonde, où toutes les belles eaux
-du ciel avaient été recueillies. Christophe ne se lassait j
+du ciel avaient été recueillies. Christophe ne se lassait
 pas d'y puiser ; et Schulz était heureux de l'intérêt de‘
 Christophe. IL avait rencontré parfois des auditeurs
 complaisants, ou des élèves dociles; mais il lui avait
 toujours manqué de trouver un cœur jeune et ardent,
 avec qui il pût partager les enthousiasmes, dont il
-était gonflé parfois jusqu'à en étouffer. S
+était gonflé parfois jusqu'à en étouffer.
 Ils étaient les meilleurs amis du monde, quand le
 vieux eut la maladresse de dire son admiration pour
 Brahms, Christophe se mit dans une colère froide : ïl
@@ -1692,7 +1692,7 @@ te par monosyllabes. Kunz, ne trouvant pas d'écho de ce
 
 na côté, tâcha, pour rompre le silence, de causer avec
 
-11 Schulz; mais Schulz avait la gorge serrée, il ne pouvait
+Schulz; mais Schulz avait la gorge serrée, il ne pouvait
 
 mL parler. Christophe le regardait du coin de l'œil, et il
 “6 avait envie de rire : il lui avait déjà pardonné. Il ne lui
@@ -1721,49 +1721,49 @@ de Il parlait de la campagne et de la belle journée ; mais
 li É ses yeux qui riaient semblaient dire : A
 al — Tu es bon. Je suis une brute. Pardonne-moi! Je
 
-1 vaime bien. i
+1 vaime bien.
 
 U Le cœur du vieux se fondit. C'était comme si le soleil
 
 ja ‘était revenu après une éclipse. Il fut, un moment encore,
 
 _ + avant de pouvoir articuler un mot. Christophe lui avait si
-repris le bras, et causait plus amicalement que jamais; 0
-dans son entrain, il avait doublé le pas, sans faire 4
+repris le bras, et causait plus amicalement que jamais;
+dans son entrain, il avait doublé le pas, sans faire
 attention qu'il exténuait ses deux compagnons. Schulz Fe
 
 ne se plaignait pas; il ne s'apercevait même pas de la Ke
-fatigue, tant fl était content. Il savait qu'il paierait 4
-toutes ses imprudences de la journée; mais il se disait: 4
+fatigue, tant fl était content. Il savait qu'il paierait
+toutes ses imprudences de la journée; mais il se disait:
 
-— Tant pis pour demain! Quand il sera parti, j'aurai ï d
-bien le temps de me reposer. s1
+— Tant pis pour demain! Quand il sera parti, j'aurai
+bien le temps de me reposer.
 Mais Kunz, moins exalté, suivait à quinze pas, en fai- ce
 
-| -sant une mine piteuse. Christophe s'en aperçut enfin. 4
-I s'excusa, tout confus, et il offrit de s'étendre dans D:
+| -sant une mine piteuse. Christophe s'en aperçut enfin.
+I s'excusa, tout confus, et il offrit de s'étendre dans
 
 une prairie, à l'ombre des peupliers. Schulz, naturel- a
 lement, acquiesçait, sans se demander si sa bron- ‘3
 
-2 chite y trouverait son compte. Heureusement, Kunz y ; ï
+2 chite y trouverait son compte. Heureusement, Kunz y
 songea pour lui; ou, du moins, il donna ce prétexte fé
-pour ne pas s'exposer lui-même, en nage comme il était, : ÿ
+pour ne pas s'exposer lui-même, en nage comme il était,
 
-à la fraîcheur des prés. Il proposa d'aller reprendre à l
+à la fraîcheur des prés. Il proposa d'aller reprendre à
 
 une Station voisine le train qui ramenaiït à la ville. Ainsi à
 fut fait. Malgré leur fatigue, ils durent hâter le pas, ge
 pour n'être pas en retard, et ils arrivèrent en gare, juste à
 
 A leur vue, un gros homme s'élança à la portière d'un à
-wagon, et mugit les noms de Schulz et de Kunz, en les 124
-accompagnant de la liste de tous leurs titres et qualités, ÿ 4
+wagon, et mugit les noms de Schulz et de Kunz, en les
+accompagnant de la liste de tous leurs titres et qualités,
 
-et en agitant les bras, comme un fou. Schulz et Kunz 4
-répondirent en criant, et en remuant aussi les bras: ils É:
+et en agitant les bras, comme un fou. Schulz et Kunz
+répondirent en criant, et en remuant aussi les bras: ils
 
-se précipitèrent vers le compartiment du gros homme, 4:52 F,
+se précipitèrent vers le compartiment du gros homme, 4:52
 
 qui, de son côté, accourait à leur rencontre, en bous- “
 culant ses cempagnons de route. Christophe, ahuri, sui- pt
@@ -1783,7 +1783,7 @@ HA Ce nom ne lui disait pas grand chose. Il avait oublié |
 
 te vacarme assourdissant : ils s'émerveillaient de leur
 
-1 DARN chance. Ils se hissèrent dans le train qui partait. Schulz
+DARN chance. Ils se hissèrent dans le train qui partait. Schulz
 
 | 1e fit les présentations. Pottpeischmidt, après avoir salué,
 
@@ -1829,31 +1829,31 @@ voyageurs, qui attendaient comme lui, et au portier de
 la gare. Enfin, on était reparti. Il tremblait d'arriver
 
 Il avait repris les mains de Christophe, et les pétris- ‘4
-sait dans ses vastes pattes aux doigts poilus. Il était 3
-fabuleusement gros, et grand en proportion : la tête è
+sait dans ses vastes pattes aux doigts poilus. Il était
+fabuleusement gros, et grand en proportion : la tête
 carrée, les cheveux roux, taillés ras, la figure rasée,
-menton, le cou court, le dos d'une largeur monstrueuse, j
+menton, le cou court, le dos d'une largeur monstrueuse,
 le ventre comme un tonneau, les bras écartés du corps, . JA
 . les pieds et les mains énormes, un gigantesque amas A
-de chair, déformé par l'abus de la mangeaiïlle et de la 5
+de chair, déformé par l'abus de la mangeaiïlle et de la
 bière, un de ces pots-à-tabac, à face humaine, comme #l
 on en voit rouler parfois dans les rues des villes de |
 Bavière, qui gardent le secret de cette race d'hommes,
 obtenue par un système de gavage analogue à celui
 des volailles mises dans une épinette. De joie et de chaleur, il luisait comme une motte de beurre; et, les deux ;
-mains posées sur ses deux genoux écartés, ou sur s
+mains posées sur ses deux genoux écartés, ou sur
 ceux de ses voisins, il ne se lassait point de parler, fai- À
-sant rouler les consonnes dans l'air, avec une vigueur 74
-de catapulte. Par instants, il était pris d'un rire, qui le 4
+sant rouler les consonnes dans l'air, avec une vigueur
+de catapulte. Par instants, il était pris d'un rire, qui le
 secouait tout entier : il rejetait la tête en arrière, ouvrant la bouche, ronflant, râlant et s'étranglant. Son
 rire se communiquait à Schulz et à Kunz, qui, quand
 l'accès était passé, regardaient Christophe, en s'es- “
 suyant les yeux. Ils avaient l'air de lui demander : :
 — Hein! Et qu'est-ce que vous en dites ? !
 Christophe n'en disait rien; il pensait avec effroi : À
-— C'est ce monstre qui chante ma musique ? k
+— C'est ce monstre qui chante ma musique ?
 Is rentrèrent chez Schulz. Christophe espérait éviter
-le chant de Poitpetschmidt, et ne lui faisait aucune 2
+le chant de Poitpetschmidt, et ne lui faisait aucune
 avance, malgré les allusions de Pottpetschmidt, qui |
 grillait de se faire entendre. Mais Schulz et Kunz
 | avaient trop à cœur de se faire honneur de leur ami: il
@@ -1889,40 +1889,40 @@ Mais il ne voyait dans ses yeux d'autre flamme que |
 
 | celle de la vanité satisfaite. Une force inconsciente
 
-__ remuait cette lourde masse, Cette force aveugle et pas- i 4
+__ remuait cette lourde masse, Cette force aveugle et pas-
 sive était comme une armée, qui se bat, sans savoir Ve
 contre qui, ni pourquoi. L'esprit des Lieder s'emparait ds
 d'elle, et elle obéissait en jubilant : car elle avait be- ji
 
-soin d'agir; et, livrée à elle-même, elle n'eût jamais su 1h
+soin d'agir; et, livrée à elle-même, elle n'eût jamais su
 
 Christophe se disait qu'au jour de la Création, le Le:
-grand sculpteur ne s'était pas donné beaucoup de peine ‘ f
-pour mettre en ordre les membres épars de ses créa- 1
-tures ébauchées, et qu'il les avait ajustés tant bien que 2
+grand sculpteur ne s'était pas donné beaucoup de peine ‘
+pour mettre en ordre les membres épars de ses créa-
+tures ébauchées, et qu'il les avait ajustés tant bien que
 mal, sans s'inquiéter s'ils étaient faits pour aller %
-ensemble : ainsi, chacun se trouvait fabriqué avec des f:
+ensemble : ainsi, chacun se trouvait fabriqué avec des
 morceaux de toute provenance; et le même homme était à
 épars en cinq ou six hommes différents : le cerveau était “
 
 chez l'un, chez un autre le cœur, chez un troisième le : à
-corps qui convenait à cette âme; l'instrument était d'un Ê k
-côté, et l'instrumentiste de l'autre. Certains êtres 3
-restaient comme d'admirables violons, éternellement f
+corps qui convenait à cette âme; l'instrument était d'un
+côté, et l'instrumentiste de l'autre. Certains êtres
+restaient comme d'admirables violons, éternellement
 enfermés dans leur boîte, faute de quelqu'un qui sût en fs
 jouer. Et ceux qui étaient faits pour en jouer étaient, ‘a
-toute leur vie, obligés à se contenter de misérables A: Ë
+toute leur vie, obligés à se contenter de misérables A:
 crincrins. Il avait d'autant plus de raisons de penser de:
-ainsi, qu'il était furieux contre lui-même de n'avoir , 4
+ainsi, qu'il était furieux contre lui-même de n'avoir
 jamais été capable de chanter proprement une page def de:
-musique. Il avait la voix fausse, et ne pouvait s'écouter À 4
+musique. Il avait la voix fausse, et ne pouvait s'écouter À
 sans horreur. j J #
 
-| Cependant, Pottpetschmidt, grisé par son succès, É
-1 commençait à « mettre de l'expression » dans les Lieder 4 4
-de Christophe; c'est-à-dire, qu'il substituait la sienne à ÿ
-celle de Christophe. Celui-ci, naturellement, ne trouvait 30
-pas que sa musique gagnât au change; et il s'assom- x
+| Cependant, Pottpetschmidt, grisé par son succès,
+1 commençait à « mettre de l'expression » dans les Lieder
+de Christophe; c'est-à-dire, qu'il substituait la sienne à
+celle de Christophe. Celui-ci, naturellement, ne trouvait
+pas que sa musique gagnât au change; et il s'assom-
 _  brissait. Schulz s'en aperçut. Son manque de critique et
 
 4) Jean-Christophe baiis
@@ -1939,7 +1939,7 @@ pl quand le chanteur eut épuisé le répertoire de Chris-
 À tophe, à l'empêcher de se faire entendre dans les
 di élucubrations de compositeurs médiocres, au seul nom
 ne desquels Christophe se hérissait déjà en boule, comme
-| un porc-épic. L
+| un porc-épic.
 à Heureusement, l'annonce du souper vint museler
 pa Pottpetschmidt. Un autre terrain s'offrait à lui, pour
 ï déployer sa valeur : il y était sans rival; et Christophe,
@@ -1955,7 +1955,7 @@ avaient été de sa famille. IL pensait quel bienfait ce
 serait pour un artiste, s'il pouvait se douter des amis
 inconnus que sa pensée rencontre dans le monde, —
 combien son cœur en serait réchauffé et ses forces
-grandies.. Mais il n'en est rien, le plus souvent : et 1
+grandies.. Mais il n'en est rien, le plus souvent : et
 chacun reste seul et meurt seul, craignant d'autant ;
 plus de dire ce qu'il sent, qu'il sent davantage ;
 
@@ -1969,7 +1969,7 @@ h Christophe était pénétré de gratitude pour le vieux ,
 Schulz. Il ne le confondait pas avec ses deux compagnons; il sentait qu'il était l'âme de ce petit groupe à
 d'amis : les autres n'étaient que les reflets de ce
 foyer vivant de bonté et d'amour. L'amitié, que Kunz et
-Pottpetschmidt avaient pour lui, était bien différente. 4
+Pottpetschmidt avaient pour lui, était bien différente.
 Kunz était égoïste : la musique lui procurait une satisfaction de bien-être, comme à un gros chat qu'on caresse.
 Pottpetschmidt y trouvait un plaisir de vanité et d'exercice physique. Ni l'un ni l'autre ne s'inquiétaient de le
 comprendre. Mais Schulz s'oubliait tout entier : il aimait. |
@@ -1980,15 +1980,15 @@ la nuit. Christophe resta seul avec Schulz. Il lui dit :
 — Maintenant, je vais jouer, pour vous seul.
 
 Il se mit au piano, et joua — comme il savait jouer, |
-quand il avait près de lui quelqu'un qui lui était cher. g
+quand il avait près de lui quelqu'un qui lui était cher.
 Il joua de ses œuvres nouvelles. Le vieillard était en ;
 extase. Assis auprès de Christophe, il ne le quittait pas
 
 | des yeux, et retenait son souffle. Dans la bonté de son Fe.
-cœur, incapable de garder le moindre bonheur pour lui é
-seul, il répétait, malgré lui : t
+cœur, incapable de garder le moindre bonheur pour lui
+seul, il répétait, malgré lui
 
-— Ah! quel malheur que Kunz ne soit plus là! É
+— Ah! quel malheur que Kunz ne soit plus là!
 
 (ce qui impatientait un peu Christophe.)
 
@@ -2000,19 +2000,19 @@ x Jean-Christophe de
 1 silencieux : la maison, la rue dormaient. Christophe se à
 4 retourna, et vit le vieil homme, qui pleurait : il se leva,
 
-1 Diet alla l'embrasser. Ils causèrent tout bas, dans le
+Diet alla l'embrasser. Ils causèrent tout bas, dans le
 44 calme de la nuit. Le tic-tac de l'horloge, amorti, battait
 
 n dans une chambre voisine. Schulz parlait à mi-voix,
 
 : te les mains jointes, le corps penché en avant; il racontait ,
-Ÿ Ne à Christophe, qui l'interrogeait, sa vie, ses tristesses ; à Ù
+Ÿ Ne à Christophe, qui l'interrogeait, sa vie, ses tristesses ; à
 1 tout instant, il avait des scrupules de se plaindre, il Fi
 ie éprouvait le besoin de dire :
 
 ji! — J'ai tort. je n'ai pas le droit de me plaindre... tout
 
-1 le monde a été très bon pour moi... 1e
+1 le monde a été très bon pour moi...
 ke Et il ne se plaignait pas, en effet : c'était seulement
 
 hi ÿ une mélancolie involontaire qui se dégageait du sobre :
@@ -2055,15 +2055,15 @@ lant. Le vieux avait préparé la chambre de son hôte, |
 
 1 comme s'il devait y passer plusieurs mois. Il avait \
 
-mis sur la table des roses dans un vase, et une branche 1
+mis sur la table des roses dans un vase, et une branche
 
 de laurier. Il avait installé un buvard tout neuf sur lé “ai
 
-bureau. Il avait fait porter, dans la matinée, un piano q
+bureau. Il avait fait porter, dans la matinée, un piano
 
-droit. Il avait choisi et placé sur la planchetté, au 4
+droit. Il avait choisi et placé sur la planchetté, au
 
-chevet du lit, quelques-uns de ses livres les plus pré- 4
+chevet du lit, quelques-uns de ses livres les plus pré-
 
 cieux et les plus aimés. Il n'y avait pas un détail auquel ee
 
@@ -2077,17 +2077,17 @@ joie qu'il avait eue, et tout le chagrin qu'il avait déjà A
 
 du départ de son ami. Il repassait dans sa tête toutes ue
 
-* les paroles qu'ils s'étaient dites. Il songeait que le cher . k
+* les paroles qu'ils s'étaient dites. Il songeait que le cher
 
 j Christophe dormait auprès de lui, de l'autre côté du ‘È
 
 mur, contre lequel son lit était appuyé. Il était écrasé
 
-de fatigue, courbaturé, oppréssé; il sentait qu'il s'était ÿ
+de fatigue, courbaturé, oppréssé; il sentait qu'il s'était
 
 refroidi pendant la promenade, et qu'il allait avoir À
 
-une rechute; mais il n'avait qu'une pensée : 4
+une rechute; mais il n'avait qu'une pensée
 
 — Pourvu que celà dure jusqu'après son départ! dr
 
@@ -2101,13 +2101,13 @@ Siméon : Nunc dimittis... Il se leva tout en sueur, pour '
 
 écrire ces vers, et il resta assis à sa table, jusqu'à ce HP
 
-qu'il les eût recopiés soigneusement, avec une dédi- 1
+qu'il les eût recopiés soigneusement, avec une dédi-
 
-cace débordante d'affection, et sa signature au bas, la 14
+cace débordante d'affection, et sa signature au bas, la
 
 date et l'heure. Puis, il se recoucha, ayant le frisson, ‘
 
-4 L'aube vint. Schulz songeait, avec regret, à l'aube de k
+L'aube vint. Schulz songeait, avec regret, à l'aube de
 
 ne la veille. Mais il se blâma de gâter par ces pensées les |
 
@@ -2143,7 +2143,7 @@ Gi insister. Cela faisait gros cœur au vieux, qui pensait :
 
 — Ah! comme il dormait bien! Il serait resté là jus- |
 
-Enfin, la voix joyeuse de Christophe répondit, de F
+Enfin, la voix joyeuse de Christophe répondit, de
 
 j l'autre côté de la cloison. Quand il sut l'heure, il s'ex-
 
@@ -2160,7 +2160,7 @@ partir; il ne lui en eût rien coûté de rester quelques
 jours de plus; et cela eût fait tant de plaisir à Schulz!
 Mais Christophe ne pouvait s'en douter exactement.
 D'ailleurs, quelque affection qu'il eût pour le vieux, il
-était bien aise de partir : il était fatigué par cette jour- j
+était bien aise de partir : il était fatigué par cette jour-
 née de conversation perpétuelle, par ces âmes qui s'accrochaïent à lui, avec une affection désespérée. Et puis,
 il était jeune, il pensait qu'ils auraient bien le temps de
 ‘se revoir : il ne partait pas pour le bout du monde! —
@@ -2174,72 +2174,72 @@ monnaie, qu'il n'avait plus assez d'argent pour prendre
 son billet de retour jusqu'à chez lui. Il savaït que Schulz
 lui préterait, avec joie; mais il ne voulut pas le lui
 demander... Pourquoi? Pourquoi refuser à celui qui vous À
-aime l'occasion — le bonheur de vous rendre service? 5
+aime l'occasion — le bonheur de vous rendre service?
 Il ne le voulut pas, par discrétion, — par amour-propre
 peut-être. Il prit un billet jusqu'à une station intermé- À
 diaire, se disant qu'il ferait le reste du chemin à pied. |
 L'heure du départ sonna. Sur le marchepied du
 wagon, ils s'embrassèrent. Schulz glissa dans la main
-de Christophe sa poésie écrite pendant la nuit. Il resta S
-‘sur le quai, au pied du compartiment. Ils n'avaient plus é
+de Christophe sa poésie écrite pendant la nuit. Il resta
+‘sur le quai, au pied du compartiment. Ils n'avaient plus
 rien à se dire, comme. il arrive quand les adieux se
 prolongent; mais les yeux de Schulz continuaient de ‘
 parler : ils ne se détachèrent pas du visage de Christophe, jusqu'à ce que le train partit.
 
 : 10 Le wagon disparut à un tournant de la voie. Schuz
-1 Le se retrouva seul. Il revint par l'avenue boueuse; il se
-FR traînait : il sentait brusquement la fatigue, le froid, la 4
+Le se retrouva seul. Il revint par l'avenue boueuse; il se
+FR traînait : il sentait brusquement la fatigue, le froid, la
 :10S tristesse du jour pluvieux. Il eut grand peine à regagner
 mer sa maison, et à monter l'escalier. À peine rentré dans :.
-x LE sa chambre, il fut pris d'une crise d'étouffement et M
+x LE sa chambre, il fut pris d'une crise d'étouffement et
 ‘30 de toux. Salomé vint à son secours. Au milieu de ses \
-|  gémissements involontaires, il répétait : 4
-ne ‘ — Quel bonheur! Quel bonheur que ç'ait at110 tendu !.… 4
-114 Il se sentait très mal. Il se coucha. Salomé alla cher- Se
-‘1 cher le médecin. Dans son lit, tout son corps s'abandonYo nait, comme une loque. Il n'auraïit pu faire un mouvement; k
+|  gémissements involontaires, il répétait
+ne ‘ — Quel bonheur! Quel bonheur que ç'ait at110 tendu !.…
+Il se sentait très mal. Il se coucha. Salomé alla cher- Se
+‘1 cher le médecin. Dans son lit, tout son corps s'abandonYo nait, comme une loque. Il n'auraïit pu faire un mouvement;
 40 seule, sa poitrine haletait, comme un soufflet de forge.
 pu Sa tête était lourde et fiévreuse. Il passa la journée \
 Re entière à revivre, minute par minute, toute la journée +}
-\:8 ensuite de se plaindre, après un tel bonheur. Les é
+\:8 ensuite de se plaindre, après un tel bonheur. Les
 Eu à mains jointes, le cœur gonflé d'amour, il remerciait
 
 Rasséréné par cette journée, rendu plus confiant en ; fi
-soi par l'affection qu'il laissait derrière lui, Christophe ? ô
+soi par l'affection qu'il laissait derrière lui, Christophe ?
 revéñäait au pays. Arrivé au terme de son billet, il des- DA
-céndit gaiement, et se mit en route, à pied. Il avait uné F4
-soixantaine de kilomètres à faire. Il n'était pas pressé, 3
+céndit gaiement, et se mit en route, à pied. Il avait uné
+soixantaine de kilomètres à faire. Il n'était pas pressé,
 
 { et flänait comme un écolier. C'était Avril. La campagne À
-n'était pas très avancée. Les feuilles se dépliaient, è
+n'était pas très avancée. Les feuilles se dépliaient,
 comme de petites mains ridées, au bout dés branches se
-noirés; les pommiers étaient en fleurs, et les frêles 1
-églantinés souriaient, le long des haïes. Le chemin 5
-passäit au milieu des prairies et des bois qui sentaient 4
-jeune et frais. Par dessus la forêt déplumée, où com- 4
+noirés; les pommiers étaient en fleurs, et les frêles
+églantinés souriaient, le long des haïes. Le chemin
+passäit au milieu des prairies et des bois qui sentaient
+jeune et frais. Par dessus la forêt déplumée, où com-
 mencäait à pousser un fin duvet vert-tendre, se dressait, Re
 aü faîte d'une petite colline, comme un trophée aû {
-bout d'üne lance, un vieux château roman. Dans le ciel F
+bout d'üne lance, un vieux château roman. Dans le ciel
 bleu très doux, voguaient des nuages très noirs. Les ni
 ombres coùraient sur là campagne printanière; des ie
-giboulées passaient puis, le clair soleil renaissait, et ï
+giboulées passaient puis, le clair soleil renaissait, et
 les oiseaux chantaient. #
-Christophe s'aperçtit que, depuis quelques instänts, il À ï
-pensait à l'ontle Gottfried. Il y avait bien longtemps 1
+Christophe s'aperçtit que, depuis quelques instänts, il À
+pensait à l'ontle Gottfried. Il y avait bien longtemps
 qu'il n'avait plus pensé äu pauvre homme; et il se ; #
 demandait pourquoi son souvenir lui revenait en ce mo- :
 ment, avec obstination: il en était hanté, tandis qu'il Le
-cheminait sur une avenue, bordée de peupliers, le long 20
+cheminait sur une avenue, bordée de peupliers, le long
 
 h d'un canal miroïitant; et cette image le poursuivait de |
 FA telle sorte, qu'au détour d'un grand mur, il lui sembla :
 sl qu'il allait le voir venir à sa rencontre. |
 tu Le ciel s'était assombri. Une violente averse de pluie
 K loin. Christophe était près d'un village, dont il voyait
-\, les façades ‘roses et les toits rouges, au milieu des bou- 1
+\, les façades ‘roses et les toits rouges, au milieu des bou-
 quets d'arbres. Il hâta le pas, et se mit à l'abri sous le
 toit avançant de la première maison. Les grèlons cin- |
 glaient dru; ils tintaient sur les tuiles, et rebondis-
-ÿ saient dans la rue, comme des grains de plomb. Les 4
+ÿ saient dans la rue, comme des grains de plomb. Les
 ornières coulaient à pleins bords. A travers les vergers
 4 en fleurs, un arc-en-ciel tendait son écharpe éclatante et
 + barbare sur les nuées bleu-sombre.
@@ -2259,11 +2259,11 @@ les cheveux et à s'enfoncer dans le cou de ces épis
 i les joues rouges, les dents blanches, les bras solides;
 mais les traits manquaient de régularité : elle avait l'air
 
-souriant et un peu inexpressif de beaucoup d'aveugles, É
+souriant et un peu inexpressif de beaucoup d'aveugles,
 et aussi, leur manie de parler des choses et des gens, à
-comme si elle les voyait. Au premier moment, Chris- | g
+comme si elle les voyait. Au premier moment, Chris-
 tophe, interloqué, se demanda de qui on se moquait ici,
-quand elle lui dit qu'il avait bonne mine, et que la cam- Ê
+quand elle lui dit qu'il avait bonne mine, et que la cam-
 pagne était très jolie aujourd'hui. Mais après avoir re- %
 gardé tour à tour l'aveugle et la femme qui épluchaït, il
 vit que cela n'étonnait personne, et que personne
@@ -2273,68 +2273,68 @@ avait passé. L'aveugle se mêlait à l'entretien, avec une
 animation un peu exagérée; elle approuvait, ou commentait les observations de Christophe sur le chemin et
 * sur les champs. Naturellement, ses remarques tombaïent souvent à faux. Elle semblait vouloir se persuader qu'elle voyait aussi bien que lui. |
 D'autres gens de la famille étaient rentrés : un robuste paysan, d'une trentaine d'années, et sa jeune
-femme. Christophe causait avec les uns et avec les N
+femme. Christophe causait avec les uns et avec les
 autres ; et, regardant le ciel qui s'éclaircissait, il atten- |
 dait le moment de repartir. L'aveugle chantonnaïit un
 air, tout en faisant marcher les aiguilles de son tricot.
 Cet air rappelait à Christophe toutes sortes de choses
-— Comment! vous connaissez cela, aussi? dit-il. j
+— Comment! vous connaissez cela, aussi? dit-il.
 (Gottfried le lui avait autrefois appris.)
 ë Il fredonna la suite. La jeune fille se mit à rire. Elle
-chantait la première moitié des phrases, et il s'amusait X
+chantait la première moitié des phrases, et il s'amusait
 à les terminer. Il venait de se lever, pour aller in- |
 | specter l'état du temps, et il faisait le tour de la
 chambre, en furetant machinalement du regard dans
 
 tous les coins, füand il äperçut, dans ün añgle, re
 | près dû dréssoir, ün objet qui le fit tressatter. C'était ;
-100 À un long bâtof recourbé, dont le mänche, grossièrement |
+À un long bâtof recourbé, dont le mänche, grossièrement |
 #4 he sculpté; représentait un petit homme courbé qui saluait.
-40 Christophe le connaissait bien : il avait joué tout enfant
+Christophe le connaissait bien : il avait joué tout enfant
 4 _  avet. Il saüta sür la cänñe, et demanda d'une voix un !
 10 = D'où avez-vous... D'où avez-vous cela ? à
-0 L''hoïñnme regarda, et dit : He
-40 C'est ün ami qui l'a laissé; un ancien aïni, qüi k
-pi Tous se retournèrent, en demandant : è
-M: ! Et quand Christophe eut dit que Gottfriéd était son 4
+L''hoïñnme regarda, et dit : He
+C'est ün ami qui l'a laissé; un ancien aïni, qüi
+pi Tous se retournèrent, en demandant
+M: ! Et quand Christophe eut dit que Gottfriéd était son
 1 oncle, ce fut ün émoi général. L'aveugle s'était levées |
 (ui son peloton de laine avait roulé à travers la chambre;
 | ellé marchait sur son ouvrage, et avait pris les mains |
-x de Christophe, en répétant, toute saisie ! 4
-ï ; — Vous êtes son neveu ? 4
+x de Christophe, en répétant, toute saisie !
+ï ; — Vous êtes son neveu ?
 De. Tout le monde parlait à la fois: Christophe deman-
 ‘) dait, dé son côté : ‘T4
-h = Mais vous, Comment... comment le connaissezhé vous? t
+h = Mais vous, Comment... comment le connaissezhé vous?
 h L'homme Mi répondit :
 À — C'est ici qu'il est mort. à
 À On sé rassit: et quand l'agitation fut un peu calmée,
-à là mère raconta, en reprenant son travail, que Gottfried 4
+à là mère raconta, en reprenant son travail, que Gottfried
 # venait à la maison, depuis des années; toujours il s'y
 ‘à arrêtait, à l'aller et au retour; dans chacune de ses
 F tournées. La dernière fois qu'il était venu — (c'était en ‘à
 
-juillet dérnier), — il semblait très las: et, son ballot 4
-déchargé, il avait été un bon moment avant de pouvoir 18h
+juillet dérnier), — il semblait très las: et, son ballot
+déchargé, il avait été un bon moment avant de pouvoir
 
-articuler une parole; mais on n'y avait pas pris garde, D ÿ
-parce qu'on était habitué à le voir ainsi, quand il arri-, 4
+articuler une parole; mais on n'y avait pas pris garde,
+parce qu'on était habitué à le voir ainsi, quand il arri-,
 plaignait pas d'ailleurs. Jamais il ne se plaignaït : il ;
 trouvait toujours un sujet de contentement dans les [1
 choses désagréables. Quand il faisait un travail exté- He.
-nuant, il se réjouissait en pensant comme il serait bien L
-dans son lit, le soir; et quand il était souffrant, il disait 42
-comme cela serait bon, quand il ne souffrirait plus... 2
+nuant, il se réjouissait en pensant comme il serait bien
+dans son lit, le soir; et quand il était souffrant, il disait
+comme cela serait bon, quand il ne souffrirait plus...
 
 — Et c'est un tort, Monsieur, d'être toujours content, à
 ajoutait la bonne femme; car quand on ne se plaint pas, %
 les autres ne vous plaignent pas. Moi, je me plains à
 
 Donc, on n'avait pas fait attention à lui. On l'avait Fe
-même plaisanté sur sa bonne mine, et Modesta — k
+même plaisanté sur sa bonne mine, et Modesta
 (c'était le nom de la jeune fille aveugle) — qui était ‘2
 venue le décharger de son paquet, lui avait demandé :
 s'il ne serait donc jamais las de courir ainsi, comme un Er
-jeune homme. Il souriait, pour toute réponse; car il ne 4
+jeune homme. Il souriait, pour toute réponse; car il ne
 
 - pouvait pas parléf: Il s'assit sur le banc devant la ‘
 porte. Chacun partit à son ouvrage : les hommes, aux à
@@ -2344,10 +2344,10 @@ banc : debout, adossée à la porte, son tricot à la main, : (5
 | elle causait avec Gottfried. Il ne lui répondait pas : Le
 elle ne lui demandait pas de réponse, elle lui racontait f':
 
-tout ce qui s'était passé depuis sa dernière visite. Il 2
-respirait avec peine; et elle l'entendit faire des efforts 4
+tout ce qui s'était passé depuis sa dernière visite. Il
+respirait avec peine; et elle l'entendit faire des efforts
 
-| pour parler. Au lieu de s'en inquiéter, elle lui dit : À. é
+| pour parler. Au lieu de s'en inquiéter, elle lui dit : À.
 
 | — Ne parle pas. Repose-toi. Tu parleras tout à ‘
 
@@ -2383,7 +2383,7 @@ naturel qu'elle se fût mariée et qu'elle füt heureuse avec :
 un autre. Elle avait été trop heureuse, elle s'était trop
 û vantée de son bonheur : le malheur arriva. Son mari
 mourut subitement. Puis, sa fille, — une belle fille saine, À
-vigoureuse, que tout le monde admirait, et qui allait se ÿ
+vigoureuse, que tout le monde admirait, et qui allait se
 marier avec le fils du plus riche paysan de la contrée,
 
 perdit la vue, à la suite d'un accident. Un jour qu'elle
@@ -2392,7 +2392,7 @@ pour cueillir les fruits, l'échelle avait glissé : en tombant, une branche cas
 l'œil. On crut d'abord qu'elle en serait quitte pour une
 cicatrice; mais depuis, elle n'avait cessé de souffrir
 d'élancements dans le front : un œil s'était obscurci, }
-puis l'autre; et tous les soins avaient été inutiles. Natu- 1
+puis l'autre; et tous les soins avaient été inutiles. Natu-
 rellement, le mariage avait été rompu; le futur s'était ;
 éclipsé, sans autre explication; et, de tous les garçons,
 qui, un mois avant, se seraient assommés mutuellement $
@@ -2404,7 +2404,7 @@ qu'elle voulait mourir. Elle ne voulait plus manger, elle :
 ne faisait plus que pleurer, du matin au soir; et, la nuit,
 on l'entendait encore se lamenter dans son lit. On ne
 savait plus que faire, on ne pouvait que se désoler avec |
-elle; et elle n'en pleurait que de plus belle. On finissait f
+elle; et elle n'en pleurait que de plus belle. On finissait
 par être excédé de ses plaintes ; alors, on la rabrouait,
 et elle parlait d'aller se jeter dans le canal. Le pasteur
 venait quelquefois : il l'entretenait du bon Dieu, des
@@ -2428,11 +2428,11 @@ Di: alla s'asseoir auprès d'elle, ne fit aucune allusion à son
 "1 avait l'air de ne pas même s'apercevoir qu'elle était
 1 aveugle. Seulement, il ne lui parlait jamais de ce qu'elle
 hi ne pouvait voir; il lui parlait de tout ce qu'elle pouvait
-n| entendre, ou remarquér, dans son état; et il faisait cela, É
+n| entendre, ou remarquér, dans son état; et il faisait cela,
 : tout simplement, comme une chose naturelle : on eût Pt
 A dit qu'il était, lui aussi, aveugle. D'abord, elle n'écou :
 | * tait pas, et continuait de pleurer. Mais le lendemain, |
-‘ elle écouta mieux, et même elle lui parla un peu: 44
+‘ elle écouta mieux, et même elle lui parla un peu:
 = Et, continuait la mère, je,ne sais pas ce qu'il a bien |
 Hi pu lui dire, Car il y avait les foins à faire, et je n'avais |
 pas le temps de m'occuper d'elle. Mais, le soir, quand 7400
@@ -2441,7 +2441,7 @@ As nous sommes revenus des champs, nous l'avons trouvée
 Si été mieux. Elle semblait oublier son mal. Cependant, de
 ï temps en temps, cela la reprenait encore : elle pleurait
 £ toute seule, ou bien elle essayait de parler à Gottfried
-dé choses tristes; mais celui-ci ne paraissait pas ÿ
+dé choses tristes; mais celui-ci ne paraissait pas
 4 entendre, ou il ne répondait pas sur ee ton; il contiY /_ nuaït dé causer posément, presque gaiement, de choses
 0 qui la calmaient et qui l'intéressaient, Il la décida enfin
 à se promener hors de la maison, d'où elle n'avait plus
@@ -2449,28 +2449,28 @@ dé choses tristes; mais celui-ci ne paraissait pas ÿ
 1 plus longues dans les champs. Et elle est arrivée main- |
 r. tenant à se reconnaître partout, et à tout distinguer,
 J comme si elle voyait, Elle remarque même des choses,
-auxquelles nous ne faisons pas attention; et elle s'inté- 4
+auxquelles nous ne faisons pas attention; et elle s'inté-
 j L resse à tout, elle qui ne s''intéressait,; avant, à pas . À
 
 grand chose en dehors d'elle. Gette fois là, Gottfried À
 s'attarda plus longtemps que d'habitude chez nous. “#4
-Nous n'osions pas lui demander de remettre son 1
-départ; mais il resta, de lui-même, jusqu'à ce qu'il l'eût k 4
+Nous n'osions pas lui demander de remettre son
+départ; mais il resta, de lui-même, jusqu'à ce qu'il l'eût
 
 vue plus tranquille. Et un jour, — elle était là, dans la ni
-cour, — je l'ai entendue rire. Je ne peux pas vous Ve É
+cour, — je l'ai entendue rire. Je ne peux pas vous Ve
 
-dire l'effet que cela m'a fait. Gottifried avait l'air bien 4
-content aussi. Il était assis près de moi. Nous nous 4
-sommes regardés, et je n'ai pas de honte à vous dire, 5
+dire l'effet que cela m'a fait. Gottifried avait l'air bien
+content aussi. Il était assis près de moi. Nous nous
+sommes regardés, et je n'ai pas de honte à vous dire,
 Monsieur, que je l'ai embrassé, et de bien bon cœur. “A
-Alors, il m'a dit : 5 2
+Alors, il m'a dit
 
-— Maintenant, je crois que je puis m'en aller, On aa 4
+— Maintenant, je crois que je puis m'en aller, On aa
 
 plus besoin de moi. É #
 
-J'ai essayé de le retenir, Mais il a dit : 1 4
+J'ai essayé de le retenir, Mais il a dit
 
 — Non. Maintenant, il faut que je m'en aille. Je ne ‘4
 
@@ -2478,10 +2478,10 @@ J'ai essayé de le retenir, Mais il a dit : 1 4
 Tout le monde savait qu'il était comme le Juif "4
 errant : il ne pouvait demeurer en place; on n'a pas ‘7
 insisté. Alors, il est parti; mais il faisait en sorte de ;
-repasser plus souvent par ici; et c'était, à chaque fois, 4
+repasser plus souvent par ici; et c'était, à chaque fois,
 
-une grande joie pour Modesta : après chacun de ses ù
-passages, elle était toujours mieux. Elle s'est remise au 4
+une grande joie pour Modesta : après chacun de ses
+passages, elle était toujours mieux. Elle s'est remise au
 ménage; son frère s'est marié; elle s'occupe des A
 
 É enfants; et maintenant, elle ne se plaint plus jamais, it
@@ -2490,15 +2490,15 @@ elle a toujours l'air heureuse. Je me demande quelque- ‘4
 fois si elle serait aussi heureuse, en ayant ses deux "+: nn
 yeux. Oui, ma foi, Monsieur, il y a bien des jours où on ge
 
-. se dit qu'il vaudrait mieux être comme elle, et ne pas k.
-voir certaines vilaines gens et certaines méchantes 5
-choses. Le monde devient bien laid; il empire, de jour h
+. se dit qu'il vaudrait mieux être comme elle, et ne pas
+voir certaines vilaines gens et certaines méchantes
+choses. Le monde devient bien laid; il empire, de jour
 
 en jour. Pourtant, j'aurais grand peur que le bon Dieu :%
 
-me prît au mot; et, pour moi, à vrai dire, j'aime e.
+me prît au mot; et, pour moi, à vrai dire, j'aime
 
-345 4
+345
 
 00 encore mieux continuer à voir le monde, tout vilain !
 ; 1 Modesta reparut, et l'entretien changea. Christophe
@@ -2518,7 +2518,7 @@ ensuite : ses souvenirs étaient sa propriété, elle n'aij mait pas à les part
 / à cette affection une âpreté de paysanne attachée à sa à
 terre : il lui était désagréable de penser qu'un autre À
 aimait Gottfried, aussi bien qu'elle. Il est vrai qu'elle |
-f n'en voulait rien croire ; et Christophe, qui lisait en elle, ù
+f n'en voulait rien croire ; et Christophe, qui lisait en elle,
 lui laissa cette satisfaction. En l'écoutant parler, il
 s'apercevait que, bien qu'elle eût vu Gottfried autrefois,
 et que même elle l'eût vu avec des yeux sans indulgence,
@@ -2531,22 +2531,22 @@ quillement ce qu'ils ne savent pas, elle dit à Christophe: \4
 — Vous lui ressemblez.
 
 . Il comprit que, depuis des années, elle avait pris %
-l'habitude de vivre dans sa maison aux volets clos, où ï
+l'habitude de vivre dans sa maison aux volets clos, où
 n'entrait plus la vérité. Et maintenant qu'elle avait
-appris à voir dans l'ombre qui l'entourait, et même à *. 40
+appris à voir dans l'ombre qui l'entourait, et même à *.
 oublier l'ombre, peut-être qu'elle aurait eu peur d'un ml
-rayon de lumière filtrant dans ces ténèbres. Elle évo- 0
-quait avec Christophe une foule de petits riens un peu 6
-niais dans une conversation décousue et souriante, où 3
+rayon de lumière filtrant dans ces ténèbres. Elle évo-
+quait avec Christophe une foule de petits riens un peu
+niais dans une conversation décousue et souriante, où
 Christophe ne trouvait pas son compte. Il était agacé
 de ce bavardage, il ne pouvait comprendre qu'un être,
 qui avait tant souffert, n'eût pas pris plus de sérieux À
 dans sa souffrance, et pût se complaire à ces futilités ;
 il faisait de temps en temps un essai pour parler
 
-| de choses plus graves; mais elles ne trouvaient Ê
-aucun écho : Modesta ne pouvait pas — ou ne voulait x
-pas — l'y suivre. Ù s
+| de choses plus graves; mais elles ne trouvaient
+aucun écho : Modesta ne pouvait pas — ou ne voulait
+pas — l'y suivre.
 
 On alla se coucher. Christophe fut longtemps avant .
 de pouvoir dormir. Il pensait à Gottfried, dont il s'efforçait de dégager l'image des souvenirs puérils de ;
@@ -2556,49 +2556,49 @@ ici, que dans ce lit, sans doute, son corps avait reposé. :
 
 | Il tâchait de revivre l'angoisse de ses derniers instants, À
 lorsque, ne pouvant parler et se faire comprendre de ke
-l'aveugle, il avait fermé les yeux, pour mourir. Qu'il eût 2
+l'aveugle, il avait fermé les yeux, pour mourir. Qu'il eût
 voulu lever ces paupières, et lire les pensées qui se |
 cachaient dessous, le mystère de cette âme, qui s'en ;
-était allée, sans se faire connaître, sans se connaître È
+était allée, sans se faire connaître, sans se connaître
 peut-être! Elle ne le cherchait point; et toute sa sagesse ”
 était de ne pas vouloir la sagesse, de ne pas vouloir ‘4
 imposer sa volonté aux choses, mais de s'abandonner à }
-leur cours, de l'accepter et de l'aimer. Aïnsi, il s'assimi- K,
+leur cours, de l'accepter et de l'aimer. Aïnsi, il s'assimi-
 
 ‘4 lait leur essence mystérieuse, sans même y penser; et à :
 À L: s'il avait fait tant de bien à l'aveugle, à Christophe, à  !
 de 1 tant d'autres sans doute qu'on ignorerait toujours, c'est ;
-# ; qu'au lieu d'apporter les paroles habituelles de révolte 4
+# ; qu'au lieu d'apporter les paroles habituelles de révolte
 h humaine contre la nature, il apportait un peu de la paix A
 jEl indifférente de la nature, et réconciliait l'âme soumise }
-‘4 avec elle. Il était bienfaisant, à la façon de ces champs, 1
+‘4 avec elle. Il était bienfaisant, à la façon de ces champs,
 nu de ces bois, de cette nature même, dont il était impré- ‘1
 É. gné. — Christophe évoquait le souvenir des soirs À
-‘4 ; passés avec lui dans la campagne, de ses promenades 4
+‘4 ; passés avec lui dans la campagne, de ses promenades
 1 d'enfant, des récits et des chants dans la nuit. Il se rap- ‘4
 sh pelaït aussi la dernière promenade qu'il avait faite avec À
-2 l'oncle, sur la colline, au-dessus de la ville, par un 1
+2 l'oncle, sur la colline, au-dessus de la ville, par un
 ji! matin désespéré d'hiver; et les larmes lui remontaient ‘1
-je aux yeux. Il ne voulait pas dormir, pour rester avec 4
+je aux yeux. Il ne voulait pas dormir, pour rester avec
 “ ses souvenirs; il ne voulait rien perdre de cette veillée ;
 d sacrée, dans ce petit pays, plein de l'âme de Gottfried, ;
 ge où ses pas l'avaient conduit, comme poussés par une à
 ï he force inconnue. Mais tandis qu'il écoutait le bruit de la |
 fe fontaine, qui coulait par saccades inégales, et le eri ;
 7 aigu des chauves-souris, la robuste fatigue de la jeu- A
-k pesse l'emporta sur sa volonté; et le sommeil le prit. 4
-ï Quand il se réveilla, le soleil brillait ; tout le monde 4
-fi à la ferme était déjà au travail. Il ne trouva dans la 4
-h, salle du bas que la vieille et les petits. Le jeune ménage 1
-‘ était aux champs, et Modesta était allée traire; on la 1
+k pesse l'emporta sur sa volonté; et le sommeil le prit.
+ï Quand il se réveilla, le soleil brillait ; tout le monde
+fi à la ferme était déjà au travail. Il ne trouva dans la
+h, salle du bas que la vieille et les petits. Le jeune ménage
+‘ était aux champs, et Modesta était allée traire; on la
 au chercha en vain, on ne la trouva nulle part. Christophe :
 ; ne consentit pas à attendre son retour : au fond, il (4
 1 tenait peu à la revoir, et il se disait pressé. Il se remit À
 l ; en route, après avoir chargé la bonne femme de ses
-} - saluts pour les autres. 4 3
+} - saluts pour les autres.
 ï Il sortait du village, quand, au détour du chemin, sur à
 
-un talus, au pied d'une haie d'aubépine, il vit l'aveugle 4
+un talus, au pied d'une haie d'aubépine, il vit l'aveugle
 assise. Elle se leva au bruit de ses pas, vint à lui, en 1410
 souriant, lui prit la main, et dit: ‘2
 Ils montèrent à travers prés, jusqu'à un petit champ È pi
@@ -2606,27 +2606,27 @@ ombragé et fleuri, tout parsemé de croix, qui dominait DE:
 le village. Elle l'emmena près d'une tombe, et elle net
 lui dit : NE
 Ils s'agenouillèrent tous deux. Christophe se souve- Be
-nait d'une autre tombe, sur laquelle il s'était agenouillé 4
-avec Gottfried; et il pensait : 14
+nait d'une autre tombe, sur laquelle il s'était agenouillé
+avec Gottfried; et il pensait
 — Bientôt, ce sera mon tour. ne
 _ Mais cette pensée n'avait, en ce moment, rien de ;
-triste. Une grande paix montait de la terre. Christophe, 0
+triste. Une grande paix montait de la terre. Christophe,
 penché sur la fosse, criait tout bas à Gottfried : Fa
 : — Entre en moi! Fi
 Modesta, les doigts joints, priait, remuant les lèvres - Eu.
 en silence. Puis, elle fit le tour de la tombe, à genoux, “à
-tâtaht avec ses mains la terre, les herbes et les 4
+tâtaht avec ses mains la terre, les herbes et les
 fleurs; elle semblait les caresser; ses doigts intelligents ;
 voyaient : ils arrachaient doucement les tiges de lierre
-mortes et les violettes fanées. Pour se relever, elle 1
+mortes et les violettes fanées. Pour se relever, elle
 appuya sa main sur la dalle; Christophe vit ses doigts
 passer furtivement sur le nom de Gottfrted, effteurant PE:
-chaque lettre. Elle dit : 14
-, — La terre est douce, ce matin. l 8
+chaque lettre. Elle dit
+, — La terre est douce, ce matin.
 Elle lui tendit la main: il donna la sienne. Elle lui fit à
-toucher la terre humide et tiède. Il ne lächa point sa s
-main; leurs doigts entrelacés s'enfonçaient dans la } 4
-terre. Il embrassa Modesta. Elle l''embrassa aussi. ù
+toucher la terre humide et tiède. Il ne lächa point sa
+main; leurs doigts entrelacés s'enfonçaient dans la }
+terre. Il embrassa Modesta. Elle l''embrassa aussi.
 Hs se relevèrent tous deux. Elle lui tendit quelques : ‘a
 
 ‘4 violettes fraîches qu'elle avaït cueillies, et garda les
@@ -2674,17 +2674,17 @@ Il répondit que Gottfried lui avait appris à les distinguer.
 
 Mais il vit la divine lumière qui souriait autour d'eux,
 
-| il regarda ses yeux morts, et il fut pénétré de pitié. ÿ
+| il regarda ses yeux morts, et il fut pénétré de pitié.
 
 — Ainsi, demanda-t-il, c'est ‘Gottfried qui vous a
 
 Elle dit que oui, qu'elle en jouissait maintenant davantage qu'avant... — (Elle ne dit pas & avant quoi »; elle
 évitait de prononcer le mot d' « yeux », ou d' « aveugle ».)
 
-5 ‘Ils se turent, un moment. Christophe la regardait 1
+5 ‘Ils se turent, un moment. Christophe la regardait
 avec commisération. Elle se sentait regardée. Il eût
 voulu lui dire combien il la plaignait, il eût voulu qu'elle
-se plaigniît, qu'elle se confiât à lui. Il demanda affec- 1
+se plaigniît, qu'elle se confiât à lui. Il demanda affec-
 — Vous avez été bien malheureuse?
 Elle resta muette et raidie. Elle arrachaït des brins
 d'herbe, et les mâchait en silence. Après quelques
@@ -2706,7 +2706,7 @@ enfants de son frère : elle en parlait avec une tranquillité riante.
 | — Vous êtes heureuse ?
 | Elle sembla l'être davantage de le lui entendre dire.
 | Elle dit que oui, elle insista sur les raisons qu'elle avait
-d'êire heureuse, elle essayait de le lui persuader, de se ÿ
+d'êire heureuse, elle essayait de le lui persuader, de se
 j le persuader; elle parlait des enfants, de la maison, de
 tout ce qu'elle avait à faire.
 . — Oh! oui, dit-elle, je suis très heureuse !
@@ -2744,7 +2744,7 @@ FU vivre deux jours avec elle. — Tout en continuant sa route,
 D lesquels avaient passé tant de chagrins, et qui ne vouAY laient pas les voir, qui ne voyaient pas la réalité bles-
 
 3 — Comment me voit-il moi-même? se demandait-il.
-31 Je suis si différent de l'idée qu'il a de moi! Je suis pour
+Je suis si différent de l'idée qu'il a de moi! Je suis pour
 
 À lui, comme il veut que je sois. Tout est à son image,
 
@@ -2752,7 +2752,7 @@ D lesquels avaient passé tant de chagrins, et qui ne vouAY laient pas les voir,
 
 b s'il la voyait telle qu'elle est. :
 
-4 Et il songeait à cette fille, enveloppée de ténèbres,
+Et il songeait à cette fille, enveloppée de ténèbres,
 
 :4 ; qui niait ses ténèbres, et voulait se persuader que ce
 " qui était n'était pas, et que ce qui n'était pas était.
@@ -2760,26 +2760,26 @@ L - Alors il vit la grandeur de l'idéalisme allemand, .
 pe qu'il avait tant de fois haï, parcé qu'il est chez les âmes
 
 # médiocres une source d'hypocrisie et de niaiserie. Il vit ‘à
-_ la beauté de cette foi qui se crée un monde au milieu # s
+_ la beauté de cette foi qui se crée un monde au milieu #
 . du monde, et différent du monde, comme un îlot dans Fr:
  * locéan. — Mais il ne pouvait supporter cette foi pour 1 À
 lui-même, il refusait de se réfugief dans cette Ile des
 
-1 Morts. La vie! La vérité! Il ne voulait pas être un héros 4
+Morts. La vie! La vérité! Il ne voulait pas être un héros
 à qui ment. Peut-être ce mensonge optimiste, dont un à
-P, empereur allemand prétendait faire une loi à tout son n
+P, empereur allemand prétendait faire une loi à tout son
 \ peuple, était-il en effet nécessaire aux êtres faibles, %
-_ pour vivre; et Christophe eût regardé comme un crime 3
+_ pour vivre; et Christophe eût regardé comme un crime
 d'arracher à ces malheureux l'illusion qui les soutenait. 1%
 
-Mais pour lui-même, il n'eût pu recourir à de tels sub- : 1
-? terfuges : il aimait mieux mourir que vivre d'illusions. 4
-| .— L'art n'était-il donc pas une illusion aussi? — Non, il 1
-ne devait pas l'être. La vérité! La vérité! Les yeux 4
-grands ouverts, aspirer par tous les pores le soufile 4
+Mais pour lui-même, il n'eût pu recourir à de tels sub-
+? terfuges : il aimait mieux mourir que vivre d'illusions.
+| .— L'art n'était-il donc pas une illusion aussi? — Non, il
+ne devait pas l'être. La vérité! La vérité! Les yeux
+grands ouverts, aspirer par tous les pores le soufile
 
 ; tout-puissant de la vie, voir les choses comme elles AU
-sont, son infortune en face, — et rire! 4
+sont, son infortune en face, — et rire!
 
 hi, Plusieurs mois se passèrent. Christophe avait perdu
 1 tout espoir de sortir de sa ville. Le seul qui eût pu le
@@ -2802,32 +2802,32 @@ DL pensé à lui, qu'il le remerciait de tout le bonheur
 | qu'il lui devait, et que sa bénédiction le suivrait, tant
 que Christophë vivrait. — Ce que Kunz ne disait pas,
 
-c'était que la journée passée avec Christophe avait 1
-| été probablement l'origine de la rechute et la cause de L
+c'était que la journée passée avec Christophe avait
+| été probablement l'origine de la rechute et la cause de
 Christophe pleura en silence, et il sentit alors tout le
-prix de l'ami qu'il avait perdu, et combien il l'aimait; il 4
-souffrit, comme toujours, de ne le lui avoir pas mieux 1
+prix de l'ami qu'il avait perdu, et combien il l'aimait; il
+souffrit, comme toujours, de ne le lui avoir pas mieux
 dit. Maintenant, il était trop tard. Et que lui restaitil? Le bon Schulz n'avait fait que paraître, juste assez À
 pour que le vide semblât plus vide, et la nuit plus noire, vif
 après qu'il n'était plus. — Quant à Kunz et à Pottpetschmidt, ils n'avaient d'autre prix que l'amitié qu'ils $
 avaient eue pour Schulz, et que Schulz avait eue pour |
-eux. Christophe les estimait à leur juste valeur. Il leur 7
+eux. Christophe les estimait à leur juste valeur. Il leur
 écrivit une fois; et leurs relations en restèrent là. — Il
-“essaya aussi d'écrire à Modesta; mais elle lui fit i
-: répondre une lettre banale, où elle ne parlait que de T
+“essaya aussi d'écrire à Modesta; mais elle lui fit
+: répondre une lettre banale, où elle ne parlait que de
 choses indifférentes. Il renonça à poursuivre l'entretien.
 Il n'écrivit plus à personne, et personne ne lui écrivit
 plus.
 Silence. Silence. De jour en jour, le lourd manteau du Y
 silence s'abattait sur Christophe. C'était comme une #
-pluie de cendres qui tombait sur lui. Le soir semblait ï
+pluie de cendres qui tombait sur lui. Le soir semblait
 venir déjà; et Christophe commençait à peine à vivre : à
 il ne voulait pas se résigner déjà. — L'heure de dormir (0
 n'était pas venue. Il fallait vivre. ;
 Et il ne pouvait plus vivre en Allemagne. Comme le il
 pauvre Hælderlin-Hypérion, il était venu vers ses frères
 ; allemands, le cœur plein d'amour et de joie. Mainte- }
-À nant, il errait au milieu d'eux, silencieux et glacé, 4
+À nant, il errait au milieu d'eux, silencieux et glacé,
 comme une ombre. « Îl vivait comme un étranger dans
 sa propre demeure, semblable à Ulysse mendiant à la
 porte de son palais, traité de vagabond par les préten- #
@@ -2866,37 +2866,37 @@ SR tétue d'une dé ces racés au crâne étroit et dur, qui se
 13 sauter la roche. Mais que faire contre une masse
 # \ amorphe, qui cède comme une gelée, s'enfonce sous la
 4 moindre pression, et ne garde aucune empreinte?
-1 Toutes les pensées, toutes les énergies, tout disparaisEt sait dans la fondrière : à peine si, quand une pierre
+Toutes les pensées, toutes les énergies, tout disparaisEt sait dans la fondrière : à peine si, quand une pierre
 14 tombait, quelques rides tressaillaient à la surfacé du
 
-| gouffre; la mâchoire s'ouvrait, se refermait : et de ce k
+| gouffre; la mâchoire s'ouvrait, se refermait : et de ce
 | qui avait été, il ne restait plus aucune trace. di
 Ce n'étaient pas des ennemis. Plût à Dieu que ce HE
 fussent des ennemis! C'étaient des gens qui n'avaient la au:
 croire, — en religion, en art, en politique, dans la vie
-journalière; — et toute leur vigueur se dépensait à tâcher 4
+journalière; — et toute leur vigueur se dépensait à tâcher
 de concilier l'inconciliable. Surtout depuis les victoires | .
-allemandes, ils s'évertuaient à faire un compromis, un r
+allemandes, ils s'évertuaient à faire un compromis, un
 mic-mac écœurant de la force nouvelle et des principes :
 anciens. Le vieil idéalisme n'avait pas été renoncé: *
-| c'eût été là un effort de franchise, dont on n'était pas 4
-capable: on s'était contenté de le fausser, pour le faire , É
+| c'eût été là un effort de franchise, dont on n'était pas
+capable: on s'était contenté de le fausser, pour le faire
 ; servir à l'intérêt allemand. A l'exemple de Hegel, le ” à
-Souabe, serein et double, qui avait attendu jusqu'après F
+Souabe, serein et double, qui avait attendu jusqu'après
 Leipzig et Waterloo pour assimiler la cause de sa phi- |
-losophie avec l'État prussien, — l'intérêt ayant changé, É
-les principes avaient changé. Quand on était battu, on f
-disait que l'Allemagne avait l'humanité pour idéal. 4
+losophie avec l'État prussien, — l'intérêt ayant changé,
+les principes avaient changé. Quand on était battu, on
+disait que l'Allemagne avait l'humanité pour idéal.
 Maintenant qu'on battait les autres, on disait que l'Alle- .
 magne était l'idéal de l'humanité. Quand les autres %
-patries étaient les plus puissantés, on disait, avec Les- 1
+patries étaient les plus puissantés, on disait, avec Les-
 sing, que « l'amour de la patrie était une faiblesse
 héroïque, dont on se passait fort bien », et l'on s'appe- “
 lait : un « citoyen du monde ». À présent qu'on l'em- H'
 . portait, on n'avait pas assez de mépris pour les utopies ;
 
 « à la française » : paix universelle, fraternité, progrès
-| pacifique , droits de l'homme, égalité naturelle; on 4
+| pacifique , droits de l'homme, égalité naturelle; on
 disait que le peuple le plus fort avait contre les autres :
 | un droit absolu, et que les autres, étant plus faibles, à
 | étaient sans droit contre lui. Il était Dieu vivant et
@@ -2963,15 +2963,15 @@ ie « cher Monsieur » Gessler, les yeux baissés, afin de
 
 ‘V4 — jusqu'au vieux et respectable professeur Weisse, âgé
 
-de soixante-dix ans, un des savants les plus honorés de 5
+de soixante-dix ans, un des savants les plus honorés de
 | la ville, qui, lorsqu'il voyait venir un Yerr Lieutenant, ;
 se hâtait de lui céder le haut du trottoir, et de descendre À
 sur la chaussée. Le sang de Christophe bouillait, quand
 il était témoin d'un de ces menus actes de servilité jour- :
-nalière. Il en souffrait, comme si c'était lui-même qui Ÿ
+nalière. Il en souffrait, comme si c'était lui-même qui
 s'était abaissé. Les manières hautaines des officiers, ;
 qu'il croisait dans la rue, leur raideur insolente, lui |
-causaient une sourde colère : il affectait de ne point se j
+causaient une sourde colère : il affectait de ne point se
 déranger pour leur faire place; il leur rendait, en passant, l'arrogance de leurs regards. Peu s'en fallut, plus
 d'une fois, qu'il ne s'attirât une affaire : on eût dit
 qu'il la cherchait. Cependant, il était le premier à com- ‘
@@ -2981,20 +2981,20 @@ tuelle qu'il s'imposait, et ses robustes forces accumulées, qui ne se dépensai
 Alors, il était prêt à commettre toutes les sottises; et
 il avait le sentiment que, s'il restait encore un an ici, il :
 était perdu. Il avait la haïne du militarisme brutal, qu'il
-sentait peser sur lui, de ces sabres sonnant sur le pavé, é
+sentait peser sur lui, de ces sabres sonnant sur le pavé,
 de ces faisceaux d'armes et de ces canons postés devant
 les casernes, la gueule braquée contre la ville, prêts à Fe
-tirer. Des romans à scandale, qui faisaient grand brüit ÿ
+tirer. Des romans à scandale, qui faisaient grand brüit
 alors, dénonçaient la corruption des garnisons petites et :
 grandes; les officiers y étaient représentés comme des
-êtres malfaisants, qui, en dehors de leur métier d'auto- d
+êtres malfaisants, qui, en dehors de leur métier d'auto-
 mates, ne savaient qu'être oisifs, boire, jouer, s'endetier, |
-se faire entretenir par leur famille, médire les uns des ñ
+se faire entretenir par leur famille, médire les uns des
 autres, et, du haut en bas de la hiérarchie, abuser de {
 | leur autorité contre leurs inférieurs. L'idée qu'il serait |
 un jour forcé de leur obéir serrait Christophe à la gorge.
 
-44 Il ne pourrait pas, non, il ne pourrait jamais le suppordns. ter, se déshonorer à ses yeux, en subissant leurs humi-
+Il ne pourrait pas, non, il ne pourrait jamais le suppordns. ter, se déshonorer à ses yeux, en subissant leurs humi-
 #40 liations et leurs injustices Il ne savait pas quelle
 ‘1 grandeur morale il y avait chez certains d'entre eux, et
 A tout ce qu'ils pouvaient souffrir eux-mêmes : leurs illu-
@@ -3027,20 +3027,20 @@ d'elle, sans cesser d'en médire! Même depuis 70, quelle
 ie et les plus rétrogrades y avaient trouvé tour à tour, et
 
 # _ parfois en même temps, des exemples ou des inspirations. Christophe, comme tant d'autres grands musi- :
-À ciens allemands dans la détresse, se tournait, lui aussi, 28
+À ciens allemands dans la détresse, se tournait, lui aussi,
 
 Ô vers Paris. Que connaissait-il des Français? — Deux ‘4
-# visages féminins, et quelques lectures au hasard. Cela « 2
-4 lui suffisait pour imaginer un pays de lumière, de gaieté, N
+# visages féminins, et quelques lectures au hasard. Cela «
+4 lui suffisait pour imaginer un pays de lumière, de gaieté,
 ; de bravoure, voire d'un peu de jactance gauloise, qui A:
 û ne messied pas à la jeunesse audacieuse du cœur. y
 À croyait, parce qu'il avait besoin d'y croire, parce que, f hs
-# de toute son âme, il eût voulu que ce fût ainsi. 5
+# de toute son âme, il eût voulu que ce fût ainsi.
 
-11 Il se résolut à partir. — Mais il ne pouvait partir, à
+Il se résolut à partir. — Mais il ne pouvait partir, à
 
 104 cause de sa mère.
-14 Louisa vieillissait. Elle adorait son fils, qui était toute
+Louisa vieillissait. Elle adorait son fils, qui était toute
 '4 sa joie; et elle était tout ce qu'il aimait le plus sur terre.
 Vi Cependant, ils se faisaient souffrir mutuellement. Elle
 40 ne comprenait guère Christophe, et ne s'inquiétait pas
@@ -3107,61 +3107,61 @@ d de l'autre, assis, à la lumière de la lampe, brusquement |
 {à reur, elle se mettait à parler, très vite, et au hasard,
 11 n'importe de quoi : à peine si elle savait ce qu'elle |
 ÿ disait; mais à tout prix, il fallait l'empêcher de parler. D'ordinaire, son instinct lui faisait trouver le
-1 AE, meilleur argument qui l'obligeât au silence : elle se |
+AE, meilleur argument qui l'obligeât au silence : elle se |
 5 plaignait doucement de sa santé, de ses maïns et de ses }
-1 pieds gonflés, de ses jambes qui s'ankylosaient : elle 3
+1 pieds gonflés, de ses jambes qui s'ankylosaient : elle
 d exagérait son mal, elle se disait une vieille impotente,
 | qui n'est plus bonne à rien. Il n'était pas dupe de ses ‘
-ruses naïves ; il la regardait tristement, avec un muet 1
-reproche; et, après un moment, il se levait, prétextant w
+ruses naïves ; il la regardait tristement, avec un muet
+reproche; et, après un moment, il se levait, prétextant
 _ qu'il était fatigué, qu'il allait se coucher. il
 Mais tous ces expédients ne pouvaient sauver Louisa à
 longtemps. Un soir qu'elle y avait de nouveau recours,. |
-Christophe ramassa son courage, et, posant sa main sur d
+Christophe ramassa son courage, et, posant sa main sur
 | ! celle de la vieille femme, il lui dit : ». 4108
 — Non, mère, j'ai quelque chose à te dire. |
 Louisa fut saisie; mais elle tâcha de prendre un air |
 riant, pour dire, — la gorge contractée : 11]
-— Et quoi donc, mon petit? F
+— Et quoi donc, mon petit?
 Christophe annonça, en balbutiant, son intention de
 partir. Elle tenta bien de prendre la chose en plaisanterie, et de détourner la conversation, comme à
 l'ordinaire; mais il ne se déridait pas, et continuait,
-avait plus moyen de douter. Alors, elle se tut, tout son 11
+avait plus moyen de douter. Alors, elle se tut, tout son
 sang s'arrêta, et elle restait muette et glacée, à le Al
-regarder avec des yeux épouvantés. Une telle douleur M
-. montait dans ces yeux, à mesure qu'il parlait, que la 11
+regarder avec des yeux épouvantés. Une telle douleur
+. montait dans ces yeux, à mesure qu'il parlait, que la
 j parole lui manqua, à lui aussi; et ils demeurèrent tous $
 
 ; deux sans voix. Quand elle put enfin retrouver le "4
 souflle, elle dit — (ses lèvres tremblaient) — : a.
-— Ce n'est pas possible... Ce n'est pas possible... N
-| Deux grosses larmes coulaient le long de ses joues. Il ; 1
-détourna la tête avec découragement, et se cacha la s
+— Ce n'est pas possible... Ce n'est pas possible...
+| Deux grosses larmes coulaient le long de ses joues. Il
+détourna la tête avec découragement, et se cacha la
 _ figure dans ses mains. Ils pleurèrent. Après quelque %
 . temps, il s'en alla dans sa chambre, et s'y enferma : à
-jusqu'au lendemain. Ils ne firent plus aucune allusion à É
-ce qui s'était passé; et comme il n'en parlait plus, elle 4
+jusqu'au lendemain. Ils ne firent plus aucune allusion à
+ce qui s'était passé; et comme il n'en parlait plus, elle
 voulut se convaincre qu'il avait renoncé à son projet. ‘4
-Mais elle vivait dans des transes. ; ÿ
+Mais elle vivait dans des transes.
 Cependant, il vint un moment où il ne put plus se $
-taire. Il fallait parler, dût-il lui déchirer le cœur : il j
+taire. Il fallait parler, dût-il lui déchirer le cœur : il
 souffrait trop! L'égoïsme de sa peine l'emportait sur la he
 pensée de celle qu'il ferait. Il parla. Il alla jusqu'au TS
 bout, évitant de regarder sa mère, de peur de se laisser |
 troubler. Il fixa même le jour de son départ, pour à.
 n'avoir plus à soutenir une seconde discussion : — (il
 | ne savait pas s'il retrouverait, une seconde fois, le £
-triste courage qu'il avait aujourd'hui.) — Louisa 4
-— Non, non, tais-toi!…. k
+triste courage qu'il avait aujourd'hui.) — Louisa
+— Non, non, tais-toi!….
 Il se raïdissait, et continuait avec une résolution à
 k implacable. Quand il eut fini, — (elle sanglotait), — il Hi
-lui prit les mains, et tâcha de lui faire comprendre 4
+lui prit les mains, et tâcha de lui faire comprendre
 comment il était absolument nécessaire à son art, à sa #4
-- vie, qu'il partit pour quelque temps. Elle se refusait à . 7
+- vie, qu'il partit pour quelque temps. Elle se refusait à
 écouter, elle pleurait, et répétait : "5/0
 - — Non, non! Je ne veux pas. 3 .
-Après avoir vainement tenté de raisonner avec elle, 14
-_ il la laissa, pensant que la nuit changerait le cours de ï
+Après avoir vainement tenté de raisonner avec elle,
+_ il la laissa, pensant que la nuit changerait le cours de
 … ses idées. Mais lorsqu'ils se retrouvèrent, le lendemain, #
 
 4 à table, il recommenca sans pitié à reparler de son .:
@@ -3187,16 +3187,16 @@ remords. Il l'aimait tant! Pourquoi fallait-il qu'il la
 fit souffrir? Hélas! Elle ne serait pas la seule : |
 il le voyait clairement... Pourquoi le destin avait-il mis
 en lui le désir et la force d'une mission, qui devait faire À
-souffrir ceux qu'il aimait? j
-— Ab! pensait-il, si j'étais libre, si je n'étais pas con- w
-traint par cette force cruelle d'être ce que je dois être, M
+souffrir ceux qu'il aimait?
+— Ab! pensait-il, si j'étais libre, si je n'étais pas con-
+traint par cette force cruelle d'être ce que je dois être,
 ou sinon, de mourir dans la honte et le dégoût de moimême, comme je vous rendrais heureux, vous que #
 j'aime! Laissez-moi vivre d'abord, agir, lutter, souffrir; w |
 
 _ et puis, je vous reviendrai, plus aimant. Que je voudrais ne faire qu'aimer, aimer, aimer! |
 , Jamais il n'eût pu résister au reproche perpétuel de
 cette âme désolée, si ce reproche avait eu la force de
-rester muet. Mais Louisa, faible et un peu bavarde, ne 1
+rester muet. Mais Louisa, faible et un peu bavarde, ne
 put garder pour elle la peine qui l'étouffait. Elle la dit :
 à ses voisines. Elle la dit à ses deux autres fils. Ils ne
 pouvaient perdre une si belle occasion de mettre Chris- :
@@ -3213,7 +3213,7 @@ de sa mère, dont il savait la gêne; bien qu'il fût largement en situation de 
 tout le soin à Christophe. Mais, quand il apprit le projet de Christophe, il se découvrit sur-le-champ des
 trésors d'affection. Il s'indigna contre cette prétention
 d'abandonner sa mère, et il la qualifia de monstrueux
-égoïsme. Il eut le front d'aller le répéter à Christophe j
+égoïsme. Il eut le front d'aller le répéter à Christophe
 lui-même. Il lui fit la leçon, de très haut, comme à un
 enfant qui mérite le fouet; il lui rappela, d'un air
 rogue, ses devoirs envers sa mère, et tous les sacrifices
@@ -3221,7 +3221,7 @@ qu'elle avait faits pour lui. Christophe faillit en crever
 de rage. Il flanqua Rodolphe à la porte, à coups de
 pied au cul, en le traitant de polisson et de chien
 d'hypocrite. Rodolphe se vengea, en montant la tête à
-- 369
+-
 
 h sa mère. Louisa, excitée par lui, commença à se per14 ‘suader que Christophe agissait en mauvais fils. Elle {
 de entendait répéter qu'il n'avait pas le droit de partir,
@@ -3231,18 +3231,18 @@ li elle fit à Christophe des reproches amers et injustes,
 pl pénibles; et le résultat fut que Christophe, qui jusque ;
 À là hésitait encore, ne pensa plus qu'à presser ses pré- |
 10 paratifs de départ. Il sut que les charitables voisins
-ji s'apitoyaient sur sa mère, et que l'opinion du quartier i
+ji s'apitoyaient sur sa mère, et que l'opinion du quartier
 \ la représentait comme une victime, et lui comme un
 11 bourreau. Il serra les dents, et ne démordit plus de sa
-| résolution. iN l
-1 Les jours passaient. Christophe et Louisa se parlaient
+| résolution. iN
+Les jours passaient. Christophe et Louisa se parlaient
 à peine. Au lieu de jouir, jusqu'à la moindre goutte, |
 è des derniers jours passés ensemble, ces deux êtres
 qui s'aimaient perdaient le temps qui leur restait, —
 jh comme c'est trop souvent le cas, — en une de ces sté-
 riles bouderies, où s'engloutissent tant d'affections. Ils |
 | ne se voyaient qu'à table, où ils étaient assis lun en
-ï face de l'autre, ne se regardant pas, ne se parlant pas, 4
+ï face de l'autre, ne se regardant pas, ne se parlant pas,
 | se forçant à manger quelques bouchées, moins pour |
 | manger que pour se donner une contenance. À grand
 peine, Christophe parvenait à extraire quelques mots {
@@ -3257,7 +3257,7 @@ $ sortir. Allaient-ils donc se séparer ainsi? Louisa se ren41 dait compte maint
 : refusait à envisager l'idée. Christophe regardait à la »  dérobée.le visage blème et gonflé de sa mère, et il était
 bourrelé de remords; mais décidé à partir, et sachant
 qu'il y allait de sa vie, il souhaitait lâchement d'être
-déjà parti, pour s'enfuir de ses remords. L
+déjà parti, pour s'enfuir de ses remords.
 Son départ était fixé au surlendemain. Un de leurs
 tristes tête-à-tête venait de finir. Au sortir du souper, où ‘
 ils ne s'étaient pas dit un mot, Christophe s'était retiré +
@@ -3265,15 +3265,15 @@ dans sa chambre; et, assis devant sa table, la tête dans
 ses mains, incapable d'aucun travail, il se rongeait
 . l'esprit. La nuit s'avançait; il était près d'une heure du
 matin. Tout à coup, il entendit du bruit, une chaise
-renversée, dans la chambre voisine. La porte s'ouvrit, j
+renversée, dans la chambre voisine. La porte s'ouvrit,
 et sa mère, en chemise, pieds nus, se jeta à son cou, en |
 sanglotant. Elle brülait de fièvre, elle embrassait son ,
 fils, et elle gémissait au milieu de ses hoquets de désespoir :
 — Ne pars pas! ne pars pas! Je t'en supplie! Je t'en
 supplie! Mon petit, ne pars pas! J'en mourrai.. Je ne à
-peux pas, je ne peux pas le supporter !.… 8
+peux pas, je ne peux pas le supporter !.…
 Bouleversé et effrayé, il l'embrassait, répétant : à
-— Chère maman, calme-toi, calme-toi, je t'en prie! k
+— Chère maman, calme-toi, calme-toi, je t'en prie!
 Mais elle continuait :
 — Je ne peux pas le supporter. Je n'ai plus que toi.
 _ Si tu pars, qu'est-ce que je deviendrai? Je mourrai
@@ -3281,52 +3281,52 @@ i si tu pars. Je ne veux pas mourir loin de toi. Je ne veux
 - pas mourir seule. Attends que je soïs morte! .
 Î Ses paroles lui déchiraient le cœur. Il ne savait que à
 dire pour l'apaiser. Quelles raisons pouvaient tenir
-contre ce déchaînement d'amour et de douleur ! Il la k
+contre ce déchaînement d'amour et de douleur ! Il la
 
 à prit sur ses genoux, et tâcha de la calmer, avec des î |
 4 baisers et des mots affectueux. La vieille femme se /
 | taisait peu à peu, et pleurait doucement. Quand elle |
-au, fut un peu apaisée, il lui dit: 4
-— Recouche-toi : tu vas prendre froid. 1
-a — Ne pars pas! 4
+au, fut un peu apaisée, il lui dit:
+— Recouche-toi : tu vas prendre froid.
+a — Ne pars pas!
 Il dit, tout bas : À
-— Je ne partirai pas. L
-Elle tressaillit, et lui saisit la main : 4
+— Je ne partirai pas.
+Elle tressaillit, et lui saisit la main
 
 À — C'est vrai? dit-elle. C'est vrai? À
-4 I1 détourna la tête, avec découragement : . 4
-— Demain, dit-il, demain, je te dirai... Laisse-moi, je M
+I1 détourna la tête, avec découragement :
+— Demain, dit-il, demain, je te dirai... Laisse-moi, je
 Elle se leva docilement, et regagna sa chambre. {
 
 Le lendemain matin, elle avait honte de cette crise de
 
 ; ' désespoir, qui l'avait prise, comme une folie, au milieu à.
-de la nuit; et elle tremblait de ce que son fils allait lui k
+de la nuit; et elle tremblait de ce que son fils allait lui
 
-dire. Elle l'attendait, assise, dans un coin de sa h
+dire. Elle l'attendait, assise, dans un coin de sa
 
-chambre; elle avait pris un tricot pour s'occuper; mais f
+chambre; elle avait pris un tricot pour s'occuper; mais
 
-ses mains se refusaient à le tenir : elle le laissa tomber. k
+ses mains se refusaient à le tenir : elle le laissa tomber.
 
 Christophe entra. Ils se dirent bonjour à mi-voix, sans %
 
-se regarder en face. Il était sombre, il alla se poster k
+se regarder en face. Il était sombre, il alla se poster
 
-devant la fenêtre, le dos tourné à sa mère, et il resta x
+devant la fenêtre, le dos tourné à sa mère, et il resta
 
 sans parler. Un combat se livrait en lui; il en savait %
 
 trop le résultat d'avance, et il cherchait à le retarder. ‘
 
-Louisa n'osait lui adresser la parole, et provoquer la 4
+Louisa n'osait lui adresser la parole, et provoquer la
 
-réponse qu'elle attendait et redoutait. Elle se força à 1
+réponse qu'elle attendait et redoutait. Elle se força à
 
-1 reprendre le tricot; mais elle ne voyait pas ce qu'elle N
-faisait, et ses mailles allaient de travers. Dehors, il M
+1 reprendre le tricot; mais elle ne voyait pas ce qu'elle
+faisait, et ses mailles allaient de travers. Dehors, il
 
-‘pleuvait. Après un long silence, Christophe vint près 4
+‘pleuvait. Après un long silence, Christophe vint près
 
 d'elle. Elle ne fit pas un mouvement; mais son cœur
 
@@ -3348,7 +3348,7 @@ Il eût voulu lui dire :
 La situation était inextricable; ni l'un ni l'autre n'y
 pouvait rien changer. Elle soupira, dans son douloureux
 — Ah! si l'on pouvait être nés tous ensemble, pour
-mourir tous ensemble ! j
+mourir tous ensemble !
 Ce vœu naïf le pénétra de tendresse; il essuya ses
 larmes, et, s'efforçant de sourire, il dit :
 — On mourra tous ensemble.
@@ -3403,13 +3403,13 @@ ji } Et au milieu de tout cela, elle avait des élans deten-
 |. comme un petit enfant. “14
 ; Le pire était de vivre, du matin au soir, comme ils oi
 faisaient, ensemble, toujours ensemble, isolés du K+
-reste des gens. Lorsqu'on souffre, étant deux, et 1
-il est fatal qu'on l'exaspère : chacun finit par rendre F4
-l'autre responsable de ce qu'il souffre; et chacun finit 4
+reste des gens. Lorsqu'on souffre, étant deux, et
+il est fatal qu'on l'exaspère : chacun finit par rendre
+l'autre responsable de ce qu'il souffre; et chacun finit
 par le croire. Mieux vaudrait être seul : on est seul à À
 C'était une torture de chaque jour pour tous deux. Ils ; di
 n'en seraient jamais sortis, si le hasard n'était venu, à
-_ comme il arrive souvent, trancher, d'une façon malheu- l
+_ comme il arrive souvent, trancher, d'une façon malheu-
 reuse en apparence, — heureuse au fond, — l'indécision hi
 cruelle, où ils se débattaient. : )
 
@@ -3484,7 +3484,7 @@ _ | rivé au sol, décrivait des circuits dans un champ de
 
 ‘à dans le ciel gris.”
 
-13 Christophe, tout en rêvant, et sans s'être fixé de but,
+Christophe, tout en rêvant, et sans s'être fixé de but,
 
 4 * allait pourtant, d'instinct, vers un but déterminé.
 
@@ -3497,42 +3497,42 @@ d'aimer quelqu'un; et son cœur restait rarement vide : ;
 _ il était toujours meublé de quelque belle image, qui en
 4 était l'idole. Peu lui importait, le plus souvent, que cette (
 34 idole sût qu'il l'aimait : ce dont il avait besoin, c'était
-}EN d'aimer ; il fallait que le feu ne s'éteignit point, qu'il ne Ë
+}EN d'aimer ; il fallait que le feu ne s'éteignit point, qu'il ne
 ÿ 4 fit jamais nuit dans son cœur. dl
-14 { L'objet de la flamme nouvelle était la fille d'un ; 3
+14 { L'objet de la flamme nouvelle était la fille d'un
 ; n. paysan, qu'il avait rencontrée, comme Éliézer rencontra à
 
 \ Rébecca, auprès d'une fontaine; mais elle ne lui avait hs:
 pas offert à boire : elle lui avait jeté de l'eau à la figure. + ty
-; Agenouillée au bord d'un ruisseau, dans un creux de la D
+; Agenouillée au bord d'un ruisseau, dans un creux de la
 berge, entre deux saules dont les racines formaient « {
 autour d'elle comme un nid, elle lavait du linge avec je
 vigueur; et sa langue n'était pas moins active que ses #
 bras : elle causait et riait très fort avec d'autres filles “y
-du village, qui lavaient en face d'elle, de l'autre côté du 44
+du village, qui lavaient en face d'elle, de l'autre côté du
 ruisseau, Christophe s'était couché dans l'herbe, à
 quelques pas; et, le menton appuyé sur ses mains, il À
 les regardait. Cela ne les intimidait guère : elles conti- |
-nuaient leur bavardage, en un style qui parfois ne man- 4
+nuaient leur bavardage, en un style qui parfois ne man-
 quait pas de verdeur. À peine écoutait-il : il entendait "
 seulement le son de leurs voix riantes, mêlé au bruit à
-des battoirs, au lointain meuglement des vaches dans D.
+des battoirs, au lointain meuglement des vaches dans
 les prés; et il révassait, ne quittant pas des yeux la LA
 belle lavandière. Un gai visage juvénile mettait en lui à
-de la joie pour tout un jour. — Les filles ne tardèrent 4f4
-pas à distinguer l'objet de ses attentions; elles y fi- 4
+de la joie pour tout un jour. — Les filles ne tardèrent
+pas à distinguer l'objet de ses attentions; elles y fi-
 rent entre elles des allusions malignes; sa préférée ne Re
 lançait point à son adresse les remarques les moins #4
 mordantes. Comme il ne bougeaït toujours pas, elle se ‘4
 leva, prit un paquet de linge lavé et tordu, et se mit à É #
 l'étendre sur les buissons, en se rapprochant de lui, à
-afin d'avoir un prétexte pour le dévisager. En passant ñ
+afin d'avoir un prétexte pour le dévisager. En passant
 à côté, elle s'arrangea de façon à l'éclabousser avec son ‘a
-linge mouillé, et elle le regarda effrontément, en riant. 4
-Elle était maigre et robuste, le menton fort, un peu en L
-galoche, le nez court, les sourcils bien arqués, les É:
+linge mouillé, et elle le regarda effrontément, en riant.
+Elle était maigre et robuste, le menton fort, un peu en
+galoche, le nez court, les sourcils bien arqués, les
 yeux bleu foncé, hardis, brillants et durs, la bouche an
-belle, aux lèvres grosses, avançant un peu, comme 0
+belle, aux lèvres grosses, avançant un peu, comme
 celles d'un masque grec, une masse de cheveux blonds
 
 : À tordus sur la nuque, et le teint hâlé. Elle portait la
@@ -3567,8 +3567,8 @@ joyeusement, tout fiers de leur importance. Au milieu de la cohue, Christophe ap
 son vrai nom, elle s'appelait Lorchen. Sur son blond
 chignon, elle avait mis une belle feuille de chou,
 
-blanche et verte, qui lui faisait un casque dentelé et 74
-ciselé. Assise sur un panier, devant des tas d'ognons 1
+blanche et verte, qui lui faisait un casque dentelé et
+ciselé. Assise sur un panier, devant des tas d'ognons
 dorés, de petites raves roses, de haricots verts, et de <
 pommes rubicondes, elle croquait ses pommes, l'une :
 après l'autre, sans s'occuper de les vendre. Elle ne
@@ -3607,17 +3607,17 @@ de rêvasser, en la regardant. Il m'eût pu dire qu'il
 _  Paimût, il n'y songeait même pas; il avait plaisir à la
 voir: rien de plus. Il ne se rendait pas compte du désir
 _ qui le ramenaït toujours vers elle.
-5 Cette insistance faisait jaser. On s'en gaussait à la du:
+Cette insistance faisait jaser. On s'en gaussait à la du:
 110 ferme, où l'on avait fini par savoir qui était Christophe.
 ‘0 On le laissait tranquille d'ailleurs; car il était bien
 _  inoffensif. Pour tout dire, il avait l'air assez sot : mais |
 _ il ne s'en inquiétait pas.
 
-C'était la fête au village. Des gamins écrasaient des 14
+C'était la fête au village. Des gamins écrasaient des
 
-pois fulminants entre deux cailloux, en criant : « Vive É
+pois fulminants entre deux cailloux, en criant : « Vive
 
-l'Empereur! » (« Kaiser lebe! Hoch! »). On entendait 02
+l'Empereur! » (« Kaiser lebe! Hoch! »). On entendait
 
 meugler un veau, enfermé dans son étable, et les chants x se
 
@@ -3625,27 +3625,27 @@ des buveurs au cabaret. Des cerfs-volants aux queues ;
 
 ; de comètes plongeaient et frétillaient dans l'air, au- Fe
 
-dessus des champs. Les poules grattaient avec frénésie j
+dessus des champs. Les poules grattaient avec frénésie
 
-dans la paille et le fumier d'or : le vent s'engoufirait D
+dans la paille et le fumier d'or : le vent s'engoufirait
 
-dans leurs plumes, comme dans les jupes d'une vieille î
+dans leurs plumes, comme dans les jupes d'une vieille
 
 dame. Un cochon rose dormait voluptueusement sur le à
 
-Christophe se dirigea vers le toit rouge de l'auberge d,
+Christophe se dirigea vers le toit rouge de l'auberge
 
-des Trois Rois, au-dessus duquel flottait un petit dra- ; 0
+des Trois Rois, au-dessus duquel flottait un petit dra-
 
-peau. Des chapelets d'ognons étaient pendus à la 14
+peau. Des chapelets d'ognons étaient pendus à la
 façade, et les fenêtres étaient garnies de fleurs de capu- ch
 
 cines rouges et jaunes. Il entra dans la salle, pleine de £ |
 
 fumée de tabac, où s'étalaient aux murs des chromos "
-jaunies, et, à la place d'honneur, le portrait colorié 4
+jaunies, et, à la place d'honneur, le portrait colorié
 
-de l'Empereur-Roi, entouré d'une guirlande de feuilles 4
+de l'Empereur-Roi, entouré d'une guirlande de feuilles
 
 de chêne. On dansait. Christophe était bien sûr que pe
 
@@ -3657,7 +3657,7 @@ sa belle amie serait là. Et en effet, ce fut la première : ‘44
 
 seurs. Mais, quelque soin qu'il eût pris pour ne pas être à
 
-remarqué, Lorchen sut bien le découvrir dans son coin. 4
+remarqué, Lorchen sut bien le découvrir dans son coin.
 
 ne Tout en tournant d'interminables valses, elle lui lançait
 pe par dessus l'épaule de son danseur de rapides œillades,
@@ -3690,11 +3690,11 @@ vint s'asseoir de côté à la table de Christophe. Christophe, mécontent, tour
 } il rencontra le regard narquois du vieux qui, sans |
 
 extraire sa pipe de sa bouche, lui adressa familièrement :
-la parole. Christophe le connaissait; il savait que 4
+la parole. Christophe le connaissait; il savait que
 c'était une vieille canaïlle; mais le faible qu'il avaitpour .:
-la fille le rendait indulgent pour le père, et même lui L
+la fille le rendait indulgent pour le père, et même lui
 inspirait un bizarre plaisir à se trouver avec lui : le
-vieux malin s'en doutait bien. Après avoir parlé de la j
+vieux malin s'en doutait bien. Après avoir parlé de la
 pluie et du beau temps, et fait une allusion goguenarde
 aux belles filles qui étaient là, et à ce qu'il ne dansait
 pas, il conclut que Christophe avait bien raison de ne #
@@ -3704,24 +3704,24 @@ en vider un. Tout en buvant, le vieux causait, sans se |
 presser, comme toujours. Il parlait de ses petites affaires,
 de la difficulté qu'on avait à vivre, des mauvais temps,
 de la cherté de tout. Christophe n'écoutait guère, et ne
-répondait que par quelques grognements : cela ne k
+répondait que par quelques grognements : cela ne
 l'intéressait pas: il regardait Lorchen. Il y avait des
 moments de silence : le paysan attendait un mot; nulle
 réponse ne venait : il reprenait tranquillement. Chris- $
 tophe se demandaït ce qui lui valait l'honneur de la À
-société du vieux et de ses confidences. Il finit par com- 1
+société du vieux et de ses confidences. Il finit par com-
 prendre. Le vieux, après avoir épuisé ses doléances,
-passa à un autre chapitre : il vanta l'excellence de ses é
-produits, de ses légumes, de sa volaille, de ses œufs, d:
+passa à un autre chapitre : il vanta l'excellence de ses
+produits, de ses légumes, de sa volaille, de ses œufs,
 de son lait; et, brusquement, il demanda si Christophe "
-ne pourrait pas lui procurer la clientèle du château. K
+ne pourrait pas lui procurer la clientèle du château.
 — Comment diable savait-il?.… Ille connaissait donc? %
-— Oui bien, disait le vieux. Tout se sait. ï
+— Oui bien, disait le vieux. Tout se sait.
 ' Il n'ajoutait pas : |
 À — … quand on se donne la peine de faire sa petite
 police soi-même. ;
 
-k di Mais Christophe l'ajoutait pour lui. Il se fit un malin ë,
+k di Mais Christophe l'ajoutait pour lui. Il se fit un malin
 43 plaisir de lui apprendre que, bien que « tout se sût », on
 5 à ne savait pas sans doute qu'il venait de se brouiller +: :
 ‘4 avec la petite cour, et que, si jamais il avait pu se flat- |
@@ -3769,33 +3769,33 @@ tas vider en pure perte son écheveau de petites ruses
 
 ne son beurre, et sa crême. Il ajoutait que, puisque |
 Fa l Christophe était musicien, rien ne faisait plus de bien |
-ki pour la voix qu'un œuf frais avalé cru, matin et soir; 4
+ki pour la voix qu'un œuf frais avalé cru, matin et soir;
 st È et il se faisait fort de lui en fournir de tout chauds sor-
 
 È tis du cul de la poule. Cette idée que le vieux le prenait
 4 pour un chanteur fit éclater de rire Christophe. Le =
 
 paysan en profita pour faire venir une autre bouteille. #
-Après quoi, ayant tiré de Christophe tout ce qu'il pou- 2
-vait en tirer pour l'instant, il s'en alla, sans autre x
+Après quoi, ayant tiré de Christophe tout ce qu'il pou-
+vait en tirer pour l'instant, il s'en alla, sans autre
 La nuit était venue. Les danses étaient de plus en s158
-plus animées. Lorchen ne faisait plus aucune attention : ÿ
-à Christophe : elle avait trop à faire de tourner la tête ê
-à un jeune drôle du village, fils d'un riche fermier, que 1
+plus animées. Lorchen ne faisait plus aucune attention
+à Christophe : elle avait trop à faire de tourner la tête
+à un jeune drôle du village, fils d'un riche fermier, que
 k toutes les filles se disputaient. Christophe s'intéressait fe
 à la lutte : ces demoiselles se souriaient, et elles se ' (Ë
-fussent griffées avec délices. Christophe, bon enfant, 4
+fussent griffées avec délices. Christophe, bon enfant,
 s'oubliait lui-même, et faisait des vœux pour le triomphe à
 de Lorchen. Mais quand ce triomphe fut obtenu, il se à
-sentit un peu triste. Il se le reprocha. Il n'aimait pas J
-Lorchen, il ne tenait pas à être aimé d'elle : il était bien F
+sentit un peu triste. Il se le reprocha. Il n'aimait pas
+Lorchen, il ne tenait pas à être aimé d'elle : il était bien
 naturel qu'elle aimât qui elle voulait. — Sans doute. À
-Mais il n'était pas gai de trouver si peu de sympathie è
-soi-même, quand on avait tant besoin d'en donner et 4
-d'en recevoir. Ici, comme à la ville, il était seul. Tous k
+Mais il n'était pas gai de trouver si peu de sympathie
+soi-même, quand on avait tant besoin d'en donner et
+d'en recevoir. Ici, comme à la ville, il était seul. Tous
 ces gens ne s'intéressaient à lui que pour se servir Ex
-de lui, et se moquer de lui ensuite. Il soupira, sourit n
-en regardant Lorchen, que la joie de faire enrager ses 4
+de lui, et se moquer de lui ensuite. Il soupira, sourit
+en regardant Lorchen, que la joie de faire enrager ses
 rivales rendait dix fois plus jolie, et il se disposa à Ur
 partir. Il était près de neuf heures : il avait deux ki
 bonnes lieues à faire pour rentrer en ville. ‘
@@ -3804,7 +3804,7 @@ dizaine de soldats firent irruption. Leur entrée jeta ‘à
 un froid dans la salle. Les gens se mirent à chu- He
 choter. Quelques couples qui dansaient s'arrêtèrent, te
 pour jeter des regards inquiets sur les nouveaux arri- | A
-vants. Les paysans debout près de la porte affectèrent É
+vants. Les paysans debout près de la porte affectèrent
 de leur tourner le dos et de causer entre eux; mais, “,
 
 k sans en avoir l'air, ils eurent bien soin de se ranger
@@ -3854,7 +3854,7 @@ le dessus. Ils voyaient bien que Christophe n'était pas
 
 ‘un paysan.
 
-Christophe, un peu apaisé par cette attitude soumise, 1
+Christophe, un peu apaisé par cette attitude soumise,
 put observer les choses avec plus de sang-froid. Il n'eut
 pas de peine à voir que toute la bande était menée par
 un sous-officier, — un petit boule-dogue, aux yeux durs,
@@ -3934,7 +3934,7 @@ danser. Et comme toutes les filles avaient leurs cava- ;
 
 ji liers, ils chassèrent les danseurs, qui se laissèrent faire.
 
-1 Mais Lorchen ne l'entendait pas ainsi. Ce n'était pas
+Mais Lorchen ne l'entendait pas ainsi. Ce n'était pas
 
 ë pour rien qu'elle avait ces yeux hardis et ce menton
 
@@ -3942,7 +3942,7 @@ volontaire, qui plaisaient à Christophe. Elle valsait
 
 À comme une folle, quand le sous-officier, qui avait jeté |
 
-1 son dévolu sur elle, vint lui arracher son danseur. Elle 1
+1 son dévolu sur elle, vint lui arracher son danseur. Elle
 
 | tapa du pied, cria, et, repoussant le soldat, elle déclara |
 
@@ -3951,33 +3951,33 @@ lui. L'autre la poursuivit. Il bourraït de coups de poing
 
 # les gens derrière lesquels elle cherchait à s'abriter.
 
-k Enfin, elle se réfugia derrière une table; et là, protégée F
+k Enfin, elle se réfugia derrière une table; et là, protégée
 j de lui pendant un moment, elle reprit du souffle pour :
 : l'injurier ; elle voyait que toute sa résistance ne servirait
 à rien, et elle trépignait de fureur, cherchait les mots
 | les plus blessants à lui dire, et comparait sa tête à celle !
-de divers animaux de sa basse-cour. Lui, penché vers É
+de divers animaux de sa basse-cour. Lui, penché vers
 elle, de l'autre côté de la table, avait un mauvais sourire, et ses yeux luisaient de colère. Brusquement, il à
 prit son élan, et sauta par dessus la table. Il l'empoigna.
 Elle se débattit, comme une vachère qu'elle était, à
 coups de poing et de pied. Il n'était pas trop bien
 d'aplomb sur ses jambes, et faillit perdre l'équilibre.
-1 Furieux, il la poussa contre le mur, et la gifla. Il n'eut
+Furieux, il la poussa contre le mur, et la gifla. Il n'eut
 | pas le temps de recommencer : quelqu'un lui avait }
-sauté sur le dos, le giflait à tour de bras, et le lançait f
+sauté sur le dos, le giflait à tour de bras, et le lançait
 d'un coup de pied, au milieu des buveurs. C'était
 Christophe, qui s'était rué sur lui, bousculant tables |
 1 et gens, sans réfléchir à ce qu'il faisait. Le sous- .
 -officier se retourna, les yeux hors de la tête, fou de ;
 rage, tirant son sabre. Avant qu'il eût pu s'en servir,
 
-- Christophe l'assomma d'un coup d'escabeau. Le tout 5
+- Christophe l'assomma d'un coup d'escabeau. Le tout
 avait été si prompt qu'aucun des spectateurs n'eut |
 l'idée d'intervenir. Mais quand on vit le soldat s'abattre |
 sur le carreau, comme un bœuf, un tumulte épouvantable s'éleva. Les autres soldats coururent sur Chris- :
 tophe, le sabre hors du fourreau. Les paysans se {12
 jetèrent sur eux. La mêlée fut générale. Les chopes
-volaient à travers la salle, les tables étaient renversées. 4
+volaient à travers la salle, les tables étaient renversées.
 Les paysans se réveillaient : il y avait de vieilles À
 rancunes à assouvir. Les gens roulaient par terre, et se '
 mordaient avec fureur. Le danseur évincé de Lorchen,
@@ -4023,7 +4023,7 @@ si longtemps attendue, des avanies qu'ils avaient su- |
 
 bies. Ils ne pensaient pas encore aux conséquences de
 l'échauffourée. Ils parlaient tous à la fois, et chacun
-vantait ses prouesses. Ils fraternisèrent avec Chris- 4
+vantait ses prouesses. Ils fraternisèrent avec Chris-
 
 tophe, tout joyeux de se sentir rapproché d'eux. …
 Lorchen vint lui prendre la main, et resta un instant à
@@ -4045,7 +4045,7 @@ leur ferait leur affaire à tous; il étranglait de rage; on |
 sentait que s'il pouvait, il les exterminerait. Ils
 essayèrent de rire; mais leur rire était forcé. Un jeune
 — Ferme ta gueule, ou je te tue!
-Le sous-officier essaya de se redresser, et, fixant celui è
+Le sous-officier essaya de se redresser, et, fixant celui
 qui venait de parler, avec ses yeux injectés de sang :
 — Salauds! dit-il, tuez-moi! On vous coupera la tête.
 Il continuait à vociférer. L'homme éventré poussait
@@ -4080,7 +4080,7 @@ qu Il y eut un murmure angoissé : ils avalaient leur sa-
 ON donnés. La dispute s'envenimait : ils semblaient sur le
 ji point d'en venir eux-mêmes aux mains. Le père de
 
-1 Lorchen les mit tous d'accord. Les bras croisés,
+Lorchen les mit tous d'accord. Les bras croisés,
 
 NA se tournant vers Christophe, il le désigna, du men-
 
@@ -4090,7 +4090,7 @@ a — Et celui-là, dit-il, qu'est-ce qu'il est venu faire
 
 EU — Cest vrai! C'est vrai! criait-on, c'est lui qui a
 commencé! Sans lui, rien ne serait arrivé!
-0 Christophe, abasourdi, essaya de répondre :
+Christophe, abasourdi, essaya de répondre :
 
 | d — Ce que j'en ai fait, ce n'est pas pour moi, c'est
 
@@ -4104,22 +4104,22 @@ x — Est-ce que nous ne sommes pas capables de nous
 Qui vous a demandé votre avis? Et d'abord, qui vous ;
 ds a prié de venir? Vous ne pouviez pas rester chez  « vous ? ;
 
-; s Christophe haussa les épaules, et se dirigea vers la . 4
+; s Christophe haussa les épaules, et se dirigea vers la
 porte. Mais le père de Lorchen lui barra le chemin, en (
 
 — C'est ça! c'est ça! criait-il, il voudrait filer main- à
 
-tenant, après qu'il nous à tous mis dans le pétrin. Il ne f
+tenant, après qu'il nous à tous mis dans le pétrin. Il ne
 
 partira pas! %
 
-— Il ne partira pas! C'est lui qui est cause de tout. 1
+— Il ne partira pas! C'est lui qui est cause de tout.
 
 C'est lui qui doit payer pour tout! ‘4
 
-Ils l'entouraient, en lui montrant le poing. Chris- 1
+Ils l'entouraient, en lui montrant le poing. Chris-
 
-tophe voyait se resserrer le cercle de figures mena- É
+tophe voyait se resserrer le cercle de figures mena-
 
 çantes : la peur les rendait enragés. Il ne dit pas un à
 
@@ -4127,23 +4127,23 @@ tophe voyait se resserrer le cercle de figures mena- É
 
 sur une table, il alla s'asseoir au fond de la salle, et
 
-leur tourna le dos. ï
+leur tourna le dos.
 
-Mais Lorchen, indignée, se jeta au milieu des paysans. L
+Mais Lorchen, indignée, se jeta au milieu des paysans.
 
 Sa jolie figure était toute rouge et froncée de colère. à
 
 Elle repoussa rudement ceux qui entouraient Chris- #
 
-— Tas de lâches! Bêtes brutes! cria-t-elle. Vous 1
+— Tas de lâches! Bêtes brutes! cria-t-elle. Vous
 
 __ n'êtes pas honteux? Vous voudriez faire croire que c'est À
 
-lui qui a tout fait! Comme si on ne vous avait pas vus! 4
+lui qui a tout fait! Comme si on ne vous avait pas vus!
 
 Comme s'il y en avait un seul, qui n'avait pas cogné de #3
 
-À son mieux! S'il y en avait un seul qui était resté les ‘ 1
+À son mieux! S'il y en avait un seul qui était resté les ‘
 
 bras croisés, pendant que les autres se battaient, je lui ; À
 
@@ -4154,8 +4154,8 @@ restèrent, un instant, silencieux; puis, ils se remirent ;
 
 — Cest lui qui a commencé! Sans lui, il n'y aurait ‘1
 
-HA) | Jean-Christophe ; l
-RE * Le père de Lorchen faisait en vain des signes à sa Î
+HA) | Jean-Christophe
+RE * Le père de Lorchen faisait en vain des signes à sa
 Ca file. Elle reprit :
 ï ; — Bien sûr que c'est lui qui a commencé! Il n'y a
 ï pas de quoi vous vanter. Sans lui, vous vous laissiez
@@ -4182,58 +4182,58 @@ que je ne tai pas vu tout à l'heure piler à coups de ;
 talons celui-là qui est quasi comme mort, dans la
 chambre à côté? Et toi, montre un peu tes mains !…
 Il y a encore du sang dessus. Tu crois que je ne tai
-pas vu, avec ton couteau? Je dirai tout ce que j'ai vu, 4
-tout, si vous faites la moindre chose contre lui. Je vous 4
+pas vu, avec ton couteau? Je dirai tout ce que j'ai vu,
+tout, si vous faites la moindre chose contre lui. Je vous
 ferai tous condamner.
 
-Les paysans, exaspérés, approchaient leur figure Ê.
-furieuse de la figure de Lorchen, et lui braillaient au Â
+Les paysans, exaspérés, approchaient leur figure
+furieuse de la figure de Lorchen, et lui braillaient au
 nez. Un d'eux fit mine de la calotter; mais le bon ami
-de Lorchen le saisit au collet, et ils se secouèrent tous 14
+de Lorchen le saisit au collet, et ils se secouèrent tous
 deux, prêts à se rouer de coups. Un vieux dit à Lorchen : |
 — Si nous sommes condamnés, tu le seras aussi.
 — Je le serai aussi, fit-elle. Je suis moins lâche que |
 Et elle reprit sa musique. :
 Ils ne savaient plus que faire. Ils s'adressaient au
 père :
-— Est-ce que tu ne la feras pas taire? é
+— Est-ce que tu ne la feras pas taire?
 Le vieux avait compris qu'il n'était pas prudent de
-pousser à bout Lorchen. Il leur fit signe de se calmer. - É
+pousser à bout Lorchen. Il leur fit signe de se calmer.
 Le silence tomba. Lorchen seule continua de parler; :
 puis, ne trouvant plus de riposte, comme un feu sans NY
 aliment, elle s'arrêta. Après un moment, son père toussota, et dit:
-— Eh bien donc, qu'est-ce que tu veux? Tu ne veux 108
-pourtant pas nous perdre ? ‘ 4
+— Eh bien donc, qu'est-ce que tu veux? Tu ne veux
+pourtant pas nous perdre ? ‘
 Elle dit : 1%
 Ils se mirent à réfléchir. Christophe n'avait pas bougé #
 de place : raidi dans son orgueil, il semblait ne pas %
 entendre qu'il s'agissait de lui; mais il était ému de À
 l'intervention de Lorchen. Lorchen ne paraissait pas
 davantage savoir qu'il était là : adossée à la table où :
-il était assis, elle fixait d'un air de défi les paysans, L
+il était assis, elle fixait d'un air de défi les paysans,
 qui fumaient, en regardant à terre. Enfin, son père, après à
 avoir mâchonné sa pipe, dit : ‘a
 — Qu'on dise, ou qu'on ne dise pas quelque chose, — À
 s'il reste, son affaire est claire. Le maréchal des logis _\#
 
-2) la reconnu : il ne lui fera pas grâce. Il n'y a qu'un 1
-(US parti pour lui, c'est qu'il file tout de suite, de l'autre 14
+2) la reconnu : il ne lui fera pas grâce. Il n'y a qu'un
+(US parti pour lui, c'est qu'il file tout de suite, de l'autre
 ci côté de la frontière. |
 
-14 Il avait réfléchi qu'après tout, il serait plus avanta-
+Il avait réfléchi qu'après tout, il serait plus avanta-
 
 Le geux pour eux que Christophe se sauvât : il se dénonçait
 
-mi, ainsi lui-même; et, quand il ne serait plus là pour se j
+mi, ainsi lui-même; et, quand il ne serait plus là pour se
 1 défendre, on n'aurait pas de peine à se décharger sur |
 * lui de tout le gros de l'affaire. Les autres approuvèrent.
 “ Ils se comprenaient parfaitement. — Maintenant qu'ils
 
-4 étaient décidés, ils avaient tous hâte que Christophe 4
+4 étaient décidés, ils avaient tous hâte que Christophe
 ji ne” fût déjà parti. Sans manifester aucune gêne de ce qu'ils \
 ï 1 avaient dit, un moment avant, ils se rapprochèrent |
 __ de lui, feignant de s'intéresser vivement à son salut. |
-À — Pas une minute à perdre, monsieur, dit le père de 4
+À — Pas une minute à perdre, monsieur, dit le père de
 in Lorchen. Ils vont revenir. Une demi-heure pour aller au
 # fort. Une demi-heure pour retourner. Il n'y a que le À
 Dh temps de filer. |
@@ -4241,21 +4241,21 @@ il Christophe s'était levé. Lui aussi avait réfléchi. Il
 savait que s'il restait, il était perdu. Mais partir, partir
 
 à sans revoir sa mère ?.. Non, ce n'était pas possible. Il
-À dit qu'il retournait d'abord en ville, qu'il aurait encore F
-; frontière. Mais ils poussèrent les hauts cris. Tout à ï
+À dit qu'il retournait d'abord en ville, qu'il aurait encore
+; frontière. Mais ils poussèrent les hauts cris. Tout à
 M l'heure, ils lui avaient barré la porte, pour l'empêcher
 a de fuir : maintenant, ils s'opposaient à ce qu'il ne prit
 1! pas la fuite. Rentrer en ville, c'était se faire pincer,
 
 (à à coup sûr : avant qu'il fût seulement arrivé, on serait
-prévenu là-bas; on l'arrêterait chez lui. — Il s'obsti- 5
-nait. Lorchen l'avait compris : ñ
+prévenu là-bas; on l'arrêterait chez lui. — Il s'obsti-
+nait. Lorchen l'avait compris
 3 — C'est votre maman que vous voulez voir ?... J'irai
 F, à votre place. à
 
-— Cette nuit. 140
+— Cette nuit.
 
-— C'est vrai? Vous feriez cela ? 1
+— C'est vrai? Vous feriez cela ?
 
 ; Elle prit son fichu, et s'en enveloppa. d *
 — Écrivez quelque chose, je le lui porterai. Venez ‘
@@ -4274,27 +4274,27 @@ côté de la frontière. :
 
 Il avait aussi hâte que quiconque de savoir Christophe ;
 
-| en France, et même plus loin, s'il était possible. 2
+| en France, et même plus loin, s'il était possible.
 Lorchen entra avec Christophe dans l'autre pièce. ;
 Christophe hésitait encore. Il était déchiré de douleur, à <
 
-la pensée qu'il n'embrasserait plus sa mère. Quand la 1
-reverrait-il ? Elle était si vieille, si fatiguée, si seule! Ce Ç
+la pensée qu'il n'embrasserait plus sa mère. Quand la
+reverrait-il ? Elle était si vieille, si fatiguée, si seule! Ce
 nouveau coup l'achèverait. Que deviendrait-elle sans de
 
 lui ?.. Mais que deviendrait-elle, s'il restait, s'il se fai- “À
 
 sait condamner, enfermer pendant des années? Ne LÉ
-serait-ce pas plus sûrement encore pour elle l'abandon, ÿ
+serait-ce pas plus sûrement encore pour elle l'abandon,
 
-la misère? Libre du moins, si loin qu'il fût, il pouvait 4
+la misère? Libre du moins, si loin qu'il fût, il pouvait
 
 lui venir en aide, elle pouvait le rejoindre. — Il n'eut er
 
 pas le temps de voir clair dans ses pensées. Lor- Sd
-chen lui avait pris les mains; debout, près de lui, F.
+chen lui avait pris les mains; debout, près de lui,
 
-elle le regardait; leur figure se touchait presque; 7
+elle le regardait; leur figure se touchait presque;
 
 elle lui jeta les bras autour du cou, et lui baïisa la 3%
 
@@ -4333,29 +4333,29 @@ dessus son épaule, tandis qu'il écrivait.)
 | — Vous me direz bien tout, et comment elle aura
 supporté ce coup, et tout ce qu'elle aura dit ? Vous ne }
 : me cacherez rien ? disait Christophe, suppliant. |
-4 400
+4
 
 — Je vous dirai tout. ‘#
-Ils n'étaient plus aussi libres de se parler : sur le seuil j
-de la porte, l'homme les regardait. ÿ
+Ils n'étaient plus aussi libres de se parler : sur le seuil
+de la porte, l'homme les regardait.
 — Et puis, monsieur Christophe, dit Lorchen, j'irai la
 voir quelquefois, je vous enverrai de ses nouvelles :
 Elle lui donna une poignée de main vigoureuse, À
 comme un homme.
 — Allons! fit le paysan. ;
-— Allons! dit Christophe. 7
+— Allons! dit Christophe.
 Ils sortirent tous trois. Sur la route, ils se séparèrent.
 Lorchen alla d'un côté, et Christophe avec son guide, Pa.
 de l'autre. Ils ne causaient point. Le croissant de la
 lune, enveloppée de vapeurs, disparaissait derrière les
-bois. Une lumière très pâle flottait sur les champs. È
+bois. Une lumière très pâle flottait sur les champs.
 Dans les creux, les brouillards s'étaient levés, épais et
 blancs comme du lait. Les arbres grelottants baignaient
 dans l'air humide. — Quelques minutes à peine après
 la sortie du village, le paysan se rejeta brusquement en |
-arrière, et fit signe à Christophe de s'arrêter. Ils écoutèrent. Sur la route, devant eux, s'approchait le pas 4
-cadencé d'une troupe. Le paysan enjamba la haie, et è
-passa dans les champs. Christophe fit comme lui. Ils K
+arrière, et fit signe à Christophe de s'arrêter. Ils écoutèrent. Sur la route, devant eux, s'approchait le pas
+cadencé d'une troupe. Le paysan enjamba la haie, et
+passa dans les champs. Christophe fit comme lui. Ils
 s'éloignèrent à travers les labours. Ils entendirent pas !
 ser sur le chemin les soldats. Dans la nuit, le paysan #
 leur montra le poing. Christophe avait le cœur serré,
@@ -4373,7 +4373,7 @@ mer à sauter deux ou trois petits ruisseaux. Ils se trou3 ñ  vèrent ensuite d
 + 04 et de terre labourée; ils crurent qu'ils n'en sortiraient
 +1 jamais. La plaine était bosselée : c'était une suite de.
 et renflements et de creux, où l'on risquait de tomber.
-1 Enfin, après avoir erré au hasard, noyés dans le brouilDee lard, ils aperçurent tout à coup, à quelques pas, les
+Enfin, après avoir erré au hasard, noyés dans le brouilDee lard, ils aperçurent tout à coup, à quelques pas, les
 di fanaux de la voie ferrée sur le faîte d'un remblais. Ils
 À grimpèrent le talus.s Au risque d'être surpris, ils suiPa virent le long des rails, jusqu'à une centaine de mètres
 \ de la station : là, ils reprirent la route. Ils arrivèrent à
@@ -4395,33 +4395,33 @@ son être se révoltait. Être étoufté par la force odieuse!…
 Il n'en respirait plus. Sa mère, son pays qu'il quittait,
 avaient disparu de sa pensée. Dans l'égoïisme de sa :
 
-liberté menacée, il ne pensait qu'à cette liberté, à sa vie E:
+liberté menacée, il ne pensait qu'à cette liberté, à sa vie
 qu'il voulait sauver. A quelque prix que ce fût! Oui, #4
-| même au prix d'un crime... Il se reprochait amère- 4
+| même au prix d'un crime... Il se reprochait amère-
 ment d'avoir pris ce train, au lieu d'avoir continué sa à
 
-route à pied jusqu'à la frontière, Il avait voulu gagner | 3
+route à pied jusqu'à la frontière, Il avait voulu gagner
 quelques heures. Belle avance! Il allait se jeter dans la nt
-gueule du loup. Sûrement, on l'attendaïit à la gare fron- ï
+gueule du loup. Sûrement, on l'attendaïit à la gare fron-
 
 tière; des ordres devaient être donnés : il serait arrêté. "1
 
 Il songea, un moment, à descendre du train en marche, à
 
-1 avant la station; il ouvrit même la portière du wagon; ; ê
+1 avant la station; il ouvrit même la portière du wagon;
 mais déjà il était trop tard : on arrivait. Le train s'ar- à
 
 rêta. Cinq minutes. Une éternité. Christophe, rejeté <
 
-dans le fond de son compartiment, abrité derrière le 4
+dans le fond de son compartiment, abrité derrière le
 rideau, regardait anxieusement le quai, où se tenait ca
 immobile un gendarme. Le chef de gare sortit de son ?
-bureau, une dépêche à la main, et se dirigea précipi- 8
+bureau, une dépêche à la main, et se dirigea précipi-
 tamment du côté du gendarme : Christophe ne douta
 
-point qu'il ne s'agît de lui. Il chercha une arme. Nulle F
+point qu'il ne s'agît de lui. Il chercha une arme. Nulle
 
-autre qu'un fort couteau à deux lames. Il ouvrit dans 24
+autre qu'un fort couteau à deux lames. Il ouvrit dans
 
 sa poche. Un employé, avec une lanterne attachée sur #
 
@@ -4431,9 +4431,9 @@ train. Christophe le vit venir. Le poing crispé dans À
 
 sa poche, sur le manche du couteau, il pensa : FA.
 
-Il était dans un tel état de surexcitation qu'il eût été F
+Il était dans un tel état de surexcitation qu'il eût été
 
-capable de plonger son couteau dans la poitrine de D
+capable de plonger son couteau dans la poitrine de
 l'homme, si celui-ci avait eu la malencontreuse idée de fa
 
 venir directement à lui, et d'ouvrir son compartiment. Pr
@@ -4465,14 +4465,14 @@ k le bras, Christophe s'éveilla, confus, croyant avoir
 tout de son long sur un banc de la salle d'attente, et se
 ; laissa tomber dans le sommeil, comme une masse.
 
-Il se réveilla vers midi. Lorchen ne pouvait guère 1
+Il se réveilla vers midi. Lorchen ne pouvait guère
 ; venir avant deux ou trois heures. En attendant l'arrivée
 des trains, il faisait les cent pas sur le quai de la petite
 gare. Il continua tout droit au milieu des prairies. À
 C'était un jour gris et sans joie, qui sentait les approches
-| de l'hiver. La lumière était endormie. Le sifflet plaintif 6
+| de l'hiver. La lumière était endormie. Le sifflet plaintif
 d'un train en manœuvres rompait seul le triste silence. £
-Christophe s'arrêta à quelques pas de la frontière, dans :0t
+Christophe s'arrêta à quelques pas de la frontière, dans
 la campagne déserte. Devant lui, une toute petite mare, |
 une flaque d'eau très claire, où se reflétait le ciel mélan- ;
 colique. Elle était close d'une palissade, et bordée de À
@@ -4481,16 +4481,16 @@ lée, qui tremblait. Derrière, un grand noyer, aux #
 branches noires et nues, comme un polype monstrueux. 0)
 Des grappes de corbeaux s'y balançaient lourdement. ‘HR
 Les dernières feuilles exsangues se détachaient d'elles- *
-mêmes, et tombaient une à une sur l'étang immobile. w
-Il lui semblait qu'il avait déjà vu cela : ces deux 11
+mêmes, et tombaient une à une sur l'étang immobile.
+Il lui semblait qu'il avait déjà vu cela : ces deux
 arbres, cet étang... — Et brusquement, il eut une de ces gs
-minutes de vertige, qui s'ouvrent de loin en loin dans la 5
+minutes de vertige, qui s'ouvrent de loin en loin dans la
 plaine de la vie. Une trouée dans le Temps. On ne sait MS
 plus où on est, qui on est, dans quel siècle l'on vit, Me
 depuis combien de siècles on est ainsi. Christophe avait ji
-le sentiment que cela avait déjà été, que ce qui était, d
+le sentiment que cela avait déjà été, que ce qui était,
 
-1e at maintenant, n'était pas, maintenant, mais dans un autre S
+1e at maintenant, n'était pas, maintenant, mais dans un autre
 ve temps. Il n'était plus lui-même. Il se voyait du dehors,
 
 [1 "de très loin, comme un autre qui déjà s'était tenu
@@ -4504,7 +4504,7 @@ nl Le grondement des siècles passait en lui...
 
 | de Bien d'autres Krafft avant lui avaient subi les épreuves
 
-dit qu'il subissait aujourd'hui, et goûté la détresse. de cette 3
+dit qu'il subissait aujourd'hui, et goûté la détresse. de cette
 “508 dernière heure sur la terre natale. Race toujours errante,
 
 “ et de partout bannie par son indépendance et son
@@ -4544,40 +4544,40 @@ A images qu'il laissait sur cette terre, ou dessous. Ses |
 
 souffrances ne lui étaient pas moins chères que ses #0
 | joies. Minna, Sabine, Ada, le grand-père, l'oncle +
-Gottfried, le vieux Schulz, — tout reparut à ses yeux, *2 k
+Gottfried, le vieux Schulz, — tout reparut à ses yeux,
 
 en l'espace de quelques minutes. Il ne pouvait s'arracher ; à
 
 à ses morts — (car il comptait aussi Ada parmi les Fi
 morts). — L'idée de sa mère, qu'il laissait, seule vivante ra
 
-de tous ceux qu'il aimait, au milieu de ces fantômes, lui : 4
+de tous ceux qu'il aimait, au milieu de ces fantômes, lui
 
-était intolérable. Il fut sur le point de repasser la fron- D
+était intolérable. Il fut sur le point de repasser la fron-
 
-tière, tant il se trouvait lâche d'avoir cherché la fuite. e.
+tière, tant il se trouvait lâche d'avoir cherché la fuite.
 
 Il était décidé, si la réponse, que Lorchen devait lui ;
-apporter de la part de sa mère, trahissait une douleur É
+apporter de la part de sa mère, trahissait une douleur
 
 trop grande, à revenir coûte que coûte. Mais s'il ne rece-
 
-vait rien? Si Lorchen n'avait pu arriver jusqu'à Louisa, 2
+vait rien? Si Lorchen n'avait pu arriver jusqu'à Louisa,
 
 ou rapporter la réponse? Eh bien, il reviendrait. Le
 
-Il retourna à la gare. Après une morne attente, le é.
+Il retourna à la gare. Après une morne attente, le
 
-train parut enfin. Christophe guettait à une portière la 74
+train parut enfin. Christophe guettait à une portière la
 
-figure hardie de Lorchen: car il était certain qu'elle è
-tiendrait sa promesse; mais elle ne se montra pas. Il Ë
-courut, inquiet, d'un compartiment à l'autre : il se disait k
+figure hardie de Lorchen: car il était certain qu'elle
+tiendrait sa promesse; mais elle ne se montra pas. Il
+courut, inquiet, d'un compartiment à l'autre : il se disait
 que, si elle avait été dans le train, elle eût été des #
 premières à descendre. Comme il se heurtait dans sa ve
 course au flot des voyageurs qui venaient en sens ne
-inverse, il remarqua une figure, qui ne lui parut pas 4
-inconnue. C'était une petite fille de treize à quatorze F.
+inverse, il remarqua une figure, qui ne lui parut pas
+inconnue. C'était une petite fille de treize à quatorze
 
 -ans, joufilue, courtaude, et rouge comme une pomme, à
 
@@ -4590,16 +4590,16 @@ valise qui ressemblait à la sienne. Elle l'observait aussi, ; A:
 
 de côté, comme un moïineau; et quand elle vit qu'il la ae
 regardait, elle fit quelques pas vers lui; mais elle resta va
-plantée en face de Christophe, et le dévisagea de ses 4
+plantée en face de Christophe, et le dévisagea de ses
 
 man Jean-Christophe "5
-‘ “4 petits yeux de souris, sans dire un mot. Christophe la 4
+‘ “4 petits yeux de souris, sans dire un mot. Christophe la
 ‘as reconnut : c'était une petite vachère de la ferme de
 We Lorchen. Montrant la valise, il dit : ‘4
-ï: — C'est à moi, n'est-ce pas ? 4
+ï: — C'est à moi, n'est-ce pas ?
 We La petite ne bougea pas, et répondit d'un air À
 — Savoir. D'où que vous venez, d'abord ? }
-: — Et qui qui vous l'envoie? k
+: — Et qui qui vous l'envoie?
 # — Lorchen. Allons, donne.
 ! La gamine tendit la valise :
 | Et elle ajouta :
@@ -4621,25 +4621,25 @@ fait; et elles pleuraient; et Gertrude a grifté les gen- |
 darmes. On avait beau leur dire que c'était vous qui
 | aviez tout fait.
 
-— Comment, moi? s'exclama Christophe. 6
+— Comment, moi? s'exclama Christophe.
 — Bien oui, fit la petite tranquillement, ça ne faisait |
 rien, n'est-ce pas, puisque vous étiez parti? Alors, ils à
-vous ont cherché partout, et on a envoyé après vous, É
+vous ont cherché partout, et on a envoyé après vous,
 de tous les côtés.
 — Lorchen n'était pas là. Elle est revenue plus tard,
 — Oui. Voilà la lettre. Et elle voulait venir ellemême; mais on l'a arrêtée aussi.
 — Alors, comment as-tu pu?
 — Voilà : elle est rentrée au village, sans que la police
 lait vue; et elle allait repartir. Mais Irmina, la sœur de |
-Gertrude, l'a dénoncée. On est venu pour la prendre. 1h
+Gertrude, l'a dénoncée. On est venu pour la prendre.
 Alors, quand elle a vu venir les gendarmes, elle est
 montée dans sa chambre, et elle leur a crié qu'elle descendait tout de suite, qu'elle s'habillait. Moi, j'étais
 dans la vigne, derrière la maison; elle m'a appelée *
 tout bas par la fenêtre : « Lydia ! Lydia ! » Je suis
-venue ; elle m'a passé votre valise et la lettre, que votre D
+venue ; elle m'a passé votre valise et la lettre, que votre
 mère lui avait données; et elle m'a expliqué où je vous
 trouverais ; elle m'a dit de couriret dene pas me laisser à
-prendre. J'ai couru, et me voilà. 3
+prendre. J'ai couru, et me voilà.
 — Elle n'a rien dit de plus ?
 — Si. Elle m'a dit de vous remettre aussi ce fichu, |
 pour vous montrer que je venais de sa part.
@@ -4647,17 +4647,17 @@ Christophe reconnut le fichu blanc, à pois rouges et
 fleurs brodées, que Lorchen, en le quittant, la veille, +
 avait noué autour de sa tête. L'invraisemblance naïve ;
 du prétexte, dont elle s'était servie pour lui envoyer
-ce souvenir amoureux, ne le fit pas sourire. 4
+ce souvenir amoureux, ne le fit pas sourire.
 
 1 — Maintenant, fit la petite, voilà l'autre train qui ‘#0
 __ remonte. Il faut que je rentre chez nous. Bonsoir. "à
 ne — Attends done, dit Christophe. Et l'argent pour
-4 Gi venir, comment as-tu fait ? SL 4
+Gi venir, comment as-tu fait ? SL
 00 ; — Lorchen me l'a donné. ne.
-Dis — Prends tout de même, dit Christophe, lui mettant 4
-4) quelques pièces dans la main. 3 20
+Dis — Prends tout de même, dit Christophe, lui mettant
+4) quelques pièces dans la main.
 AAA Il retint par le bras la petite qui voulait se sauver.
-! ! M Il se pencha, et l'embrassa sur les deux joues. La fil Ô
+! ! M Il se pencha, et l'embrassa sur les deux joues. La fil
 hi lette faisait mine de protester. LE
 ï à — Ne te défends donc pas, dit Christophe, en plaisan- ‘4
 HAN tant. Ce n'est pas pour toi. #4
@@ -4665,42 +4665,42 @@ HAN tant. Ce n'est pas pour toi. #4
 À pour Lorchen. \4
 !4 Ge n'était pas seulement Lorchen, que Christophe
 1 embrassait sur les joues rebondies de la petite
-‘4 vachère : c'était toute son Allemagne. 3
+‘4 vachère : c'était toute son Allemagne.
 à ‘ La petite s''échappa, et courut vers le train qui partait.
 1 ‘Elle resta à la portière et lui fit des signaux avec son
-d mouchoir, jusqu'à ce qu'elle ne le vit plus. Il suivit des N
+d mouchoir, jusqu'à ce qu'elle ne le vit plus. Il suivit des
 ) yeux la rustique messagère, qui venait de lui apporter,
 cl pour la dernière fois, le souffle de son pays et de ceux
 L qu'il aimait. À
-à Quand elle eut disparu, il se trouva tout à fait seul, ù
+à Quand elle eut disparu, il se trouva tout à fait seul,
 A k cette fois, étranger sur une terre étrangère. Il tenait à À
-qe ; serra celui-ci sur sa poitrine, et il voulut ouvrir la lettre; w
+qe ; serra celui-ci sur sa poitrine, et il voulut ouvrir la lettre;
 by mais sa main tremblait. Qu'allait-il lire ? Quelle souf-
 : 4 france allait-il y trouver ? — Non, il ne supporterait pas
-ï le reproche douloureux, qu'il croyait déjà entendre : il 4
-‘1 reviendrait sur ses pas. 20
+ï le reproche douloureux, qu'il croyait déjà entendre : il
+‘1 reviendrait sur ses pas.
 
 Il déplia enfin la lettre, et lut : 2 à
-._  . « Mon pauvre enfant, ne te tourmente pas de moi. Je 16
+._  . « Mon pauvre enfant, ne te tourmente pas de moi. Je
 ; serai sage. Le bon Dieu m'a punie. Je ne devaispas
 _ être égoïste et te garder ici. Va à Paris. Peut-être que À
 À ce sera mieux pour toi. Ne t'occupe pas de moi. Je sais  : À
 me tirer d'affaire. L'essentiel, c'est que tu sois heureux.
- « Écris-moi, quand tu pourras. » 4
-| Christophe s'assit sur sa valise et pleura. “ST 3:
+ « Écris-moi, quand tu pourras. »
+| Christophe s'assit sur sa valise et pleura. “ST
 
-A Le portier de la gare appelait les voyageurs pour É
+A Le portier de la gare appelait les voyageurs pour
 fu Paris. Le train pesant arrivait avec fracas. Christophe À
-fs essuya ses larmes, se leva, et se dit : k
-4 Il regarda je ciel, du côté où devait se trouver Paris.
-a Le ciel, sombre partout, était plus sombre là. C'était É
+fs essuya ses larmes, se leva, et se dit
+Il regarda je ciel, du côté où devait se trouver Paris.
+a Le ciel, sombre partout, était plus sombre là. C'était
 dl comme un gouffre d'ombre. Christophe eut le cœur !
 PA MSserré; mais ilse répéta : hu
-Il monta dars le train, et, penché à la fenêtre, ïl 1
+Il monta dars le train, et, penché à la fenêtre, ïl
 Wu continuait de regarder l'horizon menaçant : ‘ !
-4 — O Paris! pensait-il, Paris! Viens à mon secours! 4
-À: Sauve-moi! Sauve mes pensées! L
-1 L'obscur brouillard s'épaississait. Derrière Chris- .
+4 — O Paris! pensait-il, Paris! Viens à mon secours!
+À: Sauve-moi! Sauve mes pensées!
+L'obscur brouillard s'épaississait. Derrière Chris- .
 pit tophe, au-dessus du pays qu'il quittait, un petit coin de
 ii . ciel, bleu pâle, large comme deux yeux, — comme les
 nu, yeux de Sabine, — sourit tristement au milieu des À
@@ -4708,24 +4708,24 @@ nu, yeux de Sabine, — sourit tristement au milieu des À
 il La pluie tomba. La nuit tomba. ‘110
 
 : Il a été tiré de ce cahier treize exemplaires sur “Ee
-* whatman ainsi distribués : 8
-é premier exemplaire de souche, exemplaire du gérant; 1
+* whatman ainsi distribués
+é premier exemplaire de souche, exemplaire du gérant;
 4 deuxième exemplaire de souche, exemplaire de lad- Je
-à troisième exemplaire de souche, exemplaire de l'im- É,
+à troisième exemplaire de souche, exemplaire de l'im-
 î primeur ; sa
-l dix exemplaires d'abonnement, numérotés de I à 10 4
-Tous nos exemplaires sur whatman sont numérotés 4
-; à la presse et imprimés au nom du souscripteur ; nos x 4
+l dix exemplaires d'abonnement, numérotés de I à
+Tous nos exemplaires sur whatman sont numérotés
+; à la presse et imprimés au nom du souscripteur ; nos
 tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque in- à
-: stant souscrits; nous ne vendons point d'exemplaires 41
+: stant souscrits; nous ne vendons point d'exemplaires
 ï sur whatman en dehors de l'abonnement; l'abonnement ‘#4
-sur whatman à cette huitième série est de cent francs F6
+sur whatman à cette huitième série est de cent francs
 pour tous: pays. |
 
-7 Les Cahiers de la Quinzaine sont composés à la main, Rs
+Les Cahiers de la Quinzaine sont composés à la main, Rs
 | en caractères fin dix-huitième siècle (Didot) de la fon- “es
-$ derie Mayeur (Allainguillaume et compagnie succes- 4
-Ç seurs) 21, rue du Montparnasse, à Paris, sixième 44
+$ derie Mayeur (Allainguillaume et compagnie succes-
+Ç seurs) 21, rue du Montparnasse, à Paris, sixième
 
 rez-de-chaussée, Paris, cinquième arrondissement. }
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
@@ -4752,7 +4752,7 @@ numéro du tirage réservé à chacun des souscripteurs;
 l'édition sur whatman est strictement limitée au
 
 + Pour tout changement d'adresse envoyer soixante $
-4 centimes, six timbres de dix centimes. 4
+4 centimes, six timbres de dix centimes.
 Ë. Nous engageons nos abonnés de certains pays à nous
 be demander un abonnement recommandé ; tous les cahiers !
 +} de l'abonnement recommandé sont empaquetés à part et
@@ -4767,14 +4767,14 @@ envoyés aux souscripteurs dans des enveloppes-sacs.
 4 l'achèvement de cette série ; ainsi jusqu'au 31 décembre
 - 1906 on pouvait encore avoir pour vingt francs les dix- |
 neuf cahiers de la septième série complète.
-4 A partir du premier janvier qui suit l'achèvement
+A partir du premier janvier qui suit l'achèvement
 Ê d'une série, le prix de cette série est porté au moins
 ÿ au total des prix marqués; ainsi depuis le premier
 ; janvier 1907 la septième série complète se vend quarante- |
 Adresser à M. André Bourgeois, administrateur des
 cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, fe
 À cinquième arrondissement, toute la correspondance
-| sans aucune exception. N'oublier pas d'indiquer dans la j
+| sans aucune exception. N'oublier pas d'indiquer dans la
 correspondance le numéro de l'abonnement, comme il ‘
 4 est inscrit sur l'étiquette, avant le nom. Nous ne réponL: dons pas des manuscrits qui nous sont envoyés; nous ,
 à n'accordons aucun tour de faveur pour la lecture des A
@@ -4782,7 +4782,7 @@ correspondance le numéro de l'abonnement, comme il ‘
 1 que nous en avons besoin; les œuvres que nous publions |
 F appartiennent aux cahiers, du seul fait de cette publi4 cation, en toute propriété littéraire, sans aucune réserve, ;
 , et sans autre signification ni contrat; les manuscrits |
-L non insérés ne sont pas rendus. j
+L non insérés ne sont pas rendus.
 
 Notre catalogue analytique sommaire; notre
 | petit index alphabétique provisoire du catalogue
@@ -4795,7 +4795,7 @@ Roma Rorczanp. — Jean-Christophe........ xt
 : _ Nous avons donné le bon à tirer après corrections
 ñ pour deux mille exemplaires de ce neuvième cahier et ;
 pour treize exemplaires sur whatman le mercredi
-É Ce cahier a été composé et tiré par des ouvriers syndiqués j
+É Ce cahier a été composé et tiré par des ouvriers syndiqués
 
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante
@@ -4823,18 +4823,18 @@ de XVI + 152 pages; in-18 grand jésus; nous le
 
 _ Polonais et Prussiens
 le paraissant seize fois par an LS
-L 8, rue de la Sorbonne, au rez-de-chaussée x
+L 8, rue de la Sorbonne, au rez-de-chaussée
 
 “ ii Nous avons publié dans nos éditions antérieures et
-ah dans nos cinq premières ‘séries, 1900-1904, un Si ï
+ah dans nos cinq premières ‘séries, 1900-1904, un Si
 “4 grand nombre de documents, de textes formant dos- js
 h si grand nombre de cahiers de lettres, — nouvelles, *]
 1 romans, drames, dialogues, poèmes et contes: — un à
 5 si grand nombre de cahiers d'histoire et de philo- :
-di sophie; et ces documents, renseignements, textes, 4
-Ni dossiers et commentaires, ces cahiers de lettres, L
+di sophie; et ces documents, renseignements, textes,
+Ni dossiers et commentaires, ces cahiers de lettres,
 a d'histoire et de philosophie étaient si considérables y
-1 que nous ne pouvons pas songer à en donner ici 1
+1 que nous ne pouvons pas songer à en donner ici
 Fe l'énoncé même le plus succinct; pour savoir ce qui a ;
 Pa paru dans les cinq premières séries des cahiers, il |
 4 suffit d'envoyer un mandat de cinq francs à M. André “4
@@ -4844,11 +4844,11 @@ A Bourgeois, administrateur des cahiers, 8, rue de la Sor-
 ! ment: on recevra en retour le catalogue analytique
 
 } sommaire, 1900-1904, de nos cinq premières séries. |
-4) Ce catalogue a été justement établi pour donner, 8
+4) Ce catalogue a été justement établi pour donner,
 Li autant qu'il se pouvait, une image en bref, un raccourci, à
 4 une idée, abrégée, mais complète, de nos éditions anté- à
 4 rieures et de nos cinq premières séries ; tout y est classé \
-1 dans l'ordre ; il suffit de le lire pour trouver, à leur 1
+1 dans l'ordre ; il suffit de le lire pour trouver, à leur
 { place, les références demandées. ;
 \ Ce. catalogue, in-18 grand jésus, forme un cahier si
 à très épais de XI14-{08 pages très denses, marqué cinq À
@@ -4856,22 +4856,22 @@ Li autant qu'il se pouvait, une image en bref, un raccourci, à
 | francs ; ce cahier comptait comme premier cahier de la "10
 Fr . sixième série et nos abonnés l'ont reçu à sa date, le A
 ; 2 octobre 190%, comme premier cahier de la sixième  .
-série; toute personne qui jusqu'au 31 décembre 1905 4
+série; toute personne qui jusqu'au 31 décembre 1905
 s'abonnait rétrospectivement à la sixième série le rece- Ne
 vait, par le fait même de son abonnement, en tête de la ‘4
 . série; nous l'envoyons contre un mandat de cinq francs “À
 à toute personne qui nous en fait la demande. Le
-. Pour la septième série, année ouvrière 1905-1906, et è
-en attendant que paraisse le catalogue analytique som- k
+. Pour la septième série, année ouvrière 1905-1906, et
+en attendant que paraisse le catalogue analytique som-
 maire de nos deuxièmes cinq séries, 1904-1909, On à
 
-; peut consulter, — provisoirement, — la petite table ê
+; peut consulter, — provisoirement, — la petite table
 analytique très sommaire que nous en avons établie et FA
-que nous avons publiée en fin du premier cahier de la ÿ
+que nous avons publiée en fin du premier cahier de la
 | Pour amorcer tout travail que l'on aurait à commencer fi
 dans notre premier catalogue analytique sommaire, con- au
 sulter le petit index alphabétique provisoire que nous ‘4
-avons établi automatiquement de ce catalogue analy- 2
+avons établi automatiquement de ce catalogue analy-
 tique sommaire dans l'index total de nos éditions anté- # ee
 rieures et de nos sept premières séries, même premier ii
 | cahier de la huitième série. À
@@ -4880,19 +4880,19 @@ rieures et de nos sept premières séries, même premier ii
 
 He * aux Cahiers de la Quinzaine ee
 : 470 Le présent petit index donne automati- : US
-( 14 Ÿ quement pour tout volume et pour tout $ 145 20
-4 PA le classement général de nos collections # 1 108
+( 14 Ÿ quement pour tout volume et pour tout $
+PA le classement général de nos collections #
 SRE complètes, le numéro d'ordre de la série De à
 FER capitales de romain et le numéro d'ordre
 Fe Ms du cahier lui-même, dans la série ainsi ‘10
 NT déterminée, en chiffres arabes, de sorte HUE
-É pa dr: à que V-17 par exemple doit évidemment se 4" 7
+É pa dr: à que V-17 par exemple doit évidemment se 4"
 CT lire dix-septième cahier de la cinquième < * A
-L10ES faut, la date du fini d'imprimer, ou, à son 12
+L10ES faut, la date du fini d'imprimer, ou, à son
 M0 défaut, la date du cahier même; . MS.
-A ; d) quand il y a lieu, c'est-à-dire pour nos (at + k
-mil, éditions antérieures et pour nos cinq pre- T4
-+ TER mières séries, la page du catalogue ana- 21!
+A ; d) quand il y a lieu, c'est-à-dire pour nos (at +
+mil, éditions antérieures et pour nos cinq pre-
++ TER mières séries, la page du catalogue ana-
 1 lytique sommaire où ce cahier se trouve f Vie
 Us [ER Edmond Bernus, — La Russie vue de la Vistule, — histoire
 
@@ -4901,29 +4901,29 @@ Us [ER Edmond Bernus, — La Russie vue de la Vistule, — histoire
 6 4 de ce nouveau Reichstag
 
 i à la mémoire de notre ami Gustave Canton ‘708
-# Edmond Bernus et Charles Péguy 110
+# Edmond Bernus et Charles Péguy
 
 Dans cette étude, j'essaie de donner une idée d'en- ci
-: semble de la question polonaise en Prusse et de montrer 44
-les principales péripéties d'une lutte qui, pour n'être pas 3
+: semble de la question polonaise en Prusse et de montrer
+les principales péripéties d'une lutte qui, pour n'être pas
 sanglante, n'en est pas moins vraiment dramatique. Le ‘
 sujet est peu connu en France. Or, il doit attirer notre #
 | D'abord, parce que toute question de justice mérite & |
 d'être étudiée; le moins-que l'on puisse faire pour une
-causejuste, c'est de ne pas l'ignorer. Ensuite, la politique 120
+causejuste, c'est de ne pas l'ignorer. Ensuite, la politique
 allemande est actuellement telle, qu'il serait coupable #4
 de notre part de ne pas nous tenir soigneusement au ne
-| courant de ce qui se passe de l'autre côté du Rhin. Il est ù 4
-possible que la question polonaise reste pour la Prusse #4 78
+| courant de ce qui se passe de l'autre côté du Rhin. Il est
+possible que la question polonaise reste pour la Prusse #4
 une question intérieure; nous n'en savons rien. Mais il ‘0
 se peut aussi qu'un jour, cette vieille question, dédaignée Fc
 par les diplomates, redevienne une question internatio- ki :
 nale. On invoquera alors, de part et d'autre, les droits A
 et les principes. Il n'est pas inutile de pouvoir juger en He
-connaissance de cause dès aujourd'hui. 534
+connaissance de cause dès aujourd'hui.
 Ce travail est naturellement très incomplet. Des sta- “4
 1 tistiques essentielles font défaut, parce qu'elles nemont : y
-pas été abordables. Il aurait été nécessaire de dépouiller À 5
+pas été abordables. Il aurait été nécessaire de dépouiller À
 
 Me bien plus de journaux provinciaux et locaux que je n'ai
 pr pu le faire. Il aurait fallu, en particulier, lire les prink cipaux périodiques galicièens, où l'on trouve tant de |
@@ -4933,7 +4933,7 @@ W Polonais exercent non seulement dans les conseils munimi cipaux et les assembl
 ds Il eût été bon de connaître le théâtre polonais de Posen,
 À les pièces qui y sont jouées, le nombre approximatif des
 spectateurs. Tous ces renseignements, et bien d'autres
-encore, nous manquent. 4
+encore, nous manquent.
 Cette étude n'est pas autre chose que de la simple
 | vulgarisation, mais, Je l'espère, de la vulgarisation
 consciencieuse. Pour qu'elle puisse étre utile à ceux qui
@@ -4949,12 +4949,12 @@ f dédain, parce que tant que les questions nationales ne ;
 social ou économique.
 
 pression allemande, qui diffère essentiellement des op- ne
-pressions russe, turque ou anglaise. Ce n'est pas tant 4
+pressions russe, turque ou anglaise. Ce n'est pas tant
 la brutalité qui en fait l'originalité; c'est son esprit |
 pédantesque, mais en même temps méthodique, je dirais
 presque scientifique. Et c'est ce qui la rend particulière- |
 La mentalité allemande actuelle mérite la plus grande
-attention. Nous croyons que dans aucun autre pays le j
+attention. Nous croyons que dans aucun autre pays le
 nationalisme n'est devenu aussi étroit, aussi égoïste, à
 aussi dur. Un auteur prussien, qui a traité avec grande
 compétence la question de la colonisation intérieure, un ;
@@ -4963,19 +4963,19 @@ homme qui, d'après son livre, semble de caractère plu- Fe
 tôt doux et humain, écrit ceci : « Les sentiments n'ont
 rien à faire dans la politique et dans le combat des ‘4
 peuples pour l'existence. » (1) Autrement dit, l'écrase- ;
-ment est proclamé comme un devoir. L è
+ment est proclamé comme un devoir.
 L'aveuglement qui se traduit par un illogisme éton- :
-nant n'est pas moins remarquable, parce qu'il est 4
+nant n'est pas moins remarquable, parce qu'il est
 général. À la fin d'une des brochures les plus violentes \
-contre les Polonais, (2) dans laquelle l'auteur regrette F
-que la Prusse n'ait pas imité l'exemple de la Russie 18
-après 1863,on trouve une réclame en faveur d'un livre : ï
+contre les Polonais, (2) dans laquelle l'auteur regrette
+que la Prusse n'ait pas imité l'exemple de la Russie
+après 1863,on trouve une réclame en faveur d'un livre
 
-‘1e sur la guerre sud-africaine. Or, le premier chapitre de 4
+‘1e sur la guerre sud-africaine. Or, le premier chapitre de
 
 :R ce livre anti-anglais est intitulé « Le droit du plus à
 
-1 Cette contradiction flagrante dans l'appréciation de À
+Cette contradiction flagrante dans l'appréciation de À
 
 ANT faits de méme nature doit nous faire faire un petit
 72 retour sur nous-mêmes. Ce ne serait pas être sincère
@@ -4984,17 +4984,17 @@ ANT faits de méme nature doit nous faire faire un petit
 “1 di Combes relative à la langue bretonne. Si nous éprou-
 
 ne vons une juste indignation pour la manière dont le
-me gouvernement prussien cherche à extirper la langue È
+me gouvernement prussien cherche à extirper la langue
 11 polonaise, que devons-nous penser d'une nouvelle comme
-‘Li celle-ci, que je prends parmi plusieurs analogues ? 4
-he « L'abbé Richard, desservant de Ploudaniel, est privé 4
+‘Li celle-ci, que je prends parmi plusieurs analogues ?
+he « L'abbé Richard, desservant de Ploudaniel, est privé
 
 pi A _ de son traitement par le ministre des cultes pour l'emk 1 À ploi abusif de la langue bretonne dans l'exercice de son
-Ur Je ne songe pas à comparer nos Bretons aux Polonais. F
+Ur Je ne songe pas à comparer nos Bretons aux Polonais.
 | 14 Mais l'écrasement d'un idiome est partout une mesure à
 R: jé odieuse. Si les fautes des Allemands peuvent nous
-STE inculquer un peu plus de tolérance et de libéralisme, ce 4
-LUE sera tant mieux. ; 1
+STE inculquer un peu plus de tolérance et de libéralisme, ce
+LUE sera tant mieux.
 
 | Le temps est loin où les Slaves occupaient toute A -
 l'Allemagne orientale jusqu'à l'Elbe et au delà. Dans la . dé |
@@ -5003,19 +5003,19 @@ longue lutte entre la race slave et la racé germanique, Ja
 F ce sont les Germains qui ont vaincu. @
 Avançant sans cesse, tantôt par bonds rapides, #
 
-tantôt par une lente infiltration, ils ont absorbé les 2
-éléments hétérogènes par un travail d'assimilation pai- 16
-sible ou brutal, selon les circonstances. Les îlots lin- 15
+tantôt par une lente infiltration, ils ont absorbé les
+éléments hétérogènes par un travail d'assimilation pai-
+sible ou brutal, selon les circonstances. Les îlots lin-
 guistiques qui subsistent encore, débris de peuples me.
 
-jadis conquérants, ne sont plus que des curiosités É 4
-ethnographiques. Ils montrent le sort qui attend fatale- #4 É
+jadis conquérants, ne sont plus que des curiosités
+ethnographiques. Ils montrent le sort qui attend fatale- #4
 ment les peuples qui se laissent cerner par une nationa- É. de
 
 lité plus forte. LA
 Une fois les communications coupées avec les frères
 
-de race, la langue devient vite un dialecte sans portée, 550
+de race, la langue devient vite un dialecte sans portée,
 qui v'intéresse plus que les savants. Et ce dialecte 4804
 même recule sans cesse devant la langue de l'envahis- Le: %:
 
@@ -5023,11 +5023,11 @@ seur. Sa dernière retraite est l'église, car la religion est 2284
 éminemment conservatrice. Mais lorsque de là aussi il k) se
 est chassé, c'en est fait : un peuple de plus est mort. Ne:
 
-I y a une grande mélancolie dans la mort d'une 44
-nationalité, quelque petite qu'elle soit. 10
+I y a une grande mélancolie dans la mort d'une
+nationalité, quelque petite qu'elle soit.
 
 We ÿ Polonais et Prussiens | |
-y) Les Polabes, (1) qui furentles derniers Slaves de 1
+y) Les Polabes, (1) qui furentles derniers Slaves de
 ) l'Elbe, sont morts. Encore dans les premières années
 An du dix-neuvième siècle, Hennings (2) a entendu quelques
 y 4 paysans polabes parler slave. Aujourd'hui, c'est à peine
@@ -5056,13 +5056,13 @@ s glorieuse, qui possède une langue littéraire illustrée par
 6) Sur les Wendes, voyez Tetzner : Ouvrage cité, pages 282-349,
 avec bonne bibliographie.
 (4) En Silésie, il y avait encore, en 1891, 4.260 élèves des écoles
-primaires qui ne parlaient que wende. Voir Statistisches Hand- œ.
+primaires qui ne parlaient que wende. Voir Statistisches Hand-
 
 . de grands écrivains, qui, bien que déchirée en trois
 lambeaux, est consciente de son unité morale. En
 Prusse, les Polonais n'ont pas voulu mourir; ils ont su ;
 tirer parti de toutes les circonstances et ils ont profité
-des leçons de leurs rudes maîtres. C'est une dure école É
+des leçons de leurs rudes maîtres. C'est une dure école
 que l'oppression, mais on n'en trouverait peut-être pas -
 | de meilleure pour viriliser et moraliser. Quand on n'en
 meurt pas, on en sort plus fort. Moralement, une
@@ -5077,10 +5077,10 @@ où ils sont les maîtres, le niveau moral et intellectuel
 de la population est resté bas. Les nobles y maintiennent le peuple dans un état de sujétion qui rappelle |
 un mauvais passé. Enfin les politiciens n'ont pas su voir
 combien il était à la fois illogique, injuste et néfaste de  -
-refuser des droits nationaux aux Ruthènes, tout en É
+refuser des droits nationaux aux Ruthènes, tout en
 se réclamant du droit des nationalités pour la Pologne.
 Tant qu'il en sera ainsi, la Pologne autrichienne fournira des arguments aux Allemands, qui essaient de
-© Il suffit de jeter un coup d'œil sur une carte de 1
+© Il suffit de jeter un coup d'œil sur une carte de
 la Prusse, pour se rendre compte combien redoutable
 est l'adversaire que le colosse germanique avait
 longtemps méprisé. Adossés à la Pologne russe,
@@ -5091,7 +5091,7 @@ nu appuyés sur la Galicie, les Polonais prussiens occupent !
 4 ji dans l'Est une très vaste étendue de territoire. (1) à
 D 4 La Posnanie constitue pour ainsi dire leur citadelle.
 ne à Cette partie de la Grande Pologne forme un bloc com- |
-4 * pact, où mille souvenirs rappellent les temps glorieux J
+4 * pact, où mille souvenirs rappellent les temps glorieux
 ii de l'histoire nationale. La ville de Posen est restée La
 capitale intellectuelle et morale des Polonais de la
 1h À A l'ouest de la province, il est vrai, les vagues ger- |
@@ -5103,21 +5103,21 @@ ni. vince, mais sans avoir pu réussir à intercepter les
 0 communications avec les Polonais de la Prusse Occi- |
 ui (1) On trouvera des cartes linguistiques dans l'ouvrage de
 ji Tetzner déjà cité. On peut consulter en outre la carte de Petzet
-(HAE (Die preussischen Ostmarken), un peu trop favorable aux AlleAV mands. La meilleure carte pour la Posnanie et la Prusse Occi- k
+(HAE (Die preussischen Ostmarken), un peu trop favorable aux AlleAV mands. La meilleure carte pour la Posnanie et la Prusse Occi-
 A ts dentale est celle de Langhaus : Xarte der Tätigkeit der Ansiedlungs-
 ta: Voyez aussi la huitième édition de la carte publiée dans le
 Fe cinquième numéro de Deutsche Erde, qui donne les résultats du
 eu (2) Les cercles suivants ont une forte majorité polonaise : à
-WE Gnesen, Witkowo, Samter, Obornik, Graz, Posen-Ville, Posen-Est, 4
-an Kempen, Wreschen, Pleschen, larotschin. l
+WE Gnesen, Witkowo, Samter, Obornik, Graz, Posen-Ville, Posen-Est,
+an Kempen, Wreschen, Pleschen, larotschin.
 IR Les cercles suivants ont une majorité allemande, mais avec une
-AU! Seul, le cercle de Schwerin est presque complètement allemand. d
+AU! Seul, le cercle de Schwerin est presque complètement allemand.
 il Pour la statistique de 1890, voyez Gehre : Die neue deutsche
 à ASE Kolonisation in Posen und Westpreussen, pages 7-16. de
 
 n:, Le recensement linguistique du premier décembre ‘tt
-? 1890 indiquait pour la province de Posen 692.172 Alle- e
-; mands contre 1.047.409 Polonais, auxquels il faut ajouter 4
+? 1890 indiquait pour la province de Posen 692.172 Alle-
+; mands contre 1.047.409 Polonais, auxquels il faut ajouter
 ï 636 Cassubes et au moins la moitié des 10.185 habitants où
 ; Moins nombreux en Prusse Occidentale, (2) les Polo- Fe
 û ( ») Pour la statistique, consulter les ouvrages suivants : TUE
@@ -5127,34 +5127,34 @@ preussischen statistischen Bureau, trente-troisième année (Berlin +0 » 1893),
 Die deutsche Städtestatistik im Beginne des Jahres 1903, dargestellt Ms
 L nach den Verôffentlichungen der statistischen Aemter deutscher 4%
 Städte. (Supplément au volume VI de l'Allgemeines statistisches er
-Docteur Zahn : Die Bevôlkerung des deutschen Reiches im + H
+Docteur Zahn : Die Bevôlkerung des deutschen Reiches im +
 neunzehnten Jahrhundert auf Grund der deutschen'und internationalen Et
 é Pour le dernier recensement : Die Volkszählung am ersten Tan
 Desember 1900 im Deutschen Reich. (Statistik des Deutschen #74
 Reichs, volumes CL et CLI). Berlin. Puttkammer und Mühlbrecht. ‘44
-. Un extrait de cette statistique se trouve dans les Annales de 4
-1 Géographie, numéro 74, quatorzième année, pages 118 et suivantes. 18
+. Un extrait de cette statistique se trouve dans les Annales de
+Géographie, numéro 74, quatorzième année, pages 118 et suivantes.
 Pour les statistiques antérieures, on peut aussi consulter : LA:
 (2) A consulter sur la Prusse Occidentale : * dr
-Wegner : Kulturgeschichte des Schwetzer Kreises. Posen, 1872. 00
-dieses Jahrhunderts. Tübingen, 1873 (qui forme le quatrième volume f 22
+Wegner : Kulturgeschichte des Schwetzer Kreises. Posen, 1872.
+dieses Jahrhunderts. Tübingen, 1873 (qui forme le quatrième volume
 des Beiträge zur Geschichte der Bevôlkerung in Deutschland.) À
 Voyez aussi Neumann : Germanisierung und Polonisierung dans Me.
 Pour la Prusse Occidentale et Orientale, il existe une excellente
 bibliographie de tous les articles parus sur ces deux provinces #50
-dans les revues allemandes jusqu'en 1896 : Docteur Otto Rauten- 400
+dans les revues allemandes jusqu'en 1896 : Docteur Otto Rauten-
 . Pour la statistique ancienne, il est bon de se rappeler que, de BAS
 1824 à 1877, la Prusse Occidentale et la Prusse Orientale étaient "44
-| réunies en une seule province. 4
-19 4
+| réunies en une seule province.
+19
 
-, 114
+,
 Polonais et Prussiens ;
-nais y occupent cependant de solides positions. Dantzig 7
+nais y occupent cependant de solides positions. Dantzig
 ‘ et ses environs, Marienwerder et tout le coin du sud- de
 ouest (Deutsch-Krone, Schlochau) leur échappent. Mais, le
 par Tuchel et Karthaus, ils rejoignent la mer (vers }
-Neustadt et Putzig), tandis qu'au sud-est, par Strasburg ù
+Neustadt et Putzig), tandis qu'au sud-est, par Strasburg
 et Lôübau, ils tendent la main aux Masoures de la Prusse ‘
 Si l'on considère que la Prusse Occidentale échut à la |
 Prusse dès 1772 (moins Dantzig et Thorn, acquis en à
@@ -5167,14 +5167,14 @@ accuse 483.933 Polonais (y compris les Cassubes) contre
 intéressants sur la langue maternelle des enfants des
 écoles primaires : sur 239.761 élèves, 143.190 (environ
 polonais et 13.771 (environ 6 o/o) savaient les deux |
-Il est à remarquer que beaucoup d'habitants de la ï
+Il est à remarquer que beaucoup d'habitants de la
 * Prusse Occidentale parlent le cassube. Les Allemands À
-(1) Les cercles suivants sont presque totalement ou en grande ï
+(1) Les cercles suivants sont presque totalement ou en grande
 Les Polonais sont en majorité dans les cercles de : Neustadt,! '
 Ils représentent une minorité importante dans les cercles de : |
 Stuhm, Marienwerder, Graudeuz, Thorn et Flatow.
 
-n'ont pas manqué de faire une distinction entre les Cas- j
+n'ont pas manqué de faire une distinction entre les Cas-
 subes et les Polonais. Au Reiïichstag, dans la séance du |
 ÿ 14 janvier 1901, le député Czarlinski protesta contre les
 rubriques « cassube » et « masoure », portées sur les
@@ -5211,7 +5211,7 @@ D _ le mont sacré des Cassubes poméraniens, célébré dans
 : 11 mands autour de lui.
 Ru: La Prusse Orientale est en grande majorité alleJR mande. Pourtant elle renferme deux groupes polonais
 : 0 distincts : les Polonaïs catholiques de la Warmie et les
-00 La Warmie (Ærmeland en allemand) est un terri15 À toire qui faisait partie de la Pologneroyaleets'avançait
+La Warmie (Ærmeland en allemand) est un terri15 À toire qui faisait partie de la Pologneroyaleets'avançait
 1118 comme une presqu'île vers l'intérieur de la Prusse ducale.
 pi à Sous l'épiscopat du célèbre Hosius, la lutte contre la
 Pa Réforme y fut particulièrement violente; aussi la popuDC: lation est-elle restée catholique. Les Allemands y sont
@@ -5228,32 +5228,32 @@ D / bibliographie et carte. À
 ON) et carte. À
 4000 (3) Dans le cercle de Rôssel, on comptait, en 1861, 8.548 Polonais Li
 10 1 Dans le cercle d'Allenstein, il y avait, en 186x1, 35.391 Polonais et. ‘1
-considérer comme un de ses fiefs. (1) Les Polonais n'ont 11
+considérer comme un de ses fiefs. (1) Les Polonais n'ont
 du reste pas abandonné la lutte. Un journal parais-
 
-sant à Allenstein, la Gazseta Olsztynska y défend leur 1
+sant à Allenstein, la Gazseta Olsztynska y défend leur
 Si la Warmie n'est pour ainsi dire qu'un fort détaché, De
-la Masourie (2) pourrait au contraire devenir pour les 4
+la Masourie (2) pourrait au contraire devenir pour les
 Polonais un solide bastion de défense, auquel sa position donne une importance relativement considérable, #
 Il s'agit en effet de toute la partie méridionale de la :
-| Prusse Orientale, depuis la frontière de la Prusse Occidentale jusqu'à la Pologne russe. C'est un pays de lacs 1
+| Prusse Orientale, depuis la frontière de la Prusse Occidentale jusqu'à la Pologne russe. C'est un pays de lacs
 et de forêts, dont la nature sauvage et pittoresque con- :
-| traste singulièrement avec la triste monotonie des provinces orientales. Les Masoures sont des Polonais pro- ë
-testants, qui parlent, il est vrai, un dialecte sans aucun 5
+| traste singulièrement avec la triste monotonie des provinces orientales. Les Masoures sont des Polonais pro-
+testants, qui parlent, il est vrai, un dialecte sans aucun
 avenir. Ce dialecte est fortement teinté de germanisme Fa
-dans les environs de Lôtzen et d'Angerburg. Vers Sol- 3
-À russe, on trouve un polonais plus pur. Du reste, la R
+dans les environs de Lôtzen et d'Angerburg. Vers Sol-
+À russe, on trouve un polonais plus pur. Du reste, la
 | langue . écrite est le polonais littéraire, qui seul est à
 émployé pour les prédications. Il faut noter aussi A}
 ( ») Aux élections pour le Reïchstag, le candidat polonais obtint, 2)
 men obtenait plus que 3.862 contre 10.376 pour le Centre. AY
-(2) Sur la Masourie, voyez : 4
-+ Tetzner : Ouvrage cité, pages 181-211, avec carte. 13
-Zweck : Masuren. Stuttgart 1900 (avec bibliographie complète). o
-Statistik des Deutschen Reiches. Neue Folge. Band 39. Tome I (Ber- 55
-j Pour ce qui concerne les écoles primaires, voyez : ÿ
+(2) Sur la Masourie, voyez
++ Tetzner : Ouvrage cité, pages 181-211, avec carte.
+Zweck : Masuren. Stuttgart 1900 (avec bibliographie complète).
+Statistik des Deutschen Reiches. Neue Folge. Band 39. Tome I (Ber-
+j Pour ce qui concerne les écoles primaires, voyez
 Kwiatkowski : Geschichtliche Entwickelung des Volkschulwesens dE
-L in Ost-und- Westpreussen. Kôünigsberg, 1880. * d
+L in Ost-und- Westpreussen. Kôünigsberg, 1880.
 
 ' Polonais et Prussiens da
 f l'influence des Polonais immigrés venus soit de la
@@ -5301,7 +5301,7 @@ deviennent inquiétants. Dès 1804, les maîtres d'école
 sont tenus de savoir lire et écrire en allemand, et à
 partir de 1834, l'allemand devient, théoriquement du
 moins, la langue de l'enseignement. Depuis 1836 la germanisation trouva un ouvrier intelligent, énergique et
-brutal dans la personne du Schulrat Rättig. C'est vers 6
+brutal dans la personne du Schulrat Rättig. C'est vers
 cette époque que le polonais disparaît des églises de
 Kleszowen, Goldap, Szabienen, Dombrowka et Nordenburg. Après la mort de Rättig la germanisation subit
 un ralentissement, mais reprit de plus belle à partir de
@@ -5318,12 +5318,12 @@ Si la germanisation de la Masourie est encore loin
 polonais se substituer peu à peu aux noms allemands des localités.
 
 a, . Polonais et Prussiens DANT\TER
-1 À d'être complète, cela tient avant tout à la nature sau1 ne vage de ce pays, dont l'accès a été longtemps peu aisé.
+À d'être complète, cela tient avant tout à la nature sau1 ne vage de ce pays, dont l'accès a été longtemps peu aisé.
 4 ÿ Encore aujourd'hui, les voies de communication sont
 14) peu nombreuses. Pendant des siècles, ce territoire fut
 ! is un pays écarté, mal connu, vivant de sa vie propre,
 jé sans relations avec le monde extérieur; une sorte de
-0 Bretagne polonaise. IL est vrai que la guerre suédoje polonaise (1654-60) et surtout l'invasion tartare de 1656
+Bretagne polonaise. IL est vrai que la guerre suédoje polonaise (1654-60) et surtout l'invasion tartare de 1656
 je avait fait de la contrée un vrai désert. (1) Les animaux
 \ sauvages pullulaient dans les forêts. En 1741, on dut
 Ü construire une école dans un hameau, parce que les® |
@@ -5348,32 +5348,32 @@ la classe, Lors d'une inspection scolaire, en 1740, il se
 aucun, excepté le recteur, ne savait écrire. Encore en i +
 
 1821, le gouvernement se plaint de l'ignorance des in- ii
-stituteurs. Les locaux scolaires étaient à l'avenant. 4
+stituteurs. Les locaux scolaires étaient à l'avenant.
 Pendant que le maître enseignait ses élèves, on pouvait We:
-souvent voir sa femme qui, dans la même chambre, Ÿ
+souvent voir sa femme qui, dans la même chambre,
 faisait la cuisine ou donnait le sein à son bébé. ; \
-Malgré les progrès réalisés, les Masoures sont restés : É
+Malgré les progrès réalisés, les Masoures sont restés
 
 une des populations les plus arriérées de l'Allemagne, Fi
 
 une de celles où les analphabètes sont le plus nom- +4
 
-. breux. Le Masoure est bon enfant, doux, gai et sociable. 4
+. breux. Le Masoure est bon enfant, doux, gai et sociable.
 Mais par contre on lui reproche, non sans raison, son. nt
 
 L incurie, sa paresse, son goût pour l'eau-de-vie, son à
 | désordre et sa saleté. (1) Tous ceux qui ont visité cette ‘4
 contrée ont été frappés de l'aspect misérable et sordide #
 
-des habitations, assemblage de bois et de terre glaise É
+des habitations, assemblage de bois et de terre glaise
 recouvert de chaume, (2) Il n'est pas rare de voir s'en- Fe
-tasser à l'intérieur, dans un espace restreint, dix à ‘ 2À
-douze personnes, pêle-mêle avec des poules et des oies, 1
+tasser à l'intérieur, dans un espace restreint, dix à ‘
+douze personnes, pêle-mêle avec des poules et des oies,
 
-\ parfois des moutons et des chèvres. (3) É
+\ parfois des moutons et des chèvres. (3)
 | . Les Allemands ont très bien compris que le meilleur Li
 J moyen de germanisation consistait à rendre le pays Fe
-F plus accessible, en le dotant de routes, de canaux et de 1
+F plus accessible, en le dotant de routes, de canaux et de
 chemins de fer. Un nouveau canal doit mettre le sy- “4
 stème des canaux masoures en communication avec le Ki:
 Pregel. Dès 1879, la ligne ferrée Insterburg-Goldap- ;
@@ -5425,10 +5425,10 @@ ste Pourtant, ces dernières années, les Polonais ont fait à
 quelques efforts pour gagner les Masoures à leur cause, %
 mais sans méthode et sans continuité. Un journal antiallemand, la Gazeta ludora, qu'ils essayèrent de lancer
 à Lyck, dura peu. (1) Les élections au Reïchstag ont À
-cependant prouvé qu'un parti polonais, ou du moins 4
+cependant prouvé qu'un parti polonais, ou du moins
 | masoure, pouvait se constituer. Dans la circonscription
 Sensburg-Ortelsburg, le candidat polonais obtint en ;
-1898 jusqu'à 5.874 voix; en 1903, le candidat masoure » 0
+1898 jusqu'à 5.874 voix; en 1903, le candidat masoure »
 en obtint 3.925. Le jour où la lutte sera entreprise avec
 la même méthode, surtout avec la même persévérance
 qu'en Posnanie et en Silésie, le parti polonais pourra
@@ -5436,20 +5436,20 @@ trouver dans le sud de la Prusse Orientale des alliés |
 précieux, ce qui serait un coup sensible pour la germa- ;
 S'ils le voulaient, ils pourraient trouver un autre “
 allié, pour battre en brèche le germanisme dans cette F>
-province, qui est la citadelle des Allemands de l'Est. î
+province, qui est la citadelle des Allemands de l'Est.
 Nous voulons parler des Lithuaniens, (3) qui habitent le
 coin nord-est de la Prusse Orientale et rejoignent de
 les Masoures au sud. (4) D'après le recensement du pre- ke.
 mier décembre 1890, il y avait 114.915 Lithuaniens dans KE:
 (2) Depuis le premier juillet 1905, un journal polonais, le Goniec à
-Mazurski, paraît à Osterode. Voyez aussi Ostmark, IL, 6, page 42,
+Mazurski, paraît à Osterode. Voyez aussi Ostmark, IL, 6, page
 (2) Nous ne citons que pour mémoire les quelques centaines de
 Raskolniks russes établis en Masourie; ils s'abstiennent de toute :"
 politique. Voyez Zweck : Masuren, pages 180-189, et Tetzner :
 (3) Sur la population lithuanienne de la Prusse, voyez Tetzner :
 Girenas : Die litauische Frage (Tilsit, 1888), et Ueber einige Miss- “4
 * (4) A Dubeningken, on prêche plusieurs fois par an en lithua- |
-nien et en polonais. È
+nien et en polonais.
 
 Au la province. Ils sont encore une centaine de mille, (x)
 formant un groupe assez compact dans les cercles de
@@ -5457,8 +5457,8 @@ Fa Memel, Heydekrug, Tilsit et Ragnit, mais représentés ;
 w aussi dans ceux de Pillkallen, Labiau, Insterburg,
 is Stallupünen et Goldap. La grande majorité est protes14 tante, ce qui les sépare de leurs frères de la Lithuanie
 fi russe. Cependant les points de contact sont nombreux.
-44 Depuis qu'après la terrible répression de 1863 par le
-4 Pendeur Mourawief, il fut interdit d'imprimer en Russie j
+Depuis qu'après la terrible répression de 1863 par le
+Pendeur Mourawief, il fut interdit d'imprimer en Russie
 AN des ouvrages lithuaniens, presque tout ce qui se publie
 | en cette langue sort des officines de la Lithuanie alle4 mande. C'est de là que partent les journaux et les bro-
 Les liens qui ont uni la Lithuanie et la Pologne sont
@@ -5472,7 +5472,7 @@ droit de parler leur idiome non seulement à l'église,
 ; cependant, en 1898 et en juillet 1907, la circonscription
 Ps de Memel-Heydekrug envoya au Reïichstag un député
 ÿ lithuanien. (4) Si la Lithuanie russe obtenaïit son auto-
-(1) D'après le recensement de 1900, ils ont un peu diminué. En k
+(1) D'après le recensement de 1900, ils ont un peu diminué. En
 (2) Malgré les tentatives du gouvernement russe d'opposer
 Lithuaniens et Polonais. Voyez Temps, 2 décembre 1905: Les reven-
 (3) 11 ne faut cependant pas oublier que les Lithuaniens allemands étaient dès 1422 sujets de l'Ordre Teutonique, et que leur
@@ -5481,35 +5481,35 @@ histoire ne se sépare pas de celle de la Prusse.
 lithuanien se compta aussi dans les circonscriptions de Tilsit- |
 Niederung (1.537 voix), et Ragnit-Pillkallen (391 voix).
 
-| nomie, le mouvement reprendrait sans doute en Prusse ï.
+| nomie, le mouvement reprendrait sans doute en Prusse
 avec une vigueur nouvelle. En tout cas, il ne saurait
-être indifférent pour les Polonais d'avoir des alliés de R
+être indifférent pour les Polonais d'avoir des alliés de
 La province où la cause polonaise a obtenu les plus ne
 2 grands succès, succès presque inespérés, qui ont atterré #
 les Allemands, c'est la Silésie. Aujourd'hui la Haute- ia
-Silésie, c'est-à-dire presque tout le district d'Oppeln, (1), 16
+Silésie, c'est-à-dire presque tout le district d'Oppeln, (1),
 appartient aux Polonais, qui sont même représentés LE
-par d'importantes minorités dans trois cercles du di- 4
-strict de Breslau. (2) Et ce n'est pas un apport négli- 4
-geable que celui des Polonais silésiens. Ils sont à l'heure ë
-actuelle plus d'un million. Par eux, la Posnanie se M
+par d'importantes minorités dans trois cercles du di-
+strict de Breslau. (2) Et ce n'est pas un apport négli-
+geable que celui des Polonais silésiens. Ils sont à l'heure
+actuelle plus d'un million. Par eux, la Posnanie se
 trouve reliée à la Galicie, de sorte qu'il y a une popula- LE
 tion polonaise ininterrompue depuis les Karpathes hi.
-jusqu'à la mer Baltique. Si les rêves les plus hardis des 5
+jusqu'à la mer Baltique. Si les rêves les plus hardis des
 Polonais se réalisaient, la Prusse Orientale, avec #
-Kônigsberg, se trouverait isolée, détachée du corps de la e
+Kônigsberg, se trouverait isolée, détachée du corps de la
 (x) Les Polonais ont la majorité dans les cercles de Kreuzburg, FX:
-et Ratibor. 4
-Ils forment une minorité importante dans les cercles de Falken- 74
-berg, Neustadt, Beuthen-Ville et Leobschütz. Seuls, les deux 4
-cercles de Grottkau et de Neisse sont presque exclusivement alle- 4
+et Ratibor.
+Ils forment une minorité importante dans les cercles de Falken-
+berg, Neustadt, Beuthen-Ville et Leobschütz. Seuls, les deux
+cercles de Grottkau et de Neisse sont presque exclusivement alle-
 ! (2) Cercles de Gross-Wartenberg, Namslau et Brieg. Fi
-Il y a en outre de petites colonies polonaises dans plusieurs 1e
+Il y a en outre de petites colonies polonaises dans plusieurs
 villes de la Basse-Silésie. En 1890, il y avait à Liegnitz 5.500 Polo- ei
-nais. A Breslau, il y a un centre relativement important. Les 4
-Polonais y ont fondé une société de chant, une société de Sokols 15
+nais. A Breslau, il y a un centre relativement important. Les
+Polonais y ont fondé une société de chant, une société de Sokols
 et, en 1900, une banque de prêts. Voyez Ostmark, V, 4, page 40. de
-k La Deutsche Zeitung (1898, numéro 83) pousse un cri d'alarme, 1
+k La Deutsche Zeitung (1898, numéro 83) pousse un cri d'alarme,
 parce que les Polonais augmentent à Gôrlitz. Ce journal exprime
 la crainte assez chimérique qu'ils ne se servent de ce poste Re
 avancé pour fomenter un mouvement particulariste chez les ‘pi
@@ -5542,11 +5542,11 @@ l'on connaît, il chercha des alliés et s'appuya sur le
 peuple; et comme ïil avait besoin des Polonais, le
 Centre lia partie avec eux. C'est alors que fut fondé
 () Au Landtag uni de 1847, Wodiczka, député de la HauteSilésie à la curie des Etats, demandait simplement que les Polonaïs silésiens fussent traités comme leurs frères allemands, Voyez
-Matter : La Prusse et la Révolution de 1848, page 73.
+Matter : La Prusse et la Révolution de 1848, page
 32 ,
 
 le Katolik, le premier journal polonais en Silésie. à.
-Bismarck, cherchant à terrasser son terrible adver- N
+Bismarck, cherchant à terrasser son terrible adver-
 
 saire par tous les moyens possibles, ne résista pas
 à la tentation de frapper les catholiques de l'Est cé
@@ -5561,24 +5561,24 @@ culté particulière se présentait en Silésie. Les habitants
 n'y parlent pas le polonais littéraire, mais un dialecte, à
 que les Allemands appellent le Wasserpolnisch (mot à
 mot : le « polonais aquatique »). Mais à l'heure actuelle, #
-le polonais pur a fait d'immenses progrès, si bien que ÿ
+le polonais pur a fait d'immenses progrès, si bien que
 le dialecte silésien n'est plus une entrave à l'action :
 
 La société Marcinkowski envoya systématiquement
 des boursiers dans les villes de Silésie. La presse fut |
-organisée. A côté du Xatolik, ouvrier de la première 4
+organisée. A côté du Xatolik, ouvrier de la première
 heure, qui paraît à Beuthen, vinrent se ranger la Gaseta *:
 
 (1) Bismarck l'avoue lui-même, tout en rejetant la faute sur le ;
 Centre. Voyez son discours à la Chambre des Seigneurs, le ;
-24 avril 1874 (Hahn : Geschichte des Kulturkampfes in Preussen. In r
+24 avril 1874 (Hahn : Geschichte des Kulturkampfes in Preussen. In
 
-Les Polonais protestants des cercles de Kreuzburg, Rosenberg 1
+Les Polonais protestants des cercles de Kreuzburg, Rosenberg
 et Rybnik montrent moins d'ardeur pour la cause nationale que \
 les Catholiques.
 
-(2) Les Allemands s'y sont pris trop tard pour opposer le dialecte 2
-silésien à la langue littéraire. Ils ont introduit eux-mêmes le polonais classique dans les séminaires. 1
+(2) Les Allemands s'y sont pris trop tard pour opposer le dialecte
+silésien à la langue littéraire. Ils ont introduit eux-mêmes le polonais classique dans les séminaires.
 
 Les différences dialectales sont, dans les luttes nationales, d'une
 importance beaucoup plus grande qu'on ne le croit généralement. |
@@ -5586,16 +5586,16 @@ Qu'on songe à ce qui est arrivé aux Slovaques. (Voyez Denis :
 
 La Bohême depuis la Montagne-Blanche. Volume II, pages 221-224.) ;
 
-he. Opolska d'Oppeln, le Nowiny Raciborskie (à Ratibor) et 1
+he. Opolska d'Oppeln, le Nowiny Raciborskie (à Ratibor) et
 he d'autres encore. (1) #}
 ji Des gens dévoués se mirent à donner des leçons gra-
 À | tuites de polonais. (2) Une société se forma dans le but |
-4 de répandre des livres de lecture à l'usage des l
-“14 enfants. (3) Les Polonais de Breslau créèrent une société 4
+4 de répandre des livres de lecture à l'usage des
+“14 enfants. (3) Les Polonais de Breslau créèrent une société
 1, de secours pour subvenir aux études des enfants de la Gi
-À Haute-Silésie. Des sociétés analogues existent à Ratibor l
-et à Beuthen. l
-4 Puis l'on vit fonctionner ces associations de morcelle- #
+À Haute-Silésie. Des sociétés analogues existent à Ratibor
+et à Beuthen.
+Puis l'on vit fonctionner ces associations de morcelle- #
 ment, qui ont permis à des milliers de paysans polonais
 ï d'acheter des terrains et de s'y établir. (4) Des sociétés À
 1 industrielles, de chant, de musique, de secours mutuel, À
@@ -5623,7 +5623,7 @@ j: celle de la Grande Pologne, comme disent les Alle-.
 
 \ polonais, jadis à Berlin, paraît à Kattowitz depuis le premier
 
-(3) Voyez le Katolik du 28 février 1901. 1 ÿ
+(3) Voyez le Katolik du 28 février 1901.
 
 t (4) A Gleiwitz existe une Spolka Ziemska. Voyez Stumpf : Polen-
 
@@ -5633,31 +5633,31 @@ t (4) A Gleiwitz existe une Spolka Ziemska. Voyez Stumpf : Polen-
 | Silésie se rendre à Cracovie pour le jubilé de l'Univer- di.
 sité de cette ville. (1) Le 10 mars 1901, une réunion ‘7
 populaire à Oppeln adopte un ordre du jour de protes- #44
-tation, parce qu'un député a appelé les Polonais des 4
-Prussiens de langue polonaise. « Non, ajoute la Gazeta 4
-Opolska, qui rend compte de la réunion, non, nous 4
+tation, parce qu'un député a appelé les Polonais des
+Prussiens de langue polonaise. « Non, ajoute la Gazeta
+Opolska, qui rend compte de la réunion, non, nous
 sommes Polonais des pieds à la tête. » (2) Et le Xatolik, : vd
 mettant les points sur les i, déclare : « Tout Haut- ‘ta
 Silésien parlant polonais est de nationalité polonaise ; pe
-ce n'est que provisoirement qu'il est citoyen de l'État 4
-prussien. » (3) Aussi, dès 1896, le ministre Bosse 4
+ce n'est que provisoirement qu'il est citoyen de l'État
+prussien. » (3) Aussi, dès 1896, le ministre Bosse
 jette un cri d'alarme et parle du péril national en SE
-C'est en même temps un élément nouveau que la 0
-Pologne a gagné par cette annexion morale de la Haute- 3
-En effet, la population, en grande partie industrielle, 4
-a un caractère beaucoup plus démocratique que celle 40
+C'est en même temps un élément nouveau que la
+Pologne a gagné par cette annexion morale de la Haute-
+En effet, la population, en grande partie industrielle,
+a un caractère beaucoup plus démocratique que celle
 des autres provinces. La noblesse n'y existe pas. Et $
-déjà les ouvriers de Kattowitz et de Zahrze se tournent 0
+déjà les ouvriers de Kattowitz et de Zahrze se tournent
 vers le socialisme, mais sans abandonner pour cela ne:
 é leurs revendications nationales. La Haute-Silésie contri- À ke
 -  buera certainement pour une large part au rajeunisse- Sh
 ment et à l'élargissement du programme politique polo- de
-nais. Nous aurons à montrer plus loin comment le 114
+nais. Nous aurons à montrer plus loin comment le
 mouvement démocratique, qui pousse de plus en plus # Fe
 les Polonais à secouer la tutelle du Centre alle- Fe:
 (1) Voyez Dziennik Berlinski du 13 juin 1900. “2
-(2) Voyez Wagner et Vossberg : Polenstinmen (Berlin, 1902), 2
-(4) Chambre des députés prussienne, séance du 15 mars 1806, \ 5
+(2) Voyez Wagner et Vossberg : Polenstinmen (Berlin, 1902),
+(4) Chambre des députés prussienne, séance du 15 mars 1806, \
 
 | Polonais et Prussiens
 ; mand, s'est manifesté avec le plus d'éclat justement en
@@ -5688,41 +5688,41 @@ la population polonaise et de précieuses tables statistiques.
 collection du Wiarus Polski.
 
 chercher du travail si loin de leur patrie sont fort A
-simples et se rattachent au grand mouvement écono- : R
-mique connu sous le nom allemand de Sachsengän- æ
+simples et se rattachent au grand mouvement écono-
+mique connu sous le nom allemand de Sachsengän-
 gerei. Les ouvriers de l'Est sont attirés avant tout HE.
-par des salaires plus hauts que ceux qu'ils peuvent Û
-gagner chez eux. L'essor extraordinaire de l'industrie 4
+par des salaires plus hauts que ceux qu'ils peuvent
+gagner chez eux. L'essor extraordinaire de l'industrie
 dans le bassin rhénan exigeait du reste une immigration Ve
 de travailléurs, car les forces ouvrières de la région, a
-réquisitionnées depuis longtemps, ne suffisaient plus.La h.
+réquisitionnées depuis longtemps, ne suffisaient plus.La
 population polonaise répondit vite à cet appel, qui était |
 pour elle une véritable aubaiïne. re
 Lors du recensement de 1861, il n'y avait pas encore A
-de Polonais dans les districts industriels. Trente ans 1
+de Polonais dans les districts industriels. Trente ans
 après, il y en avait plus de 30.000. (1) Le recensement Ki
 de décembre 1895 n'indique malheureusement pas la
-nationalité. Mais nous avons d'excellentes statistiques î
-partielles, établies soit par la direction des mines, soit h4
+nationalité. Mais nous avons d'excellentes statistiques
+partielles, établies soit par la direction des mines, soit
 par l'Alldeutscher Verband. (2) Elles peuvent nous fl
 
-(1) Le recensement du premier décembre 1890 donne les chiffres L
+(1) Le recensement du premier décembre 1890 donne les chiffres
 District de Munster : 5.490 Polonais. at:
 
-District de Dusseldorf : 4.650 Polonais. : M4
+District de Dusseldorf : 4.650 Polonais.
 A noter que ne sont comptés que les Polonais ne sachant pas Fu
-(2) Voyez pour 1893 : Die Belegschaft der Bergwerke und Salinen f
-Pour 1897 : Nachweisung der Ausländer, der polnisch sprechenden 1
+(2) Voyez pour 1893 : Die Belegschaft der Bergwerke und Salinen
+Pour 1897 : Nachweisung der Ausländer, der polnisch sprechenden
 der Belegschaft des Oberbergamisbezirkes Dortmund nach der PA:
 Pour 1898 : Zusammenstellung der auf den Vereinszechen am ersten te
-Pour 1899 : Aufstellung der auf den Bergwerken des Oberamts- t
+Pour 1899 : Aufstellung der auf den Bergwerken des Oberamts-
 bezirkes Dortmund am 31 Dezember 1899 beschäftigten Preussen Le
 
-AU Polonais et Prussiens k
+AU Polonais et Prussiens
 FA donner d'utiles indications sur la rapidité avec laquelle à
 (1 ÿ s'accroît l'élément polonais.
 1) { En 1893, dans le district d'inspection minière de
-6 Dortmund, il y avait 17.919 mineurs polonais; en 1897,
+Dortmund, il y avait 17.919 mineurs polonais; en 1897,
 tt il y en avait 34.361, soit en quatre ans une augmentation
 et de 91,7 0/0. Sur le total des ouvriers des mines, 18,62 0/0
 EN étaient polonais. D'après les calculs de l'Alldeutscher |
@@ -5743,48 +5743,48 @@ ni de Recklinghausen. 10.060 ouvriers polonais, soit : 48.29 o/o
 ui (2) Dix-neuf mines ont plus de 50 ojo d'ouvriers polonais. Dans la
 mine Ewald (cercle de Recklinghausen), les Polonais représentent |
 le 85 o/o du total des ouvriers.
-(3) D'après une statistique de 1895, il y avait déjà 3.851 ouvriers ñ
+(3) D'après une statistique de 1895, il y avait déjà 3.851 ouvriers
 ne sachant ni lire ni écrire. 1 À
 
-entaséés, font un effet déplorable de laideur et de 4
-saleté, avec leurs maisons en briques, noïircies par la 100
+entaséés, font un effet déplorable de laideur et de
+saleté, avec leurs maisons en briques, noïircies par la
 
-__ fumée des usines. Dans des rues sordides, où traînent 10
+__ fumée des usines. Dans des rues sordides, où traînent
 des odeurs fétides, grouille un monde d'enfants en ‘2
 loques. Les logements sont trop peu nombreux, trop à:
 cher aussi. On s'entasse dans des chambres mal s #4
 entretenues, et la morale n'a rien à y gagner. Les rixes “TES
-sont fréquentes. ï 12
-Tout cela est vrai. Que ce prolétariat étranger, par- k 8
+sont fréquentes.
+Tout cela est vrai. Que ce prolétariat étranger, par-
 
 qué dans un espace relativement restreint, n'ait pas (
-une bonne influence sur la culture générale et la mora- Ê:
-lité de cette région, nul n'en doute. Maïs n'est-il pas 4
+une bonne influence sur la culture générale et la mora-
+lité de cette région, nul n'en doute. Maïs n'est-il pas
 souverainement injuste d'attribuer aux Polonais ce qui ‘#1
 
-est la faute de l'organisation sociale ? Ce n'est pas, en 14
-tout cas, aux actionnaires allemands des riches sociétés ne. k
+est la faute de l'organisation sociale ? Ce n'est pas, en
+tout cas, aux actionnaires allemands des riches sociétés ne.
 industrielles à se plaindre d'une population ouvrière #4
 
 . dont ils ne peuvent se passer. ht:
 Il est incontestable que les villes de la région ont ‘2
-pris un cachet polonais. À Gelsenkirchen, à Reckling- F 54
-hausen, à Bochum, même à Essen, il y a des rues 100
+pris un cachet polonais. À Gelsenkirchen, à Reckling-
+hausen, à Bochum, même à Essen, il y a des rues
 entières où l'on n'entend pas parler allemand. Les À à
-magasins portent très souvent l'inscription : « Ici on 0
-parle polonais. » (1) Les journaux locaux sont remplis 4
+magasins portent très souvent l'inscription : « Ici on
+parle polonais. » (1) Les journaux locaux sont remplis
 d'annonces en polonais, de même que les commer- 4 À
 çants allemands ne dédaignent pas d'insérer des Ee:
-réclames dans le Wiarus Polski. Les employés parlant : 24
+réclames dans le Wiarus Polski. Les employés parlant
 
 le polonais sont recherchés par les maisons de com- ÿ Me
-merce. Dans les écoles primaires, les élèves ne sachant É:
+merce. Dans les écoles primaires, les élèves ne sachant
 
 () Voyez des exemples _d'enseignes et inscriptions polonaises ‘4
 
 dans Die Polen im rheinisch-westfälischen Steinkohlen-Bezirke, er.
 
-LA Polonais et Prussiens ; 1
+LA Polonais et Prussiens
 
 5 pas l'allemand sont nombreux, (1) et cette situation
 
@@ -5802,7 +5802,7 @@ Ces Polonais ont jusqu'ici résisté énergiquement à la
 
 conserver leur langue. Leur journal, le Wiarus Polski
 à ne cesse de les encourager dans leur résistance. Avec
-une vue très juste des choses, il s'adresse surtout 1
+une vue très juste des choses, il s'adresse surtout
 aux mères, dont dépend l'éducation des enfants.
 Ce sont des appels sans cesse répétés, en prose et en
 vers :
@@ -5811,7 +5811,7 @@ Sera la citadelle de la patrie et des voix divines,
 Personne ne pourra conquérir la Pologne. (2)
 Le même journal fait lancer ce défi à Bismarck par
 les mères polonaises :
-4 Vois-tu, Bismarck, bien que tu fasses trembler la terre, tu
+Vois-tu, Bismarck, bien que tu fasses trembler la terre, tu
 } ne peux me vaincre, moi, mère polonaise. Car j'apprends à
 mon enfant à parler, lire, écrire et chanter en polonais. :
 C'est ainsi que Dieu l'a ordonné, et c'est ainsi que je le veux |
@@ -5826,26 +5826,26 @@ et que cela sera. (3) 4 |
 Comme on le voit par ces deux citations, l'idée reli- pe
 gieuse exerce encore son influence profonde sur cette rs
 grande colonie ouvrière. Le socialisme ne l'a pas encore .
-attirée dans son camp. Ce n'est pas par là que se fera 1
-la germanisation. Elle se fera sans doute peu à peu par 5
+attirée dans son camp. Ce n'est pas par là que se fera
+la germanisation. Elle se fera sans doute peu à peu par
 le milieu ambiant. |
 Jadis la plupart des Polonais, après avoir gagné un bi
 petit pécule, revenaient chez eux. Il y avait un va-etvient continuel entre les provinces orientales et les |
 centres industriels de l'Ouest. Dans ces conditions, l'in- #
 fluence de la nationalité persistait. Sur cette population
-flottante l'allemand n'avait aucune prise. Dans ces dernières années, le chiffre des Polonais qui s'établissent à Ë
+flottante l'allemand n'avait aucune prise. Dans ces dernières années, le chiffre des Polonais qui s'établissent à
 demeure dans l'Ouest est plus grand, et ce rameau » (8
 détaché du tronc a beaucoup de chances de périr. Mais a
 les choses n'en sont pas encore là; il faudra en tout cas ‘74
 plusieurs générations, trois au moins, disent les Alle- Rec
-mands les plus optimistes. 15
+mands les plus optimistes.
 
 Tant que de la sève nouvelle viendra, chaque année, je
-vivifier le rejeton slave, la germanisation n'avancera ÿ
-que bien lentement. Néanmoins les chefs polonais ne 4
-sont pas sans avoir pressenti le danger. Aussi prêche- k
+vivifier le rejeton slave, la germanisation n'avancera
+que bien lentement. Néanmoins les chefs polonais ne
+sont pas sans avoir pressenti le danger. Aussi prêche-
 t-on sans cesse aux ouvriers de ne pas épouser d'Alle- LA
-mandes. C'est qu'en effet, autant les Allemands e
+mandes. C'est qu'en effet, autant les Allemands
 craignent les mariages entre Germains et Polonaises
 dans l'Est, autant les Polonais ont à redouter, dans un à
 milieu étranger, les unions mixtes.
@@ -5855,10 +5855,10 @@ politique. Cette colonie slave peut, aux élections,
 influer sur les rapports avec le Centre et forcer ce parti à
 à des concessions; c'est tout.
 
-4 Polonais et Prussiens Net 4
+Polonais et Prussiens Net
 (4 Plus grande est son influence économique, dont nous
 18 aurons à parler plus loin. à à
-1 Il en est de même des colonies polonaises qui sont
+Il en est de même des colonies polonaises qui sont
 ‘4e établies dans d'autres régions de l'Allemagne et qui
 Ms. L'agglomération n'est véritablement importante qu'à
 à Berlin et dans sa banlieue. En 1890, il y avait environ
@@ -5872,7 +5872,7 @@ JA désirent s'établir dans la capitale ou dans la banlieue. :
 ks D'après ce court résumé, on peut se rendre compte
 \ que la position des Polonais est assez solide. Concentrés
 ts dans l'Est, ils se massent en un bloc cohérent d'environ
-4 Silésie et en Prusse Occidentale, ils forment le trait
+Silésie et en Prusse Occidentale, ils forment le trait
 qu. d'union entre leurs frères de Galicie et les populations
 + Poméranie, ils ont des postes avancés. L'importante
 A colonie du bassin rhéno-westphalien ainsi que les îlots |
@@ -5885,29 +5885,29 @@ F) Les Polonais de Brême envoient de l'argent à l'œuvre des biblio4 thèques 
 
 j Voyez aussi le Wielkopolanin des 4 et 5 septembre 1901. \
 HAN Conférez dans l'Européen du 22 octobre 1904, l'article de M. L. |
-Polier. Berlin contre l'État. É
+Polier. Berlin contre l'État.
 
 établis dans quelques villes allemandes augmentent
 | leur puissance économique. ‘4
-Enfin, des alliés éventuels les attendent en Masourie 04
+Enfin, des alliés éventuels les attendent en Masourie
 et dans la Lithuanie prussienne. Réunis dans une \1
 | volonté de résistance commune, ils constituent une ‘
-Et ce n'est vraiment pas une vaine déclamation par- 4 Ê
-lementaire que ce mot du comte de Bülow : « A mes 104
+Et ce n'est vraiment pas une vaine déclamation par-
+lementaire que ce mot du comte de Bülow : « A mes
 yeux, la question des marches de l'Est est non seu- ee
-lement une des plus importantes de notre politique D
+lement une des plus importantes de notre politique
 intérieure; c'est celle du développement de laquelle Ni
 dépend l'avenir immédiat de notre patrie. » (1) ‘
 
 (1) Discours prononcé, le 13 janvier 1902, à la Chambre des
 
-4 Les Polonais augmentent-ils au détriment des Alle- ù
+Les Polonais augmentent-ils au détriment des Alle-
 LM mands? Telle est la question qu'il est nécessaire dese
 1 poser. S'il y a pour la Prusse un danger polonais, il
 à doit pouvoir se traduire en chiffres. Les statistiques
 
-‘ seules sont capables de nous donner à peu près le ÿ
-1 bilan des gains et des pertes dans les deux camps d
+‘ seules sont capables de nous donner à peu près le
+1 bilan des gains et des pertes dans les deux camps
 y Il est indéniable que, dans le courant des cinquante '
 i \ dernières années, l'élément polonais de la province de
 \ Posen a augmenté sensiblement, et que cette augmentajé tion s'est faite au détriment de l'élément germanique.
@@ -5915,80 +5915,80 @@ Malheureusement, les statistiques antérieures au
 recensement de 1890 ne peuvent être utilisées qu'avec
 :)4 une extrême prudence. (2)
 
-} (1) A consulter, outre les ouvrages déjà cités, le livre important f
+} (1) A consulter, outre les ouvrages déjà cités, le livre important
 ! de Leo Wegener : Der wirtschaftlliche Kampf mit den Polen um die À
 fl Voyez aussi les chiffres indiqués par Dix : Die Vôlkerwanderung fl
 } (2) Ainsi une statistique linguistique des enfants des écoles pri- \
-f maires indique pour la ville de Wreschen, en 1886, 55,9 0/o d'élèves 3
+f maires indique pour la ville de Wreschen, en 1886, 55,9 0/o d'élèves
 wi dont la langue maternelle serait l'allemand. Cinq ans après, il n'y
-112 en a plus que 24,7 0/0. Cela paraît impossible. à 1
+112 en a plus que 24,7 0/0. Cela paraît impossible. à
 
 ÿ Pour établir les proportions ethniques des deux “
 groupes nationaux avant 1890, on est obligé d'avoir LÉ
 recours à différents indices, dont le plus important + #
-est la religion des habitants. D'une manière gé- H
+est la religion des habitants. D'une manière gé-
 nérale, l'augmentation de la population catholique :
 équivaut à une augmentation de la population polonaise. , $
 Or, nous constatons que, de 1849 à 1900, les Catholiques ont augmenté de 51 0/0, les Protestants seulement {
 de 39,7 0/0. Quant aux Juifs, qui constituent un élément à
 important de germanisation, ils ont diminué de 46 0/0
 dans le même laps de temps. Dans le district de Posen,
-plus slave que celui de Bromberg, les Polonais ont s 4
+plus slave que celui de Bromberg, les Polonais ont
 augmenté de 22,8 o/o pendant la période qui va de
 1871 à 1895, alors que les Allemands (Protestants et ;
 Juifs) non seulement n'ont pas augmenté, mais ont Fa
-diminué de 0,87 0/0. Ce fait est d'autant plus remar- i
-quable que, de 1825 à 1840, les Protestants enregis- É
-traient une augmentation bien plus grande que les 8
+diminué de 0,87 0/0. Ce fait est d'autant plus remar-
+quable que, de 1825 à 1840, les Protestants enregis-
+traient une augmentation bien plus grande que les
 Pourtant, à part la province de Posen, il semble bien ‘à
-que les Allemands aient exagéré le danger polonais, 1
+que les Allemands aient exagéré le danger polonais,
 parfois intentionnellement, pour obtenir des mesures ; à
 de répression; souvent aussi à cause de l'inexactitude ee:
 des statistiques. (1) La
 La comparaison des statistiques de 1861 et de 1890, ;
-(1) Il est certain que la statistique de 1861 donne des chiffres j 1g
+(1) Il est certain que la statistique de 1861 donne des chiffres
 trop bas pour les Polonais, vu qu'elle compte comme Allemands “
 les nombreux domestiques polonais en service dans les familles #
-allemandes. La statistique de 1890 étant plus exacte, il se trouve 6!
-que la comparaison des deux recensements exagère l'augmenta- 1
+allemandes. La statistique de 1890 étant plus exacte, il se trouve
+que la comparaison des deux recensements exagère l'augmenta-
 tion des Polonais. Hi,
 
 ‘F1 Polonais et, Prussiens 0000000
 AS sur laquelle il y a des réserves à faire, donne les résulk43 tats suivants : À. +
 ce Augmentation Augmentation ©
-0% des des 1
-| ñ Les résultats, certainement plus exacts, du rapproche- j
+0% des des
+| ñ Les résultats, certainement plus exacts, du rapproche-
 EMA + ment entre le recensement de 1890 et celui de 1900, .
 il prouveraient que le polonisme est en perte depuis dix
 : ÿ ans, ainsi que l'indiquent les chiffres suivants : ;
-61 Dans la province de Posen seule les Polonais auraient fi
+Dans la province de Posen seule les Polonais auraient fi
 la donc gagné du terrain. ,
-ni Dans le royaume de Prusse, l'élément polonais, si 4
+ni Dans le royaume de Prusse, l'élément polonais, si
 A) _ nous en croyons les chiffres actuels, a baissé comme
 #4 Et cependant, lorsque le comte de Bülow comparait
-ù assez grossièrement la prolificité polonaise avec celle M
-il: des lapins, il n'avait pas tout à fait tort, en ce sensque M
+ù assez grossièrement la prolificité polonaise avec celle
+il: des lapins, il n'avait pas tout à fait tort, en ce sensque
 mi les familles polonaises comptent plus d'enfants que les.
-| 46 4
+|
 
 ménages allemands. (1) La statistique comparative, que ‘+8
-f nous empruntons aux Annales de Géographie, (2) le # 6
+f nous empruntons aux Annales de Géographie, (2) le #
 Naissances (y compris les mortstnés) pour 1.000 habitants ne
 Mais si les provinces polonaises enregistrent le plus ;.
 ; de naissances, la mortalité infantile, malgré des progrès ."#
-sérieux, y est aussi plus grande. (3) 0
+sérieux, y est aussi plus grande. (3)
 : En somme, les gains polonais en Posnanie ne contre- RE
-; balancent pas les pertes dans les autres provinces. Ce T4
+; balancent pas les pertes dans les autres provinces. Ce
 n'est donc pas par l'accroissement du nombre que ne
-les Polonais paraissent si redoutables au gouvernement * ÿ' 4
-Leurs conquêtes sont avant tout morales. Elles 1
-consistent non dans la multiplication des habitants de 3
+les Polonais paraissent si redoutables au gouvernement * ÿ'
+Leurs conquêtes sont avant tout morales. Elles
+consistent non dans la multiplication des habitants de
 langue slave, mais dans l'augmentation des Polonais : £10
 imbus de l'idée nationale, décidés à défendre leur langue MER |
 et leur caractère ethnique. C'est cette victoire qui ge
-(1) Voyez les chiffres comparatifs des naissances pour 1895 dans 5 o.
-(2) Annales de Géographie, du 15 mars 1905; page 119. Cette “ 33
-revue emprunte ses chiffres au premier fascicule du Viertel- 1
+(1) Voyez les chiffres comparatifs des naissances pour 1895 dans
+(2) Annales de Géographie, du 15 mars 1905; page 119. Cette “
+revue emprunte ses chiffres au premier fascicule du Viertel-
 jahrsheft zur Statistik des Deutschen Reiches, 1904; pages 54-168. TER
 (8) De plus, l'émigration est assez forte dans les provinces de”
 Occidentale forment 1/6 du nombre total des émigrants alle- 3 Fa
@@ -6052,7 +6052,7 @@ une forte tendance à vendre leurs terres et à chercher
 dans les parties germaniques de l'Allemagne une posi- |
 tion plus agréable. Ce sont ces ventes nombreuses qui
 font passer la petite propriété en mains polonaises. (2)
-ont passé des Allemands aux Polonais, alors que seule- d
+ont passé des Allemands aux Polonais, alors que seule-
 ( ») Il en est à peu près de même pour la Prusse Occidentale
 (1,76 mark) et la Prusse Orientale (1,59 mark).
 (2) Nous traitons plus loin, avec plus de détails, la question de |
@@ -6060,47 +6060,47 @@ Vacquisition du sol.
 
 Da ment 483 propriétés (environ 2.972 hectares) étaient ven. nv
 2 dues par des Polonais à des Allemands. 5 VC. EE
-34 Les propriétés allemandes sont très souvent morcelées |
-ox par la vente, et ce sont surtout les Polonais qui en prosig fitent, parce que, n'ayant que des besoins restreints, ils 1
-4) peuvent vivre plusieurs, là où un seul Allemand trou- 4
-_  veraïit à gagner sa vie. D''ordinaire le paysan slave ne 4
+Les propriétés allemandes sont très souvent morcelées |
+ox par la vente, et ce sont surtout les Polonais qui en prosig fitent, parce que, n'ayant que des besoins restreints, ils
+4) peuvent vivre plusieurs, là où un seul Allemand trou-
+_  veraïit à gagner sa vie. D''ordinaire le paysan slave ne
 _. désire qu'un petit champ de pommes de terre, que sa
 __! femme ou ses vieux parents peuvent cultiver, pendant
 A0 que lui-même va chercher ses ressources principales = …
-:11 dans l'Ouest allemand. 4
-Nous verrons comment les Polonais ont su se servir 4
+:11 dans l'Ouest allemand.
+Nous verrons comment les Polonais ont su se servir
 L F de ces conditions économiques spéciales. +R
 
-Un rapide coup d'œil jeté sur le passé aidera à mieux e
-comprendre le développement de la lutte entre les deux 5
+Un rapide coup d'œil jeté sur le passé aidera à mieux
+comprendre le développement de la lutte entre les deux
 races, jusqu'à l'hostilité déclarée de ces dernières ‘4
-Ce serait une grave erreur de croire que l'influence 4
+Ce serait une grave erreur de croire que l'influence
 allemande dans les provinces orientales ne date que h jt
 des annexions de Frédéric II. Dès le moyen âge, les
-rois de Pologne, comme ceux de Bohême, appelèrent 121
+rois de Pologne, comme ceux de Bohême, appelèrent
 des Allemands, qui faisaient d'excellents colons et de
-paisibles sujets. Pour les attirer, on leur conférait des à 1
+paisibles sujets. Pour les attirer, on leur conférait des à
 privilèges. Les villes ainsi peuplées jouissaient de fran- ‘2
-chises copiées sur celles de Magdebourg (jus Teutoni- 11
+chises copiées sur celles de Magdebourg (jus Teutoni-
 cum seu Magdeburgense). Au treizième siècle déjà,
-l'influence allemande n'était pas négligeable, même en 408
+l'influence allemande n'était pas négligeable, même en
 Posnanie. (1) Au cours du quinzième siècle, cette in
-les éléments étrangers sont absorbés par la nation. 1
-Dans les actes municipaux, l'allemand disparaît; les 4
-noms de famille sont traduits en polonais. 14
+les éléments étrangers sont absorbés par la nation.
+Dans les actes municipaux, l'allemand disparaît; les
+noms de famille sont traduits en polonais.
 ; (1) La liste des magistrats de la ville de Posen (de 1253-1504) “a
 contient beaucoup de noms allemands. Voyez Warschauer : {20
 Stadtbuch von Posen. ne
 
-51 1
+51
 
-Polonais et Prussiens 1
-La Prusse Occidentale était plus exposée que la Pos- 1
+Polonais et Prussiens
+La Prusse Occidentale était plus exposée que la Pos-
 nanie à l'influence germaine; aussi cette région fron- |
 tière fut-elle disputée avec acharnement. Le pays de
 Kulm (Chelmno), habité primitivement par des Borusses,
 proches parents des Lithuaniens, fut soumis et colonisé
-par l'Ordre Teutonique, mais fut peu à peu polonisé, à ? Î
+par l'Ordre Teutonique, mais fut peu à peu polonisé, à ?
 mesure que la Pologne grandissait en puissance. (1) La
 bataille de Tannenberg (1410), puis la paix de Thorn
 (1466) firent passer la Prusse Occidentale sous l'hégé- |
@@ -6121,51 +6121,51 @@ in Westpreussen. Leipzig, 1900 (en particulier le chapitre V).
 Pour la thèse polonaise, consulter les ouvrages de Kectrzynski. ,
 (2) Le mot Holländer s'étant peu à peu transformé en celui de
 Hauländer, on a tenté de l'expliquer par Hauland; terre à défri- |
-| cher. Cette étymologie est aujourd'hui abandonnée. ù
+| cher. Cette étymologie est aujourd'hui abandonnée.
 on di Guradze : Der Bauer in Posen. Halle, 1898 (thèse de docG) Voyez Plehn : Ouvrage cité, pages 216 et suivantes. y
 
 au catholicisme. Mais ces colonies n'étaient que des Ha
 îlots au milieu de la population slave. Même dans le Re
 pays de Kulm, la noblesse allemande s'était rapidement
-polonisée. Vers 1600, les noms allemands ont presque 48
+polonisée. Vers 1600, les noms allemands ont presque
 entièrement disparu, transformés soit par traduction, “
 soit par une prise de titres polonais. Les villes résistèrent mieux; certaines restèrent presque absolument
-allemandes, Dantzig et Thorn en particulier. A Stras- 4
+allemandes, Dantzig et Thorn en particulier. A Stras-
 burg, les deux langues vivaient côte à côte, mais le
 
 Toutefois, et ceci est caractéristique, il n'y avait
 encore aucune opposition nationale. (1) Seule, la difté-
 rence de religion créait une sorte d'antagonisme entre |
-les deux races. 4
+les deux races.
 
 Après le premier partage de la Pologne, Frédéric II sk
 entreprit la colonisation en grand. (2) Il concentra son |, À
-effort sur le district de la Netze, par lequel le Brandebourg et la Posnanie se reliaient à la vieille Prusse, 1
+effort sur le district de la Netze, par lequel le Brandebourg et la Posnanie se reliaient à la vieille Prusse,
 
-: mais sans négliger pour cela la Prusse Occidentale. Les F
+: mais sans négliger pour cela la Prusse Occidentale. Les
 
 colons, venus en grande partie de l'Allemagne du Sud,
 
-particulièrement de la Souabe, étaient attirés par des k
+particulièrement de la Souabe, étaient attirés par des
 
-privilèges importants. Ils étaient libérés du service k.
+privilèges importants. Ils étaient libérés du service
 
 (2) Sur l'importante question de la colonisation frédéricienne, à
 
 ; voyez Schmoller : Die preussische Kolonisation des 17 und 18 Jahr- |
 
-Id. Der Netzedistrikt zur Zeit der ersten Teilung Polens (dans 1
+Id. Der Netzedistrikt zur Zeit der ersten Teilung Polens (dans
 
 Voyez aussi Rappolt : Von den Colonien, wodurch Preussen ist <
 
 "., MAT ‘Polonais et Prussiens |.
-; militaire et, pour les premières années du moins, | 1
+; militaire et, pour les premières années du moins,
 & exemptés d'impôts. Aussi ce fut une véritable invasion.
-4 D'après Schmoller, on peut évaluer, en chiffres ronds, |
-é. le nombre des immigrants à environ 300.000, et celui 3
-4 4. des villages créés à environ 900. Ce fut certainement 1
-Ë; un coup terrible pour la cause polonaise. Il n'est que 1
-je _ juste, du reste, de constater que la sollicitude du roi 1
+D'après Schmoller, on peut évaluer, en chiffres ronds, |
+é. le nombre des immigrants à environ 300.000, et celui
+4 4. des villages créés à environ 900. Ce fut certainement
+Ë; un coup terrible pour la cause polonaise. Il n'est que
+je _ juste, du reste, de constater que la sollicitude du roi
 Ê pour ses nouvelles provinces profita largement à tous
 î les habitants de ces contrées. D'immenses travaux |
 4 furent entrepris: C'est alors que fut creusé le ca- |
@@ -6182,10 +6182,10 @@ Lo nale et la Nouvelle Silésie, étaient immenses. Le mor-
 ! ceau était beaucoup trop gros pour être digéré, et
 n l'assimilation des Polonais devenait une tâche impos- |
 4 * _sible. La paix de Tilsit et la création du grand-duché de |
-4 Varsovie arrétèrent du reste les progrès de la germani- |
+Varsovie arrétèrent du reste les progrès de la germani- |
 
 W L'attitude de la population fut en même temps une
-ta leçon pour le gouvernement prussien. En effet, après 1
+ta leçon pour le gouvernement prussien. En effet, après
 ne 1815, Frédéric-Guillaume III chercha à se concilier les
 
 È : Polonais. La Posnanie fut constituée en grand-duché et |
@@ -6197,12 +6197,12 @@ be avances caractéristiques. Ainsi, le grand-duché reçut
 “4 comme blason l'aigle blanc et les couleurs polonaises, ;
 5 rouge et blanc. Le choix du prince Radziwill, époux de
 
-la princesse Louise de Prusse, comme gouverneur de F4
-Posen était un pas de plus vers la conciliation. Le res- # 14
+la princesse Louise de Prusse, comme gouverneur de
+Posen était un pas de plus vers la conciliation. Le res- #
 + crit royal de 1817, sur la langue, était animé du même
-La Prusse Occidentale fut moins heureuse. Les pro- 4
-__  priétaires polonais du cercle de Kulm et de la Michelau É
-pétitionnèrent pour que leur territoire fût réuni à la 1
+La Prusse Occidentale fut moins heureuse. Les pro-
+__  priétaires polonais du cercle de Kulm et de la Michelau
+pétitionnèrent pour que leur territoire fût réuni à la
 Posnanie, mais les Allemands exprimèrent un vœu Hs,
 opposé et obtinrent gain de cause. (:) C'était le pre- “
 mier signe d'un antagonisme qui ne pouvait que }
@@ -6210,29 +6210,29 @@ mier signe d'un antagonisme qui ne pouvait que }
 . | politique bien arrêtée sur la question polonaise. Il “4
 souhaitait la germanisation, mais hésitait à recourir +
 aux mesures brutales, de crainte de se rendre ses sujets :
-slaves hostiles à jamais. De là, jusqu'après la chute de É
-Caprivi, c'est-à-dire pendant presque tout le dix- 4
+slaves hostiles à jamais. De là, jusqu'après la chute de
+Caprivi, c'est-à-dire pendant presque tout le dix-
 neuvième siècle, ces changements d'orientation, ces #
-| brusques coups de barre tantôt vers la conciliation, 4
+| brusques coups de barre tantôt vers la conciliation,
 À tantôt vers la répression. Mais jamais le gouvernement :
-| ne cessa de se méfier des habitants de la Posnanie ni 4
-de prendre des mesures pour empêcher les troubles de 4
+| ne cessa de se méfier des habitants de la Posnanie ni
+de prendre des mesures pour empêcher les troubles de
 la Pologne russe de se propager en Prusse. Lors de la #
 | révolution de 1830-1831, il mobilisa des troupes et fit ‘$
-occuper la frontière. Ses sympathies étaient absolument 4
+occuper la frontière. Ses sympathies étaient absolument
 pour Nicolas. %
 La chute de Varsovie fut un soulagement pour la %
 cour de Berlin, qui ne cacha pas ses sentiments. Dès à
-lors la noblesse polonaise montra une tendance si ce d
+lors la noblesse polonaise montra une tendance si ce
 j nest hostile, du moins très froide envers l'État prus- dk
-| (1) Voyez Plehn : Ouvrage cité, page 305. ÿ
+| (1) Voyez Plehn : Ouvrage cité, page
 
 ; Polonais et Prussiens T'AS
 Û sien. Elle se tint à l'écart de l'armée et de l'administra- À
-5 tion. Si cette abstention systématique, dont on fut fort 1
+5 tion. Si cette abstention systématique, dont on fut fort
 piqué à Berlin, émut le roi, celui-ci fut plus impres-
 | sionné encore par l'attitude du clergé. L'archevêque |
-de Posen défendit aux futurs prêtres de son diocèse de 4
+de Posen défendit aux futurs prêtres de son diocèse de
 suivre les cours des Universités prussiennes. Seules, les
 Universités de Prague, Vienne et Munich leur étaient
 Le roi se décida alors à une politique plus énergique,
@@ -6267,36 +6267,36 @@ concessions aux Polonais. L'opinion libérale avait
 embrassé avec enthousiasme la cause polonaise, et le
 roi crut prudent de se montrer conciliant. Les achats de
 terre cessèrent. Les relations avec la noblesse et l'arche- ;
-vêque devinrent presque amicales. Sur le terrain F
+vêque devinrent presque amicales. Sur le terrain
 scolaire, de précieuses concessions furent faites à la
 langue polonaise, en particulier par le décret du
-24 mai 1842. En général, dans les écoles primaires ñ
+24 mai 1842. En général, dans les écoles primaires
 et même dans les classes inférieures des gymnases, à
-l'enseignement était donné en polonais. Quant à É
+l'enseignement était donné en polonais. Quant à
 l'instruction religieuse, elle était faite en polonais, du En
 moins dans toutes les classes inférieures. (4)
-Pour comprendre les événements de 1848, grâce 1
+Pour comprendre les événements de 1848, grâce
 auxquels les Polonais de la Prusse furent un instant NÉ:
 () Voyez la notice que lui consacre l'Ostmark, ILL, 5; et l'article à
-de PAllgemeine Deutsche Biographie, IX, pages 713-714. c
+de PAllgemeine Deutsche Biographie, IX, pages 713-714.
 (2) Voyez l'article de Maurenbrecher dans l'Allgemeine Deutsche LR
 (3) Cest le même qui joua un rôle si important comme ministre
-de l'intérieur. Sur lui, voyez Allgemeine Deutsche Biographie, 1, L
+de l'intérieur. Sur lui, voyez Allgemeine Deutsche Biographie,
 (4) Pour l'historique de la question scolaire, voyez le discours :
 du ministre von Gossler, prononcé le 20 mars 1889, à la Chambre
 des députés prussienne. ;
 
 ni Polonais et Prussiens A
 14 près d'obtenir gain de cause pour quelques-unes de
-à _ leurs légitimes revendications, il faut se remémorer ce . 1
-fn qu'était le libéralisme allemand après 1830. Ce mouve- 1
+à _ leurs légitimes revendications, il faut se remémorer ce
+fn qu'était le libéralisme allemand après 1830. Ce mouve-
 LE ment généreux nous semble singulièrement loin, tant |
 te l'Allemagne a changé. Pourtant elle a existé, cette
 ‘1 époque où des milliers d'Aliemands pleurèrent la chute |
 DA de Varsovie, où des centaines de pamphlets stigmati- ; |
 ha sèrent le régime russe, où un engouement général :
 pi faisait voir dans tout Polonais un champion de la '
-f liberté. L'indépendance de la Pologne et lunité alle- 1
+f liberté. L'indépendance de la Pologne et lunité alle-
 vs mande formaient deux articles du même programme. À
 À C'était l'époque des rêves généreux. Les proscrits
 14 étaient presque des héros. Il faisait bon vivre. L'enthou-
@@ -6304,36 +6304,36 @@ vs mande formaient deux articles du même programme. À
 ï des polémistes et les vers des poètes. Car alors les |
 ä poètes chantaient autre chose que la gloire des Hohen1 zollern et la grandeur de la Prusse.
 Ê En Autriche, Lenau écrivait ses Polenlieder. En À
-fi Allemagne, Julius Mosen pleurait sur les dix derniers r
+fi Allemagne, Julius Mosen pleurait sur les dix derniers
 A survivants du fameux quatrième bataillon polonais.
-1 Platen lui-même se laissait inspirer par les révolution1 naires varsoviens. (1)
+Platen lui-même se laissait inspirer par les révolution1 naires varsoviens. (1)
 pn Le soulèvement polonais de 1848 fut l'aboutissant
 fi (1) Les Polenlieder de Platen sont peu connus, parce qu'ils ne se
 N trouvent pas dans le recueil de ses poésies. Ces pièces furent |
-fl publiées séparément à Strasbourg, en 1839. Une seconde édition ÿ
+fl publiées séparément à Strasbourg, en 1839. Une seconde édition
 
 * parut en 1841, également à Strasbourg; une troisième en 1849, à
 
-| Mutter. — Freiligrath : Xinderlied. — Hebbel : Die Polen sollen 1
+| Mutter. — Freiligrath : Xinderlied. — Hebbel : Die Polen sollen
 
 f A consulter les différents ouvrages sur la Jeune Allemagne.
 
-\ local du grand mouvement libéral. (1) Un essai de 4
+\ local du grand mouvement libéral. (1) Un essai de
 révolte, en 1846, échoua. Les chefs, entre autres Mieros- 1‘
-lawski, (2) furent faits prisonniers. b
+lawski, (2) furent faits prisonniers.
 ‘ Cette tentative malheureuse ne nuisit en rien aux
 Polonais dans l'opinion publique, tant la cause polonaise }:
 et la cause libérale étaient étroitement associées. Au se
 landtag uni de 1847, les pétitions en faveur des Polonais “
 soulevèrent de vifs débats. if
-Ce n'est pas l'indépendance nationale complète que 4
+Ce n'est pas l'indépendance nationale complète que
 
 ,
-| l'on demandaït; il ne s'agissait que d'une autonomie 4
+| l'on demandaït; il ne s'agissait que d'une autonomie
 étendue, telle que la proclamation de Frédéric-Guil- ne
 laume III, en 1815, semblait l'avoir promise. La pétition Ka
-3 principale, présentée par André de Niegolewski, ancien ÿ
-* combattant de 1831, fut défendue avec chaleur par deux 4
+3 principale, présentée par André de Niegolewski, ancien
+* combattant de 1831, fut défendue avec chaleur par deux
 Allemands, Vincke et Hansemann, et combattue par #
 Bodelschwingh. Finalement elle fut écartée comme. Le
 étant hors de la compétence de l'Assemblée. Frédéric- à
@@ -6341,19 +6341,19 @@ Bodelschwingh. Finalement elle fut écartée comme. Le
 k Kunz : Die kriegerischen Ereignisse im Grossherzogtum Posen LA
 Fischer : Der Polenaufstand von 1848. Graudenz, 1899. De
 l; Treitschke : Deutsche Geschichte. Volume IV. fr
-| Paul Matter : La Prusse et la révolution de 1848. Alcan, 1903. 4
+| Paul Matter : La Prusse et la révolution de 1848. Alcan, 1903.
 | (2) Mieroslawski est un des représentants les plus curieux de la #
 | grande époque des luttes libérales; cest le type classique du We
-\ Polonais, tel qu'on se le représentait de 1830 à 1860. Véritable che- À 4
-valier errant de la liberté, il combattit en Russie en 1831. A peine h
-sorti de prison, après avoir commandé les faucheurs posnaniens { ÿ
-en 1848, il va rejoindre les Siciliens insurgés contre le roi de D:
-| Naples. Blessé, le 6 mars 1849, et contraint de quitter l'Italie, il se 2
+\ Polonais, tel qu'on se le représentait de 1830 à 1860. Véritable che- À
+valier errant de la liberté, il combattit en Russie en 1831. A peine
+sorti de prison, après avoir commandé les faucheurs posnaniens {
+en 1848, il va rejoindre les Siciliens insurgés contre le roi de
+| Naples. Blessé, le 6 mars 1849, et contraint de quitter l'Italie, il se
 met à la tête des révolutionnaires badois. Il vécut ensuite à Paris et £
 fut en relations avec Garibaldi et Kossuth. Il participa encore à la Ra
-révolution polonaise de 1863, et mourut en 1878. 4
+révolution polonaise de 1863, et mourut en 1878.
 
-Polonais et Prussiens L
+Polonais et Prussiens
 Guillaume IV confirma cet échec, maïs en manifestant |
 « ses intentions bienveillantes envers tous ses sujets de
 ‘| nation polonaise » (rescrit du 9 mai 1847). \
@@ -6383,7 +6383,7 @@ paisiblement. Entre des peuples libres il n'y a pas de fron- ;
 tières, pas de murailles. |
 Nous embrassons fraternellement nos frères allemands et |
 
-Vive l'Allemagne libre ! 12
+Vive l'Allemagne libre !
 Vive la Pologne libre !
 Vive l'humanité libre, fraternellement unie! (1)
 Cependant la seule solution réelle, complète, selon la
@@ -6412,9 +6412,9 @@ il chercha à se défendre dans un mémoire : Akten und Bemer- à
 
 42 spécial pour le grand-duché, droit conféré à la landwebr
 
-LU de nommer ses officiers, etc. k
+LU de nommer ses officiers, etc.
 
-4 En attendant, des camps de Polonais armés se |
+En attendant, des camps de Polonais armés se |
 
 de formaient un peu partout; les plus importants à
 
@@ -6426,7 +6426,7 @@ i Mais les Allemands commençaient à manifester un
 
 j quittaient la province. Bromberg s'arma et chassa les \
 
-1 Polonais. La ville de Filehne demanda à être annexée
+Polonais. La ville de Filehne demanda à être annexée
 
 ‘at à la Prusse Occidentale. Fraustadt, Lissa, Bomst,
 
@@ -6438,7 +6438,7 @@ $ Le Birnbaum déclarèrent vouloir rester allemandes; elles |
 
 16 appel au peuple allemand; les termes en sont précis : |
 
-û F « Nous ne voulons pas être gouvernés par les Polonais, ï
+û F « Nous ne voulons pas être gouvernés par les Polonais,
 
 if dont la langue nous est étrangère. Si vous voulez laisser |
 
@@ -6450,7 +6450,7 @@ Le les cercles polonais, leur patrie. Maïs donnez à
 
 : ‘ei langue et la volonté, ce qui se déclare pour l'Alle
 
-14 Cest la question du partage de la province qui se À
+Cest la question du partage de la province qui se À
 
 l pose et qui devient rapidement le point principal du :
 
@@ -6468,33 +6468,33 @@ WA part et demanda que la partie allemande de la province ;
 
 | fat admise dans la Confédération. Elle alla même plus
 
-; loin et nomma cinq délégués au Parlement fédéral de à E
-£ Francfort. Le gouvernement se rallia à cette opinion. 4
-Remettant à plus tard.la fixation de la frontière, il ÿ
-| déclara néanmoins d'avance englober dans la partie 1
+; loin et nomma cinq délégués au Parlement fédéral de à
+£ Francfort. Le gouvernement se rallia à cette opinion.
+Remettant à plus tard.la fixation de la frontière, il
+| déclara néanmoins d'avance englober dans la partie
 
 allemande les cercles de Birnbaum, Meseritz, Bomst et À
 Fraustadt. De suite, la grosse difficulté surgit : les mino- ;
 
 rités devaient-elles être sacrifiées ? Le comité national À
-allemand, qui siégeait à Posen, exigeait que la ville de F,
+allemand, qui siégeait à Posen, exigeait que la ville de
 | Posen fût annexée à la partie allemande et suggérait oi
-que Gnesen pouvait être choisie comme chef-lieu du j4
+que Gnesen pouvait être choisie comme chef-lieu du
 
 pays polonais. Le comité national polonais protesta $
 naturellement (12 avril) contre « un nouveau partage de a
 s la Pologne ». En son nom, Krauthofer envoya une protestation au ministre (26 avril). =
 Pendant ce temps les événements se précipitaient. :
-L'antagonisme entre les deux nationalités s'aggravait 4
+L'antagonisme entre les deux nationalités s'aggravait
 
-À chaque jour; il s'étendait jusque sur le terrain religieux. 4
-Le 21 avril, l'archevêque de Posen, Przyluski, publiait 2
+À chaque jour; il s'étendait jusque sur le terrain religieux.
+Le 21 avril, l'archevêque de Posen, Przyluski, publiait
 
-un mandement, dans lequel il opposait les catholiques ‘ 4
+un mandement, dans lequel il opposait les catholiques ‘
 
-! polonais aux protestants allemands. Des conflits avaient 4
+! polonais aux protestants allemands. Des conflits avaient
 déjà eu lieu entre les troupes prussiennes et les à
-Polonais. Le général de Willisen, trouvé trop faible par B
+Polonais. Le général de Willisen, trouvé trop faible par
 
 le parti allemand, dut quitter Posen, où le général de À %
 Colomb se refusa à le laisser rentrer. La lutte armée . :
@@ -6502,24 +6502,24 @@ ne pouvait plus être évitée. Les Polonais remportèrent ; ;
 
 au début plusieurs avantages. Le 30 avril, le général Uk
 
-von Blumen est battu à Miloslaw par Mieroslawski. Le ÿ
+von Blumen est battu à Miloslaw par Mieroslawski. Le
 
-2 mai, un détachement de landwehr est surpris et 4
+2 mai, un détachement de landwehr est surpris et
 défait par les faucheurs polonais, tandis que, le même *.:58
 
 jour, Mieroslawski rejetait le général von Wedell vers :
 Gnesen. Le 4, Buk est occupé par les insurgés. Mais les .
 
-- bandes de paysans armés de faux ne pouvaient 1
+- bandes de paysans armés de faux ne pouvaient
 
-| Polonais et Prussiens 1
+| Polonais et Prussiens
 \ évidemment pas tenir longtemps contre les troupes À |
-Fr prussiennes bien organisées. K
+Fr prussiennes bien organisées.
 ; Le général von Pfnel, investi de pouvoirs dictato- À
 riaux, réprima rapidement la révolte. Le 9 mai, la |
 dernière troupe polonaise était forcée de capituler. .
-* Quelque douloureux que parût aux Polonais le par- 4
-7 tage de la province, ils espéraient du moins y gagner l
+* Quelque douloureux que parût aux Polonais le par-
+7 tage de la province, ils espéraient du moins y gagner
 une autonomie précieuse. Mais si le partage se faisait, |
 î comment se ferait-il? La question regardait pour le {
 moment le Parlement de Francfort. (1) Le 22 avril, |
@@ -6533,14 +6533,14 @@ de Krôüben, Rawitsch et Jarotschin. Le 2 mai, on y À
 mands, c'est-à-dire les cercles de Samter et de Buk, une |
 partie de ceux d'Obornik, de Krôben, de Krotoschin, et .
 la ville de Kempen. Contre ce pires véritable déchi- !
-rement du pays, les Polonais ne cessèrent de protester. (2) ï
+rement du pays, les Polonais ne cessèrent de protester. (2)
 Ce ne fut du reste qu'après de longs débats que les
 députés des cercles englobés dans la Confédération
 furent admis à siéger au Parlement. Le député polonais :
 | de Buk et de Samter fit une résistance acharnée à l'acte
 , (1) Sur la question du partage, voyez la brochure de Gersdorff, . |
 député du cercle de Deutsch-Krone : Auf welche Weise dürfte die
-2) Trois Polonais, le docteur de Kraszewski, les comtes Potwo- 1
+2) Trois Polonais, le docteur de Kraszewski, les comtes Potwo-
 rowski et Mielzynski, refusèrent Pun après Vautre le poste de \
 président supérieur du territoire réservé aux Polonais. , |
 
@@ -6563,34 +6563,34 @@ abandonnés. En réalité, la cause polonaise aurait peut-
 être perdu à leur réalisation. Une autonomie précaire
 n'aurait pas permis aux Polonais de faire plus de pro- ;
 grès que ceux qu'ils ont faits au milieu de la lutte pour |
-la vie. Quant aux cercles mixtes des frontières, E
+la vie. Quant aux cercles mixtes des frontières,
 ils auraient été beaucoup plus facilement germanisés. .
 En 1851, le gouvernement accéda de lui-même à l'idée
 | d'exclure la province de Posen de la Confédération ,
 germanique. Une « Ligue polonaise », qui s'était rapidement étendue, fut dissoute. Pour le reste, pendant la fin
-du règne de Frédéric-Guillaume IV ainsi que pendant 4
+du règne de Frédéric-Guillaume IV ainsi que pendant
 () Venedey, libéral impénitent, défendit encore la cause polo- re
 naise au congrès de la paix, en 1869. Voyez Bulletin officiel du À
-Congrès de La Paix et de la Liberté. Lausanne, 1869, page 108.
+Congrès de La Paix et de la Liberté. Lausanne, 1869, page
 (2) Voyez en particulier sur ces débats les lettres de Kerst, dé-
-puté allemand de Meseritz, publiées dans l'ouvrage de Meyer. É
+puté allemand de Meseritz, publiées dans l'ouvrage de Meyer.
 
-Ve les premières années de celui de Guillaume Premier, les j
+Ve les premières années de celui de Guillaume Premier, les
 “e choses restèrent en l'état. On ne tenta pas de mesures
 ol En 1863, alors que la Pologne russe et la Lithuanie li- à
 (1 vraient le dernier grand combat, Bismarck fit occuper la ‘4
-fl frontière, montrant une fois de plus, par tous les services 5
+fl frontière, montrant une fois de plus, par tous les services
 qu'il rendit à la Russie, combien les intérêts prussiens
 et la réaction russe étaient solidaires. Plusieurs gentils- ?
 418 hommes posnaniens avaient combattu dans les rangs ;
-nn des insurgés. Quelques-uns furent condamnés en Alle- 4
+nn des insurgés. Quelques-uns furent condamnés en Alle-
 magne pour crime de haute trahison. Après l'écra- “
 sement de l'insurrection, la noblesse de Posnanie, qui ;
 fi avait fait de grands sacrifices pour la cause nationale,
 ? se trouva en grande partie appauvrie et endettée. Aussi ‘
 ie beaucoup de terres durent être vendues et furent
 V4 acquises par des Allemands. :
-4 Entre Bismarck et les Polonais, les heurts incessants |
+Entre Bismarck et les Polonais, les heurts incessants |
 a, étaient inévitables. Comme Allemand, le ministre prus- |
 sien, sans se rendre encore bien compte de la force |
 F latente de cette population des provinces orientales,
@@ -6600,8 +6600,8 @@ tions particularistes des députés polonais, qui osaient
 4 réclamer pour leur province le droit de rester en dehors |
 ‘ de la Confédération de l'Allemagne du Nord. En outre, |
 (1 son autoritarisme était irrité de voir ces mêmes
-We députés, lors du long conflit pour les dépenses mili- 4
-taires, rester jusqu'au bout fidèles à l'opposition. Mais 4
+We députés, lors du long conflit pour les dépenses mili-
+taires, rester jusqu'au bout fidèles à l'opposition. Mais
 il y avait encore autre chose. Il n'est pas niable que |
 ‘a Bismarck éprouvait pour les Polonais une violente anti-
 ; pathie, une sorte d'agacement perpétuel, dont sa nervo- |
@@ -6615,13 +6615,13 @@ d'État de son envergure. . ‘4
 
 Le Kulturkampf fut une des grandes fautes de }.
 
-Bismarck. La lutte contre l'ultramontanisme, qui donna 4
+Bismarck. La lutte contre l'ultramontanisme, qui donna
 
 une vie nouvelle au catholicisme allemand, ne tarda mn
 
-pas à devenir dans l'Est un conflit aigu entre Allemands j:
+pas à devenir dans l'Est un conflit aigu entre Allemands
 
-. et Polonais. Il n'y a pas lieu d'insister sur l'emprison- 14
+. et Polonais. Il n'y a pas lieu d'insister sur l'emprison-
 
 ” nement et la destitution de Ledochowski, l'archevêque
 
@@ -6630,50 +6630,50 @@ dinal. C'est bien plus comme prélat ultramontain que À
 
 comme Polonais que le futur Préfet .de la Propagande à
 
-? avait agi. Mais ce qui est bien plus important, ce que le ù d
+? avait agi. Mais ce qui est bien plus important, ce que le
 
 gouvernement n'avait pas su prévoir, c'est qu'en s'atta- +
 
 quant au catholicisme, on donnait à l'opposition polo- à
 
-naise un merveilleux terrain de combat. La lutte ï
-religieuse enflamma le sentiment national non seule- j
+naise un merveilleux terrain de combat. La lutte
+religieuse enflamma le sentiment national non seule-
 
 É ment en Posnanie et dans la Prusse Occidentale,
 
 S mais en Silésie, où jusque-là il ne s'était pas montré. . à
 
-k Bismarck n'était pas sans inquiétude devant le mou- 734
+k Bismarck n'était pas sans inquiétude devant le mou-
 
-vement général qui faisait tressaillir les provinces de ï:
+vement général qui faisait tressaillir les provinces de
 
-l'Est. Le 7 février 1872, il écrit au comte d'Eulenburg F4
+l'Est. Le 7 février 1872, il écrit au comte d'Eulenburg
 
-s qu'il sent, dans ces provinces, le sol miné, prêt à 4
+s qu'il sent, dans ces provinces, le sol miné, prêt à
 
 { Mais dans cette question il avait la vue courte. pe)
 
-L * Il redoutait avant tout une alliance catholico-polo- : L.
+L * Il redoutait avant tout une alliance catholico-polo-
 
-_  naïse, dont l'Autriche serait l'instrument. Il ne voyait 4
+_  naïse, dont l'Autriche serait l'instrument. Il ne voyait
 
 des ennemis que dans la noblesse et le clergé polonais, +
 
 () En 1848 déjà, Bismarck exprima dans un article de la Magde- Pas
 
-burger Zeitung son aversion pour les Polonais et son indignation 14
+burger Zeitung son aversion pour les Polonais et son indignation
 
-contre les Allemands qui sympathisaient avec eux. Voyez Veras x
+contre les Allemands qui sympathisaient avec eux. Voyez Veras
 
-do Polonais et Prussiens 1
-Wé ne se doutant nullement du danger autrement grand L
-; que constituaient les couches populaires, cette masse de É
+do Polonais et Prussiens
+Wé ne se doutant nullement du danger autrement grand
+; que constituaient les couches populaires, cette masse de
 : paysans misérables, qui allaient s'organiser et dont |
 devait surgir une bourgeoisie consciente, prête à porter - À
-; la lutte sur le terrain économique. Î
+; la lutte sur le terrain économique.
 Néanmoins il songea à s'armer contre le mouvement
-polonais et à entreprendre la germanisation en grand 1
-au‘moyen de tout un arsenal de lois et de décrets. Cette Ë
+polonais et à entreprendre la germanisation en grand
+au‘moyen de tout un arsenal de lois et de décrets. Cette
 première période d'efforts pour dénationaliser les Polonais, période qu'on peut à juste titre appeler bismarckienne, dura jusqu'à l'avènement du comte de |
 Caprivi, c'est-à-dire bien après que le Kulturkampf était
 __ déjà devenu un souvenir historique.
@@ -6683,20 +6683,20 @@ d'abord se servir des écoles et y abolir peu à peu tout £
 . ce qui pouvait empêcher les enfants d'oublier leur |
 k langue maternelle. La loi de 1872 sur l'inspection {
 des écoles, dirigée avant tout contre le clergé, porta un !
-' premier coup aux Polonais, en donnant l'inspection des É:
-écoles primaires à des inspecteurs de cercle, nommés ù:
+' premier coup aux Polonais, en donnant l'inspection des
+écoles primaires à des inspecteurs de cercle, nommés
 par le gouvernement. Le décret du 26 octobre 1872, rem- |
 plaçant celui de 1842, prescrit de se servir de la langue )
 # allemande pour l'enseignement religieux dans les écoles ;
 secondaires. On n'ose encore s'attaquer franchement
  * à l'enseignement religieux dans les écoles primaires. )
-Maïs le rescrit du gouvernement provincial de Posnanie 1
+Maïs le rescrit du gouvernement provincial de Posnanie
 (Oberpräsidialverfügung) du 27 octobre 1873, après |
-avoir rappelé que la langue de l'enseignement doit être i
+avoir rappelé que la langue de l'enseignement doit être
 l'allemand, déclare que les élèves assez avancés des à
 classes moyennes et supérieures pourront recevoir
 l'enseignement religieux en allemand. Les enfants |
-68 1
+68
 
 de langue polonaise ont droit encore à quelques heures |
 ; de polonais, mais le gouvernement se réserve le droit de
@@ -6709,43 +6709,43 @@ crédits importants sont votés pour augmenter le
 nombre des écoles. En 1889, un décret ordonne de ne |
 plus donner l'enseignement religieux qu'en allemand.
 Enfin en 1890, l'enseignement de la littérature polonaise est supprimé au gymnase catholique de Sainte-
-Cette politique scolaire souleva de violentes protestations, tant à la Chambre des députés (1) que dans de Ê
+Cette politique scolaire souleva de violentes protestations, tant à la Chambre des députés (1) que dans de
 nombreuses réunions populaires. Le décret sur l'en- |
 seignement religieux surtout, qui du reste ne put être %
-intégralement appliqué, occasionna ‘une véritable 4
+intégralement appliqué, occasionna ‘une véritable
 tempête. Dans une réunion populaire, tenue à Posen à
 (20 février 1889), les chefs polonais se plaignirent haute- nr:
-ment et recommandèrent aux parents de faire apprendre D
+ment et recommandèrent aux parents de faire apprendre
 chez eux le polonais à leurs enfants. à
-Toutes ces mesures exaspéraient le sentiment na- 2
+Toutes ces mesures exaspéraient le sentiment na-
 tional; elles ne firent pas faire de progrès réels à la
-“cause allemande. Au contraire, elles acculèrent les 4
+“cause allemande. Au contraire, elles acculèrent les
 Polonais à une opposition de plus en plus farouche. "
 S'annexer des territoires, c'est relativement facile.
-Mais gagner des esprits, conquérir des sympathies, 6
+Mais gagner des esprits, conquérir des sympathies,
 c'est une tâche, il faut l'avouer, pour laquelle la Prusse *
 (:) Voyez la réponse du ministre von Gossler aux nombreuses
 réclamations polonaises, dans la séance du 14 mars 1883.
 
-12 Polonais et Prussiens hs Si
-‘0 ne s'est jamais montrée très habile. Impatient, autori- 4
+Polonais et Prussiens hs Si
+‘0 ne s'est jamais montrée très habile. Impatient, autori-
 “al ï taire, son gouvernement prétend parfois solliciter des ;
-1 f affections sur un ton cassant, brusquer des amitiés de î
+1 f affections sur un ton cassant, brusquer des amitiés de
 158 commande, décréter la fidélité. C'est, il est vrai, l'ordi- |
 ‘4 naire psychologie rudimentaire des conquérants. Pour11 tant peu de nations ont montré en pareille matière une
 us naïveté aussi grande, on pourrait dire aussi grossière,
 5 que la Prusse. Car le gouvernement prussien ne se ,
-hs ! contentait pas d'une obéissance passive comme Napo- 4
+hs ! contentait pas d'une obéissance passive comme Napo-
 { léon premier, d'une soumission purement formelle à la
 Na russe; il rêvait, il rêve parfois encore d'une annexion
 $ hi) morale. Et lorsque ses lourdes avancés sont repoussées,  #
 } ! il manifeste sa colère par des mesures coercitives, qui |
-ne font naturellement qu'exaspérer les passions et h
+ne font naturellement qu'exaspérer les passions et
 {a rendent lassimilation désirée beaucoup plus impro-
 à bable encore. |
-1 Nous verrons Guillaume II s'adonner souvent à cette
-‘à politique du dépit, résultat d'une nervosité maladive et l
-ke d'une grande ignorance psychologique. Maïs Bismarck ô
+Nous verrons Guillaume II s'adonner souvent à cette
+‘à politique du dépit, résultat d'une nervosité maladive et
+ke d'une grande ignorance psychologique. Maïs Bismarck
 fi lui-même y était sujet. C'est à un pareil accès que l'on
 # doit-la loi dite « de colonisation » du 26 avril 1886, qui
 de mettait à la disposition du gouvernement un fonds de
@@ -6753,51 +6753,51 @@ de mettait à la disposition du gouvernement un fonds de
 À les provinces polonaises et y établir des Allemands.
 É ù C'était un acte singulièrement grave, moins encore par
 # ses conséquences directes, dont nous aurons à nous
-#0 occuper plus loin, que parce qu'en sanctionnant une 4
+#0 occuper plus loin, que parce qu'en sanctionnant une
 pareille loi d'exception, le landtag prussien s'engageait
 | dans la voie dangereuse de l'injustice légale. Quoi qu'en
 
 disent les Allemands, il y a contradiction entre cette …
-4 loi et la constitution prussienne, qui proclame l'égalité F
+4 loi et la constitution prussienne, qui proclame l'égalité
 ; des citoyens. En fait, depuis 1886, il y a légalement ‘à
 
 { deux sortes de citoyens : ceux qui sont aptes à devenir
-4 colons de l'Etat, et ce sont les Allemands seuls, et les 4
+4 colons de l'Etat, et ce sont les Allemands seuls, et les
 
 autres, et ce sont les Polonais. Voie dangereuse, nous
 
-pe le répétons; et il faut ajouter voie de déchéance, che- k
+pe le répétons; et il faut ajouter voie de déchéance, che-
 À min de honte et route de mensonge, quand on en est
 réduit à ruser avec les textes simples et clairs. Une à
 ; Chambre qui se laisse enliser dans les distinctions sub- à
 tiles, pour échapper volontairement à la clarté des
 garanties constitutionnelles, ne sait pas ce qu'est la ”
-| légalité, encore bien moins ce qu'est la liberté. « | La chute de Bismarck amena un changement complet 3
-| dans la politique du gouvernement vis-à-vis des Polo- 4
+| légalité, encore bien moins ce qu'est la liberté. « | La chute de Bismarck amena un changement complet
+| dans la politique du gouvernement vis-à-vis des Polo-
 #4 nais. Une ère d'apaisement succéda aux procédés brutaux des vingt années précédentes. Le comte de Caprivi, :
 | caractère honnête et droit, absolument étranger aux
 8 brusqueries et aux colères orageuses de son prédé- À
 1 cesseur, avait des tendances libérales. Ses véritables Je
-- ennemis, ce furent les agrariens, l'ancienne garde bis- 4
+- ennemis, ce furent les agrariens, l'ancienne garde bis-
 marckienne, les hobereaux conservateurs; qui ne lui #
-È pardonnèrent jamais, même après sa mort, sa politique L
-Î de réciprocité commerciale. Par contre, une partie de 5
-: la noblesse polonaise, dont plusieurs députés, se montra ï
-! prête à un rapprochement. Ce n'était en aucune façon ÿ
+È pardonnèrent jamais, même après sa mort, sa politique
+Î de réciprocité commerciale. Par contre, une partie de
+: la noblesse polonaise, dont plusieurs députés, se montra
+! prête à un rapprochement. Ce n'était en aucune façon
 : une trahison, comme leurs adversaires l'ont parfois ‘4
-k dit; c'était tout simplement une de ces fausses habi- 4
+k dit; c'était tout simplement une de ces fausses habi-
 : letés de parlementaires, qui n'envisagent que le plus #
 je petit côté, que le moment purement actuel d'une ques- à
 ps tion. Ce fut un de ces marchés qui sont monnaie cou- à
 | rante dans la vie politique moderne : marché où, des lé
 deux côtés, on était dupé, car il ne correspondait nulle-
-| ment aux réalités. Ce nouveau parti polonais, appelé Ê
+| ment aux réalités. Ce nouveau parti polonais, appelé
 f parti de la cour (Hofpartei), parla de loyalisme mo- "
 
-ne Polonais et Prussiens 4
-narchique, tandis que le gouvernement consentait à 1
-4 revenir sur quelques-uns de ses décrets les plus draco- F
-À niens. C'est cette situation qui caractérise l'ère Caprivi. Û
+ne Polonais et Prussiens
+narchique, tandis que le gouvernement consentait à
+4 revenir sur quelques-uns de ses décrets les plus draco-
+À niens. C'est cette situation qui caractérise l'ère Caprivi.
 | La personnalité de Guillaume II joua naturellement |
 un rôle prépondérant dans cette nouvelle politique. Ce '
 loyalisme, qui s'adressait plus à sa personne qu'à la \
@@ -6809,7 +6809,7 @@ la caractérise, faisait assez bonne impression sur |
 l'empereur, ami du clinquant et du pittoresque. Le : À
 | comte de Koscielski, membre de la Chambre des Sei- |
 gneurs et chef du « parti de la cour » au Reïchstag,
-' devint un de ses familiers. ï
+' devint un de ses familiers.
 | Les Polonais firent le premier pas, en votant les
 é crédits pour l'armée et la marine. Déjà en juin 1890, le |
 député Komierowski, en déclarant au Reïchstag que
@@ -6850,7 +6850,7 @@ Le plus grand avantage que la politique d'entente ,
 k valut aux Polonais fut la nomination d'un des leurs,
 i Stablewski, aù siège archiépiscopal de Posen (1891). ;
 Pour qui connaît l'influence immense qu'exerce l'archevêque de Posen-Gnesen et le prestige dont il jouit, la
-(@) Après la chute de Caprivi, toutes ces concessions furent retirees. 4
+(@) Après la chute de Caprivi, toutes ces concessions furent retirees.
 
 fi _ nomination d'un Polonais était un réel succès. Les
 18 archevêques de Gnesen étaient autrefois non seulement
@@ -6868,7 +6868,7 @@ d donner à monseigneur Dinder, qui était Allemand,un
 A de Gnesen, avait été repoussée par le gouvernement.
 di Grâce à l' « esprit nouveau » qui régnait, le cardinal À
 mie Rampolla et M. de Schloezer, ministre prussien près le De
-1 Vatican, finirent par s'entendre. On nomma un Polonais
+Vatican, finirent par s'entendre. On nomma un Polonais
 | à Posen et un Allemand à Strasbourg, où le siège épi- |
 ! scopal se trouvait aussi vacant. |
 À Les Polonais furent très heureux de cette nomination, ;
@@ -6876,9 +6876,9 @@ d'autant plus que leur nouvel archevêque avait, comme
 , député, toujours vaillamment défendu leur cause au {
 | Reichstag. Aussi le passage de l'Empereur à Posen, en À
 juin 1893, fut-il un véritable triomphe. Lorsque Guil:
-L'0 laume parut au balcon de l'hôtel du gouverneur militaire i
+L'0 laume parut au balcon de l'hôtel du gouverneur militaire
 à côté de l'archevêque, lorsqu'on les vit tous les deux ;
-| s'entretenir familièrement en fumant, ce fut de la part l
+| s'entretenir familièrement en fumant, ce fut de la part
 À de la population un délire d'enthousiasme. (2) |
 ‘ (1) L'archevêque de Posen, qui est un grand seigneur, doit pouL voir représenter. Les journaux polonais firent une campagne à
 contre un des candidats éventuels au siège de Posen, M. Miecz- }
@@ -6893,7 +6893,7 @@ j d'autres encore, On remarqua que l'Empereur s'entrete- £
 Mais tout cela, c'était de la façade. La nomination ;
 pl d'un archevêque, trois ou quatre décrets, des dîners, NUS
 des protestations de loyalisme de la part de quelques ‘M
-comtes, tout cela ne pouvait illusionner que les naïfs. Ÿ
+comtes, tout cela ne pouvait illusionner que les naïfs.
 | Le gouffre qui sépare Polonais et Allemands restait :
 béant, et les petits ponts que des parlementaires cher- |
 3 chaïient à jeter sur l'abime n'étaient que de pauvres ‘4
@@ -6902,51 +6902,51 @@ _ … ouvrages provisoires. Quand une question de liberté ;
 | pliquer, l'arranger et la présenter par petits morceaux À
 ; bien ajustés, elle surgit toujours de nouveau dans sa ;
 Ë lucide et belle simplicité : liberté d'un côté, asservissed ment de l'autre. :
-4 Le Centre, qui était opposé aux crédits militaires, 4
-n'avait aucun intérêt à voir les Polonais, ses anciens . 18
+Le Centre, qui était opposé aux crédits militaires,
+n'avait aucun intérêt à voir les Polonais, ses anciens
 clients, en coquetterie avec le gouvernement. Le grand à
 k succès des Polonais aux élections de 1893, où ils firent Fa
-L passer leurs candidats dans dix-neuf circonscriptions É
-: et arrachèrent au Centre la Warmie, effaroucha le F.
+L passer leurs candidats dans dix-neuf circonscriptions
+: et arrachèrent au Centre la Warmie, effaroucha le
 l parti catholique, qui ne cessa de conseiller aux
 3 députés polonais de ne pas voter les nouveaux crédits hi
-À Du reste, dans les couches populaires polonaises, un j:
-à () Voyez entre autres la Germania du 27 juin 1893. 1
+À Du reste, dans les couches populaires polonaises, un
+à () Voyez entre autres la Germania du 27 juin 1893.
 
-tout au moins de compromission fächeuse. Le Goniec 4
-d Wielkopolski demandait que les députés n'accordassent 1
+tout au moins de compromission fächeuse. Le Goniec
+d Wielkopolski demandait que les députés n'accordassent
 é les crédits que contre la liberté d'enseigner en polonais.
-Dans une réunion des Polonais de Berlin, on blâma 4
-sévèrement l'attitude de Koscielski. (1) On l'appela L
-« amiral du lac de Goplo »; ses adversaires lui avaient J ÿ
-Ÿ _ déjà donné le sobriquet d'Admiralski. Ses succès à la 1
-Cour étaient ioin de le rendre populaire. (2) D'autant F
+Dans une réunion des Polonais de Berlin, on blâma
+sévèrement l'attitude de Koscielski. (1) On l'appela
+« amiral du lac de Goplo »; ses adversaires lui avaient
+Ÿ _ déjà donné le sobriquet d'Admiralski. Ses succès à la
+Cour étaient ioin de le rendre populaire. (2) D'autant
 plus que les résultats espérés étaient très probléma- |
-tiques. Il est vraisemblable que les ministres prussiens F.
+tiques. Il est vraisemblable que les ministres prussiens
 n'étaient pas tous d'accord avec la politique de .
 " Caprivi. (3) Dans une réunion de la fraction polonaise ‘0
-au Reiïchstag, Koscielski subit un grave échec; la majo- 4
+au Reiïchstag, Koscielski subit un grave échec; la majo-
 rité décida de s'abstenir dans la question des crédits À
-| militaires. (4) Koscielski donna alors sa démission et L
-| en appela à ses électeurs; (5) là encore il fut battu. 1
+| militaires. (4) Koscielski donna alors sa démission et
+| en appela à ses électeurs; (5) là encore il fut battu.
 Les Allemands de leur côté voyaient d'un mauvais À
-(1) Voyez Germania du 13 juin 1893. D
+(1) Voyez Germania du 13 juin 1893.
 (2) En somme, son point de vue, qui montrait peu de perspi- À
 1 cacité, pouvait cependant se défendre. Il y avait eu partie liée #4
-entre Caprivi et le parti de la cour. Il semble que Caprivi ait fait 4
-des promesses écrites. Ce fait ne fut révélé que le 8 janvier 1898, 1
+entre Caprivi et le parti de la cour. Il semble que Caprivi ait fait
+des promesses écrites. Ce fait ne fut révélé que le 8 janvier 1898,
 dans une réunion électorale à Schroda, par le député Kubicki, qui ‘4
-voulait justifier ses votes. 4
+voulait justifier ses votes.
 La politique de laccord fut jugée sévèrement en Posnanie. A
 Kubicki fut vertement blâmé par les Dziennik Poznanski, organe
-du parti national. 1
+du parti national.
 (3) Ce point intéressant est encore mal élucidé. Il faudra encore (
 bien des années avant que l'on rende justice au comte de Caprivi }
 et qu'on connaisse toutes les difficultés avec lesquelles il eut à |
 Voyez Massow : Polennot, pages 75 et suivantes. À
-(4) D'après une coutume établie, la fraction polonaise vote tou- 4
-jours-en bloc. La majorité décide de son attitude. k ù
-65) Il représentait la circonscription Inowrazlaw-Mogilno-Strelno. 004
+(4) D'après une coutume établie, la fraction polonaise vote tou-
+jours-en bloc. La majorité décide de son attitude.
+65) Il représentait la circonscription Inowrazlaw-Mogilno-Strelno.
 
 œil les avances faites aux Polonais. Les élections les |
 avaient déjà aigris; les manifestations qui se produisirent lors de la tournée triomphale de l'archevêque
@@ -6991,77 +6991,77 @@ Le , cour, fit une déclaration patriotique, dans laquelle
 nent il affirmait partager l'espoir de tous les Polonais. ()
 V4 Cette fois il brisait nettement avec la cour. Stablewski
 N les choses. Ce fut la ruine définitive du parti de la
-j conciliation. Du reste, la chute de Caprivi changea 4
-118 complètement la politique du gouvernement envers les 1
+j conciliation. Du reste, la chute de Caprivi changea
+118 complètement la politique du gouvernement envers les
 AU Les débris du parti de la cour cherchèrent un refuge .
-ni dans le « parti national », parti d'opposition franche, F
-ÿ mais de tendances plus conservatrices que le « parti 4
+ni dans le « parti national », parti d'opposition franche,
+ÿ mais de tendances plus conservatrices que le « parti
 (Li populaire ». Koscielski devint un des chefs de ce
-SA Le 22 septembre 1894, l'empereur avait prononcé son j
+SA Le 22 septembre 1894, l'empereur avait prononcé son
 ni Quos ego : « J'ai appris, disait-il, que malheureu-
-‘ { sement nos concitoyens polonais ne se comportent pas M
-4 comme on doit l'attendre et le désirer. Qu'ils le sachent h. s
+‘ { sement nos concitoyens polonais ne se comportent pas
+4 comme on doit l'attendre et le désirer. Qu'ils le sachent
 he bien : ils ne pourront compter sur ma faveur et ma ‘4
 A sympathie royale au même degré que les Allemands,
 } qu'autant qu'ils se sentiront absolument sujets: alle
-\ - Les couleurs de la Posnanie, qui avaient été jus- 4
+\ - Les couleurs de la Posnanie, qui avaient été jus-
 ù (:) Il est probable que Koscielski a réellement prononcé les À
-f: paroles que lui attribuaient les journaux. Il envoya des rectifica M
+f: paroles que lui attribuaient les journaux. Il envoya des rectifica
 49 tions aux journaux allemands, mais non aux journaux galiciens.
 11 semble qu'il ait été la victime de sa propre politique un peu À
 de tortueuse. ; à
-Depuis lors, il s'est montré défenseur courageux de la cause 4
+Depuis lors, il s'est montré défenseur courageux de la cause
 
 \ polonaise, Cest lui qui a été, en 1905, l'habile organisateur de là
 l h (2) En 1896, il entra dans le conseil d'administration des Dsiennikt Le:
 
-} Pozsnanski, organe principal du parti national. 4
+} Pozsnanski, organe principal du parti national.
 
 | qu'alors celles de la Pologne, rouge et blanc, furent #
 7e changées en noir et blanc, couleurs de la Prusse. +
 x: Delbrück fut à peu près le seul à défendre la politique
-_ de conciliation. Dans une série d'articles des Preus- 4
+_ de conciliation. Dans une série d'articles des Preus-
 à sische Jahrbücher, puis dans une brochure qui les - à
 4 reproduisait en partie, (1) il critiqua la persécution de à |
-% la langue polonaise et l'œuvre de colonisation entreprise :40
-_ aux frais des contribuables. Ce champion attardé du 18
+% la langue polonaise et l'œuvre de colonisation entreprise
+_ aux frais des contribuables. Ce champion attardé du
 libéralisme fit peu d'adeptes et s'attira des haïnes "4
-4 40
-# (1) Delbrück : Die Polenfrage. Berlin, 1894. 14
-(2) Voyez en particulier les attaqués dirigées contre lui dans le 008
-_  Deutsches Wochenblatt du % avril et du 5 juillet 1394. Voyez aussi 71
-74 article de Tiedemann dans l''Ostmark, I, 1. :558
+4
+# (1) Delbrück : Die Polenfrage. Berlin, 1894.
+(2) Voyez en particulier les attaqués dirigées contre lui dans le
+_  Deutsches Wochenblatt du % avril et du 5 juillet 1394. Voyez aussi
+74 article de Tiedemann dans l''Ostmark,
 Un procès entre l''Ostmarkenverein et Delbrück ne fut évité que DA:
 L grâce à un accord (octobre 1904). 22008
 
 Dès lors commence Ja lutte ardente, où tous les il
 efforts tendent d'un côté à tuer une nationalité, de À
-| l'autre à ne pas mourir. Ces choses-là ne se disent | 4
-*i pas dans les discours et les textes officiels, mais de 4
+| l'autre à ne pas mourir. Ces choses-là ne se disent
+*i pas dans les discours et les textes officiels, mais de
 k part et d'autre on est conscient du but. Le combat
 s'exaspère; la haine devient profonde et s'enracine. Le  « k gouvernement prussien prépare des lois d'exception, À
 d promulgue des décrets, pousse en avant une armée de
 : colons envahisseurs, fait fustiger des enfants par ses À
-{ maîtres d'école et condamner des femmes par ses tribuCHERE . sat k
-| naux. Il n'est pas seul; l'initiative privée s'en mêle; M
+{ maîtres d'école et condamner des femmes par ses tribuCHERE . sat
+| naux. Il n'est pas seul; l'initiative privée s'en mêle;
 ji elle organise des sociétés de combat, entraîne jusqu'aux À
 Allemands du Sud dans l'arène, répand des pamphlets,
-14 entonne des chants de guerre, réclame de nouvelles M
+14 entonne des chants de guerre, réclame de nouvelles
 à restrictions à la liberté. Les ministres qui se succèdent
 ÿ' se lèguent l'un à l'autre la tâche de trouver des armes
 ol nouvelles contre le polonisme, qui, pour résister, a
 | appris à se servir des lois prussiennes. "1
-1 De temps à autre, l'empereur daigne inaugurer quelque
+De temps à autre, l'empereur daigne inaugurer quelque
 ti monument et donner, en paroles sonores, son auguste
 (Ai) encouragement aux champions du germanisme. Mais
 | dans le camp opposé, on resserre les rangs. On a appris
 des formes nouvelles de combat; on ne craint aucun
 sacrifice. On sait que la meilleure défensive, c'est lof
 
-| fensive, et l'idée de la Grande Pologne va réveiller les j
+| fensive, et l'idée de la Grande Pologne va réveiller les
 énergies endormies, jusque vers les bords du Rhin,
 jusque dans la capitale même de l'empire. On dirait le |
-combat du pesant mirmillon et du rétiaire alerte. Il a 4
+combat du pesant mirmillon et du rétiaire alerte. Il a
 ù presque un intérêt sportif pour ceux que les causes de
 liberté ne suffisent pas à intéresser. Pourtant cette lutte
 extraordinaire n'est presque pas connue en France.
@@ -7074,7 +7074,7 @@ A en croire leurs représentants officiels, ils se contenteraient de voir respec
 Ils demandent avant tout que, dans les provinces polonaises, leur langue soit mise à peu près sur le même
 | pied que l'allemand, qu'elle puisse être enseignée dans ;
 les écoles et employée devant les tribunaux. Il faudrait |
-naturellement commencer par abolir toutes les mesures F
+naturellement commencer par abolir toutes les mesures
 d'exception, faites pour les germaniser. En somme, le
 minimum -des exigences polonaises serait une sorte
 d'autonomie restreinte, qui consisterait surtout dans le
@@ -7089,87 +7089,87 @@ Gazeta Grudzionska, un des principaux organes du parti populaire. On en trouvera
 
 : HS * Polonais et Prussiens 117 TS
 4 _ Hardenberg avait répondu que la Prusse était prête
-‘ à donner à la Posnanie une administration en harn monie avec l'esprit de la population. Il ajoutait que son Li 5
+‘ à donner à la Posnanie une administration en harn monie avec l'esprit de la population. Il ajoutait que son Li
 16 gouvernement ne demandait qu'à prouver que l'existence
 Al nationale d'un peuple pouvait être respectée sous tout
-49 _ C'est à peu près dans cet esprit que fut conclu 13
+49 _ C'est à peu près dans cet esprit que fut conclu
 N A cela les Allemands répondent que le Traité de |
-A2 Vienne ne lie que les parties contractantes entre elles et 1
-W non envers les Polonais, qui n'avaient pas de représen- 4
+A2 Vienne ne lie que les parties contractantes entre elles et
+W non envers les Polonais, qui n'avaient pas de représen-
 NE tants officiels au Congrès. (2) Et ils s'appuient sur
 4 lexemple de la Russie. à
 ch Les Polonais se réclament aussi de Frédéric-Guil:
 4 laume III. L'institution du « grand-duché de Posnanie », un.
-2 disent-ils, prouve à elle seule déjà que le roi entendait D
+2 disent-ils, prouve à elle seule déjà que le roi entendait
 Fi donner à la province un régime spécial, ce qui est
 A encore confirmé par la nomination d'un gouverneur ‘4
-4 particulier, Du reste, le roi a fait aux Polonais une M
-\ ? "promesse formelle par sa proclamation du 15 mai 1815 H
+4 particulier, Du reste, le roi a fait aux Polonais une
+\ ? "promesse formelle par sa proclamation du 15 mai 1815
 1 à la population de l'ancien grand-duché de Varsovie, qui
 % ë contenait ces mots : « Vous aussi, vous avez une patrie,
-À ù et par là une preuve de mon estime pour votre attache- 4
+À ù et par là une preuve de mon estime pour votre attache-
 ne ment à cette patrie, Vous êtes incorporés à ma mOnar4 j chie, sans avoir besoin de renier votre nationalité. » (3) ‘
 ï (1) Au sujet des garanties dont se réclament les Polonais, voyez ne
 Lo le point de vue allemand dans Noak : Die staatsrechtliche Stellung
-Ni L der Polen in Preussen. Berlin, 186r. Et Petzet : Die preussischen nn M
+Ni L der Polen in Preussen. Berlin, 186r. Et Petzet : Die preussischen nn
 > Ostmarken, pages 16 et suivantes. ‘4
-is (G) Cest sur cette proclamation qu'au Landtag uni de 184,
+is (G) Cest sur cette proclamation qu'au Landtag uni de
 N Niegolewski basa ses réclamations en faveur des Polonais. RAR
 1, Voyez Matter : La Prusse et la Révolution de 1848, pages 93-34: ME
 
-\ Ce dernier texte embarrasse bien un peu les Alle- ÿ 1
+\ Ce dernier texte embarrasse bien un peu les Alle-
 : mands. Quelques-uns, jonglant avec les mots, cherchent qe.
-| à en falsifier le sens. Ils prétendent que cette patrie, K:
-| dont parle le roi, n'est autre que la nouvelle patrie K
+| à en falsifier le sens. Ils prétendent que cette patrie,
+| dont parle le roi, n'est autre que la nouvelle patrie
 hf prussienne, dont les Polonais seront désormais les }
 ï enfants. (1) D'autres ont plus de pudeur et sont plus À
-4 francs. Ils ont recours au droit de souveraineté de la - F4
+4 francs. Ils ont recours au droit de souveraineté de la
 L- Prusse, qui ne peut tolérer des lois spéciales pour une “à
 F partie de la monarchie, (2) ou bien déclarent que les EF
 ._ droits des Polonais ont été annulés par leur soulèvement %
-Comme les Tchèques, comme les Finlandais, comme 4
+Comme les Tchèques, comme les Finlandais, comme
 L* presque tous les peuples annexés contre leur volonté,  …
-? les Polonais se réclament de stipulations de traités; ils 3
+? les Polonais se réclament de stipulations de traités; ils
 | se cramponnent au droit écrit et vont rechercher de à
-Ë , vieilles chartes historiques. Cela est légitime et cela est 4
-naturel. Maïs les arguments juridiques sont une arme 4
-Ÿ  fourbue, sans grande valeur. D'abord, parce que les 14
+Ë , vieilles chartes historiques. Cela est légitime et cela est
+naturel. Maïs les arguments juridiques sont une arme
+Ÿ  fourbue, sans grande valeur. D'abord, parce que les
 pe traités sont souvent contraires à la justice et qu'il est à
 k- dangereux d'en appeler à des conventions. Puis, parce “4
 4 qu'il est toujours possible au plus fort de violer les #
-L traités et d'oublier les promesses les plus formelles, et 4
-‘RE qu'il est singulièrement naïf de croire le contraire. En ÿ 54
-d outre, c'est déplacer la question en même temps que la $ H
+L traités et d'oublier les promesses les plus formelles, et
+‘RE qu'il est singulièrement naïf de croire le contraire. En
+d outre, c'est déplacer la question en même temps que la $
 (1) Cette étrange interprétation, contredite par le contexte, se a! +
-| trouve dans Massow : Polennot, page 127. Conférez Petzet : Ou- 14
+| trouve dans Massow : Polennot, page 127. Conférez Petzet : Ou-
 À (2) Réponse du comte Schwerin à la motion de Niegolewski, à De:
-| la Chambre des députés, 21 avril 1861. M:
-A noter que les lois spéciales existent bel et bien, seulement 5
+| la Chambre des députés, 21 avril 1861.
+A noter que les lois spéciales existent bel et bien, seulement
 elles sont contre les Polonais. Er
 (3) Discours de Bismarck à la Chambre des députés, 28 jan- "20
-5 48
+5
 
 . ; NA Polonais et Prussiens ETS
 :4à rapetisser; c'est l'enfermer dans le cadre étriqué d'une su fl
 ve discussion parlementaire, au lieu de lui laisser sa valeur
 À Ce n'est pas parce que Frédéric-Guillaume III a pris “A
-$ un engagement ou parce que des diplomates ont ajouté D:
+$ un engagement ou parce que des diplomates ont ajouté
 so un article à tant d'articles de tant d'autres traités, à
 | ce n'est pas pour cela que les Polonais ont raison %
-de protester et que les Prussiens perpétuent une 4
+de protester et que les Prussiens perpétuent une
 Le seul argument qui porte, parce qu'il est le seul $
 . vrai, est d'ordre moral : Tout peuple, toute nationalité #
-a droit à la liberté, c'est-à-dire à la complète expansion 4
-vie. Violer ce principe, c'est violer la morale. j
-Si nous admettons ce principe, il est évident que le 4
+a droit à la liberté, c'est-à-dire à la complète expansion
+vie. Violer ce principe, c'est violer la morale.
+Si nous admettons ce principe, il est évident que le
 programme politique des Polonais, tel que leurs députés À
 le défendent, ne peut être qu'un programme provisoire. À
-1 La Pologne étant restée une nation, il est impossible !
-qu'elle ne tende pas à redevenir un État. Le but final : L.
+La Pologne étant restée une nation, il est impossible !
+qu'elle ne tende pas à redevenir un État. Le but final
 f des efforts polonais ne peut être que la délivrance ‘4
-ù complète, la réunion des trois portions de l'ancienne 54
+ù complète, la réunion des trois portions de l'ancienne
 | Pologne en un État indépendant et souverain. Et tel est ne
-en effet le but désiré de presque tous les Polonais. 14
+en effet le but désiré de presque tous les Polonais.
 Les journaux galiciens ne s'en cachent pas. En Prusse,
 \ où l'on est moins libre, on n'ose trop le proclamer, par ‘1
 prudence politique et par crainte de procès de haute ‘À
@@ -7207,73 +7207,73 @@ c4 nous ne voulons que défendre notre langue maternelle, se
 (5) Allusion au céièbre poème de Mickiewicz.
 
 ES Polonais ‘et Prussiens'* "SON
-HA Sur nos drapeaux, nous avons tous écrit le même mot F3
+HA Sur nos drapeaux, nous avons tous écrit le même mot
 ñ: sl d'ordre : Une Pologne libre et indépendante. (1) PEN EU
-Al N'est-ce pas un mensonge, lorsque nos grands politiciens, . D.
-nn dans des réunions, font des discours pleins de déclarations 4
-ie D'autres feuilles tiennent le même langage : 4
-4 Le loyalisme est une trahison directe envers la cause
+Al N'est-ce pas un mensonge, lorsque nos grands politiciens,
+nn dans des réunions, font des discours pleins de déclarations
+ie D'autres feuilles tiennent le même langage
+Le loyalisme est une trahison directe envers la cause
 nationale. Il doit être absolument condamné et détruit. (3)
 \ Il nous est impossible d'avoir envers la Prusse des sentife ments de loyalisme et de fidélité. (4) À
 k Les Polonais prussiens regardent au delà de leurs À
-_ frontières. Les relations avec la Pologne russe sont difü- 4
-1 ciles. Mais chaque fois que l'occasion s'en présente, 3
-je Posnaniens et Silésiens vont manifester à Léopol ou à k
-* Cracovie, montrant par là que si l'unité territoriale de 4
+_ frontières. Les relations avec la Pologne russe sont difü-
+1 ciles. Mais chaque fois que l'occasion s'en présente,
+je Posnaniens et Silésiens vont manifester à Léopol ou à
+* Cracovie, montrant par là que si l'unité territoriale de
 M la Pologne est détruite, son unité morale subsiste. (5)
-Ni En juin 1903, un grand congrès national, auquel assis- 1
-À taient des délégués des provinces russes et prussiennes, 4
+Ni En juin 1903, un grand congrès national, auquel assis-
+À taient des délégués des provinces russes et prussiennes,
 “a se tint à Léopol. On y vota la résolution suivante : < pe
 “h Le Congrès national polonais, confiant dans l'unité indesdi tructible de la nation polonaise, exprime aux Polonais de
-1 Prusse et de Russie son respect et sa reconnaissance pour 7. à
-A leur fidélité inébranlable à l'idée nationale, au milieu dela M
+Prusse et de Russie son respect et sa reconnaissance pour 7. à
+A leur fidélité inébranlable à l'idée nationale, au milieu dela
 11 lourde oppression et des souffrances qu'ils doivent endurer. er.
 “4 Les représentants du Congrès se déclarent prêts à sou- NE
 Re tenir en toute circonstance leurs co-nationaux des deux ‘4
 ‘ie (4) Praca, premier avril 1900. LA
 fl () La fraction polonaise du Landtag prussien envoya une
 14 adresse à Sinkiewicz, à l'occasion de son jubilé. Voyez le texte dans : La
-4 le Xuryer Poznanski du 25 janvier 1901, et la réponse du roman- 4
-nn cier, dans le même journal, 23 février 1901. HR 0
+4 le Xuryer Poznanski du 25 janvier 1901, et la réponse du roman-
+nn cier, dans le même journal, 23 février 1901. HR
 
 4 pays voisins et les assurent, qu'en travaillant en Galicie à “s
 H. : la régénétation nationale, ils auront toujours en vue l'en- :#
 semble de la nation polonaise! (1) *
-00 Lors des affaires de Wreschen, la Galicie et la Po- | À
-logne russe furent secouées d'une indignation au moins J
+Lors des affaires de Wreschen, la Galicie et la Po- | À
+logne russe furent secouées d'une indignation au moins
 | aussi grande que celle qui fut ressentie en Posnanie.
-14 Le rétablissement de l'ancienne Pologne est donc le :
-but final auquel tendent lés efforts des Polonais. Mais D
+Le rétablissement de l'ancienne Pologne est donc le :
+but final auquel tendent lés efforts des Polonais. Mais
 È ce but est lointain. Les Polonais prussiens, disciplinés &
 L par l'expérience, savent bien que seul un bouleverse- à
-ment de l'Europe peut réaliser leur espoir. En atten- W
+ment de l'Europe peut réaliser leur espoir. En atten-
 dant que la situation politique internationale offre -
 À l'occasion désirée, il s'agit de vivre. De là, le pro- ju
 Ô gramme plus restreint, avant tout pratique, qui ne #
 | vise que le maintien et le développement de la nationa- 1%
 lité polonaise, Les points principaux peuvent se résu- à
-| mer ainsi : résister énergiquement à la germanisation, D
-| conserver jalousement la langue nationale, s'affranchir D:
-de plus en plus de la tutelle économique des Allemands, 7
-; gagner à la grande cause le plus d'éléments possible, D:
+| mer ainsi : résister énergiquement à la germanisation,
+| conserver jalousement la langue nationale, s'affranchir
+de plus en plus de la tutelle économique des Allemands,
+; gagner à la grande cause le plus d'éléments possible,
 4 de manière à former un bloc territorial qui s'étende BE
 
 | jusqu'à la mer. Ainsi, si le jour de la délivrance vient, :
 Li: il trouvera un peuple uni, fort, bien préparé à profiter HA
-de toutes les circonstances dans l'intérêt de la nation. 4
+de toutes les circonstances dans l'intérêt de la nation.
 ‘ Voyons maintenant comment les Allemands envi- Di:
 | sagent la question. Mais avant de rechercher par à
 quelles raisons ils défendent leur politique, il est né-
-cessaire de faire remarquer la grande différence de É.
+cessaire de faire remarquer la grande différence de
 caractère entre Polonais et Allemands. Même en poli- %
 tique les incompatibilités d'humeur ont quelque impor- à
 
 () Voyez Temps du 3 juin 1903. ip":
 
-\i4 Polonais et Prussiens 1
-va tance. Or, Polonais et Allemands ne se sont jamais Î
+\i4 Polonais et Prussiens
+va tance. Or, Polonais et Allemands ne se sont jamais
 L bien compris. Il leur est très difficile de se rendre
-; justice les uns aux autres, parce qu'ils diffèrent par 4
+; justice les uns aux autres, parce qu'ils diffèrent par
 trop de côtés essentiels. (1)
 Les partis politiques allemands sont loin d'être tous
 absolument d'accord sur l'attitude à prendre vis-à-vis
@@ -7282,29 +7282,29 @@ de la question slave. Mais l'opinion générale, celle des
 qui est officielle, est absolument hostile aux Polonais.
 Depuis la disparition de la génération idéaliste de 1848, À
 on ne trouverait plus guère d'Allemands disposés à
-accorder aux Polonais une autonomie même restreinte. 1
+accorder aux Polonais une autonomie même restreinte.
 Plusieurs parmi ceux qui recommandent les mesures de
-germanisation les plus graves déclarent n'en vouloir 4
+germanisation les plus graves déclarent n'en vouloir
 nullement à la nationalité polonaise. Le but du combat |
 engagé, dit l'un d'eux, est la paix (sic). Seulement une
-paix durable ne peut être conclue que si les Polonais l
-abandonnent tout espoir d'indépendance. (2) En somme, 4
-cela consiste à dire, avec un manque de logique éton- F
+paix durable ne peut être conclue que si les Polonais
+abandonnent tout espoir d'indépendance. (2) En somme,
+cela consiste à dire, avec un manque de logique éton-
 nant : Conservez votre nationalité, à condition que |
 vous ne la manifestiez pas. ok
 Il est parfois difficile pour un Français de comprendre À
-l'état d'âme de beaucoup d'Allemands, dont la naïveté 4
+l'état d'âme de beaucoup d'Allemands, dont la naïveté
 simpliste est absolument déconcertante. Un auteur, qui À
-a écrit un livre intéressant sur la question polonaise, 4
-i qui fait des efforts réels pour atteindre à une certaine 4
+a écrit un livre intéressant sur la question polonaise,
+i qui fait des efforts réels pour atteindre à une certaine
 impartialité, s'écrie pieusement en parlant de la lutte *]
 contre les Polonais : « Puisse Dieu, qui n'abandonne A
 (à) Voyez une caractéristique des Polonais par un Allemand, 2 ne.
-\ (2) Wagner : Der Polenring, pages 44 et suivantes. \, 40
+\ (2) Wagner : Der Polenring, pages 44 et suivantes. \,
 
 J pas les Allemands, mener aussi ce combat-là à bonne
 
-" . Cette lutte de dénationalisation paraît donc à un 4
+" . Cette lutte de dénationalisation paraît donc à un
 
 | Allemand chrétien du vingtième siècle non seulement
 
@@ -7332,25 +7332,25 @@ dans une résistance coupable, si la mission de l'Empire |
 viendront se grouper tous les éléments de la race alle- |
 mande, à étendre sa sphère d'influence pour la mettre
 
-en harmonie avec ses limites politiques, à donner et à Ë
+en harmonie avec ses limites politiques, à donner et à
 
 | assurer au germanisme la place qui doit lui revenir sur
 
 | tout le globe, enfin à triompher des puissances de
 portant haut la lumière de la liberté intellectuelle et
 
-Avec de pareilles théories, on va loin dans la voie de F
+Avec de pareilles théories, on va loin dans la voie de
 
-la persécution. 4
+la persécution.
 
 (2) Conférence prononcée à Berlin par le colonel de Bernhardi, |
 
-chef de la section historique du grand état-major ; cité par Lair : 24
+chef de la section historique du grand état-major ; cité par Lair
 
 f L'impérialisme allemand, page 108. +4
 
-n. Parmi les arguments employés du côté allemand, ily M
-4 à en a de bien usés. Les provinces orientales, dit un ° { 1
+n. Parmi les arguments employés du côté allemand, ily
+4 à en a de bien usés. Les provinces orientales, dit un ° {
 ha polémiste, sont un sol qui a jadis appartenu aux Ger-.
 ÿ D'autres, rappelant comment la Pologne a sombré, "3
 qi dénient aux Polonais la possibilité et la capacité dese
@@ -7358,52 +7358,52 @@ qi dénient aux Polonais la possibilité et la capacité dese
 a. nais ce qu'ils doivent aux Allemands comme progrès *
 1 économiques et intellectuels; on leur reproche d'être ;
 f ingrats envers leurs maîtres, qui leur ontrendulegrand
-ü service de les annexer et qui veulent leur faire l'honneur * M
-de les assimiler à la nation conquérante. Cest très 4
-sérieusement et sans aucune ironie que nombre d'Alle- È
-À mands disent cela. Le roi Léopold aime aussi à parler 3
+ü service de les annexer et qui veulent leur faire l'honneur
+de les assimiler à la nation conquérante. Cest très
+sérieusement et sans aucune ironie que nombre d'Alle-
+À mands disent cela. Le roi Léopold aime aussi à parler
 des « bienfaits de la civilisation », lorsqu'il défend son à
-* œuvre du Congo. Seulement, de même que les nègres 4
+* œuvre du Congo. Seulement, de même que les nègres
 À récolteurs de caoutchouc ne sont pas reconnaissants ‘1
 in des factoreries établies chez eux, les Polonais ne sont
 LA pas très sensibles aux chemins de fer et aux écoles
-_ allemandes fondées en Posnanie et payées en partie par 554
+_ allemandes fondées en Posnanie et payées en partie par
 HN Tous ces essais de justification ne méritent même pas
 na d'être réfutés. Aussi bien, les Allemands intelligents ‘4
 __ * expliquent plus franchement, plus logiquement et aussi
 è j plus cyniquement la situation : « Dans le combat des
-ï À races et des peuples, il n'y a qu'une loi immuable, celle 110
+ï À races et des peuples, il n'y a qu'une loi immuable, celle
 ‘US Osten, page 7) combat avec raison cet argument spécieux. 04 fe
-| 6) E. Herr : Neue Bahnen der Polenpolitik. Berlin, 1908. Page 3. \ SA 4
+| 6) E. Herr : Neue Bahnen der Polenpolitik. Berlin, 1908. Page 3. \ SA
 
-10 Un des chefs hakatistes, M. de Tiedemann, prononçait
+Un des chefs hakatistes, M. de Tiedemann, prononçait
 ne de même, dans un discours à Breslau (26 février 1901), ‘14
 ces paroles textuelles : « Dans ce monde, il nyapas
 FE , de droit meilleur ni plus légitime que celui qui est %
-+ acquis par le succès des armes. » (1) : é.
-Le chancelier de Bülow, parlant de la question polo- k
++ acquis par le succès des armes. » (1)
+Le chancelier de Bülow, parlant de la question polo-
 4 naise, disait, avec l'humour familier qu'il cultive, aux
 ire députés prussiens : « Nous ne vivons pas à Néphélo- dl
-coccygie, et malheureusement nous ne vivons pas non 4
-_ plus dans le Paradis; mais nous vivons sur cette dure 20
-$ terre, où il faut être marteau ou enclume. » (2) 4
-4 Voilà qui est franc. Cette conception fataliste et pessi- Re:
+coccygie, et malheureusement nous ne vivons pas non
+_ plus dans le Paradis; mais nous vivons sur cette dure
+$ terre, où il faut être marteau ou enclume. » (2)
+Voilà qui est franc. Cette conception fataliste et pessi- Re:
 | faut plus alors chercher des justifications dans le do- , :#
 ne maine idéal des lois morales: on n'a plus le droit .
 #4 d'employer le mot de « justice », qui ne correspond ÿ #
 # plus à rien. Cherchons tous à être des marteaux, mais (2
 # ne nous fâchons pas si les autres ne veulent pas être
-6 Ii faut toujours un peu d'héroïsme pour être parfaite- 4
-+4 ment logique, et les Allemands ne vont pas jusque-là. 2
+Ii faut toujours un peu d'héroïsme pour être parfaite-
++4 ment logique, et les Allemands ne vont pas jusque-là.
 fs: L'écrivain bien connu, Félix Dahn, a composé quelques ë Me
-he __sentences à l'usage des Allemands des provinces orien- à 7e
+he __sentences à l'usage des Allemands des provinces orien- à
 __ tales. Ïl dit entre autres : LE
-É Le bien suprême de l'homme, c'est son peuple. 3 1
-Ye Le bien suprême du peuple, c'est son État, 5
+É Le bien suprême de l'homme, c'est son peuple.
+Ye Le bien suprême du peuple, c'est son État,
 | £ Et son âme vit dans sa langue. RE
-RE: En lisant ces maximes, on peut se demander si les L 4
+RE: En lisant ces maximes, on peut se demander si les
 # Polonais, eux aussi, n'ont pas le droit d'essayer de re "
-(1) Le discours se trouve en entier dans l'Ostmark, VI, 4. 288
+(1) Le discours se trouve en entier dans l'Ostmark, VI,
 PAT (2) Discours du 13 janvier 1902, à la Chambre des députés. 6 à.
 
 à | Polonais et Prussiens : : A
@@ -7412,45 +7412,45 @@ défendre leur langue, puisque « leur âme y vit ». Mais |
 
 M. Dahn n'a songé qu'aux Allemands, c'est évident. Un
 pareil défaut de logique est un symptôme très grave, |
-et nous pensons qu'il ne faut pas négliger des signes 4
+et nous pensons qu'il ne faut pas négliger des signes
 
 de cette sorte.
 
 Parmi les partis allemands qui soutiennent parfois .
 
-les Polonais par leurs votes, il n'y en a aucun qui aït k
+les Polonais par leurs votes, il n'y en a aucun qui aït
 
 de véritables sympathies pour leur cause et qui ne les }
 abandonnerait pas, si jamais ils étaient à même de ;
 
-réaliser leurs espérances. Le Kulturkampf, par une L
+réaliser leurs espérances. Le Kulturkampf, par une
 persécution commune, a rapproché le Centre des Polo- \
 
 nais. Cette alliance, due à la politique de Bismarck, a À
 
-À été bien plus profitable au parti catholique qu'à la 4
-cause polonaise. Mais le catholicisme a été si long- 4
+À été bien plus profitable au parti catholique qu'à la
+cause polonaise. Mais le catholicisme a été si long-
 
 temps un des éléments principaux de la nationalité
 
 ? polonaise, qu'une rupture avec le Centre effraie À
-encore beaucoup de Polonais. Néanmoins l'alliance a 4
-. subi déjà bien des accrocs. De plus en plus, surtout en i
-Silésie, les Polonais se montrent prêts à mener la lutte 1
-j sans compromis aucun avec un parti allémand. Et le n.
-| Centre de son côté, attiré dans l'orbite de la politique 1
+encore beaucoup de Polonais. Néanmoins l'alliance a
+. subi déjà bien des accrocs. De plus en plus, surtout en
+Silésie, les Polonais se montrent prêts à mener la lutte
+j sans compromis aucun avec un parti allémand. Et le
+| Centre de son côté, attiré dans l'orbite de la politique
 impériale, ne se souvient que trop souvent qu'il est un à
 
-parti germain. Malgré tout, il serait injuste de ne pas 4
-t rappeler que les députés du Centre ont protesté contre F
-toutes les mesures violentes de germanisation. L
+parti germain. Malgré tout, il serait injuste de ne pas
+t rappeler que les députés du Centre ont protesté contre
+toutes les mesures violentes de germanisation.
 
-\ Des conservateurs, les Polonais n'ont rien à attendre. 4
-Non pas que ces hobereaux soient en général les haka- 4
+\ Des conservateurs, les Polonais n'ont rien à attendre.
+Non pas que ces hobereaux soient en général les haka-
 
-tistes les plus enragés. Agrariens, ils tiennent surtout à 1
+tistes les plus enragés. Agrariens, ils tiennent surtout à
 
-ce que leurs intérêts pécuniaires ne soient pas lésés ; ils J 4
+ce que leurs intérêts pécuniaires ne soient pas lésés ; ils
 préfèrent presque tous avoir recours à des ouvriers
 polonais, qui ne demandent qu'un petit salaire, plutôt ; ‘4
 
@@ -7459,7 +7459,7 @@ polonais, qui ne demandent qu'un petit salaire, plutôt ; ‘4
 | Quant aux antisémites, ils sont partisans de la
 « Grande Allemagne », mais leur antipathie contre les
 Juifs l'emporte de beaucoup sur celle qu'ils peuvent
-| éprouver contre les Slaves. (1) c k
+| éprouver contre les Slaves. (1)
 Les pires ennemis d'une Pologne autonome, les zélateurs les plus acharnés de la germanisation à outrance,
 ce sont les « nationaux-libéraux », qui se recrutent surtout dans les classes moyennes. C'est dans ce parti
 bourgeois par excellence que l'impérialisme allemand
@@ -7486,14 +7486,14 @@ attendre de ce parti, très restreint du reste. Les temps
 vi de 1848 sont finis. CUS
 ‘1 Il en est malheureusement de même du parti socialiste : À
 10 allemand. Ses chefs n'ont jamais eu assez de largeur de gs
-1 vue pour se prononcer en faveur de l'autonomie polo s
+1 vue pour se prononcer en faveur de l'autonomie polo
 ‘ai naïse. Le problème du droit des nationalités ne semble
 40 pas exister pour eux. C'est une question qui ne se laisse #
 N . pourtant pas escamoter. L'étroitesse de la citoyenne
 EN Rosa Luxemburg, celle de Bebel et d'autres a eu pour
 ‘à résultat de forcer les socialistes polonais à former un
 
-ÿ parti spécial, sans lien réel avec le parti ouvrier alle Ê:
+ÿ parti spécial, sans lien réel avec le parti ouvrier alle
 à Dans leur lutte nationale, les Polonais prussiens sont à
 pi donc seuls. Les partis politiques qui parfois les dé-
 RE fendent, ne le font qu'au nom de principes mollement
@@ -7501,7 +7501,7 @@ on proclamés, ou le plus souvent au nom d'intérêts électo-
 
 Me. raux plus ou moins égoiïstes. FI is
 
-Qt parfois assurer la victoire du candidat polonais, en sabstenant D
+Qt parfois assurer la victoire du candidat polonais, en sabstenant
 po de voter, plutôt que de donner leurs voix à un conservateur. »
 
 h C'est ce qui est arrivé en 1897, dans la circonscription de Dirschau …
@@ -7515,42 +7515,42 @@ A proclamation de Bebel aux socialistes allemands de Lodz (1905). .
 PA Cette proclamation, qui contient un programme socialiste complet
 pour-lempire russe, ne tient aucun compte de la question polo-
 
-a naise. Le poète polonais André Niemojewski répondit à Bebel par M
+a naise. Le poète polonais André Niemojewski répondit à Bebel par
 | une lettre ouverte. Voyez Européen, 3 juin 1905, page 15. 28e Pa
 
-| . 4
+|
 
 Res Il a été tiré de ce cahier treize exemplaires sur
 … . whatman ainsi distribués : à
-D premier exemplaire de souche, exemplaire du gérant; g
+D premier exemplaire de souche, exemplaire du gérant;
 A deuxième exemplaire de souche, exemplaire de l'ad- %
-(SP troisième exemplaire de souche, exemplaire de Pimde “54 primeur ; 7
-: RE dix exemplaires d'abonnement, numérotés de Tr à 10
+(SP troisième exemplaire de souche, exemplaire de Pimde “54 primeur
+: RE dix exemplaires d'abonnement, numérotés de Tr à
 Ro Tous nos exemplaires sur whatman sont numérotés
 ne -\, à la presse et imprimés au nom du souscripteur; nos
 “n tirages d'exemplaires sur whatman sont rigoureuse
 __  stant souscrits; nous ne vendons point d'exemplaires
 sur whatman en dehors de l'abonnement; l'abonnement
 —. sur whatman à cette huitième série est de cent francs
-|. pour tous pays. 70
-2 Les Cahiers de la Quinzaine sont composés à la main,
+|. pour tous pays.
+Les Cahiers de la Quinzaine sont composés à la main,
 : 41 en caractères fin dix-huitième siècle (Didot) de la fon
 à _  derie Mayeur (Allainguillaume et compagnie succes-
 à or seurs) 21, rue du Montparnasse, à Paris, sixième se #
 
-rez-de-chaussée, Paris, cinquième arrondissement. À k
+rez-de-chaussée, Paris, cinquième arrondissement. À
 Le Nos Cahiers sont édités par des souscriptions menEU suelles régulières et par des souscriptions extraordiad naires ; la souscription ne confère aucune autorité sur fi
 4 la rédaction ni sur l'administration ; ces fonctions fl
 ‘2 Nos Cahiers paraissent par séries; une série paraît
 228 dans le temps d'une année scolaire, d'une année
-4 ouvrière, d'octobre-novembre à juin-juillet ; l'abonne- 4
-pe a, ment se prend pour une série. : É
+4 ouvrière, d'octobre-novembre à juin-juillet ; l'abonne-
+pe a, ment se prend pour une série.
 “M ra . On peut souscrire cet abonnement à tout moment de
 : Le l'année, mais l'abonnement ainsi souscrit est, de droit,
-E valable pour la série en cours. F.
+E valable pour la série en cours.
 Do Prix de l'abonnement, pour chaque série annuelle » pendant le cours de cette série : É %
-5 ÉRAe 0.00 } Autres pays de l'Union postale uni100 \  verselle....... vingt-cinq francs
-Ÿ 04 Abonnement sur whatman... cent francs pour tous pays M
+ÉRAe 0.00 } Autres pays de l'Union postale uni100 \  verselle....... vingt-cinq francs
+Ÿ 04 Abonnement sur whatman... cent francs pour tous pays
 ki ‘4 Les exemplaires sur whatman, tirage non réimposé,
 …_O sont numérotés à la presse et imprimés au nom du
 j EX. souscripteur ; le tirage à part sur whatman a commencé
@@ -7558,15 +7558,15 @@ j EX. souscripteur ; le tirage à part sur whatman a commencé
 :. #8 tions pour cet abonnement particulier sont reçues en
 | 1e _ tout temps et reçoivent un numéro d'ordre déterminé À
 É 54 automatiquement par le rang même qu'elles occupent
-1 dans l'ordre de l'arrivée, les numéros les plus bas venant 9
+1 dans l'ordre de l'arrivée, les numéros les plus bas venant
 … naturellement aux premières inscriptions; c'est ce nu
 |  méro d'inscription qui devient automatiquement le
-4 E: numéro du tirage réservé à chacun des souscripteurs; Te
+E: numéro du tirage réservé à chacun des souscripteurs; Te
 …  lédition sur whatman est strictement limitée au LE
 
 ‘46 Pour tout changement d'adresse envoyer soixante
 É centimes, six timbres de dix centimes.
-1 Nous engageons nos abonnés de certains pays à nous
+Nous engageons nos abonnés de certains pays à nous
 
 D demander un abonnement recommandé ; tous les cahiers ;
 4 de l'abonnement recommandé sont empaquetés à part et
@@ -7577,7 +7577,7 @@ D demander un abonnement recommandé ; tous les cahiers ;
 
 L mandation, pour tous pays, en sus, cinq francs.
 
-4 Automatiquement et sans augmentation de prix les
+Automatiquement et sans augmentation de prix les
 
 L exemplaires sur whatman sont tous recommandés et
 
@@ -7589,7 +7589,7 @@ L exemplaires sur whatman sont tous recommandés et
 D 1906 on pouvait encore avoir pour vingt francs les dix-
 
 d neuf cahiers de la septième série complète. |
-14 A partir du premier janvier qui suit l'achèvement ï
+A partir du premier janvier qui suit l'achèvement
 | d'une série, le prix de cette série est porté au moins
 4 au total des prix marqués; ainsi depuis le premier
-‘4 ' janvier 1907 la septième série complète se vend quarantetrois francs. L
+‘4 ' janvier 1907 la septième série complète se vend quarantetrois francs.

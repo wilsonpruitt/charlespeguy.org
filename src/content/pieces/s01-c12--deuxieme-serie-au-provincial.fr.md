@@ -60,11 +60,11 @@ quand même un nouveau comité général, et quand
 ee même un nouveau congrès l'investirait et le sanction-
 
 douzième et dernier cahier de la première série ‘4
-nérait, — aucun nouveau compte rendu ne peut fournir 4 F
+nérait, — aucun nouveau compte rendu ne peut fournir
 du congrès international un texte historique. Si puis he
 
-sants que soient les comités et les congrès ils ne peu- F:
-vent pas décréter ou voter qu'un texte fabriqué sera SR 74
+sants que soient les comités et les congrès ils ne peu-
+vent pas décréter ou voter qu'un texte fabriqué sera SR
 désormais le texte historique. Cette impuissance leur
 est commune avec les conseils de guerre. Et de même <
 que nous aurons fait le pont du premier congrès national , Ne.
@@ -77,19 +77,19 @@ Quand le printemps sera venu, il est probable queles
 les fédérations départementales et régionales tiendront y
 leur troisième congrès. Que ce congrès soit, comme l'es
 pèrent Jaurès et plusieurs citoyens, un congrès consti- Fun
-tuant, ou qu'il soit, comme les deux premiers, un con- ; 4 C
+tuant, ou qu'il soit, comme les deux premiers, un con-
 
 - grès parlementaire, il marquera sans doute la fin d'une :°4
 période encore dans l'histoire de l'action socialiste.
 Sous ce titre courant : du deuxième congrès au troi- jè
-sième ces cahiers publieront aussitôt après les doc.  N « ments et les renseignements de la période ainsi déter- M
+sième ces cahiers publieront aussitôt après les doc.  N « ments et les renseignements de la période ainsi déter-
 minée. En particulier, de même que nous avons publié
 les réponses données par les militants socialistes à la
 consultation internationale ouverte à la Petite Répu-. A À
-blique sur l'affaire Dreyfus et le cas Millerand, ainsi Ë ï
+blique sur l'affaire Dreyfus et le cas Millerand, ainsi
 nous publierons les réponses utilement sérieuses données FN de “8
 par les militants socialistes à la consultation nationale
-ouverte aux Congrès sur les meilleurs moyens de con- Mes i
+ouverte aux Congrès sur les meilleurs moyens de con- Mes
 stituer le parti socialiste français.
 Enfin sous ce titre le ministère de Millerand nouspu
 
@@ -122,13 +122,13 @@ nationale, des cahiers qui seront tout entiers du congrès
 Pareïllement toutes les fois que des collaborateurs F ‘
 libres nous feront l'amitié de nous apporter des cahiers,
 nous ferons tout ce que nous pourrons pour que l'auteur
-soit vraiment libre dans son cahier libre. Tout le cahier, 114
+soit vraiment libre dans son cahier libre. Tout le cahier,
 texte et couverture, lui appartiendra. Le :,
 La liberté typographique de l'écrivain représentera la
 liberté morale de l'auteur. Et le cahier sera pour le tra
 vail et pour l'action vraiment un livre indépendant et
-libre. Et en ce sens il ne sera plus un cahier que pour # É
-l'administration. Il n'y aura jamais parmi nous aucune « 1
+libre. Et en ce sens il ne sera plus un cahier que pour #
+l'administration. Il n'y aura jamais parmi nous aucune «
 aucune subordination, mais corrélation d'homme libre … ‘14
 à homme libre, d'auteur à gérant sans intermission com- sa ss
 merciale d'autorité bourgeoise. L'auteur écrira sous sa 2°
@@ -141,7 +141,7 @@ citoyen Francis de Pressensé des cahiers de politique et
 d'action internationale. Non seulement il nous a promis
 que dans le courant de l'année il nous en donnerait “
 deux ou trois, mais il nous a promis qu'il aurait prêt
-pour cet automne un cahier d'ensemble sur la politique … 105
+pour cet automne un cahier d'ensemble sur la politique …
 internationale du socialisme, sujet auquel il pensait lui: re
 C'est aussi à ces conditions que nous avons demandé
 
@@ -177,7 +177,7 @@ j'avais encore à publier {a lumière de Jérôme et Jean
 
 <<. “ . Tharaud, au lieu de la couper en trois morceaux comme
 
-re le fis, je la donnerais toute pareille à l''admirable ti- x
+re le fis, je la donnerais toute pareille à l''admirable ti-
 
 ET _ rage à part que nous en avons fait. Quand au printemps
 nous publierons des mêmes Tharaud Orphée en Frioul “4
@@ -198,9 +198,9 @@ pour nous envoyer des courriers. Il nous enverra des Fr
 courriers de Chine. Un court billet qu'il m'envoie du
 bateau me promet un courrier sur le transport des Nate
 troupes expéditionnaires. Ce premier courrier pourra
-Notre ami Henri Genevray, heureusement retourné 5 0 1
+Notre ami Henri Genevray, heureusement retourné
 parmi nous après deux ans de voyage intercontinental, ‘4
-nous donnera des cahiers de voyage. Il commencera par M 4 Ÿ
+nous donnera des cahiers de voyage. Il commencera par
 nous donner un cahier d'ensemble sur l'expansion colo.
 niale devant le socialisme. F AE
 Léon Deshairs nous donnera cette année au moins F3 Fes
@@ -212,7 +212,7 @@ ouvriers littéraires — se prépare à entrer en corps dans … PA.
 ces cahiers. LA NAS
 Mais l'œuvre que nous publierons avec une singulière
 cordialité sera de M. Antonin Lavergne un longroman: SCIE
-+ Jean Coste, ou l'instituteur de village. L'auteur est lui- fi me s
++ Jean Coste, ou l'instituteur de village. L'auteur est lui- fi me
 même un ancien.instituteur, un primaire de culture et
 de métier. Il est devenu professeur d'école
 primaire. Il pouvait comme tout le monde faire sa
@@ -257,19 +257,19 @@ bien aussi nous présenter et honnêtement nous procurer
 le plus d'abonnés qu'ils pourront. Nous savons de cer-
 Lain que beaucoup de personnes s'imaginent innocem- ri
 ment qu'elles ont assez fait pour ces cahiers quand elles
-les ont lus par communication. Nous nous permettons t
+les ont lus par communication. Nous nous permettons
 ‘ d'attirer leur attention sur ce qu'il y auraït de parasitaire
 à user indirectement de cette publication sans participer
 aux frais de son établissement.
-Nous envoyons éventuellement ces cahiers à plus de 3 ë
+Nous envoyons éventuellement ces cahiers à plus de
 sies parmi celles qui peuvent s'y intéresser.
 Nous les envoyons d'abord éventuellement aux
 abonnés du Mouvement Socialiste. La direction de cette Rs:
-revue amie a bien voulu nous faire communiquer la s k
+revue amie a bien voulu nous faire communiquer la
 liste administrative de ses abonnés. Nous espérons ee -
 qu'ayant par le Mouvement connaissance pragmatique de
 l'action socialiste internationale pendant qu'elle se meut
-ils demanderont à nos cahiers cette indispensable con- i
+ils demanderont à nos cahiers cette indispensable con-
 naissance historique de l'action que l'on ne peut donner
 qu'un peu après que se sont dessinés les temps de eue
 
@@ -283,7 +283,7 @@ Ne: d'un côté nous ne croyons pas que l'on puisse opérer
 - profondément, sincèrement, sérieusement la révolution
 Rs morale de l'humanité sans opérer toute la révolution de
 de. x . son habitat social, et qu'inversement nous croyons que
-…_ toute révolution formelle serait vaine si elle ne compor_ ait pas le labourage éi la profonde éversion des con- ÿ
+…_ toute révolution formelle serait vaine si elle ne compor_ ait pas le labourage éi la profonde éversion des con-
 Nous envoyons éventuellement nos cahiers à tous les
 sa correspondants de la Ligue française pour la défense
 “… des droits de l'homme et du citoyen. L'administration
@@ -295,27 +295,27 @@ ne __ d'anciens dreyfusards. Or il n'échappera pas à nos lecLÉ a teurs que no
 région qui ayons exactement gardé la juste rigueur
 Me méthodique de l'ancienne action dreyfusiste. Alors que
 les différents Etats Majors dreyfusistes, comme la plumie _ part des États Majors, délaissaient la considération
-Fe _ des droits pour la contemplation des avantages, nous F3
+Fe _ des droits pour la contemplation des avantages, nous
 ie avons seuls dans une certaine région, — et nous n'en
 15 _ sommes aucunement heureux, — continué nous-mêmes
 LE _ à respecter rigoureusement la méthode que nous avions
 
-douzième et dernier cahier de la première série « 1
-demandé que l'on respectât. Nous pensons aussi que s
+douzième et dernier cahier de la première série «
+demandé que l'on respectât. Nous pensons aussi que
 nous réussirons à démontrer à ces nouveaux abonnés 3"
-que la révolution sociale, au sens où nous la préparons, 23
+que la révolution sociale, au sens où nous la préparons,
 peut seule donner à tous les hommes le véritable exer- à
 cice de tous leurs droits humains, peut seule instituer
 une cité humaine où tous les hommes soient accueillis
 comme des citoyens véritables. Le
-Nous envoyons éventuellement nos cahiers à beau- F
+Nous envoyons éventuellement nos cahiers à beau-
 coup d'universitaires, professeurs de l'enseignement
 supérieur et de l'enseignement secondaire, instituteurs
 et professeurs de l'enseignement primaire et de l'enseignement primaire supérieur, soit qu'ils fussent abonnés
 déjà au bulletin de l'Union pour l'action morale, soit 4 “4
 que nous ayons demandé leur nom à l'annuaire. Nous a
 espérons que leur enseignement pourra se nourrir des
-documents et des renseignements, des commentaires, D
+documents et des renseignements, des commentaires,
 des travaux et des œuvres qu'ils auront dans ces 3°
 cahiers. Nous espérons qu'ils n'hésiteront pas à nous . Le
 avouer pour un des leurs, à voir dans ces cahiers le
@@ -366,7 +366,7 @@ Il vint me voir au commencement des vacances, comme
 ilen avait l'habitude. Rien dans son robuste aspect ne fai-
 sait pressentir le malheur qui déjà le menaçait. Il était
 seulement resté accablé d'un épouvantable deuil de
-Il vint me voir. Il m'exposa très fortement et minu- s
+Il vint me voir. Il m'exposa très fortement et minu-
 tieusement ses critiques. Je lui présentai ma défense.
 Puis nous discutâmes nos raisons. Il finit par me donner cette preuve : Moi-méme, dit-il, qui te connais pourtant bien, et qui sais lire ce que tu écris, moi-même je
 ne lis pas commodément tes cahiers. Ils me forcent
@@ -381,7 +381,7 @@ TRE Nos anciens abonnés savent qu'outre les abonnements
 gratuits annoncés ci dessus nous servons:
 ï des abonnements de souscription à cent francs
 des abonnements ordinaires à vingt francs ;
-et des abonnements de propagande à huit francs. d
+et des abonnements de propagande à huit francs.
 a Il va sans dire qu'il n'y a pas une seule différence de
 service entre ces différents abonnements. Nous voulons
 - seulement que nos cahiers soient accessibles à tout le
@@ -393,7 +393,7 @@ Ke _ vouloir bien nous dire sans aucun retard dans quelle
 en _ catégorie nous devons les compter. Il nous importe en
 effet que nos prévisions budgétaires soient établies
 ee _ solidement au commencement de cette nouvelle série.
-Nous prions instamment nos nouveaux abonnés de vou- è
+Nous prions instamment nos nouveaux abonnés de vou-
 Ge. loir bien nous envoyer par le même courrier, s'il y a
 - lieu, la rectification de leur adresse. IL nous importe
 Fa | que nos fiches et que le répertoire soient exactement
@@ -404,24 +404,24 @@ De a premier de tous, à l'administrateur : mon vieil ami
 André Bourgeois, employé de banque, sans intervenir
 douzième et dernier cahier de la première série
 aucunement dans la rédaction de ces cahiers, donnera ca
-cette année à leur administration tout l'effort de sa 2 4
+cette année à leur administration tout l'effort de sa
 patience efficace et de sa laborieuse ténacité. — Comme
 l'année dernière nos abonnés auront à la deuxième, à la Sea
-troisième et à la quatrième page de la couverture les ren- 5
+troisième et à la quatrième page de la couverture les ren-
 seignements nécessaires au détail de l'administration. \ à
 Sans aliéner du tout la même liberté, sans commu- TERRE
-niquer à personne la responsabilité de ce que nous + 510
-voulons faire, nous avons avec béaucoup de plaisir ; É
+niquer à personne la responsabilité de ce que nous +
+voulons faire, nous avons avec béaucoup de plaisir
 choisi une résidence nouvelle. Au 16 de la rue de la .
 Sorbonne, où réside l'École des Hautes études sociales
 — école de morale — école sociale — école de journa.
 lisme, nous aurons le bonheur de demeurer porte
-porte avec le secrétariat de la société des universités Ÿ É
+porte avec le secrétariat de la société des universités
 Usant de la même liberté, agissant, moi aussi,
 comme un collaborateur libre, je me permettrai, au
 seuil de la deuxième série, de donner quelques rensei=.
-gnements sur l'institution même de ces cahiers. Pendant, “4 n.
-plus de dix mois j'ai laissé dire et médire. Je pensais 13 F.
+gnements sur l'institution même de ces cahiers. Pendant, “4
+plus de dix mois j'ai laissé dire et médire. Je pensais
 que l'ouvrier doit produire d'abord, et ne présenter que
 plus tard la défense du travail qu'il aura produit. Mais a
 au commencement de cette importante série je mahquerais aux braves gens qui m'ont donné en dépôt Leur

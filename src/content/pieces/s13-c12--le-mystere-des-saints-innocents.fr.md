@@ -1936,7 +1936,7 @@ De toute liberté.
 Cette liberté de cette créature est le plus beau rellet
 qu’il y ait dans le monde
 
-De la Liberté du Créateur. C’est pour cela que nous v
+De la Liberté du Créateur. C’est pour cela que nous
 
 Que nous y mettons un prix propre.
 
@@ -1951,8 +1951,6 @@ Quel intérêt un tel salut présenterait-il.
 Une béatitude d’esclaves, un salut d’esclaves, une
 béatitude serve, en quoi voulez-vous que ça m’inté-
 resse. Aime-t-on à être aimé par des esclaves.
-
-67
 
 S’il ne s’agit que de faire la preuve de ma puissance,
 ma puissance n’a pas besoin de ces esclaves, ma
@@ -2417,7 +2415,6 @@ Et si je l’ai mis dans mon ciel, celui-là, au moins je
 
 Voilà comme je compte, dit Dieu. Et alors mon compte
 est bon. Car cette lèpre dont il s’agissait,
-79
 Cette lèpre dont ils parlaient et d’être lépreux
 
 Ce n’était pas une lèpre d’imagination et une lèpre d’invention et une lèpre d’exercice.
@@ -2728,7 +2725,7 @@ Et comme je reprends doucement le pécheur.
 
 Fa quand les frères s’en furent partis,
 
-1 II attend que les deux frères qu’il avait appelés,
+II attend que les deux frères qu’il avait appelés,
 
 Qu’il avait fait venir s’en soient partis. Il attend qu’ils
 
@@ -2899,7 +2896,6 @@ pour ce que l’âme qui est en péché mortel est semblable
 
 par quoi nulle si laide lèpre ne peut être.
 
-92
 Et les paroles qui suivent ne sont point indignes, mon
 
 enfant, des plus belles paroles des Évangiles,
@@ -3685,7 +3681,7 @@ Bien pareils. Bien parallèlement.
 tes mains jointes, les corps joints et séparés parallèles,
 Les destinées jointes. Joints dans le jugement et dans
 
-l’éternité. J
+l’éternité.
 Et le noble lévrier bien aux pieds.
 
 Peuple, le seul qui pries et le seul qui pleures sans
@@ -4526,7 +4522,7 @@ Il nous répondit : Vous savez que j’ai eu deux fils de
 Rachel ma femme.
 
 L’un d’eux étant allé aux champs, vous niavez dit
-quune bêle V avait dévoré, et il ne paraît plus jusqu k
+quune bêle V avait dévoré, et il ne paraît plus jusqu
 cette heure.
 
 Si vous emmenez encore celui-ci, et quil lui arrive
@@ -5578,8 +5574,6 @@ Sous les dents de fer.
 Pour son général (apparemment) absent).
 J’ai vu des martyrs flamber comme des torches
 Se préparant ainsi les palmes toujours vertes.
-
-182
 
 Et j’ai vu perler sous les griffes de fer
 
@@ -6793,8 +6787,6 @@ Ils furent semblables à mon fils et le remplacèrent.
 
 Exactement quand il ne s’agissait pas moins
 
-221
-
 Quand il n’y allait pas de moins que de le massacrer,
 
 ^Prématurément, avant qu’il fût mûr),
@@ -7090,8 +7082,6 @@ L’Église ne dit plus seulement qu’ils sont des prémices
 
 à Dieu, et à l’Agneau.
 L’Église les invoque et les nomme
-
-230
 
 *fleurs des Martyrs.
 

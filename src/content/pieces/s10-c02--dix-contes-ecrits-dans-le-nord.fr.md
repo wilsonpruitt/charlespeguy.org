@@ -11,23 +11,23 @@ bn écrits dans le Nord
 paraissant seize fois par an
 8, rue de la Sorbonne, au rez-de-chaussée
 
-5 1
+5
 Nous avons publié dans nos éditions antérieures et.
 dans nos cinq premières séries, 1900-1904, un Si
 grand nombre de documents, de textes formant dossiers, de renseignements et de commentaires; — un
 si grand nombre de cahiers de lettres, — nouvelles, « romans, drames, dialogues, poèmes et contes; — un « si grand nombre de cahiers d'histoire et de philo- « Ÿ sophie; et ces documents, renseignements, textes,
-dossiers et commentaires, ces cahiers de lettres, ê
+dossiers et commentaires, ces cahiers de lettres,
 d'histoire et de philosophie étaient si considérables
 que nous ne pouvons pas songer à en donner ici. |
 l'énoncé même le plus succinct; pour savoir ce qui & …
-paru dans les cinq premières séries des cahiers, ü
+paru dans les cinq premières séries des cahiers,
 suffit d'envoyer un mandat de cinq francs à M. André
 Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement; on recevra en retour le catalogue analytique
 sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci, |
 
-_ une idée, abrégée, mais complète, de nos éditions anté- f
+_ une idée, abrégée, mais complète, de nos éditions anté-
 
 _ rieures et de nos cinq premières séries ; tout y est classé
 
@@ -35,19 +35,19 @@ _ rieures et de nos cinq premières séries ; tout y est classé
 
 _ place, les références demandées.
 
-4 Ce catalogue, in-18 grand jésus, forme un cahier
+Ce catalogue, in-18 grand jésus, forme un cahier
 très épais de XI1+/408 pages très denses, marqué cinq
 francs ; ce cahier comptait comme premier cahier de la
 sixième série et nos abonnés l'ont reçu à sa date, le \
 
 2 octobre 1904, comme premier cahier de la sixième
-série; toute personne qui jusqu'au 31 décembre 1905 k
+série; toute personne qui jusqu'au 31 décembre 1905
 s'abonnait rétrospectivement à la sixième série le rece- A
 vait, par le fait même de son abonnement, en tête de la
 série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
 
-11 I y avait, dans ce bourg de la frontière belge,un
+I y avait, dans ce bourg de la frontière belge,un
 ‘4 _  Æ forçat gracié, très sage, de cette sagesse des petites ral
 il as filles de parents sévères qui restent assises très long- ol A
 …_  Lemps et, vivant dans l'effroi, ne font rien qu'en demanVE p , , Ma A
@@ -58,12 +58,12 @@ _  mées par l'habitude d'y mettre profondément les mains. A
 ‘VE Plus grand chose ne l'intéressait et il aimait ses souve- 1 oui
 de we nirs ; cela se voyait à sa figure aussi tranquille que sa ne #
 _ démarche : la figure travaillée d'un homme qui a eu la ( AIT
-| vie dure; ses yeux clairs et tristes regardaient par * 470 0
+| vie dure; ses yeux clairs et tristes regardaient par
 VAR _ dessus les gens, même quand il leur parlait, ce qui ee.
 … était rare. Il gagnaïit sa vie chez un fondeur où il avait ni GER.
 
 F. à quelquefois travaillé dans sa jeunesse, avant d'être
-_ envoyé pour vingt ans à Cayenne. On le reprit parce 4
+_ envoyé pour vingt ans à Cayenne. On le reprit parce
 _ que le pays ne lui en voulait pas d'avoir été forçat et ME.
 VE chacun convenait que c'était un brave homme. Il ne NRC
 __ racontait pas volontiers son histoire, car il craignait les 1)
@@ -72,10 +72,10 @@ nu des gendarmes était grande, mais sans haine, et l'on ‘ iv US
 
 voyait bien, quoiqu'il n'en dit jamais rien, qu'il haïssaïit ni
 les douaniers. Avec les gendarmes il était homme, avec La
-les douaniers il était loup. A j
+les douaniers il était loup. A
 
 Chaque dimanche il venait boire une chope au même k =
-estaminet peu fréquenté, chez la veuve Triquet qui é
+estaminet peu fréquenté, chez la veuve Triquet qui
 
 f tenait un petit débit où ne consommaient pas les. ou- RE
 vriers parce qu'elle leur défendait de cracher par terre.
@@ -86,11 +86,11 @@ buvait comme il n'avait pas bu pendant vingt années : :
 assis à sa façon, maître de ses gestes et de son temps.
 
 Un dimanche qu'il était ainsi attablé, un voyageur de ;
-commerce à la table voisine demanda tout bas à la 5
+commerce à la table voisine demanda tout bas à la
 cabaretière qui était ce vieil homme silencieux. Elle « répondit : ,
 
-« C'est Lecocq. » Cela n'apprenant rien à l'autre, elle 1
-haussa le ton, par cette habitude des esprits simples 3 4
+« C'est Lecocq. » Cela n'apprenant rien à l'autre, elle
+haussa le ton, par cette habitude des esprits simples
 qui croient que le sens des paroles augmente avec leur {
 bruit : « Lecocq, l'ancien forçat.. C'est un brave
 homme, » ajouta-t-elle, en voyant l'autre reculer sa
@@ -99,23 +99,23 @@ Lecocq se leva, ôta sa toque de poil et dit doucement : ' |
 
 « Oui, monsieur, je suis un brave homme. »
 
-Le voyageur fronça les sourcils et le regarda sans x
+Le voyageur fronça les sourcils et le regarda sans
 
 « Je suis un brave homme, monsieur. C'est la balle de .
 Coutiches qui a tout fait. »
 
 — « Oui, monsieur... Mon frère et moi étions les
-deux plus habiles fraudeurs du pays et nous n'avions e.
+deux plus habiles fraudeurs du pays et nous n'avions
 
 ï jamais voulu de mal à personne. Notre père aussi avait À
-À été fraudeur et notre grand-père. On nous apprit le mé- ï
+À été fraudeur et notre grand-père. On nous apprit le mé-
 4 tier très jeunes. Voilà qu'il vint à la capitainerie de
 
 | nouveaux douaniers à qui les anciens dirent qu'on ne !
 
 * pourrait jamais nous prendre. Il paraît que cela les fit À
-rire et, un matin, sur une route du bois de Coutiches, S
-$ ils tirèrent sur nous, à deux cents mètres, un coup de ê
+rire et, un matin, sur une route du bois de Coutiches,
+$ ils tirèrent sur nous, à deux cents mètres, un coup de
 ; fusil qui fit saigner mon frère à la jambe. Il s'assit sur
 
 . nos ballots et je courus au fossé qui fumait. Me voyant
@@ -128,7 +128,7 @@ Je revins chez nous avec les deux charges et mon
 
 …_ frère qui s'appuyait sur moi.
 
-4 Quand nous eûmes bu une chope et sa blessure
+Quand nous eûmes bu une chope et sa blessure
 
 k: pansée, la colère nous prit. Du bord d'un trou, à deux
 
@@ -137,8 +137,8 @@ M, J'allai à la capitainerie. On n'y voyait qu'un petit (
 À jeune homme, nouveau dans le pays, écrire derrière les |
 | grilles d'une fenêtre. Je frappai dans la porte, à coups
 
-L de poing d'abord, puis à coups de pied. Revenu au k
-milieu de la rue, je me souviens que je sentis le pavé J
+L de poing d'abord, puis à coups de pied. Revenu au
+milieu de la rue, je me souviens que je sentis le pavé
 
 É bien sec sous mes souliers et que je réfléchis que ce
 
@@ -156,29 +156,29 @@ L qui ont tiré sur nous! »
 
 | Je demandai des pierres aux voisins qui étaient tous
 
-sur leurs portes. Chez nous, il y avait toujours un sac à 1
+sur leurs portes. Chez nous, il y avait toujours un sac à
 de café que nous vendions au détail. Quand c'était un
-pauvre, il en prenait une poignée, une femme on lui 4
+pauvre, il en prenait une poignée, une femme on lui
 mesurait la poignée nous-mêmes à cause de sa main
 plus petite. VE
 
 Les voisins me donnèrent les caïlloux de leurs jardins
 et je les lançai dans les vitres. Personne ne vint; alors
-je m'en allai et les gens sur mon passage disaient: M
-« C'est bien,. ça! Lecocq! » 4
+je m'en allai et les gens sur mon passage disaient:
+« C'est bien,. ça! Lecocq! »
 
 Ça m'apaisait un peu, mais j'aurais tout de même %
 bien voulu me battre. Mon frère me dit : « Bon ça! À
 Attends que je sois guéri! »
 
-L'après-midi, le petit d'un fraudeur arrive en cou- 3
+L'après-midi, le petit d'un fraudeur arrive en cou-
 rant : les gendarmes venaient m''arrêter. Je prends du %
 pain et je m'en vais par les jardins en sautant toutes
-les haïes mieux que leurs chevaux qui me chassèrent 3
-jusqu'à la nuit. Pendant qu'ils campaient sur la fron- L
+les haïes mieux que leurs chevaux qui me chassèrent
+jusqu'à la nuit. Pendant qu'ils campaient sur la fron-
 tière, je reviens chez nous et j'emporte mon. frère en :
 Belgique. En partant, c'était mal commode mais, après ?
-une demi-heure, comme il ne remuaït plus, ça alla tout s
+une demi-heure, comme il ne remuaït plus, ça alla tout
 
 Au retour de me poursuivre, les gendarmes vinrent .
 aussi pour l'arrêter, voulant au moins en avoir un. On
@@ -188,99 +188,99 @@ ils ont du bec... »
 
 Peut-être, voyez-vous, si les gens d'ici avaient tenu
 
-leurs langues, au lieu d'exciter les gendarmes, je n'aurais 4
-pas fait vingt ans de bagne. 1
+leurs langues, au lieu d'exciter les gendarmes, je n'aurais
+pas fait vingt ans de bagne.
 
-Et nous deux, quand nous avons vu que la douane 4
+Et nous deux, quand nous avons vu que la douane
 
 nous voulait, morts ou vifs, nous aurions dû aller nous
-s embarquer à Anvers pour l'Amérique. 4
-16 4
+s embarquer à Anvers pour l'Amérique.
+16
 
 M _ Les gendarmes belges avaient l'ordre de nous arrêter. &
 D _ Pendant trois semaines, le temps de guérir mon frère, de ‘a
 ni. _ il a fallu vivre dans une meule de foin où, plus nous Ha
 “#2 restions, plus le trou que nous agrandissions nous #
 paraissait petit, et nous avions peur, en l'agrandissant, À
-‘4 que tout s'écroule, J
-: 4 Chaque deux jours, le fermier ami nous apportait à F
+‘4 que tout s'écroule,
+: 4 Chaque deux jours, le fermier ami nous apportait à
 ‘4 manger et emportait le foin.
 hi. Mon frère guéri, on recommença de pafser des ballots
 Le entre Tournai et Douai. Nous dormions dans les bois.
-a k Une nuit, il faisait aussi tranquille qu'au cimetière; Û
+a k Une nuit, il faisait aussi tranquille qu'au cimetière;
 ‘4 _ on n'entendait rien que l'herbe et les branches. Mon
 1 frère se lève et dit :
 4 « On a marché. » C'était vrai, on marchait. Il crie :
-2 Alors dans les arbres, tout près : 1
+Alors dans les arbres, tout près
 5 — « Tire pas, Lecocq. C'est Vanderbecq! »
 4 — « Je viens quère du travail. Rien à faire depuis une
 4 . Il avait déjà passé des charges pour nous.
 ‘1 — « Bon ça ! On te donnera un ballot, dit mon frère. |
-« 4 Fais-toi voir. » ï
+« 4 Fais-toi voir. »
 ‘4 Et voilà des coups de fusil qui partent. Je tombe. Mon \
 4 frère me prend, mais la douane et les gendarmes étaient
 (} autour de nous. Il me laissa pour s'occuper d'eux. Cela
 k dura longtemps. Quand on m'emporta, il y avait deux }
 . douaniers et un gendarme à porter aussi. À
-: 4 Tous les autres juraient en parlant de mon frère qu'ils Ù
+: 4 Tous les autres juraient en parlant de mon frère qu'ils
 ‘à ne tenaient pas. On soigna ma jambe cassée à l'hôpital te
 | de Lille.
-4 J'en sortis pour aller au tribunal. Le petit jeune
+J'en sortis pour aller au tribunal. Le petit jeune
 
-homme qui écrivait à la fenêtre de la capitainerie, le 24
+homme qui écrivait à la fenêtre de la capitainerie, le
 ; matin où j'y brisai des vitres, témoigna. Il était très
 rouge et me regardait avec insolence. Je ne lui voulais ee.
 pas de mal moi à ce petit. SHENR
 Des douaniers et des gendarmes vinrent qui dirent ‘2
-que la nuit de l'embûche nous avions tiré les premiers; 4
-que mon frère avait tué un des leurs et blessé deux 10
+que la nuit de l'embûche nous avions tiré les premiers;
+que mon frère avait tué un des leurs et blessé deux
 autres; après, il n'avait plus blessé personne, mais
 tué cinq douaniers, deux gendarmes et le nommé Van- À
-derbecq, de Flines. 4
-Puis un douanier raconta comment il tua mon frère; 3
+derbecq, de Flines.
+Puis un douanier raconta comment il tua mon frère;
 lorsqu'il passait la tête par le trou d'une tuile ôtée du A:
 toit de la maison cernée, cet homme lui mit sa balle . %
-dans le front. 4
+dans le front.
 Après on parla, on parla; un avocat noir et un juge NN
 rouge. Et tout le monde immobile. Rien que ces grandes °
-robes qui bougeaient et moi, entre deux gendarmes 4
+robes qui bougeaient et moi, entre deux gendarmes
 qui me tordaient les bras pour m'empêcher d'aller à ce À
 douanier qui avait tué mon frère. .
-On me dit que j'avais vingt ans de travaux forcés à Ë
+On me dit que j'avais vingt ans de travaux forcés à
 faire et je les aï faits. Vous voyez bien, monsieur, que ‘1
-je suis un brave homme. : 4
-— « Vous n'y étiez pour rien, dit le voyageur, c'était 4
-votre frère. » 744
-— « Mon frère aussi, c'était un brave homme. » É
-Il se remit à boire sa chope qu'il serraït très fort. Et F
-on sentait qu'il avait envie de se battre, ce vieux. F:
+je suis un brave homme.
+— « Vous n'y étiez pour rien, dit le voyageur, c'était
+votre frère. »
+— « Mon frère aussi, c'était un brave homme. »
+Il se remit à boire sa chope qu'il serraït très fort. Et
+on sentait qu'il avait envie de se battre, ce vieux.
 
 184 uAND Mirza, la chienne noire, mit bas cinq petits, '
-n à Q madame Courtecuisse, la cabaretière d'Auby, réflé- Ÿ ë
+n à Q madame Courtecuisse, la cabaretière d'Auby, réflé-
 M chit à quels clients, les meilleurs buveurs, elle les don- à
-ES nerait, afiligeant sa petite fille Lydie qui voulait tous les i
+ES nerait, afiligeant sa petite fille Lydie qui voulait tous les
 DS garder. Alignés sur un banc, elle leur faisait la classe, HAS
-414 _ imitait les tics de la maîtresse d'école. Ses mouvements 17
+414 _ imitait les tics de la maîtresse d'école. Ses mouvements
 : ‘4 attisaient leur jeune folie de courir, mais la crainte du À
-4 vide les retenait de sauter. Ils gémissaient en se déme- 5
+4 vide les retenait de sauter. Ils gémissaient en se déme-
 nant et fixaient sur elle leurs yeux graves, pleins de id
-‘ 3 prières, des yeux bruns piqués d'or. 24
+‘ 3 prières, des yeux bruns piqués d'or.
 :4 Elle annonçait des punitions terribles contre tout ce ‘à
 mu  tumulte, mais embrassait à chaque minute des museaux à
 4 mouillés. En quatre jours, quatre furent donnés; Lydie $
 L_  pleura quatre fois et chaque fois plus fort. Aïmant les à
 nu cinq petits chiens de tout son cœur, avec toute sa force je
-3 % d'amour, elle en avait moins à aimer à mesure qu'ils i.
+3 % d'amour, elle en avait moins à aimer à mesure qu'ils
 V4  partaient, mais sans pour cela aimer moins; de sorte, | )
 ‘4 qu'elle chérissait davantage ceux qui restaient, leur (4
 4 donnant la part des disparus. L'idée qu'on lui enlèveM _ rait le dernier, l'héritier de la tendresse de tous, la :
-mn Sa mère, assujettie au comptoir, la surveillait peu, la 1
+mn Sa mère, assujettie au comptoir, la surveillait peu, la
 
 petite qui avait éprouvé les farces stupides des ivrognes
 fuyait le tour des tables, aimait les coins où jouer
 seule; aussi son angoisse était ignorée. Il lui restait
 une chienne dont personne ne voulait; ce dédaïn envers
-la bête prolongeait le bonheur de l'enfant qui lui faisait j
+la bête prolongeait le bonheur de l'enfant qui lui faisait
 une vie de caresses. Or, Jean-Baptiste Scoliège, de
 Coutiches, dit « Coucou », vint un soir au cabaret, but
 un « grand genièvre » et en offrit un à Courtecuisse qui
@@ -291,7 +291,7 @@ faisait le métier de passer, la nuit, du tabac belge entre !
 Mouchain et Orchies. Après le « grand genièvre », ils ;
 burent une pinte, puis il dit : :
 
-« A qui c'est ce quien qui aboie dans t'cour? » € n
+« A qui c'est ce quien qui aboie dans t'cour? » €
 
 — « Il n'y a pas de quien qui aboiïe à ct heure, » dit
 
@@ -321,7 +321,7 @@ ses genoux qui tremblaient un peu. Cependant, il fallut
 _ . la gronder pour lui faire manger la soupe et, sitôt ;
 soupé, elle eut froid, très froid. On la mit au lit, La
 
-| boutique close et l'argent du tiroir compté, Courtecuisse î
+| boutique close et l'argent du tiroir compté, Courtecuisse
 et sa femme en montant se coucher, trouvèrent Lydie )
 
 J assise sur ses couvertures, les yeux étincelants. Tendant
@@ -348,7 +348,7 @@ Cà consolatrices. Lydie guérie fut sage comme jamais
 
 ? auparavant : elle aimait se souvenir.
 
-4 Un matin, elle s'apprétait pour l'école ; un choc étrange,
+Un matin, elle s'apprétait pour l'école ; un choc étrange,
 
 \ comme d'un coup de boule à quilles, retentit dans la |
 
@@ -356,7 +356,7 @@ Cà consolatrices. Lydie guérie fut sage comme jamais
 
 À le poil fangeux, la langue longue, un fardeau sur le cou. |
 
-14 C'était sa course d'essai, avec une charge d'allumettes.
+C'était sa course d'essai, avec une charge d'allumettes.
 
 à Scoliège, pisté par ia Douane, n'avait pu l'attendre au
 
@@ -391,10 +391,10 @@ un « grand genièvre » et sa femme dit :
 « Cest bon. Qu'on ne le revoie plus, ce quien. Quand #
 jen aurai encore, je les noie tous. Voilà un client
 Lydie pleurait. Son père lui acheta une poupée, sa
-mère lui donna des « cliques » sur les joues. Puis elle 1
-mangea, dormit et s'apaisa. 1
-Follette, bien dressée, prit goût au métier; elle remplit la capitainerie de douane, de dossiers sur ses H
-exploits et le nombre de coups de feu qui l'avaient 1
+mère lui donna des « cliques » sur les joues. Puis elle
+mangea, dormit et s'apaisa.
+Follette, bien dressée, prit goût au métier; elle remplit la capitainerie de douane, de dossiers sur ses
+exploits et le nombre de coups de feu qui l'avaient
 Jean-Baptiste Scoliège de Coutiches, dit « Coucou », À
 n'aurait pas échangé la bête contre un ballot de point
 , de Malines, rendu franc de droits, à domicile.
@@ -403,10 +403,10 @@ Un beau soir plein d'étoiles que Courtecuisse prome24 |
 1 nait Lydie sur la route de Belgique, des coups de
 ‘4 revolver claquèrent dans le lointain bleu. ‘
 is Trois chiens silencieux, surgissant de l'ombre en
-1 arrière, parurent et disparurent, se ruant dans l'ombre 2
+1 arrière, parurent et disparurent, se ruant dans l'ombre
 j en avant. Menant la course, une bête chargée qui filait à
 ë comme une boule et vingt pas en arrière deux grands fe
-‘4 dogues maigres qu'on entendit soufller. Lydie avertie Ë
+‘4 dogues maigres qu'on entendit soufller. Lydie avertie
 h. par sa tendresse cria : « Follette ! » Comme si Folleite
 ‘e avait le temps!
 ä La route traversait un passage à niveau dont on ferok mait les barrières; le train sifflait proche; perdue, la
@@ -422,7 +422,7 @@ f — « Is l'ont pas eue » disait Courtecuisse en revenant
 À dans la poitrine des coups de ses petits souliers et répé-
 fe tait : « Ils l'ont pas eue! »
 Ë É Cependant, ils l'eurent : |
-3 Une nuit de mars qu'il avait beaucoup plu, les champs
+Une nuit de mars qu'il avait beaucoup plu, les champs
 1 de Flandre n'étaient plus que de la fange où les seV mailles germaient puissamment dans l'ombre humide.
 n Scoliège exténué perdit sa route dans la grande plaine
 à de boue que son effort semblait devoir soulever toute,
@@ -481,7 +481,7 @@ l_ douanier qui atteignit la bête la fit hurler d'un adroit
 
 4 devant, celle qu'il faut produire pour toucher la prime.
 
-2 Puis, ils s'emparèrent de la charge et s'en allèrent en
+Puis, ils s'emparèrent de la charge et s'en allèrent en
 
 Mu triomphe, la pique à l'épaule. La bête ne faisait plus
 
@@ -500,81 +500,81 @@ Ni, ù « Gette nuit, à la suite d'une Fs
 6 de coqs, un ouvrier mineur, n0m14 mé Léon Gambhier, demeurant à
 ‘à Rieulay, a tué son beau-frère,
 in Horace Mathieu, d'un coup de AE
-‘7 « Le parquet s'est rendu à Rieu- Ÿ.
-A! lay et a arrêté le meurtrier, qui L
-44 vient d'être conduit à la prison de ÿ 4
+‘7 « Le parquet s'est rendu à Rieu-
+A! lay et a arrêté le meurtrier, qui
+44 vient d'être conduit à la prison de
 1) « Le malheureux Mathieu laisse "2
 18 une veuve et trois jeunes enfants. » fe
-… x avait posé cette affiche dans tout le canton : Ë
-11 — Faubourg de Béthune — x
+… x avait posé cette affiche dans tout le canton
+11 — Faubourg de Béthune
 …_ Grande partie de cogs. Deux de trois morts pour 50 francs
 pi Broutin de Bersée contre Gilles dit Tit Bleu Re
 ta L'estaminet Tiberghien portait sur son toit un millé- :
 i C'était une vieille petite maison basse en face de la à
-| gare. On lorna ce jour-là d'un drapeau neuf qui pen- ÿ
+| gare. On lorna ce jour-là d'un drapeau neuf qui pen-
 T3 dait sur l'entrée sombre où se pressaient des hommes, ‘4
 
 De chaque côté de la porte stationnait un groupe qui
 se prenait de bec avec les arrivants : Re
-— « Te v'la ti, gros quien! » 4
+— « Te v'la ti, gros quien! »
 — « Ta point dit à t'femme que t'vené pinter ! Ah!
-Mais ces propos cessaient à l'arrivée des fermiers 4
-notables. La boue du dégel enduisait leurs fortes chaus- 4
+Mais ces propos cessaient à l'arrivée des fermiers
+notables. La boue du dégel enduisait leurs fortes chaus-
 sures. Ils portaient, dans des sacs de toile, des coqs
 qui chantaient de défi. La route par où ils venaient
-continuait la rue; les deux maisons extrêmes enca- 1
+continuait la rue; les deux maisons extrêmes enca-
 draient l'horizon de la plaine profonde où le grandvent
 déchirait des nuages. à
 On entrait dans l'estaminet par un couloir bas de ‘4
 plafond et où les gens ne se croisaient qu'en se cou- À
-doyant. Deux portes s'y faisaient face; il en sortait de M
+doyant. Deux portes s'y faisaient face; il en sortait de
 la fumée de pipe; les salles étaient pleines d'hommes.
 Dans leurs sacs pendus aux mêmes clous que les
-chapeaux les coqs invisibles gloussaient. i
+chapeaux les coqs invisibles gloussaient.
 Broutin, un mineur blafard, toucha une toile que soulevaient des coups d'ailes : |
-« C'est un bon c'ti ci. J'ons été le quere en Belgique: M
-dix francs quand il quittô sa mère. Trois mois après, il Ê
+« C'est un bon c'ti ci. J'ons été le quere en Belgique:
+dix francs quand il quittô sa mère. Trois mois après, il
 Un fermier colossal, le teint rouge comme un fer àla
 forge, saluait le chef de gare dont la casquette argentée
-glorifiait la salle. 4
-En réponse au : « Què nouvelles ? » cet homme consi- L
+glorifiait la salle.
+En réponse au : « Què nouvelles ? » cet homme consi-
 déré dit : :
 et se sauva vers la gare proche où une locomotive sifflait l'arrivée.
 Tiberghien, le propriétaire de l'estaminet n'avait plus
 
-‘0 ni cheveux, ni sourcils, ni barbe, sauf, près de l'oreille k
+‘0 ni cheveux, ni sourcils, ni barbe, sauf, près de l'oreille
 1 4 gauche, une touffe d'une dizaine de poils roux qui inté- (10
-‘À _ressaient comme les survivants d'un grand désastre ; il ï
+‘À _ressaient comme les survivants d'un grand désastre ; il
 n_ Jlouchait sous le rebord d'un chapeau mou cousu à une }
 perruque noire dont le poil raide devait avoir horreur
 
-“ de sa peau car il s'en tenait à trois centimètres. On K!
+“ de sa peau car il s'en tenait à trois centimètres. On
 “_ aurait pu passer le doigt entre ses cheveux et le crâne 1 à
-où ils prétendaient racine. î
+où ils prétendaient racine.
 #4 . Agent électoral de M. Lannois, distillateur et député, à
 (2 il était décoré du Mérite agricole; très fier de cela, il ‘à
 be. fronçait perpétuellement la lèvre supérieure comme #4
 pour s'en boucher le nez et découvrait ainsi les larges
 4. \ brèches noires de sa denture jaune. "
-t Entrant avec fracas par une petite porte vernissée 4
+t Entrant avec fracas par une petite porte vernissée
 inscrite « Cour », il rendit tout le monde attentif à sa nn
-…. fureur; il tenait à deux mains un grand coq ras de 7
+…. fureur; il tenait à deux mains un grand coq ras de
 … crête et criait à un serviteur piteux :
-« Je te l'avais bien dit. Fallait le laisser courir au 4
-" lieu de l'enfermer. » 4
-4 A becqueter sa cage, l'oiseau impatient s'était brisé 510
+« Je te l'avais bien dit. Fallait le laisser courir au
+" lieu de l'enfermer. »
+A becqueter sa cage, l'oiseau impatient s'était brisé
 À — « Pas la peine de le mettre au parc, dit Broutin, “4
-* c'est comme s'il était mort, à ct heure. Tu peux le ÿ
-4 Au comptoir, Mademoiselle Tiberghien, une sévère 1
-- fille brune à la lèvre pendante demeuraïit immobile, le 6
+* c'est comme s'il était mort, à ct heure. Tu peux le
+Au comptoir, Mademoiselle Tiberghien, une sévère
+- fille brune à la lèvre pendante demeuraïit immobile, le
 “ poids du corps sur une jambe. Son père l'apostropha : *
-k « À quoi penses-tu encore ? Ça veut se marier avec ñ
-: un employé. Pas de commerce. Rien que faire toilette ù
-: Le chef de gare, de retour, cherchait son verre. IL 4
+k « À quoi penses-tu encore ? Ça veut se marier avec
+: un employé. Pas de commerce. Rien que faire toilette
+: Le chef de gare, de retour, cherchait son verre. IL
 choisit, à tout hasard, le plus plein; l'ayant vidé il À
 
 afirma fortement qu'il fallait « battre les coqs » tout de
-suite, ou on n'y verrait plus clair. 6 Ô
+suite, ou on n'y verrait plus clair.
 
 Tiberghien ne décida rien. On n'avait pas encore
 assez pinté; d'ailleurs il était en discussion avec
@@ -631,41 +631,41 @@ hi. tinu, accéléré comme l'élan qu'il prit et qui se tut !
  rehondirent, se claquant sur l'estomac un grand coup t'a
 A: de leurs ergots d'acier; ébouriffés comme de vieux plu- .
 ‘1 meaux, ils s'attaquaient corps à corps, la griffe ouverte, À
-1 le bec fermé, dans un tourbillon de duvet. Cette passe t
+1 le bec fermé, dans un tourbillon de duvet. Cette passe
 …_ forcenée leur coupa le souflle et ils posèrent, menaçants, ;
 14 bec à bec, les plumes du cou en pelote d'épingles, étirés ‘
 d L entre la fureur de frapper et la peur de recevoir, longs il
 ‘1 comme s'ils pendaient par le cou aux crocs d'un mar- *
 * | » chand de volailles. |
-4 Leur haleine fusait blanche dans l'air froid et l'œil
+Leur haleine fusait blanche dans l'air froid et l'œil
 “noir serti de jaune brillait de la flamme impassible des
-| hi pierres précieuses. « Tit Bleu », la face collée à la grille é
-1 du parc, sifflait vers son coq une note interminable d
+| hi pierres précieuses. « Tit Bleu », la face collée à la grille
+1 du parc, sifflait vers son coq une note interminable
 | comme un coup de vent du soir dans les arbres qui à
 
-plient. Soudain, le chef de gare, un des mieux placés, se 4
+plient. Soudain, le chef de gare, un des mieux placés, se
 jeta par terre : FR
 « Bon Dieu! mon train! » y
 On entendait les conducteurs fermer les portières et |
-la sonnerie du disque tinter. 14
+la sonnerie du disque tinter.
 Le banc vacilla. Un jeune homme en veston, étudiant
 à l'Université de Douai, en étant tombé aboya : « Eh
 ben quoi? » C'était le fils de Gaston Delebecque, fer4 mier riche, dur et conseiller municipal. Son voisin, journalier âgé habillé de velours brun, le remonta en lui fai
-sant la place large. 4
+sant la place large.
 : Les coqs s'achevaient. Celui de « Tit-Bleu », fléchissant
 ses longues pattes sous les assauts, ne répondaït plus
 qu'à coups de bec aux coups d'ergots du coq de \
 Broutin; cependant, il lui happa son moignon de crête \
 et le secouant de toutes ses dernières forces, l'agenouilla. Mortellement blessés tous deux sans doute, ils
-haletaient et leur souffle faisait trembler les roupies de x
-sang qui leur pendaïent au bec. Celui qui tenait encore 1
-debout happait de temps à autre la crête de l'adver- É
-saire qui pour fuir ses coups mit la tête sous l'aile. Et 4
+haletaient et leur souffle faisait trembler les roupies de
+sang qui leur pendaïent au bec. Celui qui tenait encore
+debout happait de temps à autre la crête de l'adver-
+saire qui pour fuir ses coups mit la tête sous l'aile. Et
 on cria : « Perdu Broutin ! »
 Le coq de Tit-Bleu ne valait guère mieux et chancelaït,
 les yeux clos, mais l'autre ne se relevant pas, il fut
 Les deux coqueleux entrant dans le parc reprirent |
-leurs bêtes. Sitôt que le coq de Broutin sentit la chaleur J
+leurs bêtes. Sitôt que le coq de Broutin sentit la chaleur
 de la main de son maître, il se redressa vaillamment et }
 « IL est ben temps! » Les parieurs malheureux injuriaient la bête:
 “A « Tords-lui le cou! »
@@ -675,9 +675,9 @@ dans son sac et en frappa, à toute volée, le mur de la TRUE
 _ JIlne s'arrêta que lorsque la toile du sac se teignit de : À
 rouge et marqua le mur en lui éclaboussant le visage. RES 4 ;
 Tiberghien, un panier de verres sur le ventre, criait : LEE
-_ « À qui des chopes ? » A8
+_ « À qui des chopes ? »
 ” Derrière lui, une servante rouge aux cils collés, qui Se
-. portait de la bière dans un broc à toilette, apostrophait F2: 20e
+. portait de la bière dans un broc à toilette, apostrophait
 _ les hommes : à a
 . « Eh bien, vous ne buvez point ? » EL
 ÉD buvaient. Enfonçant sa rude figure dans une pinte, ES CE
@@ -686,7 +686,7 @@ un Flamand à cheveux jaunes avalait à grands coups AMOR.
 - son gosier s'entendait à plusieurs mètres. ce
 _ Au pied du mur où s'alignaient des dos, la terre Re
 rendait un son d'averse. UT
-« Il faut battre l'autre couple, avisa un homme, il va E
+« Il faut battre l'autre couple, avisa un homme, il va
 _ faire nuit. » ; “LACET ES
 … Tiberghien ne répondit pas. On devait boire. Dans le LS TRE
 _ ciel paraissaient les nuances de fleurs du crépuscule. 1 A
@@ -695,40 +695,40 @@ La divine paix des jours qui meurent planait sur le MEME
  Quittantle mur et les pintes, ils se serrèrent à nou- YO
 veau autour du parc. On apportait d'autres coqs. HS CE
 
--5 un bon ouvrier : e,
-3 maisons d'articles de voyage recherchaïent les É
+-5 un bon ouvrier
+3 maisons d'articles de voyage recherchaïent les
 à apprentis de M: Victor. C'était un de ces ouvriers a
 
 = de qui on dit qu'ils travaillent « en conscience », cela 5 KE
 És, s'entend : moins pour satisfaire le client que pour se ;
-“ contenter eux-mêmes. Il avait des manies; par exemple £ 4
+“ contenter eux-mêmes. Il avait des manies; par exemple £
 - il prétendait qu'il y eût toujours dans la vitrine un de RE
 ces sacs en tapisserie dont on ne se sert plus que pour CR
 …  jouerles vaudevilles en province. Son patron, M. Gossin, È -
 | l'y laissait et le cachaït par une valise en vache vernie, É "
 = à coins d'acier, article anglais. Entre M. Gossin et Lee
-_ M. Victor associés de fait, aucun contrat n'existait. Fr S
+_ M. Victor associés de fait, aucun contrat n'existait. Fr
 … Voilà vingt ans, M. Gossin monta la boutique et LS AE
 M. Victor « fit » la maison par sa main-d'œuvre. La clien- HSE
-_ ‘èle ne marquait pas entre eux de différence et 1e
+_ ‘èle ne marquait pas entre eux de différence et
 “ lorsqu'on lui présentait quelque réparation délicate, : | ‘4
 
-en M. Gossin demandait M. Victor au magasin. Il venait x
+en M. Gossin demandait M. Victor au magasin. Il venait
 ”_ de l'arrière-boutique, en tablier de toile brune, les man- Re
 > Il se présentait toujours lunettes bas. S #3
-_ S'il les remettait pour examiner l'article, il ôtait sa 4
+_ S'il les remettait pour examiner l'article, il ôtait sa
 _  toque, et dès qu'on le priait de se couvrir, enlevait de ee
-nouveau ses lunettes. 3
+nouveau ses lunettes.
 - Il lui fallait quelque chose dans les mains. ‘ < "3
 
-Étant veuf, il prenait place à la table de M. Gossin. É
+Étant veuf, il prenait place à la table de M. Gossin.
 IL y avait un fils Gossin, jeune homme célèbre dans les
 cafés, licencié es lettres, qui comptait, à la mort de papa, |
 vendre la maison. M. Gossin, aussi bon vivant que son
-fils, tué intestat par une congestion, l'entreprise fut 1
+fils, tué intestat par une congestion, l'entreprise fut
 cédée. Madame Gossin partit en Artois dans sa famille
-et son fils en villégiature avec une femme facile. 3
-Le premier jour que M. Victor, montant de l'atelier 4
+et son fils en villégiature avec une femme facile.
+Le premier jour que M. Victor, montant de l'atelier
 pour prendre son repas avec les nouveaux patrons, ne
 vit pas de couvert pour lui, il fut tellement impressionné
 qu'il remit ses lunettes et laissa pendre ses mains vides. .
@@ -739,7 +739,7 @@ restaurant avec les ouvriers, émus de l'affront fait à cet
 homme de cinquante ans. Mais, à la suite, ils lui montrèrent moins d'égards. Entre eux, parlant de lui, ils « disaient : le père Victor; et le deuxième ouvrier, qui
 enviait sa place, osa un jour l'interpeller: « Eh'!levieux! »
 M. Victor en fut aussi ému que de la suppression de :
-| son couvert. Le même soir, il aperçut son sac de tapis- l
+| son couvert. Le même soir, il aperçut son sac de tapis-
 serie dans un débarras. Il sentit trop âprement qu'il
 était chez les autres et dit au patron, avec douceur et
 « Monsieur, je m'en vais! »
@@ -762,7 +762,7 @@ telle qu'une minute d'attente, que la dernière minute.
 3 ouvrage, c'est une grande détresse, toute la vie laissée
 
 …. à la dérive par les habitudes rompues.
-3 Rien à faire de ses mains, rien de sa pensée, sinon <
+Rien à faire de ses mains, rien de sa pensée, sinon <
 
 ‘4 s'attrister de ne rien faire. Si l'oisiveté tuait aussi
 
@@ -777,34 +777,34 @@ telle qu'une minute d'attente, que la dernière minute.
 … lui firent honte. A son âge, s'abandonner ainsi! Il se à
 | serait frappé. Résolument, il décida de tenter un établis- £
 sement à son compte. Il chercha une échoppe de petit
-. loyer et, ménageant ses économies, se contenta d'un N
-_ sous-sol comme en ont les artisans pauvres dans les k
+. loyer et, ménageant ses économies, se contenta d'un
+_ sous-sol comme en ont les artisans pauvres dans les
 - villes fortifiées du Nord où la population est nombreuse
 … et la place réduite. On y descendait, à l'aide de trois
 S marches, par un soupirail ouvrant au ras du trottoir,
 4 dans la plinthe d'une boutique où chantaïient des blan-
-1 L'intérieur avait les dimensions d'un caveau de
+L'intérieur avait les dimensions d'un caveau de
 A la pensée du travail proche, un peu de joie tiède
 - soufla dans l'âme déserte et froide du vieil ouvrier. IL
-rangea là des planchettes, de la toile, des coupes de È
+rangea là des planchettes, de la toile, des coupes de
 
 … cuiret fabriqua des malles. Le jour du soupirail ne par-
 
 Fe courait pas toute la cave et M. Victor devait travailler
 Re exactement sous l'ouverture. | RES
 LS Beaucoup de mendiants quêétaiént dans ce quartier.
-RE pauvre. Le jeudi, on entendait sauter un gros sou 8
+RE pauvre. Le jeudi, on entendait sauter un gros sou
 ARTE _ un quart militaire désaffecté; un homme, la face vers.
 à le ciel, marchait au rythme de ce vacarme, brinquebalEee lant sa pancarte: #2
 | à « J.-B. Dubus, aveuglé aux mines de Liétard en 18.5
 # Il s'arrêtait auprès du soupirail et cachait le jour à
-Re M. Victor qui ne voyait plus ses clous dans ses sébilles 3
+Re M. Victor qui ne voyait plus ses clous dans ses sébilles
 AT la cave s'emplissait de cris: =
 Sa « Avôgle !.… A la fleur de l'äâge!.. Seul dans la vie!...
 ren) Il mettait des accents circonflexes sans compter. Son ”
 A. chien salissait les dalles. M. Victor, le marteau en
 a z arrêt, attendait la lumière. \ ‘4
-; # Ë Le mardi, c'était un manchot qu'on appelait « CM: É
+; # Ë Le mardi, c'était un manchot qu'on appelait « CM:
 (ee coupé » à cause de son affreux moignon et de ses nom__ breux enfants. Ils allaient en troupeau devant lui, la
 SAT mère portait le poupon et tous chantaient. 3%
 < Verse, verse des baisers. “2
@@ -821,16 +821,16 @@ Es « Vous avez vu? C'est des affaires de riches. » “4
 F _ Des voyageurs de commerce, en route vers la gare, … es
 _ s'arrêtaient, flairant la bonne affaire. SE. me
 Bientôt, des gens le pressèrent, criant par le soupi- ‘a
-- « Monsieur Victor! Quand commencerez-vous ma [ 4
+- « Monsieur Victor! Quand commencerez-vous ma [
 F: _ Au bout de six mois les commandes le dépassaient, ET
-ï _ mais il n'en exécutait ni plus vite ni plus mal la pre- 3 4
+ï _ mais il n'en exécutait ni plus vite ni plus mal la pre-
 __ Un parfum d'abondance monta de la cave où le #
 E: vieil ouvrier emplissait ses jours de travail comme pe
 - un ivrogne emplit de vin son verre : à ras. Les %
 >. chercheurs d'aubaines guettaient les malles à porter RER
-Pa domicile. M. Victor attitra un commissionnaire : le 1
-Il siégeait à l'estaminet Tricoux, à l'enseigne : F4
-2e Ici on est mieux qu'en face. : 13
+Pa domicile. M. Victor attitra un commissionnaire : le
+Il siégeait à l'estaminet Tricoux, à l'enseigne
+2e Ici on est mieux qu'en face.
 à F C'était un ancien boulanger, vieil homme à peau ; ‘4
 ‘3 duvetée par quarante ans d'enfarinage. RAR ec
 _ La plaque en cuivre de son képi municipal ressem- OT
@@ -848,11 +848,11 @@ __ fumée de sa pipe : TS
 
 Il y eut une grande dispute. M. Victor fut traité par "4
 toutes les femmes à la fois de vieux rat : à
-« Ça vit dans un trou! Ça n'a pas de linge! » 4
-Finalement, la blanchisseuse donna congé et M. Victor 4
-\ prit la boutique. Il embaucha deux de ses anciens ap- 3
-prentis, revenus du régiment, et mit dans la vitrine un 4
-sac en tapisserie. Les clients de la maison Gossin : E
+« Ça vit dans un trou! Ça n'a pas de linge! »
+Finalement, la blanchisseuse donna congé et M. Victor
+\ prit la boutique. Il embaucha deux de ses anciens ap-
+prentis, revenus du régiment, et mit dans la vitrine un
+sac en tapisserie. Les clients de la maison Gossin
 « Vous auriez dû nous dire... vous faire aider... »
 protestaient les dames à paroissiens, heureuses de. ‘4
 retrouver, pour leur maroquinerie, l'ancienne maind'œuvre, à meilleur compte. Les salons eurent ainsi
@@ -860,39 +860,39 @@ retrouver, pour leur maroquinerie, l'ancienne maind'œuvre, à meilleur compte. 
 M. Gossin qui jetait à la rue un vieil ouvrier : À
 « Un homme si capable, ma chère! » Ee
 On venait maintenant chez M. Victor de toute la &
-L'arrière-boutique où il couchaït, envahie par les Ë
-marchandises, il loua le premier étage et y fit placer L
-une pancarte à lettres dorées : s 1
+L'arrière-boutique où il couchaït, envahie par les
+marchandises, il loua le premier étage et y fit placer
+une pancarte à lettres dorées
 L'année suivante, il dut prendre à baïl toute la
 
 10 l'estaminet du Coq à Trois Pattes Ka
 eo É: paysan était content de la moisson : pas beaucoup nus.
-; 10 de gerbes, mais des épis très lourds : plus de grain : 5
+; 10 de gerbes, mais des épis très lourds : plus de grain
 _ que de paille. k ne:
 1e Les meules jaunes de l'avoine, les meules blanches .
 du blé, les meules grises de l'année d'avant, maintenant #
 _ habitaient la plaine fauchée. Leurs groupes semblaient, à
 …_ au loin, des hameaux. ire
-BE De petites glaneuses, harassées, s'y adossaient assises 5
-_ et présentaient à l'horizon leur semelle à gros clous. 54
+BE De petites glaneuses, harassées, s'y adossaient assises
+_ et présentaient à l'horizon leur semelle à gros clous.
 - Elles regardaient venir, là-bas, la première brume î :
 - d'automne, l'invasion du brouillard guettant la plaine ce
 > recueillie où deux routes blanches traçaient une croix. Êe
-Ée. Le cri d'une bête de ferme sondait le silence et en à 1
-…  révélait la profondeur. É
+Ée. Le cri d'une bête de ferme sondait le silence et en à
+…  révélait la profondeur.
 _ Au lieu du corps arqué des faucheurs, parmi les ‘a
 moissons entamées, élevant à deux bras, sur le ciel AT
 … bleu, leur gourde pleine, on ne voyait plus que vague- ANA
-…_ ment, dans les vapeurs, le dos rond des chasseurs ‘ 34
+…_ ment, dans les vapeurs, le dos rond des chasseurs ‘
 #4 parmi les champs de betteraves où la queue des chiens ES
-* en quête panachait en battant les larges feuilles. 4:
+* en quête panachait en battant les larges feuilles.
 : 7140 Au bord d'un petit bois roux, piqué dans la plaine *
 comme un plumet, apparaissait le « château », une RER
 __ maison blanche à toit d'ardoise. Tout proche, le village CRE
 
-gris couvé par le clocher noir. Des fumées montaient, e
+gris couvé par le clocher noir. Des fumées montaient,
 rêveuses, comme quittant la terre à regret. À
-Le temps frais évoquait le désir du coin du feu. On se 3
+Le temps frais évoquait le désir du coin du feu. On se
 pelotonnait déjà dans le grand regret de l'été fini et le |
 souvenir consolant des joies douillettes de l'hiver passé. }
 Peu de monde aux champs : une vieille accroupie dans
@@ -903,8 +903,8 @@ de verdure tordue. Sur la route venaient, claquant leurs |
 moisson vêtus de gros velours couleur de glèbe. *
 Un mouchoir flamand, tont neuf, coloré comme un
 drapeau, leur flottait autour du cou. Quelque colporteur
-belge venait de passer. Avec le gain de la moisson, ils F
-La meilleure bière se débitait à l'estaminet du Cog à 4
+belge venait de passer. Avec le gain de la moisson, ils
+La meilleure bière se débitait à l'estaminet du Cog à
 Trois Pattes, célèbre par un oiseau empaillé. |
 Le professeur d'histoire naturelle du lycée de Douai, ,
 surnommé par ses élèves « Grandes Eaux » à cause de
@@ -919,30 +919,30 @@ timidité réelle, campa son binocle sur son nez de docteur, boutonna ferme sa r
 — « Min poulet, c'est min poulet », dit la mère Bou50
 
 "4 sigue. « Vous ne prenez rien ?.. Allez-vous-en dans vô?
-2 « Grandes Eaux » concevait le monde comme un Ë
+2 « Grandes Eaux » concevait le monde comme un
 ÿ U . espace où l'on s'aventure, pas trop loin, pour rapporter :
 ‘2 dans son cabinet, des curiosités. La vie ne lui avait
 0 laissé d'autre joie que collectionner. Cette joie perdue, ;
 ‘4 il s'en alla très triste, trouvant la vie inutile. “
 ch Madame Bousigue dit à toutes ses pratiques qu'elle
 venait de refuser soixante francs de son coq. Dès lors,
-—_ sa célébrité accrue fit boire davantage de chopes. i
+—_ sa célébrité accrue fit boire davantage de chopes.
 ë. Monsieur du Trieux, le châtelain, bel homme : un
- lutteur qui aurait la peau fine, menait, ce jour-là, sa 5
+ lutteur qui aurait la peau fine, menait, ce jour-là, sa
 “ jeune dame voir le coq à trois pattes. Du seuil, il l'en-
 Re: « Voyons, venez; le cabaret est vide. »
-ke — « C'est bien vrai? » 4
-4 Il n'y faisait pas propre, les Bousigue devenant vieux.
+ke — « C'est bien vrai? »
+Il n'y faisait pas propre, les Bousigue devenant vieux.
 Ê: Elle entra, sur la pointe des pieds, relevant à pleines
-—._ mains sa jupe, comme par la pluie. Le linge dentellé É
+—._ mains sa jupe, comme par la pluie. Le linge dentellé
 —_ parut, auréolant la haute bottine que gonflait la
 —_ cheville musclée. Sur le parquet, le sable contenait une
 foule de brindilles, de scories de semelles. Le parfum ;
 « de femme soignée de la châtelaine plaisait parmi les Le
-F. odeurs de fiente des oiseaux élevés par Bousigue. Ils F
+F. odeurs de fiente des oiseaux élevés par Bousigue. Ils
 …_ puaient dans des cages faites avec des treillages ;
 … coupés aux clôtures du château.
-_ Madame Bousigue torcha, d'un coup de manche, des È
+_ Madame Bousigue torcha, d'un coup de manche, des
 4 — « Mettez-vous. Monsieur. Madame. Mettez-vous! » L !
 - Elle défit son tablier bleu, le traîna sur une table ver- à
 4 nissée qui collait aux mains et, l'ayant remis, demanda : &
@@ -956,16 +956,16 @@ cils. Rien à racler sur son maigre visage dur comme
 La vieille ouvrit la porte de la cour; Bousigue était
 là qui clouait sur une planche un morceau de grillage « : fraîchement volé. 5 ee “4
 Elle cria, comme s'il eût été loin dans les champs:
-« Viens t'en quère le coq! » È
-; — « Pleurez point! Pleurez point! Je vas le quère! 5
-Levant ses bras secs où saillaient d'énormes veines, il 4
+« Viens t'en quère le coq! »
+; — « Pleurez point! Pleurez point! Je vas le quère!
+Levant ses bras secs où saillaient d'énormes veines, il
 atteignit la bête empaillée. LE
 # — « Pose-le là! » dit madame Bousigue, frappant de
-: sa main dure la table essuyée. n.
-— « Et d'à, le poser ?.. Tais-teu, minteux! » 4
-Et il le posa où elle avait dit. A ce moment les jourpaliers de moisson entrèrent, raclant leurs sabots. ë.
+: sa main dure la table essuyée.
+— « Et d'à, le poser ?.. Tais-teu, minteux! »
+Et il le posa où elle avait dit. A ce moment les jourpaliers de moisson entrèrent, raclant leurs sabots.
 lis allèrent tous s'asseoir dans le coin le plus éloigné
-des châtelains. £; 40
+des châtelains. £;
 — « Eh bien, oui, c'est entendu; il a trois pattes »,
 dit madame du Trieux; « si nous nous en allions, maintenant. » À
 Les journaliers demandaient, à voix contenue : « Des
@@ -974,38 +974,38 @@ merle sifla et changea de perchoir. On entendit, net, le
 à coup sec des pattes agriffant le barreau. :
 — « Ça sent si mauvais ici, se plaignit madame du
 Trieux. Allons-nous-en, dites. » Dans le groupe des
-52 2
+52
 
 es journaliers, un homme se frappait glorieusement la
 D. — « Mi, je vous dis qu'ils ne peuvent point boire. de
 _ C'est pas des hommes, ça. Nous au moins, voilà ! » HP
-346 Et, empoignant son grand verre, il se le vida, d'un %
+Et, empoignant son grand verre, il se le vida, d'un %
 20) seul coup, au fond du gosier. La bouche déborda et le à
 _ coin des lèvres fit gouttière. dans le cou. “
-0 Madame du Trieux : D
-ee — « Allons-nous-en. Je vous en supplie ! Allons-nous- F
-::s — « Maïs non, ma chère. Si nous nous laissons braver M
+Madame du Trieux
+ee — « Allons-nous-en. Je vous en supplie ! Allons-nous-
+::s — « Maïs non, ma chère. Si nous nous laissons braver
 D. sans réplique, demain il y aura vingt trous dans la haie À
 4 du parc... Un cognac ! »
 Re: Un oiseau faisait « tiu-tiu ».
 ; ï Le buveur héroïque se dressa, un beau gaillard blond,
 Fe encore duveté : ne
-Fe — « Mi, je bois la goutte dans des p'tiots verres : F
-“#4 parce que je suis pauvre; mais si j'serons riche, 3
+Fe — « Mi, je bois la goutte dans des p'tiots verres
+“#4 parce que je suis pauvre; mais si j'serons riche,
 3 .  j'boirons à la bouteille, parce que je suis un homme. »
-nn — « Ça va finir, ça, » dit madame Bousigue. Les 4
-‘0 hommes ronronnaient des encouragements derrière ë 2
+nn — « Ça va finir, ça, » dit madame Bousigue. Les
+‘0 hommes ronronnaient des encouragements derrière
 4 — « Je parie vingt chopes que je bois un litre de te
-3 IL défiait le riche que la mère Bousigue, guettant À
-à l'aubaine, suppliait de l'œil et des mains. Lançant cinq 54
-38 francs sur le comptoir, M. du Trieux dit : « Tenu ! » Ë
-: be — « Es-tu fou ? » demanda sa ferme. f
+IL défiait le riche que la mère Bousigue, guettant À
+à l'aubaine, suppliait de l'œil et des mains. Lançant cinq
+38 francs sur le comptoir, M. du Trieux dit : « Tenu ! »
+: be — « Es-tu fou ? » demanda sa ferme.
 3 + Fatiguée d'énervement, elle s'appuya du dos à la ;
 À chaise dont elle tenait le bord. JE
 
-La vieille donnait un litre que le grand blond empoigna. Il dit : « Voilà ! » et, campé devant le comptoir 1
+La vieille donnait un litre que le grand blond empoigna. Il dit : « Voilà ! » et, campé devant le comptoir
 emboucha le goulot. À
-Sous la peau de son cou tendue par le renversement 4
+Sous la peau de son cou tendue par le renversement
 de la tête on voyait descendre les gorgées. Très rouge, À
 il s'arrêta pour mirer le flacon. Il était à moitié. ;
 — QIl n'y a pas de plaisir, hein? dit un journalier. :
@@ -1014,12 +1014,12 @@ Les Flamands parlaient bas. $
 — « Après ça, tu seras solide. Voilà du bon, tu sais! »
 aflirma le père Bousigue qui versait les vingt chopes. :
 Ses compagnons les vidèrent en souhaitant : ;
-. Il répondit : &A la vôtre » et biberonna son litre avec 5
+. Il répondit : &A la vôtre » et biberonna son litre avec
 un renvoi du gosier. Ça ne passait plus. Il s'assit, les ;
-mains entre les genoux, ses gros doigts pendant vers la 4
+mains entre les genoux, ses gros doigts pendant vers la
 Madame du Trieux épouvantée lui parla : ;
 — « C'est assez. Vous allez vous rendre malade. » "2
-Il dirigea sur elle ses yeux rouges et l'effort de soule- î
+Il dirigea sur elle ses yeux rouges et l'effort de soule-
 ver les paupières lui ouvrit la bouche. Il avait de |
 — « Pas de danger, assura le père Bousigue, c'est du
 Un geai dit un de ces mots qui s'orthographient une
@@ -1031,14 +1031,14 @@ dernières gorgées lui remuaïit le torse.
 Ses compagnons le flattaient. ; .
 — « Gagné! Voilà un homme ! »
 
-1 Tout bu, il se tordit et mit ses pieds l'un sur l'autre, }
+Tout bu, il se tordit et mit ses pieds l'un sur l'autre, }
 _  écrasant celui de dessous. Appuyé des reins au comptoir, il ne s'occupa plus de rien autour de lui. =
 4 . Madame Bousigue lui ôta la bouteille vide et il tomba
 … lourd comme un mort. #3
 …._ Les camarades accourus le relever le posèrent sur
 É une table trop courte d'où pendirent, aux deux bouts,
 _ ses jambes et ses bras. ;
-4 Madame du Trieux mangeait un de ses gants.
+Madame du Trieux mangeait un de ses gants.
 —  —« M'faut quère de l'eau pour c't homme, dit la mère
 - Bousigue. Vous désolez point, madame, ça lui passera. »
 - Dans un silence soudain énorme, on entendit les
@@ -1046,7 +1046,7 @@ _ ses jambes et ses bras. ;
 à M. du Trieux emmenait sa femme défaillante. Elle
 . marchait si lentement qu'elle comprit encore un journa- ;
 —._ lier repoussant la cruche de la vieille revenue de la
-…._ —« Plus la peine. C'est de l'eau bénite qu'il lui faut. » 5
+…._ —« Plus la peine. C'est de l'eau bénite qu'il lui faut. »
 
 3 une bonne âme
 ONSIEUR de Samer, blond et créé pour le bonheur
@@ -1056,10 +1056,10 @@ Voilà qu'il mourut. Elle pria davantage. Cette âme
 4 racheter les péchés de son mari. Elle ermita dans le
 E château de famille échoué au bord d'un bois du Nord,
 4 profond comme la mer et où l'on ne chassait plus.
-4 Monsieur de Samer et ses amis y avaient accompli des
+Monsieur de Samer et ses amis y avaient accompli des
 L prouesses dont les plus jolies villageoïises gardaient le
 ÿ souvenir. Sa veuve laissa vivre en paix le gibier qu'il
-4 Sur le sol vert des routes mortes, les lapins jouaient
+Sur le sol vert des routes mortes, les lapins jouaient
 …. maintenant en famille. On voyait, parmi leurs cabrioles,
 Ÿ paraître l'envers blanc de leur queue. Ils pullulaient.
 ; Les paysans pâtirent. A l'entour du bois les cultures
@@ -1071,18 +1071,18 @@ L prouesses dont les plus jolies villageoïises gardaient le
 « Laissez en paix cette sainte femme qui est la Provi- +
 dence du pays. » LR
 Elle donnaïit à tous : au pape, aux hautes et grandes
-dames patronnesses, à l'évêque doucereux, au curé 4
+dames patronnesses, à l'évêque doucereux, au curé
 caressant, au sacristain furtif et aux madrés che- %
 mineaux qui se confiaient son adresse pour y venir #
-Il passait, nu-pieds, des mendiantes de village, entor- Æ:
-5 tillées de toile à sac; leur besace, bosselée de croûtons, s.
+Il passait, nu-pieds, des mendiantes de village, entor-
+5 tillées de toile à sac; leur besace, bosselée de croûtons,
 raclait les os de leur dos maïgre et elles avaient noué
-leur face résignée, aux yeux astucieux, dans un vieux 2
+leur face résignée, aux yeux astucieux, dans un vieux
 fichu couleur torchon; puis, des mendiantes des villes, |
 . vêtues par la charité des dames, de vieilles choses ».. |
-faites pour aller au bal. Des rôdeurs des champs 4
-A redoutés des poules dont des plumes restaient au fond 4
-de leur sac plein de tours, venaient, le dos rond, le É:
+faites pour aller au bal. Des rôdeurs des champs
+A redoutés des poules dont des plumes restaient au fond
+de leur sac plein de tours, venaient, le dos rond, le
 : regard en quête, flairant vers les basses-cours et les À
 portes mal closes. Aux aboiïiements des chiens de ;
 ferme soudain furieux, ils se hâtaient en serrant leur :
@@ -1130,7 +1130,7 @@ E femmes des choses obscènes. Les boutiquiers en pro-
 
 “ des yeux sournois guettaient les chemins. Le pays
 
-LL ._ devint désert. Une auberge tenue par une vieille femme Ù
+LL ._ devint désert. Une auberge tenue par une vieille femme
 E aidée d'une jeune servante fit faillite; la veille de la
 
 D. vente par maître Langlois, huissier à Lille, la petite
@@ -1150,13 +1150,13 @@ baronne mangent mon pré. Ses mendiants font s'enfuir
 be mes pratiques. M'servante m'vole. Et j'vons être vendue.
 
 J'aurons plus de maison. Pourtant, j'ons rèn fait de mal %
-et je suis ben vieille. Y a pas de bon Dieu ! » 4
+et je suis ben vieille. Y a pas de bon Dieu ! »
 
 Le curé l'adressa à madame de Samer qui lui fit l'au- à
 mône mais ne lui rendit pas son auberge : « un lieu de
-perdition », et ce fut une de plus qui rôda autour du ë
+perdition », et ce fut une de plus qui rôda autour du
 
-Monsieur Matuire, un petit fermier qui menait sa Î
+Monsieur Matuire, un petit fermier qui menait sa
 charrue lui-même, trouva un soir, au bout de sa fou
 che, un nid de chemineaux dans son foin. Il leur piqua
 les reins en criant; eux s'enfuirent, silencieux, puis le
@@ -1212,7 +1212,7 @@ _ prêté... Et la vaque!… Et le viau! Tire dessus!
 à madame de Samer fuyaient des ombres sournoises.
 , à Dans toutes les maisons on criait. La voix aiguë des
 3 _ femmes implorait le ciel. Quelques hommes pensèrent
-Fe _ à lutter. Il y avait bien une pompe mais elle venait de 5
+Fe _ à lutter. Il y avait bien une pompe mais elle venait de
 de - - prendre feu. Rien à faire que fuir. Dans un paysage de
 4 cauchémar, chariots, bêtes et gens passaient chargés
 Ea de dépouilles. Les flammes parcourant les ténèbres, y
@@ -1282,18 +1282,18 @@ plus étroit du fossé pour sauter vers l'une d'elles quand,
 
 Ë depuis une fois que je l'avais ramené chez lui, ivre à
 
-indigner ses cochons. Se trouver dans cet état et tenir É
+indigner ses cochons. Se trouver dans cet état et tenir
 
-quelquefois sur deux pieds le distinguait d'eux qui ÿ
+quelquefois sur deux pieds le distinguait d'eux qui
 
 mangeaient tout autant, mais lui buvait mieux. à
 
 Depuis cette aventure, il voulait toujours, par re- %
-connaissance, me désaltérer, Grand, fort, la face rouge, x
+connaissance, me désaltérer, Grand, fort, la face rouge,
 il s'éventait de son vieux chapeau, tant de fois tombé
 par terre, où c'était si difficile de le reprendre, même
 
-; en lui parlant avec douceur. Certaine fois, Vancoppen- d
+; en lui parlant avec douceur. Certaine fois, Vancoppen-
 hole appliqué à le ramasser, s'étonna que son bras fût
 si court, se pencha d'autant qu'ils'étonnait, et tomba les |
 deux genoux sur son chapeau, qu'il continua longtemps
@@ -1340,7 +1340,7 @@ ses semelles et du fer de son bâton.
 
 À — « Ce n'est pas bien de vous moquer de moi dans
 
-3 Pétat où je suis. Quelle chaleur ! Ça me rend malade.
+Pétat où je suis. Quelle chaleur ! Ça me rend malade.
 
 ; Du temps bien dur pour les moissonneurs, mais ils ont
 
@@ -1399,9 +1399,9 @@ voyait de loin sur la chaux nouvelle du mur qui repous-
 
 sait le vert des pampres. Tous les amoureux qui passaient devaient souhaiter de vivre là. Un pont, en dos
 de baudet, à haut parapet de pierre grise menait, par
-dessus le fossé du chemin poussiéreux à la cour garnie Ë
-— de gravier luisant. Derrière ce nid, la plaine dorée 7
-reculait jusqu'à un horizon sans brumes éloigné par la. 3
+dessus le fossé du chemin poussiéreux à la cour garnie
+— de gravier luisant. Derrière ce nid, la plaine dorée
+reculait jusqu'à un horizon sans brumes éloigné par la.
 limpidité de l'air brûlant. Très loin, tournaient les
 ailes d'un moulin. ;
 
@@ -1448,16 +1448,16 @@ chir à des choses graves et imprévues.
 | Derrière lui sortit en dansant un petit homme sans
 . chapeau, coiïffé en nonne par un pan de sa blouse.
 
-Sabrant de la irique, on eût dit qu'il écartait des bêtes. A 3
+Sabrant de la irique, on eût dit qu'il écartait des bêtes. A
 L fit plusieurs fois le tour de Vancoppenhole, l'atteignit
 enfin et s'appuya subitement sur lui. A cette surcharge, À
-le bâton de Vancoppenhole oscilla, faisant crier le l
+le bâton de Vancoppenhole oscilla, faisant crier le
 Quand il fut certain de rester debout, le petit homme À
 ‘ bien cramponné cria : « Cochon ! » à
-Et il rit, ouvrant une bouche à la noirceur insondabie k
-où subsistaient, solitaires, s'éloignant les uns des autres ÿ
-comme s'ils se faisaient peur, quelques chicots de dents É
-hérissés, féroces, effrayants dans la gencive rouge. 2
+Et il rit, ouvrant une bouche à la noirceur insondabie
+où subsistaient, solitaires, s'éloignant les uns des autres
+comme s'ils se faisaient peur, quelques chicots de dents
+hérissés, féroces, effrayants dans la gencive rouge.
 Vancoppenhole, le front penché, réfléchissait à des”
 ! choses sans douie encore plus graves et tout à fait ,
 inattendues. Le petit homme hurla de nouveau : « Cochon! » avec une telle violence qu'ébranlé par l'effort,
@@ -1516,19 +1516,19 @@ bruit par celui des roues, ils vociférèrent :
 
 1 qu'au fond des âmes, le splendide regret du soleil
 
-4 2419. 4
+4 2419.
 
 4 une ville riche ME REU
 F. A fortune d'Armentières est récente. Elle fait partie A
 î L de ce mouvement de prospérité industrielle qu'ont » suivi les cités du Nord : Roubaix, Tourcoing, et qui fait
-| déborder la population de Lille hors des vieilles mu4 _ railles, dans des quartiers de maisons en bois soumis j
+| déborder la population de Lille hors des vieilles mu4 _ railles, dans des quartiers de maisons en bois soumis
 : aux servitudes militaires. De temps ancien et jusque
 avant la guerre, Armentières eut pour devise : « Pauvres Eur
 % et fiers. » Elle y a, depuis vingt ans, changé un mot : “4 » « Riches et fiers. » :
 \ La prospérité par l'industrie textile est venue en une À
 4 génération ; les petits patrons de tissages aidés à s'éta- ii
 4 blir grands industriels par des mariages avec la grande
-… industrie de la région de Lille. On sentait la fortune M
+… industrie de la région de Lille. On sentait la fortune
 ne venir; les capitaux affluaient. Cette augmentation de
 * richesses demeurait dans le cercle restreint du patronat; il
 le peuple n'en ressentait aucun bien-être ; il multipliait We
@@ -1542,17 +1542,17 @@ pauvres, cela faisait une ville productrice, florissante.
 ; Les petits patrons devenus grands industriels étaient à
 tous atteints de cette maladie des fortunes jeunes : la
 crainte de mourir de faim. Ils organisaient en consé-
-quence la misère autour d'eux, par l'accaparement du 1
+quence la misère autour d'eux, par l'accaparement du
 Engraissés depuis peu, ils avaient la terreur de maigrir. '
 Les rivalités établies entre ces fortunes faisaient une
 nécessité de les affirmer par le luxe. En bas, la détresse
 augmentait en proportions égales. Les révoltes de la
 classe ouvrière, les grèves, le tarif de 1889 n'arrêtèrent
 pas cette frénésie de possession chez les possédants,
-cette ténacité à ne donner à l'ouvrier qui contribuaït à r
+cette ténacité à ne donner à l'ouvrier qui contribuaït à
 l'augmentation des richesses que le moins possible de
 cette augmentation : le prix de sa tartine sans viande
-Les familles des industriels devenues très nom- M
+Les familles des industriels devenues très nom-
 breuses, aussi nombreuses que des familles d'ouvriers,
 force était encore de gagner davantage pour établir Les |
 Sous cette domination, la colère de l'ouvrier est d'autant plus violente qu'il a vu grandir ces fortunes. Elles
@@ -1573,7 +1573,7 @@ déterminent l'émeute, le pillage.
 
 On vient de le voir.:
 
-Le riche s'isole. IL ne répand aucun bien-être, il n'est k L
+Le riche s'isole. IL ne répand aucun bien-être, il n'est
 le client d'aucune boutique. Il s'habille, se chausse, se
 meuble à Lille ou à Paris. À Armentières, aucun commerçant qui, vivant du riche, prendrait son parti; rien
 que la petite boutique, le marchand pauvre qui vit du
@@ -1599,29 +1599,29 @@ est élégant, orné, bâti d'orgueil, chaque villa envieuse
 des autres. On y rencontre des domestiques replets,
 
 | bien en chair, et leurs maîtres qui paraissent pres- #50
-\ que aussi bien nourris : des êtres d'abondance, des 24
+\ que aussi bien nourris : des êtres d'abondance, des
 fleurs de luxe. Voulez-vous voir le fumier qui leur : À
-donne tant de vie ? Traversez la Lys. De la Grand Place M
+donne tant de vie ? Traversez la Lys. De la Grand Place
 à la fin d'Houplines, les corons d'ouvriers s'étendent, je
 monotones, noircis, petites portes, petites fenêtres et &.
 toujours petits rideaux blancs. De proche en proche, ‘4
 les énormes bâtiments d'une fabrique, puis les corons
 de petites maisons humbles reprennent, au long de la de.
-rue dans laquelle s'ouvrent des veselles étroites, cour- ï 4
+rue dans laquelle s'ouvrent des veselles étroites, cour-
 tes, par où se découvrent les champs : la grande nlaïine ; %
 du Nord, où les moulins à vent font des signes de À
 Pour s'aider à vivre, cette population aux salaires
 À misérables a la fraude, les produits belges passés par
-les contrebandiers professionnels. En dehors des patrons 4
+les contrebandiers professionnels. En dehors des patrons
 fraudeurs qui ont des chevaux et entrent le tabac à ‘à
 __ pleines voitures, cette industrie de la fraude entretient
 bon nombre de flamands belges et français, tous +
 jeunes : c'est un métier où il faut courir vite. Appa- ,
 rentés aux tisserands, vivant avec le peuple des fabriques, commerçant avec lui, ils ont, comme lui, la haine #
 du patron riche et, en plus, l'audace qui est la qualité ;.
-de leur vie d'hommes chassés. 0
-Dans la tête de colonne qui vient de convertir la 4
-grève en émeute, se trouvaient le fraudeur et l'enfant 4
+de leur vie d'hommes chassés.
+Dans la tête de colonne qui vient de convertir la
+grève en émeute, se trouvaient le fraudeur et l'enfant
 des fabriques; ceux qui savent donner le premier coup ù |
 et ceux dont la rage jeune voudrait bien le donner, À
 mais, timide, n'ose pas seule, a besoin de l'exemple et
@@ -1655,7 +1655,7 @@ sonores et ces craquements menus du bon bois que l'on |
 
 < défonce; puis, dans le salon envahi, un enfant de dix-
 
-É huit ans, un flambeau de bronze dans chaque maiïn, Û
+É huit ans, un flambeau de bronze dans chaque maiïn,
 
 ï frappe en mesure dans la glace dont de grands triangles
 
@@ -1683,27 +1683,27 @@ toute la largeur de la rue, la croupe des chevaux frôlant }
 L. le mur des maisons. Quand les soldats mettent sabre
 + au clair, la foule est loin, disséminée en une galopade à
 
-k furieuse de ses gros souliers, parmi les courettes, dans 1
+k furieuse de ses gros souliers, parmi les courettes, dans
 les corons sombres dont les petits rideaux blancs \
-cachent des têtes émues et narquoises. k
+cachent des têtes émues et narquoises.
 Ils fuient devant le soldat, mais ne le haïssent pas.
 S'il est l'arme au pied, barrant une rue, ou en faction
 à la porte d'une usine, ils lui parlent; les filles le plaï-
-santent, rient avec lui ou le plaignent; les hommes lui j
+santent, rient avec lui ou le plaignent; les hommes lui
 demandent : « Encore combien de temps ? » Quand un
 timide ne sait pas faire évacuer le trottoir, n'ose laisser |
 retomber la crosse du fusil sur les pieds et que l'officier .
 l'observe, ils lui obéissent pour ne pas le faire punir. À
 C'est un métier où ils ont passé. ; |
-Envers l'officier, ils ont le sarcasme, l'insuite, la 4
-revanche contre l'autorité subie au régiment et la boue 1
+Envers l'officier, ils ont le sarcasme, l'insuite, la
+revanche contre l'autorité subie au régiment et la boue
 jetée sur le galon qui reluit trop et leur fait mal aux |
-yeux. Ils aiment le galon lorsqu'il est un spectacle et 4
+yeux. Ils aiment le galon lorsqu'il est un spectacle et
 lexècrent en temps de grève, où il est une menace. }
 Le plus haï, c'est le gendarme. Il est le plus acharné,
 le plus habile à chasser l'homme; il connaît le pays, il
 y est connu; il note les fraudeurs qui mènent l'émeute; ‘
-il les a déjà poursuivis, sait leur tête, leur nom. Il est S
+il les a déjà poursuivis, sait leur tête, leur nom. Il est
 un témoin redoutable. 11 y a, pour de vieilles affaires, |
 des rancunes contre lui. Ce que la foule voudrait pendre, |
 c'est un vieux brigadier de gendarmes et un officier bien
@@ -1749,7 +1749,7 @@ quoique donnant l'effort suprême de son corps déshérité.
 Elle s'arrêta. Celle à qui j'avais donné lui montra ses
 deux sous et dit :
 
-— Ça fait déjà six. 3
+— Ça fait déjà six.
 
 La voyant traverser la chaussée vers un monsieur
 
@@ -1762,48 +1762,48 @@ de l'émeute, beaucoup de portes et de volets étaient. +
 : rapiécés de bois neuf, d'une blancheur de pansement.
 NE Au-dessus d'un battant frais verni, un côté de vitrail A
 était remplacé par un verre clair, sans doute provisoire. ‘4
-| Réparées et closes sur la rue tranquille, les maisons 5h
+| Réparées et closes sur la rue tranquille, les maisons
 ue insultées gardaïent baissés comme des paupières les
-à stores soyeux de leurs grandes fenêtres. D'une porte. 4
-ÿ cochèré aux poignées de bronze, une jeune fille sortit 3
+à stores soyeux de leurs grandes fenêtres. D'une porte.
+ÿ cochèré aux poignées de bronze, une jeune fille sortit
 et derrière elle, un jeune homme : tous deux luxueux,
-de frais, vifs ; lui, la lèvre épaisse et le menton gras tenu ÿ
+de frais, vifs ; lui, la lèvre épaisse et le menton gras tenu
 È haut par son grand col glacé ; elle, cambrée dans sa “2h
 1 toïlette neuve, parfumée, la poitrine heureuse et les
 4 jambes agiles. Aussitôt dans la rue, elle dit : « Vite! » ;
 | et courut sur la fine pointe de ses bottines luisantes qui |
-Sur la grand place que j'avais vue hérissée des lances. ï
-des dragons et luisante de cuirasses, deux sergents de É,
-ville sans tenue agressive, sans apparence de vigueur, 4
-vivaient au fil de l'heure et souhaitaient d'aller boire. 3
-1 Passé la mairie, dans les rues de corons, les plaques |
+Sur la grand place que j'avais vue hérissée des lances.
+des dragons et luisante de cuirasses, deux sergents de
+ville sans tenue agressive, sans apparence de vigueur,
+vivaient au fil de l'heure et souhaitaient d'aller boire.
+Passé la mairie, dans les rues de corons, les plaques |
 en fonte des regards d'égouts, brisées pour former de
 trappe sous le pas des chevaux pendant la charge, ;
 n'étaient pas encore replacées. Les vitres des énormes
 | usines noires mitraillées de caïlloux pointaient des dents ;
 de scie. Tout en haut, il en demeurait une entière. .
 Dimanche, les feux éteints, lon voyait, ainsi qu'en ‘4
-temps de grève, toutes les cheminées sans fumée. 1
+temps de grève, toutes les cheminées sans fumée.
 
 _ Comme les pavés encore disséminés étaient boueux par *
 ce temps mou, et que les enfants portaient leurs pau- #
-vres belles petites affaires du dimanche, ils n'osaient L
-toucher aux grosses pierres et les regardaient avec s 5
+vres belles petites affaires du dimanche, ils n'osaient
+toucher aux grosses pierres et les regardaient avec
 désir et regret. Elles sont hostiles, ces longues rues de \
-maisons basses assujetties à la grande ombre des 1
+maisons basses assujetties à la grande ombre des
 usines. On hésite à y pénétrer; il s'en dégage de l'hor- |
 _ reur; la boue du sol est épaisse, et la noirceur des murs
 
 interminable. Quand on s'est aventuré dans cette tristesse et cette fange, un soulagement vient de la blan- ‘
 cheur du premier rideau. À toutes les fenêtres des |
-maisonnettes extérieurement noires, c'est ainsi une è
-clarté d'autel, une auréole de mousseline éclatante dans J
+maisonnettes extérieurement noires, c'est ainsi une
+clarté d'autel, une auréole de mousseline éclatante dans
 la brique enfumée. L'entrée, grande comme une porte |
 d'armoire, est bien close, le seuil lavé. Comment vit-on
 
 - là-dedans ? Dans toute la rue bourbeuse, c'est le silence
 
-derrière les rideaux blancs. 14
+derrière les rideaux blancs.
 
 Je reconnais l'estaminet de Vandermer, débitant. are
 
@@ -1813,7 +1813,7 @@ _ Pendant une charge, je n'étais réfugié là, et, comme %
 
 _ d'autres qui se réjouissaient de narguer les cuirassiers,
 
-. madame Vandermer nous avertit que les cavaliers k
+. madame Vandermer nous avertit que les cavaliers
 
 * avaient frappé, de leur corde à fourrage, les gens qui \
 
@@ -1848,7 +1848,7 @@ flotter la rangée des crinières et les cuirasses de fer
 mat se balancer sur la croupe ondulante des chevaux.
 Les enfants revenaient dépaver la rue.
 Quand j'entrai dans l'estaminet, ce dimanche,
-madame Vandermer me reconnut et me dit : J
+madame Vandermer me reconnut et me dit
 — Il ny a plus de soldats à cette heure!
 Elle me tint ce propos comme elle me versa de la
 bière, parce qu'il faut dire quelque chose au client.
@@ -1903,30 +1903,30 @@ des corbeaux. Et, de nouveau, la face fermée des
 petites maisons. Oh! cette misère enclose dans des
 
 1 dix contes re es: je
-rideaux blancs! Il passait toujours des « coqueleux » L 4
+rideaux blancs! Il passait toujours des « coqueleux »
 j triomphaux et stupides, qui parlaient orgueilleusement
 des bêtes qu'ils menaïent mourir. J'entrai, par un pas- +
 sage étroit, dans une courette bordée de corons. Entre
 or, ces murs, on se sentait comme dans un trou, mais on +}
-éprouvait aussi l'impression heureuse d'avoir trouvé un é
+éprouvait aussi l'impression heureuse d'avoir trouvé un
 refuge. L'atmosphère d'intimité des petites maïsons || Ke
 Ù tenacement closes transpirait dans la cour déserte où
 l'on ne passait pas. Le ciel gris, très bas, était proche
-des toits, et cela créait la sensation d'être loin, au fond É
+des toits, et cela créait la sensation d'être loin, au fond
 { Au bruit du vent qui franchissait les maisonnettes, on
 sentait son élan éperdu et sa fuite dans la grande
 Un murmure fin, plaintif, sortait d'une des maisons.
 Je fis semblant de boire à la pompe emmaillotée de :
-1 paille, pour cacher que j'écoutais. { 14
+1 paille, pour cacher que j'écoutais. {
 | Là, derrière un rideau, un accordéon chantait, très
 
 bas. Cétait un humble, caché. On devinait que celui
 qui jouait ainsi avait l'âme timide et qu'il vivait, rebuté, |
-2e mal à l'aise, tenant le moins de place possible. Cela 4
-! ressemblait aux sanglots d'un enfant déshérité, très ÿ
+2e mal à l'aise, tenant le moins de place possible. Cela
+! ressemblait aux sanglots d'un enfant déshérité, très
 sensible et très fier, et qui ne veut pas qu'on entende
 ses pleurs. J'aurais aimé savoir son visage. Était-il
-à vieux? Étaitil jeune? Jamais, jamais je ne le saurai. x
+à vieux? Étaitil jeune? Jamais, jamais je ne le saurai.
 
 C'était une plainte suave, derrière un rideau très
 
@@ -1943,8 +1943,8 @@ Des haines anciennes et durables poursuivaient Sac
 d''Os. Les familles des enfants à qui il osa rendre leurs
 coups le traitaient d'assassin.
 Dans les cabarets où il ne laissait pas ses pauvres
-sous on le disait voleur : « Où qu'i prènd s'n argènt? » d
-et le curé l'appelait : « Malheureux! » en levant les bras 4
+sous on le disait voleur : « Où qu'i prènd s'n argènt? »
+et le curé l'appelait : « Malheureux! » en levant les bras
 au ciel, car il le savait républicain.
 En effet Sac d'Os aimait la République et comptait
 comme agent électoral de M. Sébastien Fourny, distillateur, conseiller général et candidat républicain pro-
@@ -1955,23 +1955,23 @@ de la mairie et buvait avec enthousiasme à la santé
 f de ses Éternels Principes, proclamés sur afliches
 to Dans les batailles d'après le scrutin, autour des cafés
 
-. de défense républicaine et des estaminets de Salut M
+. de défense républicaine et des estaminets de Salut
 
 Public, le vieux Sac d'Os incapable de rien rendre, « 4 recevait les bourrades de cette majorité de gens qui "
 aiment frapper mais craignent les coups. Et, entre deux
-: élections, c'était contre lui, le Rouge, que s'entretenait, de père en fils, la haine vigoureuse du parti 4
+: élections, c'était contre lui, le Rouge, que s'entretenait, de père en fils, la haine vigoureuse du parti
 
-PAAES Homme de peine, rien que de peine, Sac d'Os gagnaït M
+PAAES Homme de peine, rien que de peine, Sac d'Os gagnaït
 FRE sa vie dans l'ordure. Il vidait l'eau des caves, purgeait
 We les abreuvoirs de leur vase et accomplissait dans les
-Vi coins honteux des maisons les choses innommables ét 4
+Vi coins honteux des maisons les choses innommables ét
 
 | Avec une vieille voiture à bras qui roulait tout de
-| guingois en faisant un bruit d'enfer, il assurait à la M
+| guingois en faisant un bruit d'enfer, il assurait à la
 Ki : gare le service des bagages. A l'arrivée des trains, il #1
-À psalmodiait : « Rien à porter? Rien à porter? » et 4
-importunait les gens chargés. 4
-| Leur méfiance envers lui parait leur avarice: 1
+À psalmodiait : « Rien à porter? Rien à porter? » et
+importunait les gens chargés.
+| Leur méfiance envers lui parait leur avarice:
 4 « Je ne voudrons point donner mes paquets à un he
 4 voleux comme ti! » NA
 re Auprès des voyageurs de commerce il trouvait meilHU leure aubaine. Ils descendaient à l'Hôtel de la Gare où
@@ -1984,33 +1984,33 @@ Placide décidait : « Tu n'allumeras plus le poêle. ».
 Alors, Sac d'Os se cramponnait à la route, craquait ses
 
 pauvres vieux os dans leur sac de vieille peau, et attei- ER #
-gnait l'étage, rompu par ce labeur formidable. Il ache- 1
-tait, à ce prix, le droit d'allumer le feu. Il avait toujours 4
+gnait l'étage, rompu par ce labeur formidable. Il ache-
+tait, à ce prix, le droit d'allumer le feu. Il avait toujours
 froid. Cela permettait à Placide, un garçon joufflu qui |
 portait la tête à gauche et fauchait des deux pieds vers Din
 * la droite, de rester couché le matin, une demi-heure à
-plus tard, et de trouver grande flamme au saut Û
+plus tard, et de trouver grande flamme au saut
 Sac d'Os se levait tôt, à l'heure où derrière les #
 rideaux du bourg dansent des flambements d'allu- A
 mettes. Dans les ténèbres de la rue, les hommes qui : ; À
 . vont aux fabriques se devinent à leur toux et au bruit |;
 _ de leurs gros souliers. à
 Au café de l'hôtel, la servante mal éveillée servait
-des faïenciers qui entraient boire leur quatrième v
-genièvre. Sac d'Os, agenouillé, la figure dans le foyer 1
+des faïenciers qui entraient boire leur quatrième
+genièvre. Sac d'Os, agenouillé, la figure dans le foyer
 du poêle soufflait, et plus bruyamment à mesure que le à
 feu le nécessitait moins, afin de justifier la persistance ‘
-du soin qu'il en prenait. C'est bon le feu, quand on est L
+du soin qu'il en prenait. C'est bon le feu, quand on est
 . si vieux. Assuré, par le ronflement, du tirage établi, le
 garçon de l'hôtel arrivait en courant, les pieds à droite, à
 _ la tête à gauche, oblique comme un voilier qui vire et À
 dans la salle d'attente où il n'y avait eu de feu qu'une il
-fois, allumé par Sac d'Os avec du bois trouvé. 1
-Le poële, surpris par cette innovation, fuma tellement x
-qu'il fallut l'éteindre. On courut porter les tisons flambants dans la cheminée du chef de gare, laquelle ne h
-fumait pas. Sac d'Os, traité d'incendiaire, fut menacé 4
+fois, allumé par Sac d'Os avec du bois trouvé.
+Le poële, surpris par cette innovation, fuma tellement
+qu'il fallut l'éteindre. On courut porter les tisons flambants dans la cheminée du chef de gare, laquelle ne
+fumait pas. Sac d'Os, traité d'incendiaire, fut menacé
 de contravention. IL y eut même des gens pour pré- |
-tendre l'arrêter, mais on ne le fit pas. j
+tendre l'arrêter, mais on ne le fit pas.
 Or, il arriva que Sac d'Os hérita. Il avait, du côté
 
 d'Houplines, un petit rentier de frère qui, malgré sa
@@ -2055,7 +2055,7 @@ Aussitôt servi, Sac d'Os abritait son verre de la main
 et regardait les gens avec l'air de tellement croire qu'ils
 allaient le voler, que ceux-ci s'en faisaient un jeu. Par
 là commença un jour une grande dispute. Lequien, un
-propriétaire ladre et avide de considération, dit à L
+propriétaire ladre et avide de considération, dit à
 
 ; — « Pourquoi me regardes-tu ainsi, vieux filou, as-tu
 peur que je dise où tu as volé ton argent? »
@@ -2068,7 +2068,7 @@ ses cheveux crépus, flatta son maître en renversant |
 prendre et mordant, de rage, sa bave pleine de vin, il |
 lança au hasard son verre vide. Le bruit de la casse
 déchaïîna un tumulte. Ces gens excités criaient en pous- |
-sant Sac d'Os vers la porte. Zoulou trempait ses É
+sant Sac d'Os vers la porte. Zoulou trempait ses
 mains dans les verres et lui barbouillait rudement :
 
 _ la figure et le cou. Lequien tançait la patronne au
@@ -2094,10 +2094,10 @@ Les chiens accouraient vers les cris et, autour de Sac
 d'O$, hurlaïit une meute de bêtes et de gens. En arrière
 le curé se glissait, sentant venir l'heure où son ami
 Sébastien Lenne, traqué à merci, aurait besoïn de lui
-pour arranger son affaire, sa vilaine affaire. É
+pour arranger son affaire, sa vilaine affaire.
 
 la plus grande canaille de la terre
-6 OURNES, c'est un « tout petit pays » dans le Nord; |
+OURNES, c'est un « tout petit pays » dans le Nord; |
 F ses maisons basses semblent en prière autour du
 clocher. On en sort pour se perdre dans la plaine vaste
 où d'autres villages sont tapis au ras du sol. L'horizon à
@@ -2116,39 +2116,39 @@ Dans Fournes : un estaminet chaque deux maisons,
 un maire brasseur qui offre facilement à boire, un |
 garde et un facteur qui boivent avec tous ceux qui #
 offrent et un curé qui refuse et boit chez lui. Un village |
-comme un autre et bien tranquille, disait le garde 4
+comme un autre et bien tranquille, disait le garde
 Blondeau, « si ce n'était Siméon Leru, la plus grande |
 canaille de la terre ». |
 Ce fut un enfant blond fièrement vif à la maraude. |
 
 un  Surpris, il filait plus vite que les pierres qu'on lui jetait. :
-Un peu avant l'âge, il se méla de trousser les fille s' 10
+Un peu avant l'âge, il se méla de trousser les fille s'
 DA ‘émerveillées par ses cheveux frisés et la brutalité splen |
 y à dide de son rire à belles dents. Sauf faire le cog, rien Ds:
-EEE à lui reprocher; il travaillait tous les jours et apportait M
+EEE à lui reprocher; il travaillait tous les jours et apportait
 | l'argent à la maison. Le curé, qui détestait ce garçon ds
 nie aimé des femmes, souhaitait qu'il partit au régiment
 si pour « être dressé ». Sur les conseils de sa mère influen- “A
 7 cée, il devança l'appel et passa dans un régiment de At.
-ER ligne à Paris. Dix-huit mois après, il vint en congé au M
+ER ligne à Paris. Dix-huit mois après, il vint en congé au
 ANA pays en grand uniforme de caporal. Dans l'estaminet pal
 ÿ, Liévin, il enseigna ia Carmagnole à ses anciens cama- Me
-At rades éblouis. Blondeau, le garde, voulant se mêler 1
-FA) d'arrêter le vacarme, il l'appela : « Monsieur le Préfet 20
-fl de police de Fournes », puis le traita de « sale flic ».. 01
+At rades éblouis. Blondeau, le garde, voulant se mêler
+FA) d'arrêter le vacarme, il l'appela : « Monsieur le Préfet
+fl de police de Fournes », puis le traita de « sale flic »..
 M Le village éprouva pour lui un souvenir d'admiration "M
 FH et d'épouvante. Pendant un an après sa libération, on ‘4
-ja _ ! n'en entendit plus parler. Puis, sans avertir, il revint M 4
+ja _ ! n'en entendit plus parler. Puis, sans avertir, il revint
 PAALEA dans une misère épouvantable, pourri de vices, avec. 4 }
-| A ; des mœurs gagnées à la fréquentation des filles publi- u 14
-| ù et ques. Il était « dressé ». Le garde Blondeau révéla qu'il 10
+| A ; des mœurs gagnées à la fréquentation des filles publi-
+| ù et ques. Il était « dressé ». Le garde Blondeau révéla qu'il
 | sortait de prison pour avoir vécu de « l'argent des
-| garces ». Les gens passaient devant sa maison pour : 110
-ME apercevoir ce terrible, mais il demeurait caché comme  n
+| garces ». Les gens passaient devant sa maison pour
+ME apercevoir ce terrible, mais il demeurait caché comme
 ne une bête sauvage et la mère Leru criait du seuil aux.
-4 ES « C'est des menteries! » (tr
-ni Une fois, il sortit derrière elle, en bras de chemise, 2
-CAL sa figure cicatrisée assombrie de fureur. 44
+ES « C'est des menteries! » (tr
+ni Une fois, il sortit derrière elle, en bras de chemise,
+CAL sa figure cicatrisée assombrie de fureur.
 PAtAt Le front bas et les poings levés, il s'élança, criant: F}
 x « Tonnerre de Dieu! Le premier qui m'em... je lui
 
@@ -2170,7 +2170,7 @@ _ cet homme épouvantable.
 M lui donnaient de l'ouvrage lorsqu'il en cherchait :
 | « Pendant ce temps, il ne fait rien de mal. »
 
-J Et on s'accoutumait à lui; les petits pays aiment k
+J Et on s'accoutumait à lui; les petits pays aiment
 ainsi entretenir un scandale à délier les langues : la
 prostituée communale, le maire filou ou le curé paillard.
 | Fournes célébra son Parisien; il devint d'utilité publique
@@ -2191,29 +2191,29 @@ N auprès de madame qui courut elle-même mettre Siméon
 
 à la porte.
 
-Traversant le salon devant elle qui le chassait, il prit #4 È
-) une coupe parmi les bibelots et dit : PE 1
+Traversant le salon devant elle qui le chassait, il prit #4
+) une coupe parmi les bibelots et dit : PE
 « Vous n'avez pas besoin de ça? » ë Du
 — « Je vais appeler monsieur! » à Ru.
 Elle tremblait, quoique chez elle. ‘4
 À — « Combien vous doit-on ? » à x |
-Elle lui donna sans compter : 44
-— « Allez-vous-en vite. » 0
+Elle lui donna sans compter
+— « Allez-vous-en vite. »
 Il exigea un pourboire et partit enfin, chantonnant sa :
 « Tous les bourgeois à la lanterne. Val
-Vive le son du canon! » N
-puis alla parader et pinter dans le bourg. 4
+Vive le son du canon! »
+puis alla parader et pinter dans le bourg.
 Du seuil de l'église, le curé lui fit les gros yeux. il
 alla vers lui: %
-« Le maire m'envoie pour décrocher votre coq. » \ T1
+« Le maire m'envoie pour décrocher votre coq. » \
 — « Parfaitement. Le coq du clocher. » à
 — « Jamais de la vie! » +
 | — « On me paie cinq francs pour le faire. Cinq francs fe
-ou je le fais. Je ne veux rien perdre. » î 40
+ou je le fais. Je ne veux rien perdre. »
 . 11 eut les cinq francs et s'en alla, braillant : À
 « Tous les curés à la lanterne. A
 Vive le son du canon! » :
-Jusqu'au soir il fréquenta les débits qui tenaient de J
+Jusqu'au soir il fréquenta les débits qui tenaient de
 l'absinthe et revint à Fournes dans une ivresse fu- ;
 
 F Ç On l'entendait hurler chez lui :
@@ -2249,7 +2249,7 @@ ki Siméon se tordait comme un tronçon de ver, sans
 
 ébranler le géant tranquille accoutumé à coltiner des » sacs de cent kilos. La vieille lui frappait la tête :
 
-54 Blondeau la poussa chez elle, ramassa son képi
+Blondeau la poussa chez elle, ramassa son képi
 
 ! abîmé et on s'en alla vers la mairie où il y avait une
 
@@ -2267,16 +2267,16 @@ Dès que tombé, l'homme s'endormit. A l'aide d'un
 tre __ brandon de papier passé par le guichet, on le vit, cou-
 “ea _ché en chien de fusil, les mains jointes entre les ge
 FE 4 « Le voïlà tranquille, dit Blondeau; si seulement, i DE
-PAU pouvait toujours dormir. » P,
-He . Le meunier devint inquiet : V0
-hi — « Il va geler sec. Faudrait le couvrir. Il n'est pas 34
+PAU pouvait toujours dormir. »
+He . Le meunier devint inquiet
+hi — « Il va geler sec. Faudrait le couvrir. Il n'est pas
 HN gros c't homme. S'il crevait! » rt
-MR © Le pays serait bien tranquille. C'est la plus 4
+MR © Le pays serait bien tranquille. C'est la plus
 NO à “a grande canaille de la terre. Vous tourmentez pas. Je.
 ANR Mais il gagna son lit. On prévoyait, à l'immense
 st) ne pureté du ciel, un froid terrible. Les astres luisaient TE
-k a _ comme des yeux de fous. De les fixer donnait le ver: 20
-‘ Npa: tige. Le gouffre de distance entre la terre et les étoiles :s
+k a _ comme des yeux de fous. De les fixer donnait le ver:
+‘ Npa: tige. Le gouffre de distance entre la terre et les étoiles
 “ A apparaissait redoutablement agrandi et angoissant. pe
 ue _‘ Au matin, Blondeau, le garde, s'en vint sournois,
 Is traînant de la paille. Mais Siméon r'était pas « crevé ».
@@ -2286,7 +2286,7 @@ Us ‘4 Vive le son du canon! » LA
 Le Maintenant il a disparu du pays. Il doit frauder du pol
 RE côté d'Armentières. FN ne
 
-2 On nous demande souvent de quoi se compose
+On nous demande souvent de quoi se compose
 officiellement une collection complète des
 A la date du premier novembre 1908, une
 collection complète des cahiers se compose
@@ -2310,7 +2310,7 @@ f B. — nos neuf premières séries sont énumérées
 È exemplaire du Polyeucte ont été énoncées en
 Al tête du premier cahier de la présente série.
 
-4 Il a été tiré de ce cahier treize exemplaires sur
+Il a été tiré de ce cahier treize exemplaires sur
 
 14 whatman ainsi distribués :
 
@@ -2320,7 +2320,7 @@ Al tête du premier cahier de la présente série.
 
 " troisième exemplaire de souche, exemplaire de lim-
 
-L dix exemplaires d'abonnement, numérotés de I à 10
+L dix exemplaires d'abonnement, numérotés de I à
 
 à Tous nos exemplaires sur whatman sont numérotés
 
@@ -2366,7 +2366,7 @@ k est la Série en cours, envoyer en un mandat à M. André
 hi Bourgeois, même adresse, le prix de l'abonnement: on
 4 _ recevra les cahiers parus, et de quinzaine en quinzaine, » à leur date, les cahiers à paraître de cette dixième
 
-19 07
+19
 
 à k | | rez-de-chaussée, Paris, cinquième arrondissement. {
 AU Nos Cahiers sont édités par des souscriptions men-
@@ -2374,9 +2374,9 @@ AU Nos Cahiers sont édités par des souscriptions men-
 … …  suelles régulières et par des souscriptions extraordi- !
 pot _ naires; la souscription ne confère aucune autorité sur
 we Me la rédaction ni sur l'administration; ces fonctions
-150 Nos Cahiers paraissent par séries; une série ,paraît
+Nos Cahiers paraissent par séries; une série ,paraît
 Her dans le temps d'une année scolaire, d'une année
-ouvrière, d'octobre-novembre à juin-juillet: l'abonneHt ment se prend pour une série. k
+ouvrière, d'octobre-novembre à juin-juillet: l'abonneHt ment se prend pour une série.
 40e Ke On peut souscrire cet abonnement à tout moment de EE
 742 x l'année, mais l'abonnement ainsi souscrit est, de droit,
 aa valable pour la série en cours.
@@ -2399,14 +2399,14 @@ n  , souscripteur; le tirage à part sur whatman a commencé
 :4 tout temps et reçoivent un numéro d'ordre déterminé
 ; _ automatiquement par le rang même qu'elles occupent
 
-ni , dans l'ordre de l'arrivée, les numéros les plus bas venant x
+ni , dans l'ordre de l'arrivée, les numéros les plus bas venant
 4 naturellement aux premières inscriptions; c'est ce nuE méro d'inscription qui devient automatiquement le
 
 4 numéro du tirage réservé à chacun des souscripteurs ;
 4 l'édition sur whatman est Strictement limitée au
 Le nombre d'exemplaires à chaque instant souscrit.
 
-Rte. P our tout changement d'adresse envoyer soixante k
+Rte. P our tout changement d'adresse envoyer soixante
 Nimes, six timbres de dix centimes.
 
 # | Nous engageons nos abonnés de certains pays à nous

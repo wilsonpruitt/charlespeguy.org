@@ -7,7 +7,7 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 42405
 ---
-congrès des U. P
+congrès des
 
 7 paraissant vingt fois par an
 
@@ -28,22 +28,22 @@ série, de chercher et de nous indiquer à qui nous pour-
 | des cahiers, il suffit d'envoyer dès aujourd'hui sonnom
 | et son adresse à M. André Bourgeois, administrateur
 des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, À
-; Paris, cinquième arrondissement ; on recevra en M
-octobre notre catalogue analytique sommaire; pour 1
-L faire savoir à quelqu'un ce qui aura paru dans les cinq M
+; Paris, cinquième arrondissement ; on recevra en
+octobre notre catalogue analytique sommaire; pour
+L faire savoir à quelqu'un ce qui aura paru dans les cinq
 4 premières séries des cahiers, il suflit d'envoyer dès À
 ! aujourd'hui à M. André Bourgeois le nom et l'adresse
 de la personne à qui on s'intéresse; avertir en même
 | temps cette personne; elle recevra en octobre notre
-L catalogue analytique sommaire. 4
+L catalogue analytique sommaire.
 à Nous demandons particulièrement à nos abonnés
 | d'utiliser les déplacements des vacances pour nous”
-chercher des abonnés nouveaux. $ 4
+chercher des abonnés nouveaux. $
 
 | HE Le cahier que l'on va lire a été établi par la Fédération He
-MR des Universités populaires de Paris et banlieue; il est 14
+MR des Universités populaires de Paris et banlieue; il est
 MN. le compte rendu officiel du congrès tenu à Paris les
-178 _ dimanche 22 et lundi 23 mai, — Pentecôte, — 1904 D
+178 _ dimanche 22 et lundi 23 mai, — Pentecôte, — 1904
 PS re par les Universités populaires de tout le pays. “ARE
 
 EN La copie a été refondue par M. Maurice Kahn, les
@@ -57,7 +57,7 @@ congrès toutes les Universités populaires de France ?
 Il serait bien malaisé de l'établir exactement; en tous
 cas, vers la fin de l'année 1903, cette idée était « dans
 l'air », car dans beaucoup de conversations entre camarades, on entendait parler du congrès comme d'une
-chose prochaine; et à la réunion mensuelle de la Fédé- 4
+chose prochaine; et à la réunion mensuelle de la Fédé-
 ration des Universités populaires de Paris, le 13 dé-
 cembre 1903, un délégué proposait « qu'une commis-
 à sion soit nommée pour étudier la possibilité d'un conl grès de toutes les Universités populaires de France ».
@@ -69,39 +69,39 @@ La commission se réunissait aussitôt et, le 10 janvier 1904, la circulaire sui
 
 4 les Universités populaires dont on avait pu se procurer
 
-14 k les adresses : j
+14 k les adresses
 
-4 Monsieur et cher camarade, |
+Monsieur et cher camarade, |
 
 fi J'ai le plaisir de vous communiquer la circulaire sui-
 
-Fa vante, en vous priant d'en donner connaissance aux j
+Fa vante, en vous priant d'en donner connaissance aux
 
 Le membres de votre Université populaire : ;
 
-10 Circulaire N° 4 sur un congrès national \
+Circulaire N° 4 sur un congrès national \
 
-« des Universités populaires 4
+« des Universités populaires
 
-34 Quelques délégués des Universités populaires à la Fédé- …
+Quelques délégués des Universités populaires à la Fédé- …
 
 ÿ ration des Universités populaires de Paris et banlieue ont
 
-ÿ émis l'avis qu'un Congrès national des Universités popu- M
+ÿ émis l'avis qu'un Congrès national des Universités popu-
 
 Le but de ce Congrès serait d'étudier, d'après l'expérience
-acquise, les meilleurs moyens de développer par les Universités populaires l'instruction populaire et de rechercher M
+acquise, les meilleurs moyens de développer par les Universités populaires l'instruction populaire et de rechercher
 
 Ÿ les procédés les plus efficaces d'éducation par les confé-
 
-Ph rences, cours, leçons et fêtes. Il aurait à examiner aussi s'il M
+Ph rences, cours, leçons et fêtes. Il aurait à examiner aussi s'il
 y aurait intérêt pour les Universités populaires et les Fédé-
 
-; rations régionales à coordonner les efforts par la consti- M
+; rations régionales à coordonner les efforts par la consti-
 tution d'une Fédération Nationale, sans cependant porter …
 atteinte d'aucune manière à l'autonomie des diverses orga-
 
-12 La Fédération a nommé une Commission provisoire
+La Fédération a nommé une Commission provisoire
 d'organisation, chargée d'entrer en relations avec les
 
 | diverses Universités populaires des départements et les
@@ -134,7 +134,7 @@ serviraient de bases aux discussions du Congrès; ils
 seraient ensuite réunis en volume, accompagnés d'un
 résumé des discussions.
 
-paierait une somme de cinq francs et aurait droit à deux Ÿ
+paierait une somme de cinq francs et aurait droit à deux
 délégués. Chaque Fédération paierait une somme de dix /
 francs et aurait droit à quatre délégués. (Les dames peu-
 
@@ -149,42 +149,42 @@ présentés au Congrès qu'il y a de chapitres dans les rapports particuliers.
 2° Enseignement et éducation
 | Fêtes, soirées artistiques et récréatives. — Personnei
 
-f x Ke Chorales, cercles de lecture et de déclamation. — Excur- L
-CNRS sions et sports. — Patronages. — Mutualités, etc. 4
-Ru ; 4° Fédérations départementales et régionales x
+f x Ke Chorales, cercles de lecture et de déclamation. — Excur-
+CNRS sions et sports. — Patronages. — Mutualités, etc.
+Ru ; 4° Fédérations départementales et régionales
 AR tr Rapports avec les Universités populaires voisines. — #
 La Nous vous prions done de vouloir bien écrire de suite à
 
-4 H. Ablonet, à l'Union Moufjetard, 76, rue Mouffetard, :
+H. Ablonet, à l'Union Moufjetard, 76, rue Mouffetard, :
 Lee Paris (5°): 1° si votre Université populaire est disposée, en .
-à principe, à adhérer au Congrès; 2° si vous avez des obser- 4
-cl y vations à faire au programme provisoire ci-dessus exposé; J
-“ven 3° lui donner une liste des adresses de toutes les Univer- 4
+à principe, à adhérer au Congrès; 2° si vous avez des obser-
+cl y vations à faire au programme provisoire ci-dessus exposé;
+“ven 3° lui donner une liste des adresses de toutes les Univer-
 on sités populaires de votre région, pour que nous puissions
 
 à faire parvenir cette circulaire à celles dont nous n'aurions if
-$. ba) pas l'adresse. ÿ
+$. ba) pas l'adresse.
 +HEat Le programme du Congrès sera arrêté définitivement
 
-va vers le 15 février et envoyé de suite aux Universités popuGr …  laires adhérentes. 4
+va vers le 15 février et envoyé de suite aux Universités popuGr …  laires adhérentes.
 ch Pour les Membres de la Commission provisoire
 il En vous communiquant cette circulaire, j'ajoute que
 12 des démarches seront faites pour obtenir la réduction
-À de 50 o/o sur les chemins de fer, et pour obtenir les M
+À de 50 o/o sur les chemins de fer, et pour obtenir les
 120 x meilleures conditions de logement. Ni
 
 : Persuadé que vous enverrez votre réponse le plus
 
 Fi rapidement possible, je vous prie d'agréer, monsieur et
-HUE cher camarade, mes bien cordiales salutations. k
+HUE cher camarade, mes bien cordiales salutations.
 
 st mission annonçait qu'il avait reçu les adhésions provi
 
 soires de So Universités populaires (55 de province, {
 25 de Paris et banlieue). Les délégués décidaient donc
-qu'il y avait lieu d'organiser le Congrès, et la Commission envoyait à toutes les Universités populaires la s
+qu'il y avait lieu d'organiser le Congrès, et la Commission envoyait à toutes les Universités populaires la
 | deuxième circulaire suivante : :
-4 Monsieur et cher camarade,
+Monsieur et cher camarade,
 Sur l'initiative de la Fédération des Universités popu- {
 R- laires de Paris et de la banlieue, un Congrès National des
 Universités populaires aura lieu à Paris les dimanche 22 et
@@ -201,7 +201,7 @@ Fédération des Universités populaires de Paris (de l'Université populaire Ge
 : Ch. Guigysse, administrateur de Pages libres, ancien
 secrétaire de la Société des Universités populaires;
 Paul Kasror, employé, secrétaire de la Fédération des
-1 Universités populaires de Paris (de l'Université populaire
+Universités populaires de Paris (de l'Université populaire
 le Foyer du Peuple);
 |: - Ed. Marx, voyageur de commerce (de l'Université populaire du X:); £
 
@@ -209,29 +209,29 @@ PSN Moreaux, employé (de l'Université populaire l'Égalité);
 nl Tavu, employé (de l'Université populaire la Semaille).
 14 % Le but du Congrès est d'étudier, d'après l'expérience
 F0 acquise, les meilleurs moyens de développer par les Uni- $
-HAN versités populaires l'instruction populaire et de rechercher F
+HAN versités populaires l'instruction populaire et de rechercher
 HR les procédés les plus efficaces d'éducation par les confé-
 NA rences, cours, leçons et fêtes. Il aura à examiner aussi s'il ;
 1 y aurait intérêt pour les Universités populaires et les
 A Fédérations régionales à coordonner leurs efforts par la
 à Pa constitution d'une Fédération Nationale, sans cependant
 mo porter atteinte d'aucune manière à l'autonomie des diverses
-4 1
-1 Les travaux du congrès sont divisés en cinq sections : M
+4
+Les travaux du congrès sont divisés en cinq sections
 Fe Statuts, moyens financiers, normaux et extraordinaires. ‘à
-4 Rapports avec les organisations syndicales, coopératives, M
+Rapports avec les organisations syndicales, coopératives,
 "1 3° Enseignement et éducation 4)
 ‘A Fêtes, soirées artistiques et récréatives. — Chorales. TA
 gs Cercles de lecture. — Déclamation. — Excursions et sports. à
 1 5° Fédérations départementales et régionales qe
 LE Rapports avec les Universités populaires voisines. =
-4 Organisation de la Fédération Nationale s'il y a lieu. pol
-9 Les Universités populaires et les Fédérations devront
+Organisation de la Fédération Nationale s'il y a lieu. pol
+Les Universités populaires et les Fédérations devront
 
 aux sections ci-dessus; ces rapports devront être précis,
 aussi résumés que possible et écrits sur un seul côté des
 Il sera établi, à l'aide de ces documents, un rapport général
-pour chaque section; ces rapports, imprimés et distribués F
+pour chaque section; ces rapports, imprimés et distribués
 aux délégués dès l'ouverture du Congrès, serviront de base
 Il est donc absolument nécessaire que les rapports des
 Universités populaires et des Fédérations parviennent au
@@ -242,11 +242,11 @@ Matin : 8 h. 30. — Réception des délégués à l'Union
 Mouffetard, 56, rue Mouffetard. — Allocution du président.
 — Vérification des pouvoirs. — Nomination des commissions. À
 À 10 heures. — Réunion des commissions.
-Après-midi : 2 heures. — Séance plénière et discussion des d
+Après-midi : 2 heures. — Séance plénière et discussion des
 Après-midi : 2 heures. — Réunion des commissions pour
 | l'examen des vœux.
 | A 4 heures. — Séance plénière.
-Le soir. — Banquet et fête de clôture. l
+Le soir. — Banquet et fête de clôture.
 Organisation de promenades et excursions pour les
 délégués qui pourront disposer de cette journée.
 Les Universités populaires ou Fédérations d'Universités
@@ -254,15 +254,15 @@ Les Universités populaires ou Fédérations d'Universités
 à qui ont déjà envoyé une adhésion provisoire) sont priées |
 
 Dee de remplir la formule ci-jointe et de la renvoyer le plus tôt He
-‘Re w possible au secrétaire, accompagnée d'un mandat ou bonM4) poste de : haie L
+‘Re w possible au secrétaire, accompagnée d'un mandat ou bonM4) poste de : haie
 ._ 5 francs pour les Universités populaires; bi:
-‘NRA 10 francs pour les Fédérations. È
+‘NRA 10 francs pour les Fédérations.
 MEPE chaque Fédération à quaire délégués. (Les dames peuvent ÿl
-1407 Les camarades d'Universités populaires s'intéressant au 14
-‘1e Congrès peuvent adhérer personnellement moyennant une 04
-‘ cotisation de 3 francs. 4
+1407 Les camarades d'Universités populaires s'intéressant au
+‘1e Congrès peuvent adhérer personnellement moyennant une
+‘ cotisation de 3 francs.
 :: SES Il est désirable que le plus grand nombre d'Universités .
-150 populaires adhèrent au Congrès et y envoient leurs délé- L:
+150 populaires adhèrent au Congrès et y envoient leurs délé-
 __  gués personnels. Cependant, pour faciliter l'adhésion des
 A } Universités populaires que leurs moyens financiers ou
 mu toute autre cause empêcheraient de déléguer un de leurs ‘4
@@ -270,14 +270,14 @@ mu toute autre cause empêcheraient de déléguer un de leurs ‘4
 __ adhérentes pourraient se faire représenter par un délégué #4
 te d'une autre Université populaire ou par un camarade !
 182 parisien, étant toutefois bien entendu qu'aucun déléguéne
-ne fé } pourra cumuler plus de deux mandats. 14
-18 NE En aucun cas, les décisions du Congrès ne pourront porter M
+ne fé } pourra cumuler plus de deux mandats.
+NE En aucun cas, les décisions du Congrès ne pourront porter
 A atteinte à l'autonomie des Universités populaires, qui resD ï tent complètement libres et indépendantes. Re.
 #0 1 Recevez, monsieur et cher camarade, mes bien cordiales
 #0 Pour le Comité: Te
-152 Toute la correspondance doit être adressée à H. Ablonet,
+Toute la correspondance doit être adressée à H. Ablonet,
 QUE Voici la liste des Universités populaires qui, à la
-100 suite de cette circulaire, ont envoyé leur adhésion au M
+100 suite de cette circulaire, ont envoyé leur adhésion au
 
 je CONS Kate Es +
 
@@ -323,7 +323,7 @@ apportions une méthode conforme à l'institution même
 1 des Universités populaires, je veux dire une méthode
 is scientifique, expérimentale. Évitons les discussions
 théoriques, les lieux communs; profitons de ce que
-\ nous sommes réunis pour nous transmettre les ensei- M
+\ nous sommes réunis pour nous transmettre les ensei-
 | gnements que nous avons pu recevoir de l'expérience
 | elle-même. Ayons surtout le souci des faits. Que les
 délégués des diverses Universités populaires nous
@@ -359,7 +359,7 @@ aux travaux des Commissions, il est décidé que le Congrès nommera pour chaque
 composé d'un président, un assesseur, un secrétaire et
 
 un rapporteur ; et que les délégués se rendront, à leur
-choix, dans le bureau dont les travaux les intéresseront U
+choix, dans le bureau dont les travaux les intéresseront
 le plus.
 
 16 congrès des UP; /1004 NN
@@ -383,7 +383,7 @@ IX cinq rapports généraux établis d'après les rapports par-
 100 ticuliers envoyés par chaque Université populaire. ;
 
 Séance du Dimanche 22 Mai ‘
-Ouverture de la séance à 2 heures trois quarts. k
+Ouverture de la séance à 2 heures trois quarts.
 Î Lecture du rapport de la deuxième Commission par
 le camarade Clair, rapporteur. (1)
 Les rapports qui doivent exister entre les Universités
@@ -401,7 +401,7 @@ Si nous examinons les rapports qui nous ont été
 adressés par différentes Universités populaires adhé-
 (1) La première Commission n'avait pas achevé son travail.
 
-4 procès-verbal des séances l
+4 procès-verbal des séances
 4 rentes à ce congrès, nous constatons que la majorité
 4 vivent en excellents termes avec les syndicats; plu-
 
@@ -421,21 +421,21 @@ du travail, en un mot qui commence à avoir souci de
 d'arriver à son émancipation tant rêvée, mais jamais
 be Si nous envisageons la question à un autre point de
 ï vue, les Universités populaires peuvent trouver dans
-les syndicats, dans les bourses du travail, un local ù
+les syndicats, dans les bourses du travail, un local
 pour faire leurs conférences, local qui, lorsqu'il ne leur |
 sera pas offert gratuitement, pourra néanmoins leur
 permettre de n'avoir que la moitié de la location à
-| payer, ce qui n'est pas à dédaigner vu la situation F
+| payer, ce qui n'est pas à dédaigner vu la situation
 financière de la plupart des Universités populaires. |
-à De plus, lorsque ces deux organisations se trouvent Î
+à De plus, lorsque ces deux organisations se trouvent
 
 À dans le même local, les fêtes, soirées, conférences, }
-qi peuvent être données en commun et les Universités 4
-4 populaires, surtout celles qui possèdent un groupe 1
+qi peuvent être données en commun et les Universités
+4 populaires, surtout celles qui possèdent un groupe
 | artistique, peuvent prêter leur concours, ce qui tout À
 ; naturellement amènera une certaine familiarité entre
 
-les membres des deux organisations, familiarité quine M
+les membres des deux organisations, familiarité quine
 
 | peut que profiter aussi bien à l'une qu'à l'autre. Cette
 entente est d'autant plus facile que, dans plus de la
@@ -443,7 +443,7 @@ moitié des Universités populaires, une grande partie
 de leurs membres font partie d'un syndicat.
 Dans les coopératives, les Universités populaires
 - devraient toujours rencontrer un bon accueil, car ne
-visent-elles pas le même but ? Tandis que les coopéra- k
+visent-elles pas le même but ? Tandis que les coopéra-
 tives cherchent à affranchir le travailleur sur le terrain économique par l'organisation de la production et
 de la consommation, les Universités populaires cher- ue
 chent à l'affranchir moralement en le débarrassant de
@@ -458,7 +458,7 @@ de conférences dans les coopératives, ce qui leur per-
 | mettrait de travailler ensemble à l'affranchissement du
 prolétariat, tout en gardant leur indépendance absolue.
 Est-il utile pour les Universités populaires d'avoir
-4 des rapports avec les groupes politiques ? j
+4 des rapports avec les groupes politiques ?
 Pour notre compte nous ne le croyons pas; nous |
 
 procès-verbal des séances ‘4
@@ -495,12 +495,12 @@ dans les Universités populaires, rien de mieux, au con-
 traire; mais nous ne devons pas entrer, en tant qu'Uni-
 
 è versités populaires, dans un groupement politique
-Pour les patronages, nous pensons que les Univer- Ë
+Pour les patronages, nous pensons que les Univer-
 x sités populaires ne doivent pas hésiter à leur apporter
 ci le concours le plus grand, car il ne faut pas oublier que ;
 fr le patronage est aux enfants ce que l'Université popu- À
 à laire est aux adultes, c'est-à-dire, en quelquesorte, une
-j Université populaire enfantine. Or, comme nous avons 1
+j Université populaire enfantine. Or, comme nous avons
 ; constaté, tous, les nombreuses difficultés que nous
 1 éprouvons pour amener l'adulte à écouter une confé-
 : rence, nous avons certainement tous compris que le
@@ -513,17 +513,17 @@ somme de leurs connaissances. Il serait donc intéres- ri
 sant de voir les Universités populaires prêter leur salle
 aux patronages qui n'en possèdent pas, organiser des
 petites fêtes enfantines, chercher, par tous les moyens,
-à éveiller l'esprit des enfants et même les faire accom- 1
+à éveiller l'esprit des enfants et même les faire accom-
 ; pagner dans leurs promenades par des membres des FE
 Universités populaires, lorsque cela pourra se faire +
 sans trop de difficultés.
 La deuxième commission estime qu'en raison des
 divergences de vues qui existent entre les membres des
-Universités populaires eux-mêmes, il n'y a pas lieu de s
+Universités populaires eux-mêmes, il n'y a pas lieu de
 recommander l'établissement de rapports moraux entre
 les Universités populaires et les mutualités.
 | La commission estime qu'il y a au contraire tout
-avantage à établir des rapports d'ordre matériel entre É
+avantage à établir des rapports d'ordre matériel entre
 les Universités populaires et les mutualités. Les Uni- |
 ‘versités populaires, dans cet ordre d'idées, pourraient,
 par exemple, prêter leurs locaux aux mutualités pour
@@ -540,7 +540,7 @@ FE ta du procès-verbal des séances LOF
 ï au sein des Universités populaires, comme rentrant
 à à dans le programme d'éducation qu'elles se proposent.
 
-1 De tout ce qui précède, nous pouvons donc conclure
+De tout ce qui précède, nous pouvons donc conclure
 
 i as que nous devons faire tous nos efforts pour entretenir
 
@@ -557,22 +557,22 @@ f: dépendra la libération du prolétariat des nombreuses
 oppressions dont il est victime, et plus l'union sera
 
 È étroite, plus cette libération sera proche. À
-: « Tandis que si ces différents organismes continuaient 4
+: « Tandis que si ces différents organismes continuaient
 É à lutter séparément, il serait à craindre que leurs ‘4
 “ efforts restent inutiles encore pendant longtemps. À
-N'est-ce pas la loi même de l'évolution qui les pousse 1
+N'est-ce pas la loi même de l'évolution qui les pousse
 À pour ainsi dire l'un vers l'autre, pour hâter l'effondre- À
 ne ment de la société capitaliste d'aujourd'hui et l'avè- |
-4 nement de la société idéale de demain. 4
-sé ‘ Prenons donc, camarades, la résolution de faire tous 4
+4 nement de la société idéale de demain.
+sé ‘ Prenons donc, camarades, la résolution de faire tous
 1 nos efforts pour amener le plus tôt possible ces rapES ports si désirables. La tâche, nous en sommes certains,
 3 nous sera facilitée par les militants des différentes
 à Le rapporteur, ni
 
 grès discute sur le mode de votation. Plusieurs cama- à
 rades sont d'avis qu'il n'y a lieu d'émettre aucun vote Ne
-car le Congrès est surtout un congrès d'études et ses 1
-décisions ne peuvent obliger à quoi que ce soit les Uni- S
+car le Congrès est surtout un congrès d'études et ses
+décisions ne peuvent obliger à quoi que ce soit les Uni-
 versités populaires, dont l'autonomie est indiscutable. Le <
 Congrès, bien que de cet avis, pense que sur certaines
 questions, il sera néanmoins utile de se compter; il
@@ -580,14 +580,14 @@ questions, il sera néanmoins utile de se compter; il
 d'Universités populaires et de Fédérations, les adhé-
 . rents individuels ayant toutefois droit de prendre part
 . aux discussions. L'an prochain on étudiera si les délé-
-gués de Fédérations ont lieu d'exister; il y a, en effet, V
+gués de Fédérations ont lieu d'exister; il y a, en effet,
 à examiner s'ils représentent des intérêts spéciaux ou ,
 s'ils font seulement double emploi avec les délégués À!
 d'Universités populaires, faisant partie des dites Fédé- ;
 rations, déjà représentées.
 ; La discussion s'engage sur le rapport de la deuxième
 Rapports des Universités populaires avec les syndicats. —
-Des Universités populaires /Agen, Béziers, Montpellier, 1
+Des Universités populaires /Agen, Béziers, Montpellier,
 Le Mans, etc.) indiquent qu'elles ont d'excellents rapports :
 | avec les Bourses du Travail. Certaines font des conférences
 | à la Bourse, d'autres y ont leur local permanent concédé à
@@ -597,12 +597,12 @@ F Paris /quatorsième) a pu, par des conférences spéciales
 ; sur les questions ouvrières, amener un grand nombre de
 syndiqués à suivre les travaux de l'Université populaire.
 \ Au Havre (Université populaire de fondation bourgeoise),
-: à la suite d'une grève, à Lyon, par la création d'un groupe 5
-4 féministe, les rapports sont devenus plus étroits entre è
-syndicats et Universités populaires. É
+: à la suite d'une grève, à Lyon, par la création d'un groupe
+4 féministe, les rapports sont devenus plus étroits entre
+syndicats et Universités populaires.
 
 FT procès-verbal des séances FRE
-11 Quelques Universités populaires n'ont pu s'entendre avec
+Quelques Universités populaires n'ont pu s'entendre avec
 Mr les Bourses, ces dernières craignant que les conférences un
 ne peu générales et abstraites des Universités Populaires ne
 _  détournent les camarades de l'action syndicaliste purement
@@ -634,10 +634,9 @@ a création d'Universités populaires, c'est que certains bour-
 de pour créer les Universités populaires, mais que ceux-ci ne
 2 sont pas sincères dans leur association avec les ouvriers.
 À Des camarades protestent. Un camarade dit que seules les
-4 Universités populaires qui s'appuient sur les organisations
+Universités populaires qui s'appuient sur les organisations
 ouvrières sont réellement solides, pour si misérables qu'elles
 À Saint-Quentin répond que sans le concours de bourgeois
-| 36
 
 intellectuels, leur U. P. n'aurait pu se créer et vivre; pour- Fo
 ” tant, il constate qu'aux conférences faites paies ouvriers, Ne
@@ -645,28 +644,28 @@ les bourgeois ne viennent pas... D'autre part, on fait remar- LRS
 quer qu'il faudrait définir le mot « bourgeois », certains ENCR
 ouvriers ayant l'esprit très « bourgeois ». je
 
-Rapports des Universités populaires avec les Coopéra- 1x
+Rapports des Universités populaires avec les Coopéra-
 lives. — Le Foyer de la Ménagère, fondé par une coopéra- %
 tive, pense qu'il vaut mieux dépendre financièrement d'une YA
-coopérative que d'un syndicat. 3
+coopérative que d'un syndicat.
 
-: L'Union populaire du quatorzième arrondissement a orga- F
+: L'Union populaire du quatorzième arrondissement a orga-
 nisé quelques conférences au local de la coopérative de à
-son quartier, et reçoit en échange une légère subvention. 5
+son quartier, et reçoit en échange une légère subvention.
 
 Nanterre a été fondée avec l'aide d'une coopérative, la AL
-Ruche. Elle reçoit une subvention, mais les coopérateurs cu s
+Ruche. Elle reçoit une subvention, mais les coopérateurs cu
 ne sont pas venus.
 
 Après échanges de diverses idées, il paraît bon qu'une .
 Université populaire ait des rapports et soit même subven- #
 tionnée par une coopérative, mais il semble mauvais que
-l'Université populaire dépende absolument et soit gérée 4
+l'Université populaire dépende absolument et soit gérée
 effectivement par la coopérative. ME
 
 | Rapports des Universités populaires avec les Groupes *
 | politiques. — Le Congrès constate qu'une expérience toujours confirmée prouve que les Universités populaires vont %
-à leur perte lorsqu'elles s'associent à un groupe politique. g
+à leur perte lorsqu'elles s'associent à un groupe politique.
 Tous les faits concordent., — Un camarade demande si les
 sections de la Ligue des droits de l'homme sont des
 É groupes politiques. — Un camarade lui répond que les [
@@ -675,10 +674,10 @@ soient, qui se mêlent aux compétitions électorales.
 | Rapports des Universités populaires avec les Patronages.
 « — Sur ce point, au contraire, le Congrès est d'avis de :
 d resserrer le plus possible les liens unissant les Universités
-populaires et les patronages, et de donner de l'extension ÿ
+populaires et les patronages, et de donner de l'extension
 É aux rapports déjà existants. LAS
 ï Des Universités populaires ont organisé des après-midi
-| récréatives du dimanche, des promenades, des fêtes à ». Noël, à Pâques, etc., soit exclusivemert pour les enfants ÿ
+| récréatives du dimanche, des promenades, des fêtes à ». Noël, à Pâques, etc., soit exclusivemert pour les enfants
 
 ‘1 procès-verbal des séances ane a
 qu de leurs sociétaires, soit pour tous les enfants se présenpi, tant. !
@@ -742,7 +741,7 @@ Dans la région parisienne on nous dit :
 
 | intellectuels et les manuels, ne s'est point réalisée.
 
-4 Pourquoi? D'abord, à Paris et dans les grands centres,
+Pourquoi? D'abord, à Paris et dans les grands centres,
 un grand nombre d'organisations attirent les travail-
 
 | leurs : les syndicats, les coopératives, les cours profes-
@@ -750,8 +749,6 @@ un grand nombre d'organisations attirent les travail-
 | sionnels, les groupes politiques, qui s'adressent à leurs
 
 | intérêts immédiats, sollicitent leur attention; d'autre-
-
-| 39
 
 à procès-verbal des séances PERS ol
 L part, les partis qui avaient intérêt à entraver le progrès
@@ -784,29 +781,29 @@ signalent rien de semblable. Le milieu, essentiellement
 mobile et d'esprit peu persévérant, où nous vivons,
 semble être la cause primordiale de cet échec, plus
 è apparent que réel. Notre population, sollicitée par des
-| distractions sans nombre, se fixe difficilement; et pour- 3
+| distractions sans nombre, se fixe difficilement; et pour-
 
 tant c'est avec une joie profonde que nous constatons, ra
 dans les rapports, un mouvement progressif général |
-dans les premiers mois de 1904. R
+dans les premiers mois de 1904.
 
 L'idée, bonne en soi, répondant à un besoin social, 'a %
 germé; et ceux qui viennent à nous aujourd'hui, sans
-emballement, parce qu'ils ont constaté l'utilité de notre 6
-œuvre, nous resteront fidèles. Par leur exemple et leur Ç
+emballement, parce qu'ils ont constaté l'utilité de notre
+œuvre, nous resteront fidèles. Par leur exemple et leur
 
-propagande, ils grouperont, autour de leurs organisations, les éléments d'un succès prochain et durable, Ê
+propagande, ils grouperont, autour de leurs organisations, les éléments d'un succès prochain et durable,
 auquel nous croyons sincèrement.
 
-La première question : Organisation générale, sta- x
+La première question : Organisation générale, sta-
 tuts, offre beaucoup de points de contact entre les difé- |
 rentes Universités populaires. Partout (une ou deux
 exceptions seulement), la carte d'adhérent est exigée ;
-pour avoir accès dans le groupe. Toutes les Univer- Ÿ
+pour avoir accès dans le groupe. Toutes les Univer-
 sités populaires sont régies par un Conseil d'adminis- ;
 tration choisi parmi les membres actifs ou fondateurs.
 
-Ces conseils, plus ou moins nombreux, selon l'importance du groupe, sont renouvelables par tiers ou par 4
+Ces conseils, plus ou moins nombreux, selon l'importance du groupe, sont renouvelables par tiers ou par
 moitié, précaution fort sage pour la bonne direction et
 
 : l'esprit de suite, indispensable aux œuvres d'éducation, et qui présente cet autre avantage de mettre le
@@ -932,7 +929,7 @@ fi partie désaffecté ; la municipalité fit les réparations, fournit
 
 être créé le premier Foyer populaire, dit Maison du Peuple,
 Les membres auditeurs qualifiés de participants paient une
-. cotisation de 3 francs par an; on accepte aussi 0 franc 50
+. cotisation de 3 francs par an; on accepte aussi 0 franc
 par mois. Cette Maison du Peuple est dirigée par la Société
 qui l'a fondée.
 
@@ -966,7 +963,7 @@ l'aïeule des Universités populaires.
 Nous nous inclinons devant le dévouement et la
 persévérance de ces vaillants ouvriers. Au début, ily a
 
-fi procès-verbal des séances 1
+fi procès-verbal des séances
 bien près de dix ans, ils étaient 5 ou 6 libertaires orga-
 | ._ nisateurs ; aujourd'hui, ils sont 15 ou 20, d'une opinion
 politique divergente de celle de leurs prédécesseurs;
@@ -1013,7 +1010,7 @@ recruter le plus d'adhérents possible, ce que font toutes
 les Universités populaires, et s'adresser à la bonne
 volonté de ceux qui veulent bien s'imposer un sacrifice
 plus lourd, sans toutefois réclamer d'autres prérogatives que les autres membres.
-2 Reste à envisager la régularité des versements.
+Reste à envisager la régularité des versements.
 L'Université populaire de Meaux, après avoir
 constaté que les membres en retard de quelques mois
 n'osaient plus revenir ou ne pouvaient plus payer les
@@ -1022,9 +1019,8 @@ inscrire que pour assister à une fête, s'est arrêtée au
 système du recouvrement à domicile. Depuis cette |
 époque, sa situation, qui n'était pas mauvaise, s'est
 améliorée sensiblement, — 600 francs de réserve en un
-| 47
 
-procès-verbal des séances 1
+procès-verbal des séances
 LP} an. — Elle est la plus prospère de celles qui nous ont +
 AR envoyé leurs rapports. Le montant des cotisations
 . perçues indique au moins 400 membres. Son dernier
@@ -1129,7 +1125,7 @@ Les membres des Universités populaires comprennent :
 tous les avantages, conférences, fêtes, etc.; ils verseront
 t ou non des cotisations; : |
 | 2 des membres actifs versant la même cotisation que les }
-1 Les membres actifs participent à la nomination d'un
+Les membres actifs participent à la nomination d'un
 | Les membres adhérents deviendront membres actifs en
 È satisfaisant à une ou plusieurs des conditions suivantes :
 l a) avoir trois ou six mois de présence;
@@ -1165,20 +1161,20 @@ outre le loyer du bureau de la Fédération.
 Le nombre d'Universités populaires adhérentes était
 au début de 26; il est aujourd'hui de 34, après avoir
 oscillé et être parvenu, de février à mai 1903, jusqu'au
-| total de 4r.
+| total de
 £ Nous n'avons compris dans ces chiffres que les Uni-
 ÿ versités populaires payant régulièrement leur cotisation
 * et ayant participé réellement aux travaux de la Fédé-
 Le nombre d'Universités populaires ayant actuelle-
 ; ment fait acte d'adhésion, et n'ayant pas signalé leur
-disparition, est, non pas de 34, mais de 4o.
-(1) La publication de ce vœu a été décidée. ÿ
+disparition, est, non pas de 34, mais de
+(1) La publication de ce vœu a été décidée.
 
 Le budget mensuel ordinaire de la Fédération s'établit
 actuellement comme suit:
-Subvention de la Société des Universités Popu1 RS Mi URPE LR ES MUR francs 100
+Subvention de la Société des Universités Popu1 RS Mi URPE LR ES MUR francs
 k Recettes diverses des services commerciaux
-( : Appointements de l'employé. . . . . . . francs 125 15
+( : Appointements de l'employé. . . . . . . francs
 Le loyer est payé par la Société des Universités popu-
 Ce budget laisse donc mensuellement un boni de
 | Dans ce budget ne sont pas comprises, évidemment,
@@ -1192,7 +1188,6 @@ L œuvres et organisations. C'est ainsi qu'elle a organisé
 | parmi les Universités populaires une souscription au
 monument Zola,souscription qui a rapporté 91 francs 50. |
 Elle a également organisé diverses fêtes etréceptions,
-| 53
 
 procès-verbal des séances
 ) notamment la réception des camarades des Universités
@@ -1209,7 +1204,7 @@ camarade à l'exposition de Saint-Louis, par l'inter-
 
 à : médiaire du comité central d'organisation des bourses
 de voyage à l'exposition de Saint-Louis, pour laquelle
-il a été recueilli 143 francs 30.
+il a été recueilli 143 francs
 
 L'encaisse de la Fédération était, fin avril, de
 
@@ -1288,11 +1283,11 @@ lieu de 3 francs qu'elle devait précédemment.
 : Enfin, le nombre d''Universités populaires en retard de
 ÿ à leurs cotisations, qui avait été nul jusqu'en février 1903,
 4 8 en mai; et 15 en juin, sur 41 Universités populaires en
-L ce moment. ÿ
-4 Cet état de choses pouvait devenir dangereux pour ;
+L ce moment.
+Cet état de choses pouvait devenir dangereux pour ;
 l'existence même de la Fédération; aussi le 7 juin 1903, ;
 si l'assemblée générale modifia comme suit l'article VII des
-AT La cotisation mensuelle est fixée à 3 francs par mois et 1
+AT La cotisation mensuelle est fixée à 3 francs par mois et
 fe par Université populaire. Les cotisations qui n'auraient #
 
 | pas été acquittées dans les cinq jours suivant l'assemblée
@@ -1300,7 +1295,7 @@ générale mensuelle, seraient recouvrées par la poste et le ,
 | montant en sera augmenté de 50 centimesspour frais de
 . Toute Université populaire en retard de ses cotisations
 ne pourra plus jouir des avantages de la Fédération jus- |
-qu'à ce qu'elle se soit remise à jour. Toutefois, dans ce cas, k
+qu'à ce qu'elle se soit remise à jour. Toutefois, dans ce cas,
 Y'Université populaire pourra demander à se libérer par
 fractions et la Commission de contrôle sera appelée à déli- |
 bérer sur la question. ,
@@ -1310,8 +1305,8 @@ poste; une Université populaire seulement sur quinze fe
 Depuis cette époque, les recouvrements des cotisa-
 | tions arriérées se font régulièrement par la poste et ;
 aucune difficulté ne s'est élevée à ce sujet.
-Je crois donc devoir appeler l'attention des cama- x
-ke rades de province sur l'urgence qu'il y a tant pour une 4
+Je crois donc devoir appeler l'attention des cama-
+ke rades de province sur l'urgence qu'il y a tant pour une
 ; Fédération que pour une Université populaire à ne pas
 laisser se créer des arriérés de cotisations.
 Beaucoup d'Universités populaires parisiennes ont
@@ -1319,7 +1314,7 @@ disparu parce qu'elles ne surent pas encaisser réguliè-
 \ Alors que le nombre d'inscrits aurait largement sufi
 à subvenir aux besoins de l'Université populaire si
 chacun avait payé la cotisation annuelle de 6 francs,
-F beaucoup profitaient de la faculté qui leur était laissée 4
+F beaucoup profitaient de la faculté qui leur était laissée
 ; de s'acquitter mensuellement, réglant un premier mois,
 È parfois un deuxième, puis étant restés pour une cause
 ou une autre absents de l'Université populaire pendant
@@ -1353,12 +1348,12 @@ de faire crédit, font payer même le pain d'avance à
 Ce leurs adhérents; elles accordent d'ailleurs la gratuité
 absolue à tout adhérent malade ou sans travail pendant
 À six mois, mais seulement après délibération du Conseil
-4 C'est ce que nous voudrions voir adopter par les |
+C'est ce que nous voudrions voir adopter par les |
 j Universités populaires; et nous voudrions que les adhé- |
 A rents fissent consister la solidarité non pas dans une |
-timidité mal placée à l'égard d'un camarade débiteur, Ë
+timidité mal placée à l'égard d'un camarade débiteur,
 ; mais dans le sentiment de chacun de s'acquitter régu- À
-lièrement de ses dettes envers le fonds commun. j
+lièrement de ses dettes envers le fonds commun.
 
 Après cette lecture, la première Commission recommande
 aux Universités populaires d'insérer dans leurs statuts une .
@@ -1413,14 +1408,14 @@ l'organisation centrale de la caisse.
 FE b} Une commission de contrôle chargée de l'examen des
 re £° Cette caisse serait alimentée par des dons personnels,
 d des subventions municipales ou autres, des fêtes spéciales, :
-Le < (1) Ce vœu a été renvoyé par le Congrès à la Commission d'orga- 7
-U nisation de la Fédération nationale. h
+Le < (1) Ce vœu a été renvoyé par le Congrès à la Commission d'orga-
+U nisation de la Fédération nationale.
 
 organisation financière et administrative
 actifs ou honoraires
 ANGERS par mois |
 Brestoise par mois ;
-Société de Lecture et Le 1
+Société de Lecture et Le
 62 -
 
 L'Éducation d'Angers est administrée
@@ -1440,7 +1435,7 @@ attirer un plus grand nombre |
 | a eu la pensée d'or- | L'Éducation d'Auvers est administrée
 | ganiser une tombola par un conseil de 15 membres tirés
 
-et des fêtes pour au sort chaque année. Pas de pré- 4
+et des fêtes pour au sort chaque année. Pas de pré-
 
 augmenter ses res- sident. Un administrateur-délégué. à
 | sources. Jusqu'à pré- Les camarades font l'effort néces-
@@ -1454,10 +1449,10 @@ l'éclairage et 20 fr. est président de droit.
 organisation financière et administrative à
 actifs ou honoraires |
 L'Éducation mutuelle | o franc 50 | |
-. Cnoïsy-Le-Ror par mois 1H
+. Cnoïsy-Le-Ror par mois
 La Fontenaisienne 0 franc 50 | o france 50 | |
 Fontenay (Vendée) par mois par mois | |
-LAvaAL par mois par an Ë
+LAvaAL par mois par an
 L populaire par an [E
 dit Maison du Peuple o franc 50 HA
 Lyon par mois » à
@@ -1488,17 +1483,17 @@ membres de la Maison du Peuple.
 des Tir mer
 actifs ou honoraires |
 Les Lizas (Seine) par mois par mois
-ES LIMoGEs par mois 218
+ES LIMoGEs par mois
 MEAUx par mois par mois . Te
 MoxrreuiL-sous-Bois | par semaine is |
-66 4
+66
 
 Fêtes et représenta- | Conseil de 9 membres actifs élus à
 tions. À reçu 200 fr. l'assemblée générale pour deux ans,
 de la Société des renouvelable par moitié. CommisUniversités  popu- sion de contrôle 3 membres élus.
 laires ; 100 francs de Les membres adhérents peuvent
 la Ligue de l'Ensei- devenirmembres actifs, après3mois,
-gnement à sa fonda- en payant la cotisation de o franc 50
+gnement à sa fonda- en payant la cotisation de o franc
 | tion. et s'ils sont admis par le Conseil.
 Ne sollicite pas de
 dons pour éviter | Elle comprend 5 sections ou Univerlimmixtion patro- sités populaires. Dirigées par un
@@ -1517,8 +1512,8 @@ organisation financière et administrative |
 des ET Trot |
 actifs ou honoraires |}
 
-SAINT-QUENTIN ; par famille D
-des 0 franc 60 KR 11
+SAINT-QUENTIN ; par famille
+des 0 franc 60 KR
 par mois “|
 (treizième arrond') 4 pour A
 Paris PASSE une famille AN à |
@@ -1530,7 +1525,7 @@ d'autant plus regrettable que ses
 Administrée par un Conseil de 13mems : :
 a Conseil ses conférences, à la Bourse du
 E Travail, elle reçoit les auditeurs
-Municipal pour achat : Élèy E
+Municipal pour achat : Élèy
 ÉTÉ gratuitement et ne prélève la cotisation que sur les membres qui la
 Conseil d'administration de 15 memDonateurs : son tréso- bres, élus pour trois ans, renouverier, 500 francs par lable par tiers. Assemblée générale
 an; son président annuelle. Sont électeurs les mem-
@@ -1541,7 +1536,7 @@ organisation financière et administrative Dhs
 actifs ou honoraires |
 (quatorzième arrond') de + sr |
 "Re par mois par an | |
-Foyer du Peuple 6 francs 4
+Foyer du Peuple 6 francs
 te par mois | par famille 17 |
 
 Compte 120 membres Conseil de 12 membres actifs, nomnt et énviron més en assemblée générale pour
@@ -1579,16 +1574,16 @@ pour but de compléter l'instruction que donnent l'école
 et les œuvres post-scolaires ; il ne doit pas seulement
 munir l'esprit de connaissances plus étendues et plus
 ( précises ; il contribue aussi à l'éducätion mutuelle des
-caractères et à rendre les citoyens plus conscients de M
+caractères et à rendre les citoyens plus conscients de
 leur solidarité, de leurs droits et de leurs devoirs dans « *
-(1) Des rapports sur ce sujet ou: des notes et documents ont été ÿ
-envoyés au congrès par la Fédération des Universités populaires s
+(1) Des rapports sur ce sujet ou: des notes et documents ont été
+envoyés au congrès par la Fédération des Universités populaires
 Pyrénéennes, les Universités populaires de Lyon, Brest, Limoges,
 à Laval, Caveirac, Fontenay-le-Comte, Sens, Saint-Quentin, Angers,
 Auvers-sur-Oise, Les Lilas, Choisy-le-Roï, Meaux, Nancy, Le Mans,
 Montreuil, la Société d'enseignement populaire de l'Hérault, la
 Fédération post-scolaire de Saint-Gilles, les Universités populaires
-parisiennes du Grand-Montrouge, des troisième, sixième, treizième, 4
+parisiennes du Grand-Montrouge, des troisième, sixième, treizième,
 
 | tous les emplois de leur activité ; il habitue à penser et
 à raisonner, à rechercher librement la justice et la
@@ -1618,8 +1613,8 @@ Il a été très nettement marqué et condamné par cer-
 
 PASS _ séance du lundi 23 mai PVO
 (No taines Universités populaires. Celle de Montrouge :
-qu s'exprime ainsi : 4
-( On -pourrait reprocher à l'enseignement reçu dans les 4
+qu s'exprime ainsi
+( On -pourrait reprocher à l'enseignement reçu dans les
 ne Universités populaires d'être quelque peu chaotique. Les
 conférences s'y suivent sans méthode, sans gradation à
 er ï aucune. Telle conférence, par exemple, traitant des prin-
@@ -1627,7 +1622,7 @@ er ï aucune. Telle conférence, par exemple, traitant des prin-
 1e) commentant au contraire les conclusions, les conséquences
 ï ou les applications de ce même sujet. Telle conférence qui
 | eüt eu besoin de telle autre pour être intelligible vient
-| ; cependant avant celle-ci, et ainsi de suite; de même des k
+| ; cependant avant celle-ci, et ainsi de suite; de même des
 Te opinions absolument coniradictoires et incompatibles sont si
 \i successivement formulées à quelques jours de distance par
 He des conférenciers également documentés, appuyant leurs
@@ -1647,7 +1642,7 @@ conviction soit prématurée, soit fondée sur des appréciations incomplètes o
 : « Nous faisons tous nos efforts pour mettre un peu
 # d'ordre dans ce chaos », écrit l'Université populaire de « *# Limoges.
 
-4 Et celle de Montreuil : « C'est pour nous un vif désir M
+Et celle de Montreuil : « C'est pour nous un vif désir
 
 a que nos causeries et conférences, tout en étant variées,
 
@@ -1655,13 +1650,13 @@ Il conviendra toujours de traiter en des conférences.
 
 Fu isolées certains sujets particuliers, notamment des ques-
 
-tions d'intérêt actuel, mais nous pensons, nous aussi, x
+tions d'intérêt actuel, mais nous pensons, nous aussi,
 | qu'il faut, dans l'enseignement, de la cohésion.
 Cours. — Faut-il créer des cours proprement dits ?
 Il ne semble pas que ce soit nécessaire là où fonctionnent des associations s'inspirant de l'esprit républicain et des principes scientifiques : telles la Philo- .
 technique, la Polymathique, la Polytechnique, l'Union
 | française de la jeunesse, la Société républicaine des £
-conférences populaires, le Cercle populaire d'enseignej ë
+conférences populaires, le Cercle populaire d'enseignej
 | Il est loisible, à la vérité, d'organiser tel ou tel cours
 qui n'existe pas dans les sections de ces diverses
 ) sociétés ou qui peut être utilement doublé. 1108)
@@ -1669,7 +1664,7 @@ qui n'existe pas dans les sections de ces diverses
 cours pour les adultes, une longue suite de leçons :
 . régulières sur une même matière serait diflicile à
 à Ce système d'ailleurs est moins propre à réaliser
-notre conception de l'enseignement dans les U. P.
+notre conception de l'enseignement dans les
 Il a réussi à Tarbes, à Bayonne, surtout à Lyon;
 1 mais outre que cette dernière ville dispose de ressources rares, les leçons alternent de façon à plaire
 aux auditeurs par la variété et « certains jours sont ÿ.,
@@ -1684,7 +1679,7 @@ ressources et les nécessités locales ; mais en général l'enseignement |
 dans les Universités populaires doit compléter, plutôt que rempla- ;
 cer, les institutions scolaires ou post-scolaires. |
 
-séance du lundi 23 mai è
+séance du lundi 23 mai
 | A Paris, la Solidarité du FE es, après une expé- *
 NE rience de trois ans, a abandonné les leçons.
 L''U. P. Fontenaisienne a fait aussi l'épreuve que le
@@ -1696,7 +1691,7 @@ Séries. — Mais comme il n'y a pas d'enseignement
 digne de ce nom sans un lien logique entre les sujets
 traités, quelques U. P. ont organisé à propos des ma- |
 tières qui les intéressaient le plus des séries de plusieurs conférences. Chaque série forme ainsi un tout |
-bien ordonné. 4
+bien ordonné.
 
 C'est ainsi qu'à Laval il y a eu des séries de confé-
 rences sur la situation des ouvriers dans différents
@@ -1706,7 +1701,7 @@ l l'astronomie, l'histoire naturelle, ia musique, la coopé-
 
 Et la meilleure preuve de l'utilité de ces séries et de
 leur valeur pratique, c'est le résultat qui les a suivies :
-les deux dernières ont amené les auditeurs à fonder s
+les deux dernières ont amené les auditeurs à fonder
 une chorale et une coopérative.
 
 Au Mans, ont été traitées en séries les quéstions de
@@ -1715,7 +1710,7 @@ vingtième siècle, les applications de l'électricité.
 
 Il y a eu à Sens, une série sur l'histoire, une série
 
-scientifique, une série littéraire, une série de psycho- 1
+scientifique, une série littéraire, une série de psycho-
 logie et de morale, une série relative à la loi sur les
 accidents du travail.
 
@@ -1767,8 +1762,6 @@ serait expédient de décider en assemblée générale du
 
 L choix des sujets; on s'assurerait dès lors de la collabo-
 
-| 79
-
 séance du lundi 23 mai | ?
 ration de conférenciers qui fussent surtout des spécialistes prêts et propres à vulgariser leurs connaissances, et on prierait un d'entre eux d'exposer en une
 > | leçon préliminaire le cadre et l'ensemble de la série; ;
@@ -1782,9 +1775,9 @@ moyens d'enseignement, si la distribution hebdomadaire ou mensuelle du travail e
 ment, tel jour de la semaine étant réservé à un ordre |
 d'études, et tel autre jour à un ordre différent : à |
 VP'Union populaire du quatorzième arrondissement, par |
-exemple, le lundi est attribué aux questions sociales et L
-contemporaines ; le mercredi, à l'histoire et à la littéra- L
-ture ; le vendredi, aux sciences, à l'hygiène, à la philo- À 1
+exemple, le lundi est attribué aux questions sociales et
+contemporaines ; le mercredi, à l'histoire et à la littéra-
+ture ; le vendredi, aux sciences, à l'hygiène, à la philo- À
 
 C'est donc le système des séries, d'un petit nombre |
 de conférences bien choisies, coordonnées et clairement |
@@ -1794,12 +1787,12 @@ de conférences bien choisies, coordonnées et clairement |
 Causeries. — Avec ou sans séries, l'enseignement !
 dans les Universités populaires comporte des cause- Ml
 ries familières. Beaucoup de rapports insistent avec
-raison sur l'importance de cet exercice : L 1
+raison sur l'importance de cet exercice
 
 Tout le monde doit collaborer,dit excellemment M. L. Planchon, de Montpellier. (1) L'enseignement des Universités
 populaires doit être réciproque. C'est une erreur grave et
 
-(1) L'enseignement populaire dans les départements de l'Hérault et F4
+(1) L'enseignement populaire dans les départements de l'Hérault et
 du Gard. Montpellier 1903, page 28. ?
 
 ; un sot orgueil de penser que seuls les intellectuels sont à
@@ -1818,7 +1811,7 @@ N d'eux-mêmes engage à garder le silence.
 Montpellier, invite à tenir compte des bonnes volontés à
 de tous les camarades : « On n'encourage pas assez se
 les hésitants, ceux dont l'instruction et la facilité d'élo- }
-cution laissent quelque peu à désirer, mais qui peuvent F
+cution laissent quelque peu à désirer, mais qui peuvent
 
 Celui qui juge une conférence uniquement par le talent
 
@@ -1845,40 +1838,40 @@ Il serait bon qu'il s'organisät des sortes de causeries au
 4 _ rôle... exposer ses idées personnelles sur tel ou tel sujet à
 4 qui lui serait familier, avec le pourquoi de ces idées. Peut-
 
-(2) Montpellier, brochure citée, pages 28 et 29.
+(2) Montpellier, brochure citée, pages 28 et
 
 Fi séance du lundi 23 mai RE ‘
-être y aurait-il beaucoup de bêtises débitées, peut-être y k
-RAC aurait-il beaucoup d'orateurs fastidieux. Mais, ne l'oublions È
+être y aurait-il beaucoup de bêtises débitées, peut-être y
+RAC aurait-il beaucoup d'orateurs fastidieux. Mais, ne l'oublions
 fi pas, l'Université populaire est un organe d'éducation et À
-F1 l'on n'apprend à raisonner juste, à exposer ses idées avec j
+F1 l'on n'apprend à raisonner juste, à exposer ses idées avec
 ne ordre et méthode, qu'après un assez long entraînement. ;
-Fe Tout adhérent peut dire, d'après ses réflexions, ses k
+Fe Tout adhérent peut dire, d'après ses réflexions, ses
 4 à occupations, son expérience, bien des choses suscep4. tibles d'intéresser les camarades. Il serait très intéres-
 Ÿ sant, par exemple, que chaque ouvrier de profession
 } différente vint parler de son métier, suivant l'heureuse
-initiative de l'Université populaire de Montpellier. | M
-Tous les auditeurs profiteraient de renseignements É
+initiative de l'Université populaire de Montpellier.
+Tous les auditeurs profiteraient de renseignements
 techniques; la discussion aurait des dessous plus À
-solides et les jeunes gens présents tireraient de là des Î
-indications fructueuses pour le choix d'une carrière. j
+solides et les jeunes gens présents tireraient de là des
+indications fructueuses pour le choix d'une carrière.
 A l'Université populaire du quatorzsième un bou- à
-langer a traité, de façon remarquable, de l'évolution u
+langer a traité, de façon remarquable, de l'évolution
 ; de la boulangerie; de même le secrétaire de la fédé- |
-ration du livre et celui de la fédération du papier ont 4
-fait les monographies de ces groupements; un délégué 4
-du syndicat des typographes de Paris a fait connaître 41
+ration du livre et celui de la fédération du papier ont
+fait les monographies de ces groupements; un délégué
+du syndicat des typographes de Paris a fait connaître
 comment est préparé un numéro de journal. |
 L'expérience de Montpellier est donc confirmée par  ‘
-celle de l'Union populaire du quatorzième. Le secré- M
+celle de l'Union populaire du quatorzième. Le secré-
 taire de cette Université populaire, le camarade Damien, ;
 fait une proposition qui mérite d'être retenue : indiquer "M
 quelques jours d'avance une question à examiner; un \ |
-des camarades les plus actifs la préparerait et amor- M
+des camarades les plus actifs la préparerait et amor-
 cerait la discussion. Des personnes compétentes pour- LL
-raient être invitées à la séance et la conversation bien M l
-J dirigée et soutenue ne s'égarerait pas en propos oiseux ; b.
-il se ferait un fructueux échange d'idées et même si on L
+raient être invitées à la séance et la conversation bien
+J dirigée et soutenue ne s'égarerait pas en propos oiseux
+il se ferait un fructueux échange d'idées et même si on
 
 n'aboutissait pas à une conclusion ferme on n'aurait
 pas perdu sa soirée.
@@ -1895,27 +1888,27 @@ divers, les textes et documents historiques les plus si-
 est pas attrayant ou utile, on choisit des fragments;
 une analyse du reste du livre les précède, les accom-
 | pagne ou les suit; on y joint parfois une explication,
-- comme entre parenthèses, ou un commentaire plus dé- x
+- comme entre parenthèses, ou un commentaire plus dé-
 | veloppé de manière à tirer de cet exercice tout l'effet
 Dans les petites localités où des conférences ne peu-
 | vent être organisées, les personnes qui se chargent des
 lectures publiques imiteront avec profit l'Université
 4 populaire de Caveirac où les lectures sont « spécialisées » c'est-à-dire roulent pendant plusieurs soirées sur
 un même sujet pour le faire connaître sous tous ses
-| aspects, par exemple sur l'hygiène et l'économie domestique. On évite ainsi l'incohérence et l'on obtient quelques-uns des avantages des conférences en séries. 4
+| aspects, par exemple sur l'hygiène et l'économie domestique. On évite ainsi l'incohérence et l'on obtient quelques-uns des avantages des conférences en séries.
 (1) V. Article de Sainte-Beuve, Causeries du Lundi (21 janvier 1850).
 
 séance du lundi 23 mai
-, Des programmes de lectures méthodiques devraient L
-A être préparés par la Fédération des Universités popu- 4
-laires et mis à la disposition des camarades qui en è
+, Des programmes de lectures méthodiques devraient
+A être préparés par la Fédération des Universités popu-
+laires et mis à la disposition des camarades qui en
 {3 feraient la demande. Il serait souhaitable de leur À
-fournir aussi des livres qu'ils n'ont pas toujours sous 1
+fournir aussi des livres qu'ils n'ont pas toujours sous
 LR Cela n'empêchera pas tout camarade qui aura lu un Ne
 livre ancien ou récent de l'analyser à l'occasion devant |
-| ceux qui ne le connaissent pas. Tous seront mis au 4
-courant, par ce procédé, de telle publication nouvelle M
-qu'ils auraient hésité à acheter ou qu'ils n'auraient pas F
+| ceux qui ne le connaissent pas. Tous seront mis au
+courant, par ce procédé, de telle publication nouvelle
+qu'ils auraient hésité à acheter ou qu'ils n'auraient pas
 eu le temps de lire; ils s'assimileront vite ce qu'elle |
 aura de plus substantiel, chacun aidant par ses remarques à en mieux pénétrer le sens. ‘1
 Discussions. — Après conférences, causeries ou lectures, des discussions doivent s'engager : elles ne sont
@@ -1924,7 +1917,7 @@ D'heureux essais en ce sens ont eu lieu déjà dans plu- ;
 sieurs Universités populaires. Deux conférenciers, par
 dictoires ; puis la discussion, tout en restant courtoise, {
 n'est que plus ardente. (1) Parfois les auditeurs, après la
-séance, notent par écrit leurs observations : le terrain L
+séance, notent par écrit leurs observations : le terrain
 estainsi déblayé pour la prochaine réunion. Ailleurs, (2) À
 16 un adhérent donne un bref aperçu du sujet, pose la .
 question, ensuite les débats sont ouverts.
@@ -1940,7 +1933,7 @@ marqué, 200 personnes dans ce village de 2.000 habitants viennent écouter la c
 s'est même avisé d'écrire sur deux tableaux juxtaposés
 
 : les arguments pour et contre : à chacun de tirer la con4 clusion. à
-| D'autres (1) reviennent, à huit jours d'intervalle, sur F
+| D'autres (1) reviennent, à huit jours d'intervalle, sur
 un sujet assez longuement retourné de tout sens ; les
 . - idées naissent alors plus abondantes : ils en ont fait à
 | l'expérience et les entretiens, sur une même matière,
@@ -1948,7 +1941,7 @@ un sujet assez longuement retourné de tout sens ; les
 . ments nouveaux,se multiplient tant que la curiosité des
 disputeurs ne se lasse pas. ra
 -On peut varier les procédés : l'essentiel est qu'on FA
-| Il ne faut pas qu'une fausse pudeur ou une discrétion s
+| Il ne faut pas qu'une fausse pudeur ou une discrétion
 ; hors de place empêche de poser des questions, de dé- :
 | finir des objections, de signaler des lacunes ou des
 erreurs. Les conférenciers ne viendront que mieux
@@ -1966,31 +1959,31 @@ ront à plus de vérité. Elles seront du moins une mer-
 Ni On y gagnera encore de devenir plus justes les uns \
 î pour les autres et plus sociables.
 nr _ L'homme, dit l'Université populaire de Montrouge, ne se
-Être -  perfectionnera moralement qu'autant qu'il aura la force Ë
+Être -  perfectionnera moralement qu'autant qu'il aura la force
 £ de traiter avec indulgence les imperfections de ses sem- ;
 Me Cette tolérance pour autrui, cette habitude de ne  « K point considérer comme un fripon ou un imbécile qui- ;
-ï conque ne pense pas comme nous influera à la longue 1
-sur les mœurs publiques. 4
+ï conque ne pense pas comme nous influera à la longue
+sur les mœurs publiques.
 4 « Après avoir écouté un contradicteur sans l'inter- À
 } ; rompre dans une salle d'Université populaire, on sera
-à plus disposé à laisser les candidats aux mandats poli- 4
-4 tiques développer leurs programmes dans les réunions 1
+à plus disposé à laisser les candidats aux mandats poli-
+4 tiques développer leurs programmes dans les réunions
 ê publiques ; on discutera avec eux ou leurs partisans -
 | ou leurs adversaires, avec chaleur et vivacité sans ;
 doute, mais sans grossièreté, sans violence ; on laissera définitivement de côté les huées et les injures À
 pour les remplacer par des faits bien observés, par des
-arguments bien déduits. F.
-La Politique. — Ce n'est pas que l'Université popue M
+arguments bien déduits.
+La Politique. — Ce n'est pas que l'Université popue
 1 laire doive s'occuper de politique électorale, au cop- ;
 traire. Quand elle est ainsi sortie de sa voie, elle s'est #
-ge, perdue : nous pourrions citer exemples à l'appui. Done 4
-< pas d'esprit de coterie, pas de propagande pour un ï
+ge, perdue : nous pourrions citer exemples à l'appui. Done
+< pas d'esprit de coterie, pas de propagande pour un
 Ë groupe ou une personne; mais un effort pour dévelop- EL :
-per l'esprit politique, pour s'élever au-dessus des que- 1
-relles de partis, pour s'instruire de la politique géné- 4
+per l'esprit politique, pour s'élever au-dessus des que-
+relles de partis, pour s'instruire de la politique géné-
 2 rale, pour connaître les doctrines, en saisir les consé- de al
-quences, en juger la valeur, voilà ce que doivent se : 4
-proposer les membres des Universités populaires. Tous. 4
+quences, en juger la valeur, voilà ce que doivent se
+proposer les membres des Universités populaires. Tous.
 
 assurément appartiennent aux diverses fractions de la
 
@@ -2030,8 +2023,8 @@ mal ? Peut-être en quelques endroits, à condition d'instituer un ou deux jours
 
 | gens se mettraient sans eflort « un métier dans les
 mains ». Un matériel pour ces cours serait coûteux.
-Mais l'Université populaire de Montrouge propose une x
-solution à cette difficulté : 3
+Mais l'Université populaire de Montrouge propose une
+solution à cette difficulté
 
 N'y a-til pas parmi les adhérents des ouvriers travaillant à leur compte ou même des petits patrons, — je n'ose .
 
@@ -2039,7 +2032,7 @@ ne séance du lundi 23 mai 1°
 | espérer des grands, — qui puissent réunir chez eux des : |
 k apprentis de l'Université populaire et faire leur instruction |
 Le : d'après leur propre matériel? ‘il
-Cela ne semble pas impossible à réaliser, surtout si L
+Cela ne semble pas impossible à réaliser, surtout si
 f les grands patrons s'en mêlaient; cela leur ferait
 ï honneur et tournerait à leur profit, leurs futurs |
 ouvriers devant être plus habiles dès l'entrée dans leur À
@@ -2047,19 +2040,19 @@ ouvriers devant être plus habiles dès l'entrée dans leur À
 professionnel a déjà une place et il dépend des muni- à
 : cipalités, de particuliers ou de groupes disposant de
 fonds suffisants de le créer là où il rendrait des ser- À
-À Limoges par exemple, il est admirablement organisé par la Bourse du travail. Des cours de peinture, 4
+À Limoges par exemple, il est admirablement organisé par la Bourse du travail. Des cours de peinture,
 é de modelage, de coupe, de dessin y sont professés.
 Au Mans, il est donné aussi à la Bourse du travail
 par divers syndicats; il y a notamment un cours de |
 dessin pour les ouvriers en voitures. | |
 La Fraternelle du HI° pense que l'Université popu- A
 laire n'est pas apte à l'enseignement professionnel ; il Î |
-fait, dit le rapporteur, « l'objet propre de l'apprentissage lequel ne saurait porter de fruits que s'il est cul- 1
-tivé dans le cadre où il est appelé à se développer et à 1
+fait, dit le rapporteur, « l'objet propre de l'apprentissage lequel ne saurait porter de fruits que s'il est cul-
+tivé dans le cadre où il est appelé à se développer et à
 acquérir sa maîtrise, c'est-à-dire à la fabrique. Non, SR
 nous ne pouvons faire des cordonniers, des menuisiers, LE :
-des mécaniciens, etc. Dans tout travailleur, il faut con- 1
-sidérer l'homme dans sa plénitude et l'ouvrier dans sa 1
+des mécaniciens, etc. Dans tout travailleur, il faut con-
+sidérer l'homme dans sa plénitude et l'ouvrier dans sa
 spécialisation ; le premier relève de l'Université popu- "4
 laire ; le second, de l'atelier. » A
 Cela est vrai en théorie; mais la distinction de $
@@ -2095,25 +2088,25 @@ If, qu'un certain nombre de revues soient reçues réguliè-
 
 séance du lundi 23 mai FIGE
 ; rement afin que les adhérents puissent se tenir au courant À
-ÿ du mouvement des idées. È
-ÿ Livres ou abonnements étant assez cher, la Frater- 1
-nelle se crée des ressources par une initiative qui est É
+ÿ du mouvement des idées.
+ÿ Livres ou abonnements étant assez cher, la Frater-
+nelle se crée des ressources par une initiative qui est
 d'un bon exemple : CRE
-: Nous avons formé, écrit son rapporteur, avec l'aide des 1
+: Nous avons formé, écrit son rapporteur, avec l'aide des
 ! camarades les plus assidus, une petite association dans
 l'Université populaire, ayant pour but de fournir les ?
-sommes nécessaires à l'abonnement de revues jugées indis- 4
-pensables. Ce sous-groupe n'a ni caractère officiel ni exis- L.
-tence distincte ; il abandonne purement et simplement à 4
-l'Université populaire les ressources recueillies à l'aide de 1
+sommes nécessaires à l'abonnement de revues jugées indis-
+pensables. Ce sous-groupe n'a ni caractère officiel ni exis-
+tence distincte ; il abandonne purement et simplement à
+l'Université populaire les ressources recueillies à l'aide de
 souscriptions volontaires et supplémentaires ; son but est
-d'augmenter la somme allouée mensuellement sur le È
+d'augmenter la somme allouée mensuellement sur le
 budget régulier pour l'achat de livres.
 Dans une autre Université populaire, l'Union du
 quatorzième arrondissement, les camarades qui ont
 des livres à eux les prêtent à la collectivité.
-Les Fédérations régionales et la Fédération générale 1
-pourraient organiser une bibliothèque circulante Ÿ
+Les Fédérations régionales et la Fédération générale
+pourraient organiser une bibliothèque circulante
 comme en a le musée pédagogique ; elles enverraient pi
 ainsi aux diverses Universités populaires des livres L|
 pour des lectures publiques ou pour l'usage particulier Li
@@ -2121,12 +2114,12 @@ des adhérents ; les frais d'envoi seraient à la charge LE
 du groupe ou des emprunteurs particuliers. FA
 Publications. — Le premier fonds de ces bibliothè- +
 ques pourrait consister dans la publication de confé- ‘à
-rences populaires d'intérêt régional ou d'intérêt général. k 4
-On les lirait à haute voix dans les Universités popu- 4
+rences populaires d'intérêt régional ou d'intérêt général.
+On les lirait à haute voix dans les Universités popu-
 laires qui manquent de conférenciers ou que touche j À
 la question traitée. Partout les auditeurs, surtout lors- ni
 ; qu'ils ont eu quelque peine à suivre le développement És
-| 90 . 4
+|
 
 d'un sujet, en garderaient un souvenir plus net et plus
 durable, si, comme à Auvers-sur-Oise, le résumé des
@@ -2157,13 +2150,13 @@ l'esprit le saisit plus vite et le retient mieux.
 Aussi les conférences scientifiques accompagnées
 
 È séance du lundi 23 mai ‘TS
-s d'expériences ne sont-elles pas seulement plus goûtées, 4
+s d'expériences ne sont-elles pas seulement plus goûtées,
 L le profit en est plus complet, plus immédiat et plus ‘
 Une petite réserve de fonds à cet usage n'est-elle pas À
-: L'Art et les Universités populaires. — « Le peuple a 4
+: L'Art et les Universités populaires. — « Le peuple a
 droit à la beauté », fait dire l'auteur des Mauvais ber- ;
 gers à l'un de ses personnages. Les Universités popu-
-, laires ne doivent pas négliger l'éducation artistique. 1
+, laires ne doivent pas négliger l'éducation artistique.
 Certaines d'entre elles (Coopération des idées, Union * « Mouffetard, Union populaire du quatorzième) se sont
 préoccupées d'orner leurs locaux de reproductions ;
 En attendant qu'il ait été ouvert, comme il en a été
@@ -2173,14 +2166,14 @@ populaires ont conduit leurs membres dans des musées.
 Ainsi ont fait Le Foyer du Peuple du dix-septième, Le |
 Livre du sixième; à Montreuil, mademoiselle France À
 Raphaël a expliqué l'évolution de la peinture et de la |
-sculpture; tous les mois elle a emmené ses auditeurs 1
+sculpture; tous les mois elle a emmené ses auditeurs
 dans un musée. LR:
 Mais, pour éviter une déperdition de forces, la Fédé- #
-ration des Universités populaires parisiennes s'est E
-afliliée à une très intéressante association, fondée sur- 4
+ration des Universités populaires parisiennes s'est
+afliliée à une très intéressante association, fondée sur-
 tout par des ouvriers du treizième, l'Art pour tous. 4 |
 Sous la direction d'une personne compétente, on /2)
-visite tous les dimanches soit un petit musée comme la É:
+visite tous les dimanches soit un petit musée comme la
 maison de Victor Hugo, soit une salle d'un grand +
 musée, soit dans ce musée une école de peinture ou de #1
 sculpture, soit les œuvres de tel ou tel artiste. Par ci
@@ -2192,7 +2185,7 @@ les primitifs; ou l'œuvre de Raphaël d'après les
 tableaux du Louvre; celle de Léonard de Vinci, de
 Velasquez, des frères Le Nain, de Valentin, de Chardin,
 Ë ; d'Ingres, de Delacroix, de Géricault, etc.
-3 On ne se borne pas aux galeries publiques; on se |
+On ne se borne pas aux galeries publiques; on se |
 met en peine d'avoir accès dans de belles galeries pri4 vées, telles que celles de MM. de Camondo, Chéramy, à
 Alexandre Charpentier, ont ouvert aussi leurs ateliers ;
 s à l'Art pour tous et par conséquent aux Universités 5#
@@ -2214,26 +2207,26 @@ Saint-Denis, aux ateliers du maître forgeron Robert, à
 aisément de toutes les richesses artistiques de la ville
 et de la banlieue.
 
-pa séance du lundi 23 mai 3, € F0
-On a même organisé des excursions et des voyages 4
+pa séance du lundi 23 mai 3, €
+On a même organisé des excursions et des voyages
 en lointain pays. Si les membres de telle Université |
 populaire, Union Mouffetard, la Fraternelle du troi- à
-sième, l'Union du quatorzième, sont allés par groupe à ù
-Bellevue, à Saint-Germain, à Versailles, l'Art pour tous ê
+sième, l'Union du quatorzième, sont allés par groupe à
+Bellevue, à Saint-Germain, à Versailles, l'Art pour tous
 et la Fédération des Universités populaires ont poussé ‘2
 jusqu'à Dieppe, à Rouen, à Bruxelles : on se propose :
-Ces récréations esthétiques ou ces promenades in- I
-structives complètent fort heureusement les leçons ou . 1
+Ces récréations esthétiques ou ces promenades in-
+structives complètent fort heureusement les leçons ou
 A chaque Université populaire, si elle le veut et le |
 peut, d'organiser telle visite particulière qui s'ajuste |
 mieux à son enseignement ; exemple : à la suite d'une |
 Û conférence sur l'origine des espèces, une visite au |
 Museum. (1) C'est alors la leçon de choses, l'enseignement par l'aspect.
 Dans les départements, ces moyens d'action ont été |
-employés avec succès à Montpellier, à Nimes, à 4
+employés avec succès à Montpellier, à Nimes, à
 Caveirac (promenades à Arles, au Pont-du-Gard, à hi
 - Aigues-Mortes). Ils sont à recommander et à généra- |
-Partout on peut rendre ces courses fructueuses : chacun ï
+Partout on peut rendre ces courses fructueuses : chacun
 doit y parler, s'informer, interroger, expliquer ce qu'il sait, ‘Al
 et bien souvent les intellectuels sont les premiers à retirer E \
 profit de ces leçons de choses. Au cours de ces promenades, DA
@@ -2275,14 +2268,14 @@ M Si l'on peut, comme on l'a fait à Montpellier, trouver un
 compagnies de transports en commun accorder à ces
 compagnies laïques d'ouvriers autant de faveur qu'aux
 
-4 Il n'est pas de région où les bonnes volontés ne puis-
+Il n'est pas de région où les bonnes volontés ne puis-
 
 k sent trouver matière à l'éducation esthétique.
 
-4 Il faut signaler tout spécialement l'institution des
+Il faut signaler tout spécialement l'institution des
 
-6 Musées cantonaux, dont le fondateur est M. Edmond
-Groult, d'Ouilly-le-Vicomte, près Lisieux. 4
+Musées cantonaux, dont le fondateur est M. Edmond
+Groult, d'Ouilly-le-Vicomte, près Lisieux.
 | Ces Musées de nouvelle espèce ressemblent à une Société
 
 de Secours Mutuels, où chacun apporte, comme mise de
@@ -2294,10 +2287,8 @@ naissances utiles, dans une région déterminée. {
 Le local est presque toujours offert gratuitement par la
 municipalité du chef-lieu de canton.
 
-| 95
-
 É à | séance du lundi 23 mai FRS
-2 Les collections, pour la plupart essentiellement locales,
+Les collections, pour la plupart essentiellement locales,
 Une sont fournies gratuitement par les habitants du canton.
 FA On y trouve, grâce aux notices explicatives accompagnant
 pi chacun des objets exposés, des renseignements sur lan
@@ -2315,7 +2306,7 @@ Aucune forme d'art ne doit être négligée.
 Dans plusieurs Universités populaires ont été faits
 régulièrement des cours de solfège.
 Dans d'autres, on a fondé une chorale.
-1 Dans les mêmes ou dans d'autres, il y a des cours de
+Dans les mêmes ou dans d'autres, il y a des cours de
 | Il appartient aussi à chaque Université populaire
 À d'instituer, suivant le vœu d'une d'elles, « des fêtes
 ide éducatives mensuelles »;: on y ferait entendre les chefsd'œuvre des génies dramatiques ou des grands maîtres
@@ -2326,32 +2317,32 @@ une très intéressante communication sur ce sujet. À
 
 Des troupes d'amateurs se sont formées, sous la direc- |
 \ tion de Maurice Bouchor, Paul Dupuy, madame Gil
-:  Baer, et ont passé d'une scène à l'autre. L
+:  Baer, et ont passé d'une scène à l'autre.
 Il ne s'agit pas là d'une fête simplement divertissante : une petite causerie d'introduction, une remarque
 DAT bien placée, un commentaire sobre et clair, et surtout
 | le caractère de l'œuvre présentée au public, donnent à
 ces exercices qui plaisent entre tous et qui sont à
 encourager et multiplier, un véritable caractère d'en-
-Personnel enseignant. — Des instituteurs, des professeurs républicains de l'enseignement secondaire ou p
+Personnel enseignant. — Des instituteurs, des professeurs républicains de l'enseignement secondaire ou
 supérieur, des élèves de l'École Normale supérieure à
 Paris, des professeurs d'École normale dans les départements, des secrétaires ou des membres des syndicats, des militants ouvriers, des industriels et des
 négociants, des magistrats, des avocats, des médecins, Le
-| des architectes, des publicistes, telles sont surtout les L
+| des architectes, des publicistes, telles sont surtout les
 + personnes qui ont donné aux Universités populaires |
 l'enseignement. Quelques pasteurs y ont aussi collaboré en s'abstenant de tout propos confessionnel; des
 hommes politiques pareïllement, en se gardant de toute
 avance électorale et de toute manœuvre de politicien.
 
-1 Il n'est guère fréquent, à Paris, qu'une Université
+Il n'est guère fréquent, à Paris, qu'une Université
 populaire, comme celles du cinquième, du treizième, du
 quatorzième, puisse presque, par sa composition, se
 
 : suffire à elle-même.
 Fa Les secrétaires, et ce n'est pas leur moindre besogne,
 À doivent chercher des collaborateurs au dehors et de « f bien des côtés.
-È Por simplifier ce recrutement et rendre plus métho- Ë
+È Por simplifier ce recrutement et rendre plus métho-
 
-JS séance du lundi 23 mai 1
+JS séance du lundi 23 mai
 
 dique la distribution du travail, la Fédération pari-
 
@@ -2381,11 +2372,11 @@ valeur des premiers essais.
 
 Les conférenciers sont faits pour les Universités
 populaires et non celles-ci pour exercer à l'apprentis- |
-sage de la parole. Elles sont destinées bien moins ÿ
+sage de la parole. Elles sont destinées bien moins
 encore à servir de tremplin à qui est impatient de se
 lancer dans la notoriété. Les arrivistes n'y sont pas à
 leur place; elles ont besoin de gens désintéressés, à qui
-il suflise, pour donner leur temps et leur peine, d'avoir 4
+il suflise, pour donner leur temps et leur peine, d'avoir
 conscience de leur devoir et de leur solidarité sociale.
 
 Les collaborations étant bénévoles, les conférenciers
@@ -2397,7 +2388,7 @@ pris, soit pour ne traiter que des sujets qu'ils con-
 naissent bien ou qu'ils ont préparés avec soin :
 Il ne faudrait accepter comme conférenciers, remarque
 l'Université populaire de Choisy-le-Roi, que des personnes
-; d'une compétence certaine; en grande partie, d'eux dépend 1
+; d'une compétence certaine; en grande partie, d'eux dépend
 le succès de l'Université populaire ; car, s'il faut des
 ; adhérents pour assurer l'existence du groupe, il faut des
 1 conférenciers non seulement instruits, mais susceptibles
@@ -2434,24 +2425,24 @@ F Il serait excellent, note la Fraternelle du troisième, que |
 \ nombre de conférenciers attitrés ; la fréquence des rencontres CM
 KR À entre ces derniers et le même auditoire amène nécessaire- }
 x ment une camaraderie et un attachement réciproques. De
-7 plus, le conférencier connaissant mieux son public s'y 4
+7 plus, le conférencier connaissant mieux son public s'y
 rl adapte, et celui-ci appréciant ces efforts rivalise d'assiduité; }
 un lien d'affection s'établit. C'est ainsi que vraiment peut rot
-se réaliser l'union de l'intellectuel et du travailleur, si profi- k
+se réaliser l'union de l'intellectuel et du travailleur, si profi-
 ; table l'un à l'autre. Les auditeurs familiarisés ne craindront
 pas d'entamer des discussions, et si l'on réfléchit que ce ;
-sont ces dernières qui sont les plus intéressantes, on comprendra toute l'importance de ces collaborations régu- 41
-La pierre de touche par excellence des théories c'est 4
+sont ces dernières qui sont les plus intéressantes, on comprendra toute l'importance de ces collaborations régu-
+La pierre de touche par excellence des théories c'est
 l'expérience ; or, à la Fraternelle, nous nous sommes ê |
 constamment inspirés des idées que nous préconisons ; ici ;
-encore l'essai est concluant et décisif. Qu'il nous suffise de 4
-: dire que nous pourrions citer tels conférenciers dont le 4
-PAU concours ne nous fit jamais défaut depuis notre fondation ; -4
+encore l'essai est concluant et décisif. Qu'il nous suffise de
+: dire que nous pourrions citer tels conférenciers dont le
+PAU concours ne nous fit jamais défaut depuis notre fondation ;
 é le public leur fut constamment fidèle. Ceux-là ont mérité le 4 |
 titre de camarades et nous savons bien ne pouvoir leur |
-à faire de plus grand plaisir que de leur décerner ici ce 4
-ce L'Université populaire du quatorzième, d'autres 4
-encore, pourraient avancer des faits analogues et D:
+à faire de plus grand plaisir que de leur décerner ici ce
+ce L'Université populaire du quatorzième, d'autres
+encore, pourraient avancer des faits analogues et
 s'associer à ces paroles comme à ces sentiments. De
 
 \ C'est ainsi qu'est réalisée dans l'Université populaire ri
@@ -2464,122 +2455,122 @@ vement qu'elles suscitent et entretiennent dans les are
 vaillent chaque jour avec une virile sagesse et un Us
 intelligent civisme à la révolution sociale. , Ge
 ‘ Un camarade soulève une discussion sur le droit de %
-| réponse dans les Universités populaires et notamment sur 1
-_ le cas particulier d'un prêtre qui n'a pu répondre à une à i
+| réponse dans les Universités populaires et notamment sur
+_ le cas particulier d'un prêtre qui n'a pu répondre à une à
 conférence de M. Maurice Vernes. Le congrès ne peut s'oc- QE
 ; cuper de ce cas particulier. \ CE
 
 É Un camarade appelle l'attention des Universités popu- | #12
-F laires sur l'organisation des « Journaux pour tous ». 2
-à Marseille fait une communication sur la Société 4
-4 Montpellier rend compte de visites faites dans une 8
+F laires sur l'organisation des « Journaux pour tous ».
+à Marseille fait une communication sur la Société
+Montpellier rend compte de visites faites dans une
 $ grande imprimerie pendant le tirage d'un journal, d'une Des
 _ autre visite faite dans les coulisses d'un théâtre pendant k NM
 ï la représentation d'une féerie. LE pe
-a Brioude dit que le ministère de l'instruction publique, à 14
-d qui on avait demandé des livres, a envoyé des ouvrages î
+a Brioude dit que le ministère de l'instruction publique, à
+d qui on avait demandé des livres, a envoyé des ouvrages
 
 I séance du lundi 23 mai PARA CO
-U cléricaux; puis, ensuite, sur réclamation, a envoyé des 1
-Ja romans d'une littérature inférieure. à ; 1
-! eu Un camarade dit qu'il serait désirable que les Universités 4
-mi populaires soient sur le même pied que les bibliothèques u.
-À A municipales etla Ligue de l'Enseignement. s.
+U cléricaux; puis, ensuite, sur réclamation, a envoyé des
+Ja romans d'une littérature inférieure. à
+! eu Un camarade dit qu'il serait désirable que les Universités
+mi populaires soient sur le même pied que les bibliothèques
+À A municipales etla Ligue de l'Enseignement.
 ge Une camarade pense, au sujet des conférences, que celles :
 à À ; qui traitent de sujets scientifiques doivent être des confé-
-LR rences séries, tandis que celles sur la morale de la vie pra- 14
+LR rences séries, tandis que celles sur la morale de la vie pra-
 \ tique peuvent être des causeries isolées, sans lien direct ‘4
-M avec le programme du mois. 4
+M avec le programme du mois.
 # ik Brioude a fondé des sections rurales, et réunit ainsi cinq ;
-Je . àsix cents adhérents. Chaque section a un bureau, et reçoit d
+Je . àsix cents adhérents. Chaque section a un bureau, et reçoit
 A chaque mois un stock de livres, vingt à trente volumes, qui {
-ut circulent, puis sont renouvelés. Le personnel est rare pour 1
+ut circulent, puis sont renouvelés. Le personnel est rare pour
 % les conférences. A Brioude, on en donne deux par semaine. À
 fu Les instituteurs, dans les campagnes, donnent peu. ‘à
 Bourges a fait des conférences dans vingt-sept communes |
 fi importantes, a créé trois sections rurales, s'est associé aux
 groupes post-scolaires et a créé des cours d'adultes où trois
 AE des Bretons, — sont venus, avec l'autorisation des autorités
-Rouen est d'avis qu'on n'applaudisse ni ne murmure pen- M
-N dant les discussions : cela excite les conférenciers à recher- 4
-4 : cher les succès oratoires; il est d'avis qu'il faut que les 1
+Rouen est d'avis qu'on n'applaudisse ni ne murmure pen-
+N dant les discussions : cela excite les conférenciers à recher-
+4 : cher les succès oratoires; il est d'avis qu'il faut que les
 F5) conférenciers ne préparent pas leurs conférences, qu'ils
-EL improvisent dans toute la force du terme, qu'ils causent et d
-1 pensent avec et devant leur public, quitte à « bafouiller » 1
+EL improvisent dans toute la force du terme, qu'ils causent et
+1 pensent avec et devant leur public, quitte à « bafouiller »
 ah Montpellier signale le cercle de lecture de Lamblade. Tout À
-rt le village se réunit les mardi soirs pour écouter une confé- M
+rt le village se réunit les mardi soirs pour écouter une confé-
 DE rence, un chœur chanté par les élèves de l'école, échanger À
-( ue les livres en lecture, et décider les achats à faire. C'estun M
+( ue les livres en lecture, et décider les achats à faire. C'estun
 ni milieu protestant. À
 
 | trième commission par le camarade Georges Baër, rap- al
 Les organisateurs du premier congrès des Universités "
-populaires ont chargé votre quatrième section d'exa- Ÿ
+populaires ont chargé votre quatrième section d'exa-
 
-, _ miner tout ce qui concerne les fêtes et les distractions. ; f
+, _ miner tout ce qui concerne les fêtes et les distractions.
 La composition même de la commission désignée pour. Ye
 
 faire ce travail leur a donné la pensée de lui remettre RES
 en outre le soin d'étudier tout ce qui concerne les : Les
-1 consultations qui, dans le plan primitif du congrès, p
+1 consultations qui, dans le plan primitif du congrès,
 n'avaient pas été prévues. Es ;
 
 Nous commencerons par elles. |
 
-Nous examinerons ensuite ce qui est relatif aux fêtes É s
+Nous examinerons ensuite ce qui est relatif aux fêtes
 
 et aux distractions. +
 
-Si l'Université populaire est un centre d'instruction et 1
+Si l'Université populaire est un centre d'instruction et
 d'éducation mutuelles, elle doit être en même temps Me
 
-? une école de solidarité. Par là surtout son enseignement F
+? une école de solidarité. Par là surtout son enseignement
 | sera grand et son influence morale considérable. 7 #14
 Or, dans toute Université populaire se rencontrent À
-des compétences d'ordres très divers,pouvant bénéficier, 4
+des compétences d'ordres très divers,pouvant bénéficier,
 
-suivant les instants et les circonstances, à tous les 4
+suivant les instants et les circonstances, à tous les
 Chacun de nous peut avoir besoin par exemple de Fa
 
 3 l'avis technique d'un professionnel de tel métier qu'il à de
 
-4 Nous souhaiterions que dans chacune de nos associa- 4
-1! ja _ tions, — l'idée est mise en pratique par plusieurs 4
-4 ‘ d'entre elles, — il existât un tableau des demandes b.
+Nous souhaiterions que dans chacune de nos associa-
+1! ja _ tions, — l'idée est mise en pratique par plusieurs
+4 ‘ d'entre elles, — il existât un tableau des demandes
 au d'avis, de conseils, de renseignements, qui permit à
-VA nos camarades de s'assurer, à ce point de vue déjà, 1
-# l'aide qu'ils sont en droit d'espérer les uns des autres; 4
+VA nos camarades de s'assurer, à ce point de vue déjà,
+# l'aide qu'ils sont en droit d'espérer les uns des autres;
 Al — et même nous serions heureux si, au siège de la |
-1 Fédération, pouvait naître un service qui, au cas où les ik
-4 Universités populaires ne trouveraient point chez elles
+Fédération, pouvait naître un service qui, au cas où les ik
+Universités populaires ne trouveraient point chez elles
 è les compétences désirées, ferait en sorte de les leur ‘
 Is découvrir chez des voisins plus favorisés. Ce n'est là LS
 1 qu'un vœu, il sera loisible au congrès de le rejeter ou ;
-Parmi les renseignements qui peuvent être recherchés 8
-à dans nos associations, il en est que beaucoup ne sau- 4
-| raient assurer à leurs membres. Combien d'Universités 1
-populaires où il n'y a ni médecin ni avocat qui puisse 1
-donner un conseil d'hygiène ou une consultation de L
+Parmi les renseignements qui peuvent être recherchés
+à dans nos associations, il en est que beaucoup ne sau-
+| raient assurer à leurs membres. Combien d'Universités
+populaires où il n'y a ni médecin ni avocat qui puisse
+donner un conseil d'hygiène ou une consultation de
 A la vérité, le besoin d''instituer dans toutes nos
 ‘4 sociétés une consultation médicale ne se fait pas sentir
-1 d'une manière impérative. Il n'est guère de ville qui L
-n'ait à la disposition de nos camarades soit un hôpital, 1
+1 d'une manière impérative. Il n'est guère de ville qui
+n'ait à la disposition de nos camarades soit un hôpital,
 nt: soit une clinique où il leur soit facile d'avoir, pour ainsi \
 ÿ dire, sans bourse délier, l'avis qui leur est nécessaire. \
-D'autre part, l'examen d'un malade n'étant point très 4
+D'autre part, l'examen d'un malade n'étant point très
 Î aisé dans les locaux mêmes d'une Université populaire, !
 À ne serait-ce point abuser de l'obligeance de nos amis À
 à médecins, que de leur demander des visites gratuites !
-À pour tous nos camarades, en quelque circonstance que É
-pr ce soit. Il ne nous a point paru convenable d'y songer, 1
+À pour tous nos camarades, en quelque circonstance que
+pr ce soit. Il ne nous a point paru convenable d'y songer,
 h d'autant que, s'il ne s'agit que d'un avis, — et il ne peut À "
 
 guère être question d'autre chose, — il nous sera tou- \
 jours facile de glisser, au docteur ou à l'interne, la petite
 question qui nous intéresse, à la fin d'une de ces confé- £
 rences d'hygiène ou de médecine pratique, de jour en
-jour plus nombreuses, où nous sommes heureux de voir x
-| assidûment assister tous ceux qui sont susceptibles 4
+jour plus nombreuses, où nous sommes heureux de voir
+| assidûment assister tous ceux qui sont susceptibles
 ke. d'être présents à l'Université populaire le jour où elles
 . sont données.
 | Sans insister davantage, passons aux consultations |
@@ -2589,28 +2580,28 @@ de droit.
 taux ou des cliniques gratuites ; dans quelques villes, "HO
 ; des consultations sont données par l'Ordre des avocats. DAE
 : Il en est ainsi à Paris. fe
-Le consultant doit aller au Palais, au secrétariat de 4
+Le consultant doit aller au Palais, au secrétariat de
 - l'Ordre, solliciter une consultation : on lui donne un pi
 numéro lui faisant connaître la date à laquelle il devra À
 revenir. Premier dérangement, première perte de !
 temps. — Le jour de la consultation arrivé, il perdra |
-encore une demi-journée à attendre son tour. L'heure 1
+encore une demi-journée à attendre son tour. L'heure
 | de la consultation sonnée, il recevra enfin un conseil,
-| mais un conseil de stagiaires inexpérimentés, faisant p
-| trop souvent au détriment des malheureux l'apprentis- k
+| mais un conseil de stagiaires inexpérimentés, faisant
+| trop souvent au détriment des malheureux l'apprentis-
 _ sage de leur profession, — un conseil imparfait, l'avocat
 ayant le devoir d'écouter mais n'ayant pas le droit
-_  d'examiner les documents qui sont l'occasion d'une 1
+_  d'examiner les documents qui sont l'occasion d'une
 De telle sorte que le solliciteur aura laissé son travail QUE
 et perdu son temps, pour obtenir un avis incomplet et ? 1$
 peut-être inexact. ni
 Aussi l'ouvrier, l'employé, le petit commerçant, ou- : :
 
-1 | séance du lundi 23 mai 1
+1 | séance du lundi 23 mai
 | blient-ils bien vite le chemin du Palais. Ils courent au
-de « contentieux » du coin, chez un individu qui se dit D
-Hi jurisconsulte et qui n'a parfois appris le droit que dans 1
-‘ les prétoires de justice où de malheureuses affaires 4
+de « contentieux » du coin, chez un individu qui se dit
+Hi jurisconsulte et qui n'a parfois appris le droit que dans
+‘ les prétoires de justice où de malheureuses affaires
 Go l'ont entraîné pour son compte personnel. Ils lui versent |
 4 deux ou cinq francs pour une consultation qui ne les {
 72 vaut pas, et qui souvent leur coûte infiniment plus, une À
@@ -2619,24 +2610,24 @@ Des consultations sérieuses s'imposaient donc et la |
 Fédération des Universités populaires de la Seine s'est |
 Elles ne pouvaient être données au siège des Univer- À
 sités populaires, les avocats inscrits à un barreau et les Fe
-officiers ministériels ne pouvant consulter ailleurs que ÿ
-chez eux, les explications des intéressés nécessitant k
-: d'autre part un secret diflicile à confier dans un local ù
+officiers ministériels ne pouvant consulter ailleurs que
+chez eux, les explications des intéressés nécessitant
+: d'autre part un secret diflicile à confier dans un local
 | d''Université populaire largement ouvert à tous; enfin |
 | et surtout, parce que le consulté n'y a pas à sa
 disposition les textes de lois et les décisions de jurisprudence, innombrables, que peut nécessiter un avis À
-La Fédération a donc informé en janvier dernier les 4
+La Fédération a donc informé en janvier dernier les
 ; Universités populaires de son ressort qu'à des heures à
-choisies en considération du travail même de nos L
+choisies en considération du travail même de nos
 4 camarades, un certain nombre de juristes se tenaient à
 | leur disposition chez eux, au milieu de leurs livres, — et
-ER que même ils répondraient par lettre à toute demande 1
+ER que même ils répondraient par lettre à toute demande
 k ‘ de consultation qui leur serait adressée par la poste. À
 Il faut le reconnaître, ce service de consultations n'a
-point donné encore tous les résultats qu'on en espérait. h:
+point donné encore tous les résultats qu'on en espérait.
 
-C'est tout au plus si chaque consulté a reçu deux ou *x
-trois demandes de renseignements, par mois, — en Ÿ
+C'est tout au plus si chaque consulté a reçu deux ou
+trois demandes de renseignements, par mois, — en
 : dehors des avis que les Universités populaires elles- “
 mêmes ont réclamés de l'un d'eux relativement à leurs
 rapports avec la Société des auteurs de musique, —
@@ -2645,17 +2636,17 @@ la deuxième partie de ce Rapport. à.
 L Voilà ce qui a été fait pour Paris. À
 Que se passe-t-il en province à ce point de vue? Nous
 n'en avons point été informés. Lo
-: Et nous concluons sur cet ensemble de questions en é
+: Et nous concluons sur cet ensemble de questions en
 proposant au Congrès les vœux suivants : |
-1° que dans toute Université populaire soit apposé 5
+1° que dans toute Université populaire soit apposé
 un tableau des demandes et offres de renseignements, LE
 et qu'il soit créé, au siège de la Fédération, — que }
-\ la commission espère voir naître de ce Congrès, — un F2
-service central de même nature. ÿ fs Î
+\ la commission espère voir naître de ce Congrès, — un
+service central de même nature. ÿ fs
 2 qu'il soit institué un comité qui centralise, examine
 F et solutionne toutes les difficultés de droit qui pour- (
 raient intéresser les Universités populaires en tant que :
-sociétés, notamment au point de vue des statuts, des e
+sociétés, notamment au point de vue des statuts, des
 cotisations, des rapports entre associations et sociétés |
 3° que le service de consultations juridiques, tel qu'il
 fonctionne à Paris, soit désormais un service de la
@@ -2671,27 +2662,27 @@ A séance du lundi 23 mai ROBES
 LA La majorité des rapports qu'elles nous ont adressés fé
 ‘4 sont très affirmatifs. Toutes, — pourrions-nous dire, s'il
 ii n'y avait une exception, — estiment qu'il les faut multiee plier non seulement parce qu'elles leur permettent d'at- …
-ne | tirer des adhérents, mais encore parce qu'elles consti- d
+ne | tirer des adhérents, mais encore parce qu'elles consti-
 ‘4110 tuent un puissant moyen d'éducation sociale et 1]
 Pl esthétique en même temps qu'un instrument de lutte
 à (TE contre le mauvais goût.
 A Seule, la Fraternelle, du troisième arrondissement de
 ER Paris, a émis une opinion diamétralement opposée, que ;
-qu limpartialité de notre travail nous fait un devoir de 4
-us Dans les Universités populaires, dit-elle, les délasse- 4
+qu limpartialité de notre travail nous fait un devoir de
+us Dans les Universités populaires, dit-elle, les délasse-
 \ ments artistiques sont trop imparfaits et, comme
 ; moyens d'éducation, avantageusement remplacés par
 fr les théâtres et concerts populaires. Pour aider à la pro- |
 De pagande, les fêtes n'ont aucune efficacité, les personnes
 f qui y assistent ne vont pas aux conférences. En vain
 ‘k les multiplie-t-on : avec leur développement semble
-| coïncider ce que l'on a appelé la « crise des Universités W
+| coïncider ce que l'on a appelé la « crise des Universités
 {| À populaires ». Au surplus, cette façon de faire des …
 Hat Attirer les gens sous prétexte de distraction pour leur
 faire de la morale et leur représenter entre deux couplets }
 que, si on les assemble ainsi, c'est pour tàcher de les ame- ;
 f ner, par un chemin détourné, à s'associer à l'œuvre pour.
-pa suivie, apparaît plutôt comme un subterfuge amoindrissant. j
+pa suivie, apparaît plutôt comme un subterfuge amoindrissant.
 Les individus susceptibles de fréquenter les Universités l|
 
 populaires n'attendent pas les effets d'une pareille réclame
@@ -2703,16 +2694,16 @@ sées au point de vue publicité que les Universités popu-
 .  laires et que, si l'on n'y va point, ce n'est pas par igno-
 À rance, mais par apathie. Seule une attitude hautaine et
 . Nous ne devons pas dire que l'on s'occupe d'y passer le
-temps agréablement, qu'on y chante et même que quelquefois on y danse. Nous devons proclamer fièrement que si ï
+temps agréablement, qu'on y chante et même que quelquefois on y danse. Nous devons proclamer fièrement que si
 nous nous réunissons ainsi, c'est pour travailler, étudier, Ses
-Telle est la thèse. Ÿ
-Nous estimons, — et le congrès nous dira si c'est à 4
+Telle est la thèse.
+Nous estimons, — et le congrès nous dira si c'est à
 tort, — que toutes ces raisons ne sont pas solides.
-; Envisagées au point de vue éducatif, les soirées 7
+; Envisagées au point de vue éducatif, les soirées
 musicales et littéraires sont d'une utilité que la Frater- æi
-nelle ne conteste pas; en affirmant qu'on les remplacera 1
+nelle ne conteste pas; en affirmant qu'on les remplacera
 avantageusement parles théâtres et concerts populaires, ‘
-nos camarades semblent supposer tout d'abord que les E
+nos camarades semblent supposer tout d'abord que les
 moyens des adhérents aux Universités populaires sont
 suffisants pour que tous, sans distinction, puissent
 régulièrement assister aux théâtres et concerts auxquels
@@ -2725,7 +2716,7 @@ que d'indiquer l'incontestable supériorité des auditions
 gratuites, comme trop rarement il en est donné aux
 
 A séance du lundi 23 mai |
-4 Français, à l'Opéra ou à l'Opéra-Comique, par rapport
+Français, à l'Opéra ou à l'Opéra-Comique, par rapport
 EF. aux modestes spectacles qu'une Université populaire
 peut offrir à ses amis. Les ambitions des Universités
 populaires sont moins hautes; elles n'ont jamais été de
@@ -2736,7 +2727,7 @@ sentations,— et elles sont nombreuses, — s'en félicitent,
 et, loin d'abandonner la partie, elles persistent avec
 plus de courage aujourd'hui qu'hier. Si les délassements qu'elles offrent sont imparfaits, elles s'efforcent
 de les perfectionner, et certes il vaut mieux leur en indiquer les moyens ou s'efforcer de les trouver, que de
-leur adresser des critiques. 3
+leur adresser des critiques.
 Envisagées au point de vue de la propagande, les fêtes,
 estimons-nous encore, paraissent devoir être continuées |
 et multipliées. Que les discussions sur la prétendue .
@@ -2746,7 +2737,7 @@ nous paraît puéril de le rechercher et nous ne voyons
 pas aisément le lien qui peut rattacher deux ordres de
 Qu'y a-t-il d'humiliant, d'amoindrissant, à attirer par
 des distractions des adeptes qui, à l'heure présente,
-nous ignorent ou se méprennent sur ce que nous, 4
+nous ignorent ou se méprennent sur ce que nous,
 sommes ? Le rédacteur du mémoire de la Fraternelle
 est pour les opérations brutales ; il ne veut pas qu'on
 endorme le malade, et, si le médicament qui doit le |
@@ -2779,25 +2770,25 @@ peu importe; ce seront des adhérents qui nous apporteront une contribution bien
 | répétées, de telles adhésions nous permettront des amé-
 liorations dont indistinctement tous auront le profit. :
 Insensiblement, nos nouveaux camarades s'intéresseront à notre œuvre ; ils discuteront d'abord les idées
-exprimées dans les spectacles donnés, puis celles des 2
+exprimées dans les spectacles donnés, puis celles des
 conférences qui les accompagnent et peu à peu, luttant
 contre leur apathie, dominant la fatigue résultant de ;
 
-k séance du lundi 253 mai | 1
-, leur travail de la journée, ils apporteront leur contribu- É
-| tion d'idées à la discussion contradictoire des cause- ï
-: ries d'autres soirs : ils seront bien nôtres. 1
+k séance du lundi 253 mai
+, leur travail de la journée, ils apporteront leur contribu-
+| tion d'idées à la discussion contradictoire des cause-
+: ries d'autres soirs : ils seront bien nôtres.
 k Toutes ces raisons nous font affirmer qu'il faut conti4 nuer à marcher dans la voie où la plupart des Univer- |
 sités populaires sont entrées, et puisque les représenta- |
 dl tions sont nécessaires, qu'il faut se préoccuper de les
 | améliorer et de les faciliter.
 . Une difficulté se présente peut-être, — et je vous ai
 annoncé par avance son examen. Pour qu'elles |
-puissent représenter en public une œuvre quelconque, j
+puissent représenter en public une œuvre quelconque,
 il faut que les Universités populaires paient des droits
 aux sociétés d'auteurs. Ces droits sont très élevés pour À
-des associations dont les adhérents paient trois ou 1
-cinq francs par an. Sauf discussion de leur montant, ils s
+des associations dont les adhérents paient trois ou
+cinq francs par an. Sauf discussion de leur montant, ils
 sont cependant dus chaque fois que la représentation |
 donnée, gratuite ou payante, est publique, c'est-à-dire, |
 est offerte à d'autres que les adhérents de l'Université |
@@ -2829,7 +2820,7 @@ Il faut que leur programme plaise : il y a là une ques- |
 tion de tact de la part des organisateurs ; plusieurs |
 | Universités populaires se plaignent de voir chez elles
 des artistes qui chantent des morceaux absurdes ou
-grivois du répertoire des cafés-concerts; qu'elles s'en 1
+grivois du répertoire des cafés-concerts; qu'elles s'en
 adressent le reproche à elles-mêmes : « L'Université
 populaire, nous écrivent nos amis de Lyon, doit protester contre l'abaissement du niveau moral et artis-
 | tique et elle le fera surtout par l'exemple. Elle ne permettra dans les auditions musicales qu'elle organisera |
@@ -2837,15 +2828,15 @@ que l'audition d'œuvres vraiment belles et simples, et
 d'un caractère élevé, tant au point de vue des paroles
 que de la musique. » On ne peut mieux dire et le but
 | ainsi tracé, ce sont les organisateurs mêmes des soirées qui doivent ne pas l'oublier. a
-De lexpérience des associations qui nous ont 3
+De lexpérience des associations qui nous ont
 adressé des communications, il résulte que ce qui séduit
 le plus, ce sont les petites pièces en un ou deux actes :
 
-d séance du lundi 23 mai 1
+d séance du lundi 23 mai
 de Courteline, de Mirbeau, de Villiers de l'Isle-Adam, |
 de Meilhac et Halévy, de Pierre Veber, de Tristan Ber- {
 
-ie nard; les auditions données par un professeur de 4
+ie nard; les auditions données par un professeur de
 musique ou de chant s'intéressant à notre œuvre onteu
 lieu dans plusieurs Universités populaires avec un très
 
@@ -2854,27 +2845,27 @@ modernes, lues après préparation, ont toujours été ac- |
 cueillies par les plus vifs et les plus sincères applaudissements de tous. Constatons à ce sujet que nos ca- |
 marades n'ayant pas généralement le temps d'apprendre À
 par cœur, le procédé de la lecture préparée, usité dans À
-beaucoup d'Universités populaires, est à la fois com- 1
+beaucoup d'Universités populaires, est à la fois com-
 mode et très suffisant pour donner à nos soirées le
 relief qui leur est nécessaire. À
 
-Vouloir au surplus poser des règles d'interprétation 1
+Vouloir au surplus poser des règles d'interprétation
 est superflu. Chaque Université populaire donnera des É À
 soirées qui dépendront du personnel de ses adhérents |
 et des concours dont elle disposera. Beaucoup de nos \
-amis de province se plaignent à ce propos de ne pas ï
+amis de province se plaignent à ce propos de ne pas
 trouver chez eux les assistances qu'ils souhaiteraient |
 recevoir. D'autre part, nous avons des exemples d'Universités populaires, disposant de très modestes res- |
-sources et de très peu de camarades susceptibles de se 4
-consacrer à une œuvre de cette nature, qui sont ce- 4
-pendant arrivées à d'excellents résultats. L'exemple de M
-l'Éducation mutuelle de Laval est de nature à profiter ÿ
+sources et de très peu de camarades susceptibles de se
+consacrer à une œuvre de cette nature, qui sont ce-
+pendant arrivées à d'excellents résultats. L'exemple de
+l'Éducation mutuelle de Laval est de nature à profiter
 à tous: malgré beaucoup de diflicultés, elle est parvenue
 à avoir une chorale, une troupe de diseurs et de chan- |
 teurs, un théâtre, dont un camarade, à ses moments de |
-loisir, a brossé les décors, et où, une fois tous les deux L;
-mois, elle donne des représentations pleines d'entrain. 4
-Que nos amis persistent donc; qu'ils s'organisent : 1
+loisir, a brossé les décors, et où, une fois tous les deux
+mois, elle donne des représentations pleines d'entrain.
+Que nos amis persistent donc; qu'ils s'organisent
 
 \ avec beaucoup de bonne volonté et un peu d'indul-
 | gence réciproque, ils arriveront au but. Nous ne pensons pas qu'ils doivent, en général, — encore qu'ils en À
@@ -2883,13 +2874,13 @@ des concours parisiens ; à moins qu'il ne s'agisse d'une
 localité très proche, les frais sont si considérables que
 peu de nos camarades seraient en état de se déplacer,
 et que, de leur côté, peu d'Universités populaires vou- ;
-draient débourser ce que le voyage d'une troupe entière E
+draient débourser ce que le voyage d'une troupe entière
 pourrait coûter. L'idée qui nous paraît le plus sage
 -est celle que nous propose l'Effort de Montrouge :
 « Il est impossible, — et ici, nous ne faisons que citer, —
 d'organiser à Paris une troupe dramatique et lyrique &
-unique de toutes les Universités populaires. L'éloignement des distances rendrait impraticables les répéti- j
-tions. Mais ce qui incomberait à la Fédération, à notre 1
+unique de toutes les Universités populaires. L'éloignement des distances rendrait impraticables les répéti-
+tions. Mais ce qui incomberait à la Fédération, à notre
 avis, ce serait de faciliter aux groupes régionaux d'Universités populaires l'organisation de ces troupes ré-
 gionales en fournissant un matériel circulant (décors, |
 costumes, etc...) qui pourrait être prêté de groupe à LÉ
@@ -2906,8 +2897,8 @@ justifié. L'exemple donné le 10 avril au lac Saint- à
 Fargeau par trois Universités populaires de la région
 parisienne, — l'Université populaire Zola, la Semaille,
 
-séance du lundi 23 mai ÿ
-et le Progrès Social des Lilas, — n'est pas seulement 1
+séance du lundi 23 mai
+et le Progrès Social des Lilas, — n'est pas seulement
 à retenir; il est à imiter. :
 Un tel accord sera fertile en résultats lorsque, réunies
 dans un commun désir de célébrer le souvenir d'un
@@ -2921,7 +2912,7 @@ congrès prit l'initiative, en désignant une commission
 permanente de fêtes, de proposer aux autres sociétés |
 ? démocratiques l'élaboration d'un plan général de fêtes :
 laïques à opposer à celles de l'Église. L'idée n'est pas À
-nouvelle : elle est de Michelet. Elle peut se résumer en 3
+nouvelle : elle est de Michelet. Elle peut se résumer en
 une formule : les fêtes ont été instituées par l'Église À
 catholique, elles sont l'annexe d'une religion à laquelle
 le grand nombre ne croit plus; elles n'ont de raison
@@ -2933,7 +2924,7 @@ renvoyer à l'examen de la deuxième commission du
 Résumant cette partie de notre exposé, nous proposerons au congrès, comme conclusions : |
 1° d'affirmer la nécessité des fêtes et des soirées dans |
 un but d'éducation et de propagande;
-2° de créer un service, commun à toutes les Univer- 1
+2° de créer un service, commun à toutes les Univer-
 
 sités populaires, chargé de s'occuper de tout ce qui peut
 intéresser les représentations que nous prétendons
@@ -2942,9 +2933,9 @@ grammes-types des distractions artistiques et aussi
 d'étudier au point de vue pratique pour lui donner
 suite, s'il est possible, le vœu qui tend à la création
 : de troupes régionales ;
-3° d'attribuer à ce service la charge du groupement S
+3° d'attribuer à ce service la charge du groupement
 des demandes et des offres de concours qu'il appar- £
-tiendra à la Fédération de faire connaître aux Univer- d:
+tiendra à la Fédération de faire connaître aux Univer-
 | sités populaires intéressées ;
 4 de renvoyer à votre deuxième commission, avec
 avis favorable, le vœu tendant à l'institution d'un
@@ -2965,16 +2956,16 @@ déclamation qui existent dans presque toutes les Universités populaires, et do
 stater l'existence en leur souhaitant le plus de prospérité "552
 
 Fe) séance du lundi 23 mai
-, Ces cours spéciaux, comme toutes ces distractions, 4
-! rapprochent les adhérents les uns des autres, leur permettent de mieux se connaître, de mieux s'apprécier, L
+, Ces cours spéciaux, comme toutes ces distractions,
+! rapprochent les adhérents les uns des autres, leur permettent de mieux se connaître, de mieux s'apprécier,
 
 | de mieux s'entr'aider. Après avoir assisté aux soirées, à
 
 aux conférences, aux cours, ils sont heureux de se
 
-S trouver ensemble et d'organiser à cet effet les excur- k
+S trouver ensemble et d'organiser à cet effet les excur-
 é sions dont il est de notre mission de vous entretenir en À
-peu de mots. R
+peu de mots.
 La plupart de nos amis réunissent en effet leurs |
 adhérents, non seulement à des banquets pleins de À
 cordialité qu'ils donnent chez eux, au siège même de }
@@ -2983,22 +2974,22 @@ leurs associations comme l'Université populaire du
 dixième, mais aussi à des réunions qui sont, en même À
 temps qu'une distraction, une occasion et un moyen de À
 De Saint-Quentin, ils organisent une promenade à À
-Pierrefonds et à Chantilly où ils rencontrent leurs 4
+Pierrefonds et à Chantilly où ils rencontrent leurs
 camarades du Foyer du Peuple parisien, retour de À
 Compiègne. Ceux de Nîmes et de Montpellier visitent
 les monuments romains, le Pont du Gard, Aiïgues- |
-Mortes, etc. Ceux de Lyon, s'inspirant des commodités de leur grande cité, visitent les usines des bords 1
-| du Rhône; d'autres fois, guidés par un sociétaire 4
+Mortes, etc. Ceux de Lyon, s'inspirant des commodités de leur grande cité, visitent les usines des bords
+| du Rhône; d'autres fois, guidés par un sociétaire
 archéologue, ils revivent la vie du vieux Lugdunum, \
 cependant qu'un autre camarade évoque le souvenir 3%
 des hommes célèbres qui ont illustré leur région. Ceux | |
 
 d'Angers organisent des promenades à travers champs |
 et bois, demandant à la nature même des leçons d'his- "4
-toire naturelle. Ceux de Bruxelles reçoivent sur le 4
+toire naturelle. Ceux de Bruxelles reçoivent sur le
 champ de bataille de Waterloo les enseignements du |
 Constatons tous ces résultats; efforçons-nous de nous *|
-118 4
+118
 
 en inspirer. Demandons à nos organisateurs de pré-
 parer par une entente avec d'autres Universités populaires des visites réciproques ou des excursions en
@@ -3030,28 +3021,28 @@ _ nications qui nous ont été transmises jusqu'au dernier
 instant, avant l'ouverture du congrès. Si nous avions
 un regret à exprimer, ce serait qu'elles aient été parfois
 trop brèves. Sur d'innombrables questions nous avons
-cherché en vain le résultat de leur expérience. Ceci î
+cherché en vain le résultat de leur expérience. Ceci
 excusera l'imperfection de l'œuvre que nous vous pré-
 
-A De même s'expliquera notre silence sur « les cercles 4
-bou de lecture » qu'aux termes mêmes des conditions de N
+A De même s'expliquera notre silence sur « les cercles
+bou de lecture » qu'aux termes mêmes des conditions de
 pi ce congrès, notre commission était chargée d'étudier. |
 jt — Il ne nous en a été rien dit. fi
-AA Aussi à défaut de base de discussion votre commis- 4
+AA Aussi à défaut de base de discussion votre commis-
 sion s'est-elle contentée de vous présenter les vœux de ‘4
-# plusieurs de ses membres, tendant : 1
+# plusieurs de ses membres, tendant
 .1° à ce que toute Université populaire s'efforce d'ob- Le
 tenir de chaque ministère pour sa bibliothèque les |
-publications officielles de la nature de celles qui sont - M
-publiées par l'Office du travail ou le ministère des 1
+publications officielles de la nature de celles qui sont
+publiées par l'Office du travail ou le ministère des
 
 2 à ce qu'il soit créé à la Fédération un service
 
-d'acquisitions de livres, service chargé de veiller aussi i
+d'acquisitions de livres, service chargé de veiller aussi
 
 à une meilleure répartition et à un meilleur choix des À
-ouvrages que le ministère de l'instruction publique met K
-à notre disposition; 4
+ouvrages que le ministère de l'instruction publique met
+à notre disposition;
 3° à l'élaboration d'un règlement de Fédération qui |
 assure l''échange régulier de livres entre les diverses hi
 | bibliothèques d'Universités populaires. |
@@ -3069,20 +3060,20 @@ consultations, mais à deux degrés : la cause est d'abord
 examinée par un comité spécial qui déblaie le terrain et
 précise les faits, puis expose ensuite l'affaire au juriste
 Sur la deuxième partie : Fêtes et distractions, une longue
-discussion s'engage entre les partisans des fêtes purement Û
+discussion s'engage entre les partisans des fêtes purement
 Ë distractives et les partisans des fêtes éducatives, sans
 . compter ceux qui sont partisans de la suppression des fêtes.
 Le délégué de La Fraternelle développe les idées exposées { |
 dans son rapport et reproduites dans le rapport général : pt
 -les moyens dont disposent les Universités populaires lui ri
-semblant insuffisants, cette Université populaire a renoncé n
-à donner des fêtes, mais s'est entendue avec différentes 4
+semblant insuffisants, cette Université populaire a renoncé
+à donner des fêtes, mais s'est entendue avec différentes
 sociétés musicales pour obtenir l'entrée à leurs concerts à
 des prix réduits pour les adhérents de l'Université popu- Ve
 laire, auxquels on assure ainsi la bonne exécution des
 morceaux qu'ils entendent. te
 De nombreux camarades protestent, affirmant que les
-fêtes ont produit d'excellents résultats dans de nom- F
+fêtes ont produit d'excellents résultats dans de nom-
 breuses Universités populaires et l'un d'eux fait observer À
 qu'il a assisté, à La Fraternelle même, à des fêtes très bien ps
 Il est midi. Le Congrès suspend ses travaux et un
@@ -3090,29 +3081,29 @@ grand nombre de camarades se dirigent vers le restaurant, où un banquet simple 
 Sous l'amicale présidence de Gabriel Séailles, 65 con__ vives causent joyeusement et échangent leurs impressions
 sur les discussions précédentes. Au dessert, le camarade ;
 Maurice Bouchor, avec sa bonne grâce habituelle, nous
-dit la Chanson du Tisserand et la Syndicale, sur l'air si f
+dit la Chanson du Tisserand et la Syndicale, sur l'air si
 frais et si populaire de la Carmagnole que tous reprennent au refrain.
 
-j La séance est ouverte à deux heures et demie. 4
-| On reprend la discussion du matin sur l'utilité ou 4
-l'inutilité des fêtes et représentations théâtrales. f 10
+j La séance est ouverte à deux heures et demie.
+| On reprend la discussion du matin sur l'utilité ou
+l'inutilité des fêtes et représentations théâtrales.
 ; Rouen dit qu'il n'y a qu'un moyen de faire comprendre ‘4 |
 -la musique : c'est d'enseigner le chant choral. D |
 Maurice Bouchor développe par quel choix méthodique |
-des œuvres littéraires ou musicales, on pourrait intéresser M
+des œuvres littéraires ou musicales, on pourrait intéresser
 ps ceux dont l'éducation esthétique est à faire. Il est possible,
 \ et même facile, dans les Universités populaires, par des
 explications données avec chaque morceau ou pièce, deles
 À rendre plus compréhensibles pour le public que ne le ferait A
 À une représentation réelle. La lecture de pièces à plusieurs
-. voix peut donner de meilleurs résultats que des représen- M
+. voix peut donner de meilleurs résultats que des représen-
 tations de pièces organisées avec des moyens insuflisants. e |
 | Quant à la musique, on trouve, en s'en donnant la peine, des |
-{4 morceaux simples et intelligibles à tous, même dans les î
-\ œuvres des musiciens passant pour les plus difficiles à M
+{4 morceaux simples et intelligibles à tous, même dans les
+\ œuvres des musiciens passant pour les plus difficiles à
 | comprendre. Ce n'est que progressivement qu'on peut nn |
 fl former l'oreille et le goût. El. ||
-122 14
+122
 
 On passe ensuite à la lecture du rapport de la
 
@@ -3121,7 +3112,7 @@ rapporteur de la première commission, est lu par le
 
 La cinquième commission a reçu communication de
 dix-neuf rapports, — quatorze de banlieue et province
-et cinq d'Universités populaires parisiennes. j
+et cinq d'Universités populaires parisiennes.
 
 De la lecture de ces documents, il résulte que toutes
 les Universités populaires recherchent les moyens ?
@@ -3134,7 +3125,7 @@ après la Fédération Nationale, une Fédération Internationale des Universit�
 Quant à celles qui n'ont pas de rapports avec leurs
 voisines, c'est que, comme Auvers-sur-Oise, elles
 ignorent s'il en existe et demandent qu'on les renseigne,
-ou que les moyens de communication font défaut, ô
+ou que les moyens de communication font défaut,
 comme Fontenay-en-Vendée, qui attend la construction
 de la voie ferrée pour nouer des rapports utiles avec
 Les Herbiers et Mouchamps, et qui, en attendant, s'empresse d'adhérer à la Fédération post-scolaire des
@@ -3145,36 +3136,36 @@ Nationale, croit que l'organisation des fédérations
 
 séance du lundi 23 mai RS
 régionales doit précéder la création de l'organisme En
-Nous répondons : faut-il donc attendre que toutes k
+Nous répondons : faut-il donc attendre que toutes
 “Me les régions soient pourvues d'un assez grand nombre A
-| d'Universités populaires organisées en fédérations 1
-; N'est-il pas vrai plutôt que les Universités populaires 4
-: isolées tireraient de grands avantages de leurs rapports h.
-avec la Fédération Nationale qui pourrait, par des f
+| d'Universités populaires organisées en fédérations
+; N'est-il pas vrai plutôt que les Universités populaires
+: isolées tireraient de grands avantages de leurs rapports
+avec la Fédération Nationale qui pourrait, par des
 moyens divers, faciliter leur développement et leur à
 permettre d'étendre leur zone d'influence, donner Ne.
-naissance à d'autres groupes élargissant de plus en plus b.
-le cercle de leur action ? e.
+naissance à d'autres groupes élargissant de plus en plus
+le cercle de leur action ?
 Montreuil souscrit à une action plus générale, à
-condition qu'elle ne diminue en rien l'eflort que chaque 4
-libre-penseur doit faire dans sa localité. 4
-La Fraternelle du troisième arrondissement, Paris, 4
+condition qu'elle ne diminue en rien l'eflort que chaque
+libre-penseur doit faire dans sa localité.
+La Fraternelle du troisième arrondissement, Paris,
 seule, rejette la création d'une fédération nationale. A
 Les rapports des Universités populaires entre elles sont
 peu étendus ; on peut même dire qu'en dehors de la Fédéra- x]
 tion, lien purement administratif, elles n'en ont vraiment n'
-aucun. Cet état de choses est peut-être regrettable, mais D:
-4 nous ne voyons pas, pour le moment, comment on pourrait D
+aucun. Cet état de choses est peut-être regrettable, mais
+4 nous ne voyons pas, pour le moment, comment on pourrait
 y remédier, avec la distribution actuelle. Quant aux #l
-rapports avec les Universités populaires départementales, 44
+rapports avec les Universités populaires départementales,
 ils sont encore plus problématiques. Une Fédération Natio- |
 nale peut-elle obvier à cet inconvénient ? Pas à notre avis, À
-surtout si nous nous basons sur les résultats obtenus à f
+surtout si nous nous basons sur les résultats obtenus à
 Paris, où les Universités populaires ont pourtant infiniment nn
 : plus de facilités de rapprochement. La création d'une ‘hi!
-Fédération Nationale n'apparaît pas du reste comme une D
+Fédération Nationale n'apparaît pas du reste comme une
 nécessité; rien n'en fait sentir le besoin et rien n'en * ‘à
-demande la formation. A notre avis, cette nouvelle institu- e.
+demande la formation. A notre avis, cette nouvelle institu-
 
 tion présenterait plutôt des :nconvénients que des avantages. Cet organisme nouveau serait un vaste trompe-l'œil,
 faisant croire à un développement des Universités
@@ -3187,10 +3178,10 @@ f la composer, de même pour fonder la Fédération Nationale,
 devant concourir à son existence.
 Nous avons cité le paragraphe en entier pour n'en
 point dénaturer le sens, mais il nous paraît inadmissible
-qu'on puisse nous accuser de vouloir créer un trompe- 6
-l'œil. Pour éblouir qui? En créant une Fédération M
-nationale, les Universités populaires qui adhèrent à Ë
-cette idée veulent, à notre avis, créer un organisme qui, É
+qu'on puisse nous accuser de vouloir créer un trompe-
+l'œil. Pour éblouir qui? En créant une Fédération
+nationale, les Universités populaires qui adhèrent à
+cette idée veulent, à notre avis, créer un organisme qui,
 reliant entre elles toutes ces faiblesses, en fasse une
 force résistante et expansive. Il est évident que si tout $
 allait à souhait, nous n'aurions plus rien à créer.
@@ -3209,17 +3200,17 @@ une partie de leur affranchissement qui doivent aider
 leurs frères à s'affranchir à leur tour?
 
 RE séance du lundi 23 mai ARE
-158) Nous sommes heureux de constater qu'en cela nous 4
+158) Nous sommes heureux de constater qu'en cela nous
 té sommes d'accord avec la majorité et nous citons, à “1
 ra . l'appui, un extrait du rapport de l'Effort de Montrouge, |
 reflétant fort bien les avis épars dans les autres rap- .
 Fe L'œuvre des Fédérations doit être une œuvre d'adju- {
-vance, comme on disait autrefois, et non une œuvre de 0
+vance, comme on disait autrefois, et non une œuvre de
 direction. Si les Universités populaires se pénètrent bien "1
 Dh de ce principe, elles estimeront qu'il importe en effet que ER
-; des fédérations départementales et régionales soient fon- 04
-Paris et sa banlieue ont leur Fédération; nous ignorons 1
-s'il en existe en province, mais nous serions fort étonnés 4
+; des fédérations départementales et régionales soient fon-
+Paris et sa banlieue ont leur Fédération; nous ignorons
+s'il en existe en province, mais nous serions fort étonnés
 ‘ si, dans un bref délai, il ne s'en fondait pas. L'esprit de À
 solidarité, de mutualité et de sympathie réciproque que A
 développe l'Université populaire, tend de plus en plus à 4)
@@ -3232,39 +3223,39 @@ lien entre les Universités populaires pour leur facilite M |
 nombre de tâches, leur éviter nombre de frais. N'est-ce pas à 4 {|
 elles qu'incombe, par exemple, la centralisation des rensei- si |
 gnements utiles tels que : offres de conférences, de cours, 4 |
-À etc. N'est-il pas tout indiqué qu'elles réunissent une D!
-à bibliothèque centrale et organisent des prêts de livres aux D:
-diverses Universités populaires qui, individuellement, L
-n'ont pas les moyens d'avoir un assortiment de livres D
-important ? Elles pourraient à cette intention insister 1h
-| auprès des éditeurs pour recevoir en service les ouvrages D.
-qui paraissent. 14
-Elles devraient s'efforcer de réaliser les mêmes avan- 4
+À etc. N'est-il pas tout indiqué qu'elles réunissent une
+à bibliothèque centrale et organisent des prêts de livres aux
+diverses Universités populaires qui, individuellement,
+n'ont pas les moyens d'avoir un assortiment de livres
+important ? Elles pourraient à cette intention insister
+| auprès des éditeurs pour recevoir en service les ouvrages
+qui paraissent.
+Elles devraient s'efforcer de réaliser les mêmes avan-
 tages, pour ce qui concerne le matériel des cours, séances ‘4
-k récréatives, lanternes à projections, matériel pour séances 4
+k récréatives, lanternes à projections, matériel pour séances
 
 Elles devraient en outre prendre l'initiative d'organiser |
-des fêtes dont les bénéfices pourraient être répartis entre d
+des fêtes dont les bénéfices pourraient être répartis entre
 les Universités populaires adhérentes.Disposant de moyens |
 plus étendus qu'une Université populaire individuellement,
 ces fêtes pourraient avoir un plus grand retentissement et
-contribuer ainsi à faire connaître l'œuvre des Universités 4
+contribuer ainsi à faire connaître l'œuvre des Universités
 populaires et leur amener des adhésions nouvelles; ajou-
 
 ù tons que, pour faciliter l'échange des renseignements, il
-serait peut-être utile de créer un Bulletin des Universités 1
-populaires. Quant à l'organisation d'une Fédération natio- Ÿ
+serait peut-être utile de créer un Bulletin des Universités
+populaires. Quant à l'organisation d'une Fédération natio-
 nale, nous la croyons utile pour achever de relier entre
 elles les diverses Universités populaires et Fédérations « : d''Universités populaires de France; après elle, peut-être y ;
 aura-t-il lieu d'examiner l'organisation d'une Fédération ff
 
 : Le rapporteur ajoute que, dès le début, il serait
 important de créer à la Fédération nationale une {
-mutualité des Universités populaires de France, des- ÿ
+mutualité des Universités populaires de France, des-
 tinée à aider les Universités populaires naissantes et à ;
 soutenir celles qui sont en péril; les cotisations qui ;
-seraient versées dans cette intention pourraient être ÿ
-calculées en vertu du principe de « chacun selon ses d
+seraient versées dans cette intention pourraient être
+calculées en vertu du principe de « chacun selon ses
 forces », et d'après le nombre d'adhérents.
 La commission, unanime sur l'utilité des groupe- À
 ments fédératifs, a résumé à grands traits les avantages qu'ils peuvent offrir :
@@ -3273,27 +3264,27 @@ Voyages, excursions en commun. — Groupement de plu- .
 sieurs Universités populaires pour les grandes confé-
 rences, telles que celles du docteur Poirrier sur la télé-
 
-FA séance du lundi 23 mai + i
+FA séance du lundi 23 mai +
 ds graphie sans fil, qui nécessite un matériel d'expéri- : \
-di Groupement et répartition des conférences. — Entente 4
-f avec les conférenciers. — Matériel roulant pour projec- D:
-tions. — Collections de vues. — Bibliothèque circu- 4
+di Groupement et répartition des conférences. — Entente
+f avec les conférenciers. — Matériel roulant pour projec-
+tions. — Collections de vues. — Bibliothèque circu-
 lante, échange de livres. — Organisation de tournées à
 de représentations littéraires et théâtrales, etc. ji
-Avantages pécuniaires résultant des économies réa- L
-k lisées sur les impressions, telles que cartes d'adhérents, M
-statuts, programmes, etc.., les achats de livres, maté- « riel, reliure, rabais obtenus en raison de la quantité, et 4
-tout ce que l'expérience journalière peut suggérer. 2
+Avantages pécuniaires résultant des économies réa-
+k lisées sur les impressions, telles que cartes d'adhérents,
+statuts, programmes, etc.., les achats de livres, maté- « riel, reliure, rabais obtenus en raison de la quantité, et
+tout ce que l'expérience journalière peut suggérer.
 La Fédération nationale serait surtout une grande ; hi
 force morale vis-à-vis des pouvoirs publics; agissant. 3 |
 au nom d'un certain nombre de collectivités, elle aurait +22 |
 plus de poids pour obtenir des subventions, des locaux, LL:
-s des livres, du matériel, tout ce qui dépend des services 4
+s des livres, du matériel, tout ce qui dépend des services
 Elle aurait la gérance du fonds de réserve créé 4 ;
 : d'après le vœu du Foyer du Peuple, vœu déposé à la À
 à Elle offrirait les mêmes avantages d'économie que les ‘4
-Fédérations régionales et pour les mêmes motifs. Elle 0
-| pourrait créer des séries de clichés pour projections/ h:
+Fédérations régionales et pour les mêmes motifs. Elle
+| pourrait créer des séries de clichés pour projections/
 de vues pour lanternes magiques à l'usage des Univer- De
 
 sités populaires enfantines. Chargée de centraliser .
@@ -3304,22 +3295,22 @@ tout ce qui peut les intéresser, organiserait à certaines
 époques de grandes tournées de conférences, préparerait les congrès, rechercherait les moyens de propagande, entretiendrait des rapports constants avec
 toutes les Universités populaires et les personnes qui
 
-s'y intéressent, les conférenciers, etc. j
+s'y intéressent, les conférenciers, etc.
 Enfin, elle créerait une bibliothèque sur le plan
 
 1° Une bibliothèque documentaire, composée d'ou- ‘
 vrages spéciaux à consulter sur place au local de la
 Fédération ou qui pourront être prêtés pour un temps
 
-déterminé, non aux Universités populaires, mais à des 4
+déterminé, non aux Universités populaires, mais à des
 
-membres d''Universités populaires munis de leur carte k
+membres d''Universités populaires munis de leur carte
 
 à jour et sous leur responsabilité personnelle ; +
 
-2° Une bibliothèque circulante. Les livres fournis par é
+2° Une bibliothèque circulante. Les livres fournis par
 
-la Fédération porteront son estampille et seront divisés 2
+la Fédération porteront son estampille et seront divisés
 en séries À, B, C, selon leur valeur. Les Universités
 populaires qui voudront jouir de cette bibliothèque
 fourniront un nombre quelconque de volumes en bon
@@ -3334,37 +3325,37 @@ La cinquième commission conclut donc à la création, :
 par le congrès, de la Fédération Nationale des Univer-
 
 LEA séance du lundi 23 mai FE AE
-ns _ sités populaires, persuadée qu'elle est appelée à rendre 51
+ns _ sités populaires, persuadée qu'elle est appelée à rendre
 Hs de grands services à la cause de l'émancipation intel
 # lectuelle du peuple.
 sr La cinquième commission adresse son salut fraternel À
-; à ses nouveaux collègues et forme des vœux pour la 4
+; à ses nouveaux collègues et forme des vœux pour la
 1 pleine réussite du congrès. ‘4
 J Le comité de Limoges, fondateur de cinq sections ou Si
-Universités populaires, sur le point d'en créer d'autres È
+Universités populaires, sur le point d'en créer d'autres
 dans les petites villes du département, pose la question à
 En dehors de ces fédérations, croyez-vous que notre “4
-affiliation aux Jeunesses laïques n'aurait pas de précieux 4
-Notre but n'a-t-il pas en effet quelque analogie? Comme E:
+affiliation aux Jeunesses laïques n'aurait pas de précieux
+Notre but n'a-t-il pas en effet quelque analogie? Comme
 nous, ne rêvent-elles pas une humanité meilleure? Ne “4
 cherchent-elles pas à faire disparaître la mentalité qu'ont J |
-créée l'atavisme et l'éducation religieuse ? Ne poursuivent- M
-elles pas l'instauration de la société future ? Si nos deux 4
+créée l'atavisme et l'éducation religieuse ? Ne poursuivent-
+elles pas l'instauration de la société future ? Si nos deux
 actions ne doivent pas se confondre, ne croyez-vous pas ne
-qu'elles doivent être parallèles ?" D
-\ Nous sommes autorisés par la Fédération des Jeunesses 4
-laïques à vous informer que chaque fois qu'un de ses 40
-membres partira de Paris pour une tournée de conférences, e
-le citoyen Antarieu, secrétaire, en informera la Fédération 0
+qu'elles doivent être parallèles ?"
+\ Nous sommes autorisés par la Fédération des Jeunesses
+laïques à vous informer que chaque fois qu'un de ses
+membres partira de Paris pour une tournée de conférences,
+le citoyen Antarieu, secrétaire, en informera la Fédération
 des Universités populaires, qui préviendra celles de la {
-région, afin qu'elles puissent, si elles le désirent, s'entendre 2
+région, afin qu'elles puissent, si elles le désirent, s'entendre
 À avec lui pour l'organisation d'une conférence sous leurs "1
 Ayant à peu près les mêmes parrains que les Universités nn |
 populaires, les Jeunesses laïques ne recherchent pas dans … à |
-leurs rapports avec elles l'appoint d'une cotisation fort D.
+leurs rapports avec elles l'appoint d'une cotisation fort
 
 minime en soi; elles recherchent l'entente et l'appui moral |
-que doivent se prêter les organisations qui poursuivent le x
+que doivent se prêter les organisations qui poursuivent le
 même but : l'émancipation intellectuelle et économique |
 : des travailleurs.
 
@@ -3372,7 +3363,7 @@ Bayonne donne le compte rendu d'une organisation de ;
 Fédération régionale. Dans le sud-ouest, l'Université popu- #
 laire de Tarbes a aidé d'autres Universités populaires à se
 
-- créer dans les environs; la Fédération comprend Tarbes, F
+- créer dans les environs; la Fédération comprend Tarbes,
 Bayonne, Biarritz, Agen, Toulouse. On a pu ainsi organiser LE:
 des circulations de livres, échanger des conférenciers, créer
 un Bulletin des Universités populaires de la région, etc. à
@@ -3397,7 +3388,7 @@ projet de Fédération nationale.
 
 Il est, en suite de diverses propositions, décidé de charger |
 le Bureau de la Fédération de Paris et banlieue d'étudier un
-projet général et des statuts; ce premier travail sera im- 3
+projet général et des statuts; ce premier travail sera im-
 primé et envoyé à toutes les Universités populaires de
 
 \ France avec un questionnaire. Au retour de ce questionnaire
@@ -3409,29 +3400,29 @@ i Cette même méthode sera employée une troisième fois si Ni
 : cela est nécessaire. De cette façon on arrivera à éliminer les
 ht points pouvant donner lieu à des malentendus et à bien
 préciser ceux sur lesquels tous peuvent être d'accord. Ce
-mode de discussion par écrit, un peu long il est vrai, a le F
+mode de discussion par écrit, un peu long il est vrai, a le
 se grand avantage d'être beaucoup plus net, plus méthodique à
 et moins décousu que la discussion verbale.
 . Le prochain Congrès aura donc ainsi fait une bonne |
 | partie de sa besogne par avance et n'aura que fort peu à
-discuter sur cette importante question. Si même il y a d'ici . K
+discuter sur cette importante question. Si même il y a d'ici
 le prochain Congrès accord suffisant entre les Universités |
-intéressées, leur adhésion pourrait se faire par correspon- l
-dance, et le Congrès de 1905 serait alors ouvert par la 4
+intéressées, leur adhésion pourrait se faire par correspon-
+dance, et le Congrès de 1905 serait alors ouvert par la
 Fédération nationale elle-même réellement constituée. 3 |
 ; L'assemblée décide que le prochain Congrès aura lieu ‘|
 à Paris. La date est fixée à Pâques, 23 avril 1905. |
-Le texte suivant est adopté à mains levées par tous les 4
-délégués présents, sauf un : 1
+Le texte suivant est adopté à mains levées par tous les
+délégués présents, sauf un
 Le Congrès charge le bureau de la Fédération parisienne il
-de préparer la constitution de la Fédération nationale des 4
-Universités populaires dans le plus bref délai et d'en pro- 4
+de préparer la constitution de la Fédération nationale des
+Universités populaires dans le plus bref délai et d'en pro-
 poser la fondation au prochain Congrès qui aura lieu le ne
 On passe ensuite à l'examen des vœux. À
 Étant bien entendu que ces vœux, même s'ils sont :
-adoptés à une grande majorité, ne sauraient eng'ag'er D
+adoptés à une grande majorité, ne sauraient eng'ag'er
 
-en quoi que ce soit les Universités populaires qui n'en 1
+en quoi que ce soit les Universités populaires qui n'en
 admettraient pas la teneur, plusieurs camarades pro- Fa
 posent soit que l'on supprime les vœux, soit qu'on ne ‘4
 
@@ -3441,14 +3432,14 @@ _ vote pas sur leur texte. pe
 seront acceptés ne seront pas l'expression des volontés da.
 
 2 des Universités populaires présentes, tendant à créer :
-obligation pour la totalité des Universités populaires, " 1
+obligation pour la totalité des Universités populaires, "
 mais seulement des proposilions, qui seront annexées à ; LA
 
 j la suite des travaux du Congrès lors de l'impression de Fe
 
-ik Voici les vœux acceptés par les délégués dans ces 28
+ik Voici les vœux acceptés par les délégués dans ces
 
-Le Congrès invite les Universités populaires à faire leur 3
+Le Congrès invite les Universités populaires à faire leur
 
 déclaration, conformément à la loi de 1901 sur les asso- AE.
 
@@ -3465,7 +3456,7 @@ conférences sur le but des Universités populaires et d'orga- %
 
 militants des syndicats corporatifs. }
 
-Attendu que les Universités populaires n'ont d'intérêt que 6
+Attendu que les Universités populaires n'ont d'intérêt que
 si elles contribuent à l'œuvre de justice et de progrès social; ee
 
 14 séance du lundi 23 mai | ;
@@ -3473,23 +3464,23 @@ t Attendu qu'elles ne peuvent vivre que par la confiance
 des ouvriers ou employés, ainsi que l'expérience l'a prouvé;
 ï Souhaite que les Universités populaires soient de plus en
 plus les émanations de la classe ouvrière; que leur administration soit confiée, dans la mesure la plus large, aux
-représentants des institutions ouvrières : Bourses du Tra- . 4
+représentants des institutions ouvrières : Bourses du Tra-
 vail, Syndicats, ou Coopératives ; ?
 a Souhaite que les Congrès syndicaux et coopératifs
 x mettent à leur ordre du jour la question des Universités |
 Le Congrès des Universités populaires exprime sa sym- A
 pathie en faveur de la campagne antialcoolique. À
 Le Congrès émet le vœu que les Universités populaires
-ayant des buvettes n'y admettent aucune boisson aleoolique distillée. Ù
+ayant des buvettes n'y admettent aucune boisson aleoolique distillée.
 Considérant que la femme, — cette éternelle esclave, — Êl
 n'est pas toujours émancipée et se trouve par suite adver- |
-saire des organisations démocratiques, croyant que celles-ci k
-ne sont pas favorables à ses intérêts; ï
+saire des organisations démocratiques, croyant que celles-ci
+ne sont pas favorables à ses intérêts;
 Considérant que l'on a jusqu'ici laissé la femme dans
-l'ignorance et que l'on ne lui a pas donné une éducation L:
+l'ignorance et que l'on ne lui a pas donné une éducation
 aussi développée que celle reçue par l'homme, ceci dit au
 point de vue général ;
-Le Congrès estime qu'il serait utile, — autant que faire se h:
+Le Congrès estime qu'il serait utile, — autant que faire se
 peut, — de multiplier les conférences et surtout les causeries dans les Universités populaires sur des sujets
 féministes et qu'un appel aux conférencières, pour parler
 sur ces questions ou sur d'autres, doit être fait, car
@@ -3498,26 +3489,26 @@ arrive presque toujours que l'élément féminin domine dans
 l'auditoire. |
 
 Le Congrès émet le vœu que la journée de huit heures
-Au moment où le conflit russo-japonais multiplie, en ë,
-- Extrême-Orient, les souffrances, les massacres et les cala- N
+Au moment où le conflit russo-japonais multiplie, en
+- Extrême-Orient, les souffrances, les massacres et les cala-
 mités de toutes sortes ; |
-Le Congrès des Universités populaires, réuni à Paris, F
+Le Congrès des Universités populaires, réuni à Paris,
 proteste une fois de plus contre les horreurs de la guerre, sx
 . et émet le vœu que dans les prochaines conférences données £ £
-dans les Universités populaires on développe le plus f 4
+dans les Universités populaires on développe le plus
 | souvent possible cette belle et utile maxime: « Si tu veux la :
-paix, prépare la paix », qui peut seule conduire à l'établis- 3 4
-sement des Etats-Unis du monde. 2
+paix, prépare la paix », qui peut seule conduire à l'établis-
+sement des Etats-Unis du monde.
 Comme corollaire du vœu précédent, un camarade pro- fe
 pose que l'on vulgarise le plus possible la bonne et saine FU
-Histoire de France du camarade Gustave Hervé. 2
+Histoire de France du camarade Gustave Hervé.
 Le congrès des Universités Populaires émet un vœu en ;
 faveur de la séparation des Églises et de l'Etat. ;
 Sont renvoyés pour examen jusqu''après la fondation + à
-de la Fédération Nationale des Universités populaires, 5
-les vœux suivants, demandant : 6
+de la Fédération Nationale des Universités populaires,
+les vœux suivants, demandant
 — La création d'une commission permanente des fêtes "
-— L'adoption de fêtes éducatives ; j f
+— L'adoption de fêtes éducatives
 — Qu'il soit établi une liste des pièces de théâtre suscep- “à
 tibles d'être jouées dans les Universités populaires ; à
 
@@ -3525,25 +3516,25 @@ aq séance du lundi 23 mai SE ENTER
 $ — L'étude d'une caisse centrale de subventions; ‘ft À
 \ — Qué le prochain Congrès étudie l'organisation et le :
 fonctionnement des Universités populaires dans les cam- à
-Une communication est faite relativement aux Jeu- 1
+Une communication est faite relativement aux Jeu-
 î nesses laïques dont a parlé le rapport de la cinquième : 4]
 commission; une autre communication est relative à il
 l'envoi de délégués à l'Exposition de Saint-Louis, et un à
 appel en ce sens est adressé aux Universités populaires
 des départements. ;
-4 Avant de clore le congrès, Maurice Bouchor, qui a
+Avant de clore le congrès, Maurice Bouchor, qui a
 présidé la deuxième partie de cette séance, remercie les .
 congressistes de leur assiduité au travail et adresse un À
-souvenir ému à la mémoire d'Emile Duclaux, qui fut un î
+souvenir ému à la mémoire d'Emile Duclaux, qui fut un
 ami sincère et dévoué de l'éducation populaire. } |
 Le Congrès est clos à six heures et quart. : |
 
 La fête de clôture du Congrès a eu lieu le lundi $
-Ê soir 23 mai, à 8 heures et demie, au Nouveau-Théâtre, F
+Ê soir 23 mai, à 8 heures et demie, au Nouveau-Théâtre,
 
-. 15, rue Blanche. Le programme comportait une repré- F
+. 15, rue Blanche. Le programme comportait une repré-
 sentation de Liberté, drame en 3 parties avec prologue #
-et intermèdes de Maurice Pottecher, musique de Lucien È
+et intermèdes de Maurice Pottecher, musique de Lucien
 | La distribution était la suivante : CRT
 
 Hommes et Femmes du Peuple, Soldats, etc. ni
@@ -3551,11 +3542,11 @@ Prologue et intermèdes :
 Récitants, solistes et chœurs par les camarades des Uni- $
 
 Après une allocution de Paul Kastor, secrétaire de
-la Fédération des Universités populaires de Paris et 4
+la Fédération des Universités populaires de Paris et
 | de la Banlieue, qui avait organisé la représentation, DE
 Maurice Kahn fit la causerie d'introduction suivante :
 La fête qui nous réunit ce soir a été organisée à l'occa- |
-sion du premier congrès des Universités populaires de 4
+sion du premier congrès des Universités populaires de
 France, par la Fédération des Universités populaires de
 Paris et de la banlieue. …
 La pièce que vous allez entendre, — et dont, rassurez- ‘A
@@ -3564,16 +3555,16 @@ tion, — appartient au répertoire du Théâtre du Peuple de ;
 Un certain hasard, sans doute, n'est pas étranger à cette b |
 rencontre, si l'on appelle hasard le rapprochement invo- |
 lontaire d'hommes attelés à des besognes différentes et qui, b |
-sans avoir décidé la constitution d'un Comité, mais, au 4
-contraire, dans une action tout à fait libre et individuelle, D
+sans avoir décidé la constitution d'un Comité, mais, au
+contraire, dans une action tout à fait libre et individuelle,
 ont mis en commun, momentanément, leurs efforts, pour .
 une tâche déterminée, chacun, d'ailleurs, conservant, même En
 dans cette circonstance, ses préoccupations particulières, et :: )8S |
 se consacrant à l'œuvre commune pour des motifs, avec D :
-des sentiments différents. D
-Mais le rapprochement, fortuit, de deux éléments aussi D
-distincts que les Universités populaires d'une part, et le 00
-Théâtre du Peuple de Bussang d'autre part, un tel rap-, 4
+des sentiments différents.
+Mais le rapprochement, fortuit, de deux éléments aussi
+distincts que les Universités populaires d'une part, et le
+Théâtre du Peuple de Bussang d'autre part, un tel rap-,
 prochement peut avoir des conséquences, nullement pré- , ,
 méditées, peut-être même inaperçues de ceux qui s'y sont Le
 4 employés. L'une de ces conséquences sera peut-être de "3
@@ -3581,10 +3572,10 @@ rapprocher d'une façon plus étroite les Universités popu- .
 laires et le Théâtre du Peuple : tous n'auraient qu'à y LA |
 gagner. Et les récentes représentations de Liberté données À
 en province, par le Théâtre du Peuple, ont permis de con- ne :
-stater les heureux effets de cet accord : en certaines villes & 4
-140 2
+stater les heureux effets de cet accord : en certaines villes &
+140
 
-le Théâtre du Peuple a aidé l'Université populaire à grou- d
+le Théâtre du Peuple a aidé l'Université populaire à grou-
 per des auditoires de 2.000 personnes ; — et, d'autre part,
 l'Université populaire a fourni au Théâtre du Peuple
 l'occasion de se manifester en des villes où il n'était pas
@@ -3596,17 +3587,17 @@ montrer, en quelques mots, combien, à mon sens, ces
 conséquences sont heureuses, et combien le hasard, qu'on à,
 dit souvent aveugle, a fail preuve cette fois de clairvoyance ;
 . et de sagesse,
-Les Universités populaires vous sont assez connues, et ÿ
+Les Universités populaires vous sont assez connues, et
 ceux d'entre vous qui ont assisité au congrès ne me par- : MER
 donneraient pas d'apporter ici, après les conversations qui :
-£ ont été échangées pendant deux journées, une définition 4
+£ ont été échangées pendant deux journées, une définition
 des Universités populaires ou des vues personnelles sur
 leur objet, leur fonctionnement, leurs tendances. Il convient cependant de rappeler à ceux de nos camarades qui |
 n'ont pas assisté au congrès, — et c'est la grande majorité ;
 de cette salle, — que l'Université populaire est une asso- ;
 ciation pour l'étude, destinée dans la pensée de ses :
 membres à affranchir l'individu de ses préjugés moraux,
-de ses servitudes intellectuelles, concurremment avec les j
+de ses servitudes intellectuelles, concurremment avec les
 organisations corporatives, et d'un ordre plus spécial, et
 d'un caractère plus restreint, qui poursuivent son affranchissement économique. — J'emploie à dessein des termes
 très précis en même temps que très généraux, car je |
@@ -3616,11 +3607,11 @@ la tendance générale qui s'est dégagée du congrès.
 Les Universités populaires sont donc, avec leurs moyens >
 propres, dans le détail desquels je n'ai pas à entrer, des
 écoles de liberté. |
-Le Théâtre du Peuple, tel que l'a conçu M. Maurice Pot- L
-141 1
+Le Théâtre du Peuple, tel que l'a conçu M. Maurice Pot-
+141
 
 à techer et tel qu'il l'a réalisé à Bussang, atteint, avec des
-| moyens différents, un but absolument analogue. , 4
+| moyens différents, un but absolument analogue.
 : Le Théâtre du Peuple de Bussang fut fondé, en 1895, par ;
 
 Maurice Pottecher et une équipe de collaborateurs ano-
@@ -3631,13 +3622,13 @@ tère rustique : toute en bois; bancs de bois, analogues à |
 
 . ceux qu'on rencontre dans les promenades et en forêt; un
 coin de ciel sur la tête; par endroits, un morceau de ver- |
-dure qui danse sous la brise; de toutes paris les parfums 4
+dure qui danse sous la brise; de toutes paris les parfums
 de la campagne environnante. |
 La scène est en bois; elle est vaste et agencée comme |
-celle d'un vrai théâtre; on y a pu jouer, en 1902, le Macbeth de Shakespeare, beaucoup mieux qu'à l'Odéon. On y L
+celle d'un vrai théâtre; on y a pu jouer, en 1902, le Macbeth de Shakespeare, beaucoup mieux qu'à l'Odéon. On y
 avait un avantage unique, dont Maurice Pottecher a plu- | |
 sieurs fois tiré un excellent parti : le décor naturel dela
-prairie servait de toile de fond. Lorsqu'au cinquième acte, 1
+prairie servait de toile de fond. Lorsqu'au cinquième acte,
 le rideau s'ouvrait sur la forêt de Dunsinane, c'était sous ]
 de vrais arbres et sous du vrai feuillage que se dissimulaient | |
 vie pénétrait par cette ouverture et donnait au spectacle (|
@@ -3645,13 +3636,13 @@ un magnifique accent de sincérité. |
 Le public du théâtre de Bussang est très particulier : ce |
 sont bussenets et bussenettes, habitants des villages voi- il
 sins, touristes en villégiature à Bussang et dans les autres |
-stations des Vosges : on vient même de fort loin et un D
+stations des Vosges : on vient même de fort loin et un
 train spécial amène chaque année des spectateurs, de |
-Le spectacle enfin est hautement éducatif. L'auteur ma 4
+Le spectacle enfin est hautement éducatif. L'auteur ma
 aucune prétention à « moraliser ». On lui a attribué ces in- il
 tentions moralisatrices, et, à la vérité, la première de ses À
 pièces prétait à la confusion, Elle était intitulée Le Diable à
-marchand de goutte, et peignait les ravages de l'alcool à l
+marchand de goutte, et peignait les ravages de l'alcool à
 dans une petite ville. On voulut y voir une propagande D |
 antialcoolique. Et pourtant l'auteur s'était borné à repré- À
 senter sous les traits du diable les empoisonneurs publics D :
@@ -3662,27 +3653,27 @@ point mon idée personnelle et je ne fais que répéter ce que
 lui-même disait récemment encore, dans une conférence
 prononcée à l'École des Hautes Études sociales. /
 Ce qui donne au théâtre de Maurice Pottecher sa valeur
-éducative, c'est d'abord son souci de vérité et son inspiration. Et c'est encore son étonnante variété. 5
+éducative, c'est d'abord son souci de vérité et son inspiration. Et c'est encore son étonnante variété.
 Les dix pièces représentées sur la scène de Bussang
 £ depuis 1895 appartiennent en effet aux genres les plus ;
 divers; il se trouve dans ce répertoire : un drame rustique :
 (l'Héritage}, une comédie villageoise /C'est le Vent !}, un a
 drame historique /Liberté), un drame légendaire /Morte-
 : ville}, une féerie /Chacun cherche son trésor), une farce QUE
-{à VÉcu d'argent), et même une tragédie /Macbeth}. * j
-C'est là principalement, me semble-t-il, ce qui fait du È
-Théâtre du Peuple une école de liberté. La variété de ce F
+{à VÉcu d'argent), et même une tragédie /Macbeth}.
+C'est là principalement, me semble-t-il, ce qui fait du
+Théâtre du Peuple une école de liberté. La variété de ce
 répertoire oblige le public à passer par des émotions :
 | diverses; la sensibilité du spectateur s'y enrichit d'année 1 il
-en année, — sans que jamais soient flattées ses passions, F
-sans que jamais l'auteur ait fait sa pièce en vue d'un j 08
+en année, — sans que jamais soient flattées ses passions,
+sans que jamais l'auteur ait fait sa pièce en vue d'un
 public déterminé, sans que jamais la manière soit de parti- “
 D'ailleurs, la définition que Maurice Pottecher donne du
 Théâtre du Peuple est significative : « J'entends par |
 Théâtre populaire, celui où les divers éléments dont >
 l'ensemble constitue un peuple, peuvent prendre place et
 s'intéresser également à l'œuvre représentée. L'assemblée
-sera d'autant plus complète qu'elle réunira, sur les mêmes f
+sera d'autant plus complète qu'elle réunira, sur les mêmes
 gradins, le premier des philosophes de la nation et le dernier des portefaix de la halle, le financier le plus opulent
 et le plus dénué des traîne-misère, séparés l'un de l'autre,
 — ou plutôt réunis l'un à l'autre, — par la série intermé-
@@ -3692,8 +3683,8 @@ Une telle assistance est réunie à Bussang. Des hommes
 divers s'intéressent également à l'œuvre représentée, sym- ;
 (1) Le Théâtre du Peuple, renaissance et destinée du théâtre populaire, Paris, 1899, in-18; Ollendorff, éditeur. |
 
-12 théâtre », comme dit Michelet. — Et lorsqu'ils ne poussent 4 Ë
-x pas jusque-là teur sympathie, lorsqu'ils ne vont pas jusqu'à nl 1
+12 théâtre », comme dit Michelet. — Et lorsqu'ils ne poussent
+x pas jusque-là teur sympathie, lorsqu'ils ne vont pas jusqu'à nl
 + fraterniser, — ce qui à mon sens n'est pas nécessaire et dans "
 A à certains cas même serait regrettable, — à tout le moins |
 ÿ écoutent-ils avec intérêt l'expression de sentiments quine
@@ -3704,7 +3695,7 @@ f et bien plus difficile, les préjugés qui s'évanouissent et la "\
 j liberté de l'esprit qui est conquise. — Et c'est un art sain, DIS
 sans outrances, sans flatteries, sans mensonges, qui a rem- nil }
 É 1 porté cette victoire. : ; |
-AUS La pièce qui sera jouée ici ce soir, Liberté, est une œuvre M
+AUS La pièce qui sera jouée ici ce soir, Liberté, est une œuvre
 très différente, par sa forme, de celles auxquelles le théâtre |
 contemporain nous a accoutumés. Elle se rapproche plutôt i |
 des spectacles du théâtre grec antique, où l'action drama- |
@@ -3724,7 +3715,7 @@ a tenté de nous donner, — par l'action de quelques hommes, %
 Nous sommes en 1792 dans un village perdu de la mon-
 * tagne vosgienne. 1792! Depuis trois ans la France se débat- “|
 tait dans la Révolution. La Bastille avait été prise, les pri |
-vilèges abolis, la Déclaration des Droits de l'Homme et du M
+vilèges abolis, la Déclaration des Droits de l'Homme et du
 Citoyen proclamée; le peuple avait chassé son roi : le peuple …
 faisait les lois et régnait au nom de la justice et de la liberté. |
 
@@ -3742,7 +3733,7 @@ vous trouverez le résumé au dos du programme, (1) — ce sera,
 liberté de paysans ignorants de leurs droits et qui sont prêts
 - à les revendiquer dès qu'on leur a appris à les connaître.
 
-Dans la notice résumée à laquelle j'ai fait allusion tout à 0
+Dans la notice résumée à laquelle j'ai fait allusion tout à
 l'heure, on lit la phrase suivante qui se rapporte à toute la
 seconde partie du troisième acte : « .… L'arrivée du Repré-
 sentant de la Convention, annonçant la proclamation de la
@@ -3750,14 +3741,14 @@ République et réclamant des défenseurs pour le pays
 envahi, met fin à ces luttes et réconcilie tout le monde
 dans un transport d'enthousiasme patriotique. »
 
-Cet enthousiasme patriotique va fort loin; les paysans J
-s'enrôlent à qui mieux mieux, quand on leur annonce que, 5
+Cet enthousiasme patriotique va fort loin; les paysans
+s'enrôlent à qui mieux mieux, quand on leur annonce que,
 selon le mot fameux, « la patrie est en danger ». Ils prêtent
 serment sur une borne baptisée « autel de la patrie » et
 
 5 ils partent en chantant la Marseillaise.
 
-C'est ainsi qu'on faisait en 1792, — et, c'est le cas de le dire, 3
+C'est ainsi qu'on faisait en 1792, — et, c'est le cas de le dire,
 on faisait comme on pouvait.
 
 () « L'action se passe en 1792, dans un village de la montagne
@@ -3776,38 +3767,37 @@ proclamation de la République et réclamant des défenseurs pour
 | le pays envahi, met fin à ces luttes et réconcilie tout le monde
 
 | dans un transport d'enthousiasme patriotique. » |
-| 145
 
-# Ce patriotisme, d'ailleurs, avait un caractère bien parti- 3
+# Ce patriotisme, d'ailleurs, avait un caractère bien parti-
 73 culier. En nous le faisant saisir, le drame de Maurice.
-; Pottecher nous donne une excellente leçon, tout à fait 4
-analogue à celles que nous demandons aux Universités E
-populaires lorsque nous y étudions un mouvement auquel Ë
+; Pottecher nous donne une excellente leçon, tout à fait
+analogue à celles que nous demandons aux Universités
+populaires lorsque nous y étudions un mouvement auquel
 nous ne participons pas sans réserves, ou des faits contre #4
 lesquels nous nous efforçons de réagir. C'est une leçon de à
-liberté, puisque, pour comprendre, nous sommes obligés 4
-de nous affranchir de ce qui tient le plus à notre personne: È
-de nos préjugés, de nos préférences. 4
-: Vous voyez que je n'avais pas tort de vous annoncer en 74
+liberté, puisque, pour comprendre, nous sommes obligés
+de nous affranchir de ce qui tient le plus à notre personne:
+de nos préjugés, de nos préférences.
+: Vous voyez que je n'avais pas tort de vous annoncer en
 commençant que le Théâtre du Peuple rejoignait iei les à
-_ Universités populaires et que toutes deux étaient des écoles 4
+_ Universités populaires et que toutes deux étaient des écoles
 En 1792, donc, patriotisme et révolution se confondaient. ;
 « La patrie était en danger ». C'est-à-dire que la liberté
 était menacée.
-effrayaient l'Europe. Les peuples applaudissaient, pleuraient 4
+effrayaient l'Europe. Les peuples applaudissaient, pleuraient
 d'émotion. Mais les rois, naturellement, tremblaient et sen- ;
-taient chanceler leurs trônes. Leur intervention, crurent-ils, 4
+taient chanceler leurs trônes. Leur intervention, crurent-ils,
 pourrait rétablir la tyrannie et mettre à la raison la France
 révolutionnaire. Cependant, les officiers français, tous d'ori- À
 leur épée, quelquefois entraînant leurs troupes. La France %
-n'avait pas le choix. De toutes parts les volontaires accoürurent, en bandes, en famille : frères, enfants, parents, amis, 4
-| Il ne s'agissait point alors de conquête, ni de gloire militaire ; il s'agissait de sauvegarder le plus précieux des e
+n'avait pas le choix. De toutes parts les volontaires accoürurent, en bandes, en famille : frères, enfants, parents, amis,
+| Il ne s'agissait point alors de conquête, ni de gloire militaire ; il s'agissait de sauvegarder le plus précieux des
 biens : la liberté. C'est pour soi-même qu'on portait les
 armes. Ce n'était point pour le caprice d'un monarque, ni
 pour les intérêts d'un groupe de financiers. On ne masquait à
-point des tripotages sous le prétexte de porter la civilisa- L
-tion à des peuples paisibles, qui vivent heureux sans 2
-4 connaître l'Evangile ni les agréments inappréciables de 4
+point des tripotages sous le prétexte de porter la civilisa-
+tion à des peuples paisibles, qui vivent heureux sans
+4 connaître l'Evangile ni les agréments inappréciables de
 
 l'occupation européenne. On n'ambitionnait ni accroissement territorial, ni décorations, ni avancement; on
 - défendait la Révolution, « l'âme sans épouvante », comme
@@ -3824,7 +3814,7 @@ nous semble aujourd'hui suranné comme les autres cultes,
 nous comprendrons qu'il fut un jour nécessaire et que sans
 lui c'en était fait de la Révolution. Nous saluerons dans le |
 chant révolutionnaire de 1792 l'ancêtre des chants révolu- |
-tionnaires que nous aimons maintenant, songeant que la s
+tionnaires que nous aimons maintenant, songeant que la
 Marseillaise de Rouget de l'Isle a ouvert les voies à celle
 de Lamartine et que si le premier n'avait pas été entendu
 lorsqu'il appela « aux armes », nous ne pourrions pas
@@ -3841,52 +3831,52 @@ bien respectueusement, dans les fêtes officielles et les banquets, à la même 
 } Si nos ancêtres ne l'avaient pas chantée et vécue jadis,
 nous n'aurions même pas le droit, nous, de chanter l'Internationale.
 
-‘ Notre catalogue analytique sommaire. . . . .. 2
-Préparation de ce cahier . ........,... 4
+‘ Notre catalogue analytique sommaire. . . . ..
+Préparation de ce cahier . ........,...
 Fédération des Universités populaires de Paris Ce
 secrétaire de la Fédération des U. P.; M. Gaston “E
-Rabaud, rapporteur de la troisième commission ; 2
+Rabaud, rapporteur de la troisième commission
 congrès des U. P: 1904 ,
-Organisation du Congrès. . . .. ........ 9
+Organisation du Congrès. . . .. ........
 Réunion mensuelle de la Fédération des Uni- |
 versités populaires de Paris le 13 décembre 1903,
 proposition d'un délégué; adoptée à l'unanimité;
-du 10 janvier 1904; où inclus circulaire numéro 1
+du 10 janvier 1904; où inclus circulaire numéro
 sur un congrès national des Universités populaires; organisation générale; enseignement et
 départementales et régionales; signée pour les £
 Membres de la Commission provisoire d'organisation, H. Ablonet, Charles Guieysse; Le Secré-
 
 : congrès des U. P. 1904 LUE
-“ taire de la Fédération des U. P., Paul Kastor. :24
+“ taire de la Fédération des U. P., Paul Kastor.
 é réunion du 13 mars; adhésions provisoires ; SCC
 \& deuxième circulaire; comité; but du congrès; RCE.
 | plan des travaux; organisation générale; in- Kat
-stitutions annexes ; enseignement et éducation ; L
+stitutions annexes ; enseignement et éducation
 ; __ fêtes et distractions; fédérations départemen- SAR)
-.. tales et régionales; programme du congrès; 4
-adhésions; signée pour le Comité, Le Secrétaire, É
+.. tales et régionales; programme du congrès;
+adhésions; signée pour le Comité, Le Secrétaire,
 ér H. Ablonet; liste des Universités populaires qui ne.
 ont envoyé leur adhésion; départements; “5
-villes; titres des Universités populaires ; délé- É
+villes; titres des Universités populaires ; délé-
 
 Ouverture de la séance; souhaits de bien- \
-venue; appel nominal; nomination du bureau; S
+venue; appel nominal; nomination du bureau;
 allocution de M. Gabriel-Séailles, nommé pré- | Res
 sident; quelques renseignements sur l'organi- &
 sation du Congrès; le déjeuner; un bureau par ‘à
 commission ; nomination de ces bureaux; cinq à
-commissions; réunion de ces commissions; k
-Séance du Dimanche 22 Mai, après-midi. . . . 29 4
-Rapport de la deuxième commission, énsti- D
+commissions; réunion de ces commissions;
+Séance du Dimanche 22 Mai, après-midi. . .
+Rapport de la deuxième commission, énsti-
 tutions annexes; lecture par le camarade Clair, F Fe.
 avant discussion du rapport, discussion sur %
-mode de votation; non vote; surtout congrès 4
+mode de votation; non vote; surtout congrès
 d'études; utile de se compter; ne pourront
 voter que les délégués d''Universités populaires ;
 et de Fédérations; discussion; rapports des ee
 Universités populaires avec les syndicats; avec Ke
 
-150 2
+150
 
 les Coopératives; avec les Groupes politiques ;
 avec les Patronages;
@@ -3901,7 +3891,7 @@ financière et administrative; tableaux synoptiques; désignation des Universit�
 membres adhérents ou participants; membres
 honoraires; dons, subventions, allocations; organisation ; fédération parisienne des Universités
 hérentes et recouvrements; compte des disponibilités de la fédération parisienne des Universités
-Séance du Lundi 23 Mai, matin... ...... 74
+Séance du Lundi 23 Mai, matin... ......
 Plusieurs lettres et télégrammes d'excuses;
 rapport de la troisième commission, enseignement et éducation ; lecture par le camarade Rabaud, rapporteur; conférences isolées; cours;
 séries; causeries ; lectures; discussions; la Politique; enseignement professionnel; bibliothè- :
@@ -3909,36 +3899,36 @@ que; publications; matériel d'enseignement ;
 l'Art et les Universités populaires, PArt pour
 tous, les Musées cantonaux; personnel ensei151
 
-à ER congres-des US P./T9047 000
+à ER congres-des US P./T9047
 Rapport de la quatrième commission, fêtes et #3
 : distractions ; lecture par le camarade Georges 3 mr
 
-2 Baër, rapporteur; consultations; consultations NE
-Ë médicales; trois vœux; demandes et offres de T4
+Baër, rapporteur; consultations; consultations NE
+Ë médicales; trois vœux; demandes et offres de
 | renseignements; consultations juridiques, U. P., FR
 TE adhérents; fêtes et distractions; tous les rap- Se:
 Sa ports très aflfirmatifs; une seule exception : La “24
 + Fraternelle, du troisième arrondissement, Paris, #3
 très opposée ; discussion de cette opinion; droits De,
 
-; d'auteur; sociétés des auteurs dramatiques et 44
+; d'auteur; sociétés des auteurs dramatiques et
 
-des auteurs, compositeurs et éditeurs de mu- 4
-f. ques ; conclusions ; chorales; cours de musique, 0
+des auteurs, compositeurs et éditeurs de mu-
+f. ques ; conclusions ; chorales; cours de musique,
 de chant et de déclamation; promenades, excur- De.
 
 | signs,visites; caisse de voyages; cercles de lec- “55
 officielles ; acquisition de livres; échange régu- £ ESS
-lier de livres; discuësion ; le Mans, Lyon; {a 5
+lier de livres; discuësion ; le Mans, Lyon; {a
 
-Fraternelle; banquet, simple et substantiel; 4
-amicale présidence de Gabriel Séailles; 65 conyi- 1e
+Fraternelle; banquet, simple et substantiel;
+amicale présidence de Gabriel Séailles; 65 conyi-
 Séance du Lundi 23 Mai, après-midi. . . . . . . 122 si
 Même discussion, suite; Rouen ; Maurice Bou- “i
 
-: Rapport de la cinquième commission, fédéra- 1e
+: Rapport de la cinquième commission, fédéra-
 
-par le camarade Kastor; toutes les Universités É
+par le camarade Kastor; toutes les Universités
 
 populaires recherchent les moyens d'entretenir "à
 
@@ -3948,12 +3938,12 @@ possible ; elles reconnaissent la puissance °°
 
 d'action des groupements et loin de repousser RS
 
-la formation de Fédérations, quelques-unes 4
+la formation de Fédérations, quelques-unes
 
 concluent logiquement à créer, après la Fédé- Me
 
 | ration Nationale, une Fédération Internatio- 1%
-5 152 4
+5
 
 nale des Universités populaires ou organi- £
 ? sations similaires ; Auvers-sur-Oise ; Fontenayen-Vendée; Fédération post-scolaire des DeuxSèvres ; le Mans; Montreuil; la Fraternelle ;
@@ -3964,17 +3954,17 @@ l'Effort de Montrouge ; un Bulletin des Universités populaires ; une mutualité
 ; sités populaires voisines fédérées ou non; rôle
 des fédérations départementales et régionales ;
 fédération nationale ; une bibliothèque documen- ;
-5 taire ; une bibliothèque circulante ; conclusion; 4
-ques ; discussion ; Bayonne, Tarbes, Bar-le-Duc; ÿ
+5 taire ; une bibliothèque circulante ; conclusion;
+ques ; discussion ; Bayonne, Tarbes, Bar-le-Duc;
 | le prochain congrès; à mains levées, une Fe
 seule voix contre, le bureau de la Fédération
 parisienne chargé de préparer la constitution 3 #2
 de la Fédération nationale des Universités po- : SÈ
 pulaires dans le plus bref délai et d'en proposer “2
-la fondation au prochain Congrès qui aura lieu 4
+la fondation au prochain Congrès qui aura lieu
 le 23 avril 1905, à Paris;
 Vœux ; examen des vœux ; discussion préala- .
-ble sur la valeur et la portée de ces vœux ; les 7
+ble sur la valeur et la portée de ces vœux ; les
 supprimer ; ne pas voter; ne créent pas obligation pour la totalité des Universités popu- *
 laires; mais simples propositions annexées à la
 suite des travaux du Congrès; dix vœux
@@ -3982,7 +3972,7 @@ acceptés; cinq vœux renvoyés pour examen
 , jusqu''après la fondation de la Fédération natio-
 : nale des Universités populaires ; ;
 une communication Jeunesses laïques; une
-= communication Exposition de Saint-Louis ; 3
+= communication Exposition de Saint-Louis
 remerciements de Maurice Bouchor président >
 aux congressistes; un souvenir ému à la mé- |
 2 clôture du Congrès ;
@@ -3990,16 +3980,16 @@ aux congressistes; un souvenir ému à la mé- |
 re A Le lundi soir 23 mai, à huit heures et demie, LE
 ; Da au Nouveau-Théâtre, une représentation de RES »
 22610 ! Liberté, drame en 3 parties avec prologue et TER
-1 Æ intermèdes de Maurice Pottecher, musique de FA SSR
+Æ intermèdes de Maurice Pottecher, musique de FA SSR
 : 1 après une allocution de Paul Kastor, secré- ss
 73 1 taire de la Fédération des Universités populaires 211000
 : de Paris et de la Banlieue i avait organisé st
-de L la représentation, une causerie d'introduction TES 54
+de L la représentation, une causerie d'introduction TES
 # ù de Maurice Kahn: Er
-Fe Maurice KAun, — causerie sur Liberté . . . . . 140
+Fe Maurice KAun, — causerie sur Liberté . . . .
 à Nous avons donné le bon à tirer après corrections …
 " pour trois mille deux cents exemplaires de ce vingtième
-% cahier le mardi 13 septembre 1904. 4
+% cahier le mardi 13 septembre 1904.
 # Ce cahier a été composé et tiré au tarif des ouvriers syndiqués.
 
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement.
@@ -4011,7 +4001,7 @@ ouvrière, d'octobre-novembre à juin-juillet; l'abonne- “
 ment se prend pour une série. js
 Le prix de l'abonnement est de vingt francs pour la :
 série. Nous acceptons que nos abonnés paient leur sat
-abonnement par mensualités de deux francs. Ê
+abonnement par mensualités de deux francs.
 Pour tout changement d'adresse envoyer soixante AU
 centimes, quatre timbres de quinze centimes. !
 Nous engageons nos abonnés de certains pays à nous

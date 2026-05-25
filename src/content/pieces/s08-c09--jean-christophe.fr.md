@@ -11,11 +11,11 @@ c Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante OO
 à M. André Bourgeois, administrateur des cahiers, +4
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième ee
-arrondissement. On recevra en spécimens six cahiers e
-cinquième ou de la sixième série. ‘ : 4
+arrondissement. On recevra en spécimens six cahiers
+cinquième ou de la sixième série. ‘
 
 Pour savoir ce qui a paru dans les cinq premières ; js
-séries des cahiers, 1900-1904, envoyer un mandat de _ « cinq francs à M. André Bourgeois, même adresse; on L
+séries des cahiers, 1900-1904, envoyer un mandat de _ « cinq francs à M. André Bourgeois, même adresse; on
 recevra en retour le catalogue analytique sommaire, à
 
 3 1900-1904, de nos cinq premières séries, premier cahier ‘4
@@ -23,22 +23,22 @@ de la sixième série, un très fort cahier de XI1+408
 pages très denses,in-18 grandjésus,marqué cinq francs. LU:
 
 Pour s'abonner à la septième série des cahiers, qui
-est la dernière série, envoyer en un mandat à M. André 4
-Bourgeois, même adresse, le prix de l'abonnement; on 1
+est la dernière série, envoyer en un mandat à M. André
+Bourgeois, même adresse, le prix de l'abonnement; on
 recevra en retour les dix-neuf cahiers parus de cette
 
 Pour s'abonner à la huitième série des cahiers, qui
 est la série en cours, envoyer en un mandat à M. André +4
 Bourgeois, même adresse, le prix de l'abonnement; on :
-recevra les cahiers parus, et de quinzaine en quinzaine, S
-à leur date, les cahiers à paraître de cette huitième 124
+recevra les cahiers parus, et de quinzaine en quinzaine,
+à leur date, les cahiers à paraître de cette huitième
 
-Voir à l'intérieur en fin des autres cahiers les condi- \ Ë
+Voir à l'intérieur en fin des autres cahiers les condi- \
 
-Nous mettons le présent cahier dans le commerce; ÿ h
-huitième cahier de la huitième série; un cahier vert ne i
+Nous mettons le présent cahier dans le commerce;
+huitième cahier de la huitième série; un cahier vert ne
 
-de 72 pages; in-18 grand jésus; nous le vendons 5
+de 72 pages; in-18 grand jésus; nous le vendons
 
 | paraissant seize fois par an
 
@@ -51,9 +51,9 @@ nu nu Nous avons publié dans nos éditions antérieures et
 A vie si grand nombre de cahiers de lettres, — nouvelles,
 1 de À romans, drames, dialogues, poèmes et contes; — u Ci
 4 si grand nombre de cahiers d'histoire et de philo-w
-fl AN sophie; et ces documents, renseignements, textes, M
-' 1 dossiers et commentaires, ces cahiers de lettres, w
-: 4 d'histoire et de philosophie étaient si considérables M
+fl AN sophie; et ces documents, renseignements, textes,
+' 1 dossiers et commentaires, ces cahiers de lettres,
+: 4 d'histoire et de philosophie étaient si considérables
 d HA que nous ne pouvoirs pas songer à en donner ic
 AA l'énoncé même le plus succinct; pour” savoir ce qui a
 AU ‘paru dans ‘les cinq premières séries des cahiers, it
@@ -67,18 +67,18 @@ je À autant qu'il se pouvait, une image en bref, un raccourci,
 UE rieures et de nos cinq premières séries ; tout y est classé
 po dans l'ordre ; il suffit de le lire pour trouver, à leur”
 | place, les références demandées. 15)
-Hi Ce catalogue, in-18 grand jésus, forme un cah er 1
+Hi Ce catalogue, in-18 grand jésus, forme un cah er
 fi très épais de XI14-408 pages très denses, marqué cinq
 
 | francs; ce cahier comptait comme premier cahier de la ER
-…__ sixième série et nos abonnés l'ont reçu à sa date, le 1 1
+…__ sixième série et nos abonnés l'ont reçu à sa date, le
 _ 2 octobre 190%, comme premier cahier de la sixième ‘2
 … série; toute personne qui jusqu'au 31 décembre 1905 Re
 M . s'abonnait rétrospectivement à la sixième série le rece- : #ÿ
 …  vait, par le fait méme de son abonnement, en tête de la 15%
-4 _ série; nous l'envoyons contre un mandat de cinq francs ÿ
+4 _ série; nous l'envoyons contre un mandat de cinq francs
 __ à toute personne qui nous en fait la demande. < FE
-4 Pour la septième série, année ouvrière 1905-1906, et ‘074
+Pour la septième série, année ouvrière 1905-1906, et ‘074
 40 en attendant que paraisse le catalogue analytique som- , fi
 4 maire de nos deuxièmes cinq séries, 1904-1909, On \ #4
 4 peut consulter, — provisoirement, — la petite table De
@@ -93,27 +93,27 @@ _ tique sommaire dans l'index total de nos éditions anté- ;
 _ cahier de la huitième série. “à
 
 d aux Cahiers de la Quinzaine f #
-Le présent petit index donne automati- Æ
-4 quement pour tout volume et pour tout + F
+Le présent petit index donne automati-
+4 quement pour tout volume et pour tout +
 Ju: a) le numéro d'ordre de ce cahier dans sx
-le classement général de nos collections 25
+le classement général de nos collections
 # complètes, le numéro d'ordre de la série +208
 Le étant naturellement composé en grandes ne
 2 capitales de romain et le numéro d'ordre À
 n' du cahier lui-même, dans la série ainsi y.
-, déterminée, en chiffres arabes, de sorte È
-4 que V-17 par exemple doit évidemment se 3.
+, déterminée, en chiffres arabes, de sorte
+4 que V-17 par exemple doit évidemment se
 À lire dix-septième cahier de la cinquième oE
-#4] faut, la date du fini d'imprimer, ou, à son i
+#4] faut, la date du fini d'imprimer, ou, à son
 ‘4 défaut, la date du cahier même; An
-a c) le prix actuel; 2
+a c) le prix actuel;
 n d) quand il y a lieu, c'est-à-dire pour nos <
-Lx éditions antérieures et pour nos cinq pre- L
+Lx éditions antérieures et pour nos cinq pre-
 4 miéres séries, la page du catalogue ana- bu:
 "1 lytique sommaire où ce cahier se trouve ?
-}f Romain Rolland, — Aërt, — trois actes, — premier août d
-4 1898, un volume en voie d'épuisement.. sept francs 2 7
-L — — le Triomphe de la Raison, — trois actes, — 20 oc- Û
+}f Romain Rolland, — Aërt, — trois actes, — premier août
+4 1898, un volume en voie d'épuisement.. sept francs
+L — — le Triomphe de la Raison, — trois actes, — 20 oc-
 tobre 1899, un volume en voie d'épuisement..............
 ‘4 sept francs 2 ne
 M: — — les Loups, — trois actes, — octobre 1898... cer À
@@ -121,11 +121,11 @@ M: — — les Loups, — trois actes, — octobre 1898... cer À
 
 St 5 D” Romain Rolland, — une introduction d'une lettre inédite
 DR. de Tolstoi, adressée à Romain Rolland (-9, samedi
-+ à À — — Le 1{ juillet, action populaire, — trois actes, — M
-3 ÿ — — Vies des hommes illustres, — Beethoven, avecle  n
++ à À — — Le 1{ juillet, action populaire, — trois actes,
+3 ÿ — — Vies des hommes illustres, — Beethoven, avecle
 PE masque de Beethoven (IV-10, samedi 2 janvier 1903, un
 Vi cahier épuisé, n'est plus mis en vente que dans les collec
-| ie tions complètes de la quatrième série ................ 206 52
+| ie tions complètes de la quatrième série ................
 du — — Vies des hommes illustres, — Beethoven, — … +
 di deuxième édition, sans le masque (IV-10,, mardi 22 sepAs ternbre 1903"..1..%. 1002... 0 ie0e-deUXPIPANCSAAREREE
 4 — — Le temps viendra, — trois actes (V-14, mardi
@@ -140,25 +140,25 @@ JA — — Jean-Christophe. — I. — Le matin, — édition 4 £
 
 _ Romain Rolland, —Jean-Christophe. —TII. — l'adolescent; s £. Pi
 la maison Euler ; Sabine ; Ada (VI-8, mardi 10 janvier 1905,
-et trois francs cinquante DA À 1
+et trois francs cinquante DA À
 
-…  — — Jean-Christophe. — NI. — l'adolescent, — édition : 1
-Ollendorff, en vente à la librairie des cahiers.............. 414
+…  — — Jean-Christophe. — NI. — l'adolescent, — édition
+Ollendorff, en vente à la librairie des cahiers..............
 
-“ — — Vies des hommes illustres, — la vie de Michel- 0
+“ — — Vies des hommes illustres, — la vie de Michel-
 …_ — — Vies des hommes illustres, — la vie de Michel- fc
-_ Ange, — IL. — l'abdication (VIII-2, mardi 16 octobre 1906. M.
+_ Ange, — IL. — l'abdication (VIII-2, mardi 16 octobre 1906.
 
 _ — — Jean-Christophe. — IV. — la révolte. — 2 — {fi
-…_ l'enlisement (VII-6, mardi 11 décembre 1906. trois franes ï 1
+…_ l'enlisement (VII-6, mardi 11 décembre 1906. trois franes
 
-74 Note du gérant. — De ce petit index il résulte que
+Note du gérant. — De ce petit index il résulte que
 | : Jean-Christophe se compose présentement de quatre
 | Le premier livre, Vaube, formait le neuvième cahier
 de la cinquième série; marqué deux francs, ce cahier se
 A Le deuxième livre, le matin, formait le dixième cahier
-de la cinquième série; marqué deux francs, ce cahier se É
-vend aujourd'hui trois francs cinquante ; L
+de la cinquième série; marqué deux francs, ce cahier se
+vend aujourd'hui trois francs cinquante
 l Le troisième livre, l'adolescent, formait le huitième
 1 cahier de la sixième série; marqué trois francs cin- |
 | quante, ce cahier se vend aujourd'hui trois francs cin-
@@ -170,19 +170,19 @@ cahiers ne seront pas réimprimés ; aussitôt qu'ils seront
 {l der, nous les porterons au prix de douze francs l'un
 jusqu'à leur entier épuisement: à dater du jour où ils
 1 seront complètement épuisés, ils ne seront plus mis en
-: vente que dans nos collections complètes de nos cinquième et sixième séries, jusqu'à ce que ces séries elles1 d = La délivrance. — 1.
+: vente que dans nos collections complètes de nos cinquième et sixième séries, jusqu'à ce que ces séries elles1 d = La délivrance.
 
 neuvième cahier de la huitièm e série
 ne . mêmes viennent en voie d'épuisement puis soient complè-
 _ tement épuisées. Alors ils ne seront forcément plus mis
-11 _ A dater du jour où ces trois cahiers seront portés aux A1
+11 _ A dater du jour où ces trois cahiers seront portés aux
 _ prix d'épuisement, nous ne mettrons plus en vente pour ;
 " l'usage courant que des exemplaires de l'édition Ollen- ©
 \e Le quatrième livre, la révolte, se compose de trois
 AU parties qui font respectivement trois cahiers. : TA
 L Première partie de ce quatrième livre : Sables mouLL vants; cette partie formait le quatrième cahier de la :
 na huitième série, un cahier blanc de 160 pages, marqué
-144 25
+144
 L Deuxième partie de ce quatrième livre : Yenlisement ; FE
 il cette partie formait le sixième cahier de la huitième Da.
 de série, un cahier blanc de 144 pages, marqué trois De:
@@ -190,13 +190,13 @@ mA Troisième partie de ce quatrième livre : la délivrance; de
 ns c'est le présent cahier, neuvième cahier de la huitième NM
 4 série, un cahier blanc d'au moins 144 pages, marqué ne:
 1150 Pour. avoir les quatre. premiers livres de Jean-Chris- ne
-14 | tophe, il suffit d'envoyer un mandat de dix-neuf francs En è
+14 | tophe, il suffit d'envoyer un mandat de dix-neuf francs En
 
 _ cinquante à M. André Bourgeois, administrateur des on
 Uk cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
 _ cinquième arrondissement. On recevra par le retour
 fi _ du courrier les six cahiers formant les quatre premiers Hs:
-pi Comme on va le voir ci-après, la pagination du pré- 1 1
+pi Comme on va le voir ci-après, la pagination du pré-
 _ sent cahier, troisième partie du quatrième livre, fait NT
 _ suite à la pagination du cahier rappelé ci-dessus, tee
 _ deuxième partie de ce quatrième livre. Ainsi les trois

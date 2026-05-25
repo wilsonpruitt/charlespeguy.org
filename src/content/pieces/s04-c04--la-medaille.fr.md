@@ -12,7 +12,7 @@ _ la médaille LS
 _ da lettre de convocation
 
 D 7 paraissant vingt fois par an.
-: 8, rue de la Sorbonne, au rez-de-chaussée 2
+: 8, rue de la Sorbonne, au rez-de-chaussée
 
 Pour savoir ce que sont les Cahiers de la Quinzane,
 ” il suffit d'envoyer un mandat de trois francs cù quar . Le
@@ -71,7 +71,7 @@ et dont je veux vous conter les incidents évoqués par
 la phrase magicienne de Daudet et ayant trait à la
 sonore et chère langue de la Terre d'Oc.
 
-J'avais alors de huit à dix ans, je crois. Aniane, ce s
+J'avais alors de huit à dix ans, je crois. Aniane, ce
 vieux bourg du Bas-Languedoc, fondé par saint Benoît
 au temps de l'antique empereur « à la barbe florie »,
 grandes affections, Aniane avait, à cet âge de ma libre |
@@ -84,7 +84,7 @@ venir parachever sa déjà longue carrière dans ce poste
 avantageux, en ce riche pays de vignobles et d'oliviers,
 où commence la fertile plaine de l'Hérault.
 
-Certes, M. Lassalle n'était point un éducateur d'élite, l
+Certes, M. Lassalle n'était point un éducateur d'élite,
 le parangon des instituteurs. Peu préoccupé d'innovations pédagogiques, il savaitle train-train de son métier
 et employait les vieilles méthodes : un routinier, si
 l'on veut, et d'esprit très étroit, comme on le verra par
@@ -284,14 +284,14 @@ parfois à être ennuyé d'entendre mes parents continuer
 voyous. J'osai même, selon le désir de M. Lassalle, en
 
 Je m''attirai par là des réponses péremptoires qui
-firent sur l'ardeur de mon prosélytisme enfantin leffet Ÿ
+firent sur l'ardeur de mon prosélytisme enfantin leffet
 de douches glacées.
 
 — Ton maître se mêle de ce qui ne le regarde pas, —
 disait l'un.
 
 — Nous parlons comme on nous a appris, comme
-parlaient nos anciens, — ripostait ma mère. S
+parlaient nos anciens, — ripostait ma mère.
 
 — Té! faut-il parler pointu pour te faire plaisir ? —
 
@@ -345,10 +345,8 @@ La gaieté de M. Lassalle ne se démentit pas un instant. Je crois même, s'il m
 l'intervalle de deux leçons, il continuait à fredonner!
 Nous n'en revenions pas et la classe fut moins silen-
 
-| 13
-
 cieuse que de coutume. Nous aussi, nous avions des
-envies folles de crier, de nous poursuivre comme les 1
+envies folles de crier, de nous poursuivre comme les
 moineaux, de chanter comme notre maître. C'était
 pourtant jour de rédaction! Mais, nouvelle surprise,
 tranquillement, sans sourciller, sans prononcer sa
@@ -367,7 +365,7 @@ Vers onze heures, au moment béni de prendre notre
 volée comme les moineaux de la cour, nous eùmes
 enfin le mot de l'énigme. Déjà, nous nous préparions à
 eniler le bras dans les courroies de nos « cartables »,
-lorsque M. Lassalle nous retient d'un geste sur nos 1
+lorsque M. Lassalle nous retient d'un geste sur nos
 bancs et fixe sur nous son regard joyeux, mais d'une
 acuité de plus en plus gênante. Sans savoir pourquoi,
 une angoisse inexplicable contracte ma gorge comme à
@@ -434,7 +432,7 @@ Le silence est glacial. Pour ma part, je me sens à la |
 torture. Dorénavant sera suspendue sur nos têtes la
 menace invisible, angoissante de punitions sévères.
 
-Car M. Lassalle a tout prévu. Impossible de le trom- 1
+Car M. Lassalle a tout prévu. Impossible de le trom-
 per. Son moyen est infaillible. Et si simple qu'il a dû
 se révéler à lui, comme une illumination soudaine,
 durant une des insomnies causées par sa haine du
@@ -445,7 +443,7 @@ cachette, à un élève sérieux qui la remettrait au premier camarade qu'il ent
 chercherait à en faire autant et ainsi de suite, de l'un à
 l'autre, jusqu'au jour où le maître la réclamerait et distribuerait force punitions à ceux entre les mains de qui
 elle aurait passé. L'élève choisi par le maître devrait
-d'ailleurs se débarrasser à tout prix de la médaille, s'il 1
+d'ailleurs se débarrasser à tout prix de la médaille, s'il
 
 ne voulait être puni lui-même comme « ayant trahi la
 confiance mise en lui ».
@@ -465,7 +463,7 @@ ceux qui reçurent la médaille des mains du maître
 s'ingénièrent pour la faire circuler et n'encourir aucun
 reproche. Au contraire, d'aucuns déployèrent même un
 zèle très autoritaire de gendarme, pareils encore en
-cela aux hommes investis d'un pouvoir quelconque et 4
+cela aux hommes investis d'un pouvoir quelconque et
 tracassier. D'ailleurs la perspective d'être réprimandé
 et puni fermait le cœur de l'enfant, pris en faute, à tout
 sentiment de pitié et de solidarité. On se disait égoïstement, à part soi : « Puisque je dois être puni, tâchons
@@ -546,7 +544,7 @@ au loin, dans un.endroit écarté, afin d'y jouer dans une
 Tantôt, c'était à La Brèche, un petit chemin creux, sis
 en dehors du bourg et longeant le ruisseau qui, après
 
-‘ avoir côtoyé des prés et des jardins potagers, traverse 4
+‘ avoir côtoyé des prés et des jardins potagers, traverse
 Aniane et le divise en deux parties inégales, le bourg
 proprement dit et le quartier de Régagnas. La Brèche
 est une promenade fréquentée, le soir, par les amoureux, qui peuvent s'y aimer en toute tranquillité. Dans À
@@ -554,7 +552,7 @@ la journée, elle est le rendez-vous de prédilection des à
 vieilles gens : encaissée entre le mur de ronde de la
 maison centrale et un monticule planté de pins et de
 grands arbres, appelé le Bosquet, elle est bien exposée,
-fraîche et verte à cause des arbres en été, abritée des è
+fraîche et verte à cause des arbres en été, abritée des
 vents en hiver, et devenant alors un tiède cagnard où ;
 les vieillards vont lézarder au soleil et deviser du |
 Souvent, pour être plus en sûreté, nous escaladions {
@@ -570,9 +568,9 @@ de feuilles sous l'envol d'un oiseau, éboulis de gravier
 sur les talus, ou bris sec de branchettes sous la fuite il
 d'un lapin qu'effarouche une ombre. Tous ces frémissements des buissons et des verdures nous alarmaient, il
 nous jetaient en des transes, car nous redoutions tou- À
-jours de voir brusquement émerger d'un massif le mu- 4
-seau narquois d'un camarade à l'affût et d'entendre sa 1
-voix guignonnante nous crier : 1
+jours de voir brusquement émerger d'un massif le mu-
+seau narquois d'un camarade à l'affût et d'entendre sa
+voix guignonnante nous crier
 — Voilà la médaille pour toi. à
 
 Ce n'était donc qu'après un moment d'anxieuse
@@ -597,7 +595,7 @@ bourrades, on ne chercha plus à tromper. Non, on n'aimait pas les traîtres. Ru
 Le jour où la médaille circulait, circulait sans
 relâche et faisait le plus de victimes, c'était sans
 contredit le dimanche. Ce jour-là, tout entier consacré
-au repos et au jeu, les gamins d'Aniane, quittant leur é
+au repos et au jeu, les gamins d'Aniane, quittant leur
 quartier respectif, descendaient en bandes au Roc. On
 appelle ainsi une rue déclive et très large, située sur
 le derrière des maisons dont la principale est le café
@@ -653,7 +651,7 @@ pupitres, se percher sur notre nez, vrombir à nos
 oreilles. Hélas ! nul ne songeait à les prendre adroitement, puis à saisir délicatement la bestiole entre les
 doigts, soit pour lui arracher les ailes, la plonger dans
 l'encre et lui faire tracer des hiéroglyphes sur une
-feuille blanche, soit encore pour lui planter dans l'abdomen une minuscule banderole de papier rouge ou 4
+feuille blanche, soit encore pour lui planter dans l'abdomen une minuscule banderole de papier rouge ou
 bleu et la lâcher ensuite, empanachée ainsi à rebours,
 dans le recueillement de la salle de classe, alors que le
 maître avait le dos tourné.
@@ -728,9 +726,9 @@ usuels, tu dois les connaître. Cinq cents fois à copier
 chacun d'eux pour les graver dans ta dure caboche.
 
 Parfois M. Lassalle déclare que le mot pouvait être
-élève, allant chez un jardinier et interrogé insidieusement par le porteur de la médaille, lui a répondu: 4
+élève, allant chez un jardinier et interrogé insidieusement par le porteur de la médaille, lui a répondu:
 
-— Ze baïs cercer de l'orte pour ma mère. x
+— Ze baïs cercer de l'orte pour ma mère.
 
 Le cas est douteux ; il peut y avoir ignorance réelle
 du terme français correspondant. M. Lassalle croise les
@@ -763,7 +761,7 @@ parlerai toujours patois, toujours, toujours.
 
 C'était là notre espoir vengeur. Grandir, quitter l'école
 afin d'échapper à cette odieuse inquisition, à cet occulte
-danger qui nous menaçait partout, nous guettait sous l
+danger qui nous menaçait partout, nous guettait sous
 la figure d'un camarade jadis aimé et qu'on se prenait,
 lui aussi, à détester, lorsque, méchamment, sournoise-
 
@@ -802,7 +800,7 @@ la maison close, dans mon lit, j'avais peur, en rêvant,
 de prononcer un mot patois.
 
 Le dimanche soir, veille du terrible lundi, un état de
-fièvre nous gagnait tous. On se surveillait davantage; ë
+fièvre nous gagnait tous. On se surveillait davantage;
 si on allait être le dernier à avoir la médaille! Aussi
 celui qui la détenait recourait, pour s'en débarrasser,
 à des ruses d'Apache : il s'embusquait dans les portes
@@ -829,7 +827,7 @@ voilà la médaille.
 
 Pareil fait m'advint un soir d'hiver et, désolé, comme
 un vil espion, je me mis à mon tour à errer dans les
-rues, Collant mon oreille aux fentes des portes, surprenant les confidences des veillées. Et je me rappelle fort x
+rues, Collant mon oreille aux fentes des portes, surprenant les confidences des veillées. Et je me rappelle fort
 bien qu'à un moment donné, j'entendis un de mes bons
 camarades parler patois. Dans ma joie, j'ouvris la
 porte, je jetai le vieux sou au milieu du cercle des
@@ -847,7 +845,7 @@ mauvaises habitudes, nous devions surtout parler
 français, chez nous, lors des réunions du soir.
 
 Toutes les expansions de notre enfance étaient donc
-gênées par un tel souci. Pour moi, j'en étais énervé, car è
+gênées par un tel souci. Pour moi, j'en étais énervé, car
 j'avais une peur bleue de M. Lassalle. Et cependant
 par l'attrait qu'exerce le fruit défendu, je l'en aïmais
 davantage ce patois proscrit. Volontiers, je m'isolais
@@ -912,7 +910,7 @@ eut assez. Aux craintes veules, à la soumission lâche et
 sans réplique du début, succéda une telle surexcitation,
 un tel état d'irritation que chacun, à part soi, rêvait de
 luttes fécondes pour retrouver l'indépendance première.
-M. Lassalle dut bientôt sévir plus fortement; car, las L
+M. Lassalle dut bientôt sévir plus fortement; car, las
 de cette compression despotique, nous commençâmes
 à nous agiter. Mais par défiance les uns des autres, on
 n'osa se communiquer ses réflexions et, après une
@@ -961,7 +959,7 @@ avec le devoir ou plutôt la charge de la remettre es
 mains des plus jeunes que nous surprenions à patoiser.
 
 Or, cette année-là, en l'absence de M. Lassalle qui
-passait ses vacances dans le village natal de sa femme, 7
+passait ses vacances dans le village natal de sa femme,
 la médaille avait fait d'innombrables victimes; personne
 qui en sortit indemne : tous nous avions été peu ou
 prou frappés; quelques-uns l'avaient eue jusqu'à des
@@ -1179,7 +1177,7 @@ chères fleurs, redressait d'un geste tendre quelques
 tigelles, secouait ses arbustes où des fourmis processionnaient, débarrassait ses plates-bandes des mauvaises herbes si promptes à croître et à grener. En luimême, il se promettait pour le lendemain jeudi, —
 toute une grande journée de congé ! — une bonne promenade à travers les combes. Peut-être, dans ses recherches, découvrirait-il quelque plante rare dont s'enrichirait son herbier?... Malgré ses cinquante ans,
 
-M. Bastoul avait encore bon pied et bon œil. Les i
+M. Bastoul avait encore bon pied et bon œil. Les
 
 fatigues de sa profession ne l'avaient point du tout
 vieilli. Ses élèves étaient peu nombreux; d'ailleurs sa
@@ -1252,7 +1250,7 @@ Sur un coin de la bande grise, qu'il ne peut se décider
 à briser, flamboient ces mots : l'Inspecteur d' Académie,
 puis, au-dessous, une signature illisible.
 
-1 Finalement, d'une main nerveuse, il rompt la bande,
+Finalement, d'une main nerveuse, il rompt la bande,
 déplie le papier et lit, de plus en plus ému:
 Monsieur l'Instituteur,
 
@@ -1313,7 +1311,7 @@ classe, dont les fenêtres s'ouvrent sur la rue à l'opposé
 
 | du jardin où le maître se tourmentait en lancinantes
 
-— Hé! dis, Arsène, que fiches-tu là droit comme un ê
+— Hé! dis, Arsène, que fiches-tu là droit comme un
 piquet ?.… Tu contemples les nuages ? Ce n'est guère le
 moment... Allons, nigaudas, laisse tes fleurs et viens
 boire ton lait. Oh! Jésus! écoute-moi ces enfants,
@@ -1414,7 +1412,7 @@ vingt ans et plus, sensible surtout au reproche de ne
 pas suivre et respecter « l'emploi du temps » collé sur
 un carton, où étaient piqués des insectes.
 
-— De la suite, de la suite et du travail ! — avait conclu l'inspecteur. Ç
+— De la suite, de la suite et du travail ! — avait conclu l'inspecteur.
 
 Certes, s'il avait osé, l'instituteur aurait répondu
 qu'il ignorait ces belles choses, que lui et ses élèves
@@ -1531,7 +1529,7 @@ découvre tant de torts qu'il s'en effraye et tremble, plus
 il ÿ réfléchit, plus il descend au fond de lui-même.
 
 A-t-il toujours rempli son devoir d'une façon irréprochable ? Certes, il fait son métier autant par goût que
-par habitude. II est assez à l'aise pour vivre du produit h
+par habitude. II est assez à l'aise pour vivre du produit
 de ses terres et, s'il reste instituteur, ce n'est nullement
 par lucre : son bien, qui est affermé, lui rapporterait,
 dirigé par lui, beaucoup plus qu'il ne gagne comme
@@ -1814,7 +1812,7 @@ Un certain nombre de nos abonnés nous ont demandé
 comment ils pouvaient se procurer notre édition du
 Jean Coste. Le texte de la nouvelle édition est pour
 ainsi dire identique au texte que nous avons publié. Il
-ne nous reste pas un seul exemplaire isolé de ce cahier, c
+ne nous reste pas un seul exemplaire isolé de ce cahier,
 et quand même il nous en resterait, nous nous sommes
 interdit, dans le contrat que nous avons passé avec la
 maison Ollendorff, de le vendre. Nous ne le vendons
@@ -1978,7 +1976,7 @@ l'enseignement primaire, de l'enseignement secondaire,
 de l'enseignement supérieur ne sont pas subventionnés :
 ils sont rémunérés ; je ne sais pas combien M. Bouglé
 touche par mois pour son traitement; mais quand l'État
-paye un homme comme M. Bouglé pour occuper une s
+paye un homme comme M. Bouglé pour occuper une
 chaire de professeur ou pour tenir une maîtrise de conférences, on peut être assuré qu'il ne le paye pas son ;
 prix; si M. Bouglé avait dépensé dans l'industrie ou
 dans le commerce privé l'activité qu'on lui connaît,
@@ -2075,7 +2073,7 @@ Les autres informations de M. Henry Bérenger valent
 celle-ci. Ainsi travaillent ces grands hommes.
 
 Dans le Mouvement Socialiste, revue bi-mensuelle
-internationale, 10, rue Monsieur-le-Prince, Paris Ë
+internationale, 10, rue Monsieur-le-Prince, Paris
 sixième, quatrième année, numéro 107, premier novembre 1902, cinquante centimes, en vente à la librairie
 des cahiers, M. André Morizet a eu l'heureuse idée
 d'ouvrir une enquéte sur l'anticléricalisme et le socialisme. Son avant-propos est à citer tout entier :
@@ -2096,7 +2094,7 @@ Concorde, ou autour de la statue d'Étienne Dolet, c'étaient
 surtout les socialistes qu'on disait se distinguer par leur
 enthousiasme anticlérical. Et toujours, je retrouvais la
 même question : « Mais qu'ont donc les socialistes de
-France à se jeter ainsi dans l'anticléricalisme vulgaire ? » Ê
+France à se jeter ainsi dans l'anticléricalisme vulgaire ? »
 
 { Et, peu à peu, en étudiant avec plus d'attention l'attitude
 
@@ -2136,7 +2134,7 @@ résout trop volontiers par des affirmations d'une tranchante et brutale simplic
 Les véritables amis du Mouvement Socialiste seraient
 heureux que cette revue revint ainsi à son ancienne
 forme, qu'au lieu de nous donner une politique elle
-recommençât à nous apporter du travail et des renseignements. P
+recommençât à nous apporter du travail et des renseignements.
 
 Dans ce premier numéro de l'enquête, le Mouvement
 publie les réponses de MM.
@@ -2182,8 +2180,8 @@ vous vous soyez laissé emporter par la passion jusqu'à
 l'injure, à propos d'une affaire d'ordre presque purement
 Ce que je vous reproche c'est d'avoir abandonné, dans un :
 
-débat qui vous touche de fort près par vos affections, cette k
-méthode seientifique des exposés impartiaux et documen- l
+débat qui vous touche de fort près par vos affections, cette
+méthode seientifique des exposés impartiaux et documen-
 taires qui est la force et la raison d'être de votre œuvre,
 . pour recourir à la méthode des allusions et des gros mots,
 en haine de laquelle vous condamnez le parlementarisme
@@ -2280,7 +2278,7 @@ M. Terquem est le seul de nos 1.395 abonnés fermes
 qui n'ait pas su lire le commentaire que j'ai ajouté à la
 circulaire que nous avons publiée du Livre pour tous
 dans le vingt-et-unième cahier de la troisième série.
-M. Terquem est le seul de nos abonnés qui ait pensé, e
+M. Terquem est le seul de nos abonnés qui ait pensé,
 quand j'ai dit et publié d'un homme, sous ma signature, qu'il s'était conduit comme un escroc vulgaire, (1)
 que par ce mot je voulais dire que je ne suis pas du
 même avis que cet homme sur le sens des derniers
@@ -2307,19 +2305,19 @@ rales contre M. Paul Beauregard, candidat dans le
 seizième arrondissement ? Pourquoi m'a-t-il tant pressé
 de publier ces personnalités, qui étaient intéressantes,
 et qui ont passé dans le dix-huitième cahier de Ia
-troisième série? Pourquoi m'a-t-il demandé alors de i
+troisième série? Pourquoi m'a-t-il demandé alors de
 mettre au point sa lettre, qui n'était pas même rédigée ?
 comme j'eus la faiblesse de.le faire. M. Paul Beaure- $
 gard ne m'a pas assommé de rectifications. C'est que,
-n'étant pas de mes amis, sans doute il n'éprouve pas le 4
+n'étant pas de mes amis, sans doute il n'éprouve pas le
 besoin de m'accabler. se
 Ou bien M. Terquem prétend-il que l'Œuvre des " À
-Journaux pour tous est moins publique, moins impor- 4
+Journaux pour tous est moins publique, moins impor-
 tante qu'une élection législative ? $
 M. Terquem veut rester bien avec M. Colomb : libre
-à lui; mais je n'accepte pas que cet accommodement 1
+à lui; mais je n'accepte pas que cet accommodement
 soit conclu sur mon dos; les cahiers sont trop misé- %
-rables pour payer les rançons, pour faire les frais de 4
+rables pour payer les rançons, pour faire les frais de
 Quand je reçus la lettre de M. Terquem je lui promis, »
 
 sans la lire, que les cahiers la publieraient le plus tôt
@@ -2329,7 +2327,7 @@ non comme une réponse, mais comme une cCollaboration.
 
 Si j'avais lu sa lettre et s'il avait invoqué le droit de
 réponse, le droit de réponse ne fonctionnait pas pour
-cette lettre; dans le vingt-et-unième cahier de la troi- 6
+cette lettre; dans le vingt-et-unième cahier de la troi-
 sième série je n'ai nullement pris à partie M. Terquem ;
 j'ai publié une circulaire du Livre pour tous, que le
 Livre pour tous m'avait communiquée ; je l'ai publiée
@@ -2370,15 +2368,15 @@ M. Terquem ne veut pas se faire d'ennemis. C'est bon
 lettre ; j'étais si résolu à la publier le plus tôt que je
 pourrais que sans l'avoir lue je l'envoyai aussitôt à la
 : composition; je ne pouvais la publier dans le cahier de
-Crainquebille ; je ne pouvais la publier dans l'Aube fraternelle ; je comptais la publier dans le troisième cahier s
+Crainquebille ; je ne pouvais la publier dans l'Aube fraternelle ; je comptais la publier dans le troisième cahier
 de la quatrième série : au dernier moment je reçus le :
 papier timbré de M. Colomb; comme je suis trop misé- -
 rable pour soutenir un procès devant les différents degrés
 de la justice bourgeoise, il me sembla préférable de
 publier, dans les trois pages qui me restaient, le papier
 de M. Colomb. Le papier de M. Colomb prit la place ;
-du papier de M. Terquem. Cela est également flatteur 1
-pour l'un et pour l'autre. i
+du papier de M. Terquem. Cela est également flatteur
+pour l'un et pour l'autre.
 A peine le cahier était-il tombé que je reçus de
 M. Terquem une lettre de rupture d'une incroyable vio84
 
@@ -2416,20 +2414,20 @@ quatrième cahier de la quatrième série
 F. — S'il y est entré, à quelle date, comment et
 
 G. — De qui tenait-il ses pouvoirs? Qui l'avait élu ou }
-désigné? Faut-il nommé par l'initiateur, ou invité par 4
+désigné? Faut-il nommé par l'initiateur, ou invité par
 Emile Boivin, ou élu par les envoyeurs de journaux, ou -
-élu par les destinataires, ou élu par les envoyeurs et les 4
+élu par les destinataires, ou élu par les envoyeurs et les
 destinataires, ou choisi par camaraderie, ou récompensé
 ainsi des services considérables qu'il rendit à l'œuvre:
 étant donné d'ailleurs que l'on ne peut parler de services $
 que si l'on se place au point de vue bourgeois; avait-il |
-un mandat régulier, juridique ? ÿ
+un mandat régulier, juridique ?
 
 H. — A-t-il assisté, comme il devait, aux séances du {
-comité dont il faisait partie; a-t-il assisté à toutes les 1
+comité dont il faisait partie; a-t-il assisté à toutes les
 séances; à chaque séance du commencement à la fin ? |
 
-I. — S'il n'assistait pas aux séances, pourquoi ? ' 4
+I. — S'il n'assistait pas aux séances, pourquoi ? '
 
 J. — Que furent les séances où il assista; étaient-elles
 sérieuses; y travaillait-on, sérieusement?
@@ -2439,12 +2437,12 @@ que les plaisanteries de M. Colomb consistaient presque À
 toutes aux obscénites les plus grossières?
 
 L.— Combien de membres faisaient partie du comité;
-sur ce nombre combien assistaient régulièrement ou 4
+sur ce nombre combien assistaient régulièrement ou
 habituellement aux séances? Pourquoi n'y avait-il :
 Jamais personne, ou presque personne ? À
 
 M.— M. Terquem connaissait-il le registre où étaient
-consignés les comptes rendus des séances et les délibé- j
+consignés les comptes rendus des séances et les délibé-
 rations ? — J'offre de publier ces comptes rendus dans
 
 les cahiers aux frais de M. Terquem. 1! peut ainsi laver
@@ -2487,18 +2485,18 @@ est-ce ou n'est-ce pas de Boivin, qui l'a prié d'assurer le
 contrôle administratif, et de Bernard Lazare, qui avait
 assumé avant lui ce contrôle; est-ce ou n'est-ce pas sur
 ma recommandation formelle et instante que Bernard À
-Lazare et Boivin se sont adressés à lui? Ÿ
-X. — Depuis ce jour est-il ou n'est-il pas resté en ù
-communication constante avec M. Colomb; a-t-il, en Ë
-conscience, défendu contre les calomnies de M. Colomb q
-l'œuvre dont il avait accepté la charge et la responsa- 3
-bilité; ou au contraire a-t-il surtout pensé à protéger 5
-M. Colomb contre les accusations légitimes qui naiïs- è
+Lazare et Boivin se sont adressés à lui?
+X. — Depuis ce jour est-il ou n'est-il pas resté en
+communication constante avec M. Colomb; a-t-il, en
+conscience, défendu contre les calomnies de M. Colomb
+l'œuvre dont il avait accepté la charge et la responsa-
+bilité; ou au contraire a-t-il surtout pensé à protéger
+M. Colomb contre les accusations légitimes qui naiïs-
 saient de partout: a-t-il rempli fidèlement son mandat; !
-rR'a-t-il pas eu d'autres préoccupations? j
+rR'a-t-il pas eu d'autres préoccupations?
 Y. — Pourtant Boivin et Bernard Lazare lui ont-ils
 ou ne lui ont-ils pas laissé la prérogative d'établir pour
-la nouvelle œuvre les premières listes de volumes; lui 4
+la nouvelle œuvre les premières listes de volumes; lui
 
 ont-ils ou ne lui ont-ils pas laissé la prérogative et |
 n'a-t-il pas accepté la responsabilité d'établir le bulletin
@@ -2508,7 +2506,7 @@ par M. Colomb?
 Z. — M. Terquem a-t-il ou n'a-t-il pas accepté que les à
 fonds de premier établissement et de roulement fussent
 avancés à la nouvelle œuvre sur le budget pourtant si
-misérable des cahiers ; cette avance était-elle ou n'étaitelle pas tout à fait indispensable au fonctionnement, à F
+misérable des cahiers ; cette avance était-elle ou n'étaitelle pas tout à fait indispensable au fonctionnement, à
 la fondation de la nouvelle œuvre; M. Terquem sait-il
 ou ne sait-il pas que cette avance ne nous a pas encore
 été remboursée; qu'elle nous fait faute; que pourtant je
@@ -2534,7 +2532,7 @@ de bon cœur, où il est heureux de trouver les moyens
 quatrième cahier de la quatrième série :
 d'utiliser au maximum une activité indéniable, et que À
 
-- Je n'ai pas cessé de respecter. 4
+- Je n'ai pas cessé de respecter.
 ©. — D'une manière générale puisqu'il parle des services vraiment très considérables qu'il a rendus aux
 cahiers, si l'on se place au point de vue bourgeois et si
 l'on parle de services, M. Terquem pense-t-il que ce
@@ -2582,30 +2580,30 @@ urgence, il peut faire faire une reconnaissance par un |
 officier d'ordonnance ou par un officier de son état- \
 major; il. peut envoyer tout le monde, excepté son
 
-Et puis quelle idée d'aller en reconnaissance, — voir ê
+Et puis quelle idée d'aller en reconnaissance, — voir
 et ne pas être vu, — avec un appendice fabriqué pour
-être vu de partout. F
+être vu de partout.
 
 J'ouvre ce Soleil; il n'est pas moins intelligent que la
-plupart des journauxillustrés ; mais il ne l'est pas plus ; 1
-des vers ; des lignes; le dimanche d'un député d'avant- J
-garde, caricatures hostiles par Mauryce Motet : ce 3
-journal-ci est donc un journal réactionnaire; un article, 1
+plupart des journauxillustrés ; mais il ne l'est pas plus
+des vers ; des lignes; le dimanche d'un député d'avant-
+garde, caricatures hostiles par Mauryce Motet : ce
+journal-ci est donc un journal réactionnaire; un article,
 saint Hubert, par M. Ernest Laut, à la fois sainte ;
-nitouche et qui ne veut pas avoir l'air d'y couper, mais 4
+nitouche et qui ne veut pas avoir l'air d'y couper, mais
 sérieux tout de même et résolument édifiant ; au milieu
-de cet article une grande image d'apparat, au Vatican, d
+de cet article une grande image d'apparat, au Vatican,
 réception par Sa Sainteté Léon XIII d'un pèlerinage à
-des Filles de Marie, conduit par madame la comtesse J
-Mazé de la Roche, d'après un croquis d2 A. Bianchini ; i
+des Filles de Marie, conduit par madame la comtesse
+Mazé de la Roche, d'après un croquis d2 A. Bianchini
 cette image est si évidemment étalée en belle place que ‘4
-ce journal-ci est un journal catholique ; du Lavedan; 3
+ce journal-ci est un journal catholique ; du Lavedan;
 
 puis larticle signé de M. G. Colomb, à travers la
 science, le pendule de Foucault, sur l'expérience du Panthéon ; puisque M. Colomb fait du latin pour amuser le |
-| populo, comment ne sait-il pas que vulgum pecus est g
+| populo, comment ne sait-il pas que vulgum pecus est
 une forme inexistante ; il confond profanum vulgus et
-seroum pecus; quand on est pitre, il faut au moins 5
+seroum pecus; quand on est pitre, il faut au moins
 Savoir son métier; encore une grande image militariste, mais navale, les nouvelles unités de notre
 flotte, trois types de bâtiments de guerre récemment
 lancés, dessin de M. G. Martin, le plus récent de nos
@@ -2625,14 +2623,14 @@ de Bourget, de l'Académie française; des annonces,
 comme partout.
 L'article de M. Colomb est comme tout ce qu'il fait;
 quelques plaisanteries bien venues, mais qui ne sont
-malheureusement pas toutes venues de lui, émaillent . z
+malheureusement pas toutes venues de lui, émaillent
 un amas des vulgarités les plus communes, les plus
 épaisses. Mais je n'ai pas ouvert ce débat pour y exercer de la critique littéraire, en admettant que cela soit
 de la littérature.
 Comment se fait-il que M. Georges Colomb, nouveau
 
-quatrième cahier de la quatrième série 1
-président du nouveau Comité des nouveaux Journaux Ê
+quatrième cahier de la quatrième série
+président du nouveau Comité des nouveaux Journaux
 pour tous, 17, rue Cujas, Paris, soit rédacteur habituel,
 régulier, attitré au Soleil du Dimanche ; ou comment
 se fait-il au contraire que M. Georges Colomb, rédac
@@ -2651,17 +2649,17 @@ quente au Soleil du Dimanche.
 
 On me dit que M. Georges Colomb a collaboré, pour À
 cette année seulement, 1902, à neuf numéros du Soleil ;
-sans compter le numéro que je viens d'analyser, le Ë
-numéro 45 ; j'achèterai ces numéros, et nous les analyserons à leur tour ; pour les années précédentes je n'ai 1
+sans compter le numéro que je viens d'analyser, le
+numéro 45 ; j'achèterai ces numéros, et nous les analyserons à leur tour ; pour les années précédentes je n'ai
 pas les moyens d'acheter la collection complète de la
 collaboration de M. Colomb au Soleil du Dimanche;
 mais les bibliothèques ne sont pas faites pour les chiens,
 et nous continuerons ce travail. ]
 
 Je ne sais pas ce qu'est au juste le Soleil du Dimanche, illustré ; je ne sais pas quelle relation existe entre
-le Soleil du Dimanche et le Soleil de tous les jours, 3
+le Soleil du Dimanche et le Soleil de tous les jours,
 
-< journal réactionnaire, catholique et royaliste, clérical; 4
+< journal réactionnaire, catholique et royaliste, clérical;
 nous le saurons à mesure que nous poursuivrons cette à
 
 $ enquête ; mais déjà Le numéro que nous avons analysé
@@ -2733,7 +2731,7 @@ cité n'est jamais trop large. Nous devons croire qu'il |
 
 Par cette institution d'un statut si large tout le monde
 passait. Tout le monde républicain passait, mais |
-M. Colomb ne passait pas. L'homme qui est devenu le 3
+M. Colomb ne passait pas. L'homme qui est devenu le
 maître tout-puissant des Journaux, si large que fût le
 statut de cette institution, n'y passait pas. L'homme |
 qui est devenu le maître des Journaux ne pouvait pas
@@ -2742,8 +2740,8 @@ nous parvenons à l'étrange, à la singulière constatation ;
 qui sera la conclusion de ce premier entretien.
 
 Par le statut si large de cetteinstitution, une quantité
-innombrable de journalistes passaient, républicains K
-modérés, même républicains conservateurs, tradi- l
+innombrable de journalistes passaient, républicains
+modérés, même républicains conservateurs, tradi-
 
 ; radicaux, républicains de gouvernement, républicains
 
@@ -2836,7 +2834,7 @@ de la foi, je veux dire celles des manifestations de la
 foi qui sont bêtes. Nous respectons les expressions sincères de la foi religieuse ; nous n'en respectons pas les
 k manifestations bêtes. Or ce sont justement ces manifestations bêtes que nous avons trouvées dans le Soleil
 
-quatrième cahier de la quatrième série L
+quatrième cahier de la quatrième série
 du Dimanche. M. Colomb a résolument assumé la À
 charge et la responsabilité de représenter en face de |
 ces manifestations bêtes la science ; il tient la rubrique
@@ -2861,7 +2859,7 @@ tient lieu de foi, une science de calembours niais, de
 plaisanteries tournées. Quand un curé de campagne a lu
 son Colomb dans le Soleil du Dimanche, il doit se dire :
 Tout de même, ils ne sont pas malins, ces savants ; et
-ce n'est pas encore eux qui démoliront Notre-Très-Saint- l
+ce n'est pas encore eux qui démoliront Notre-Très-Saint-
 Père-le-Pape, Sa Sainteté Léon XIII, comme le nomment
 les collaborateurs de M. Colomb. ;
 
@@ -2919,7 +2917,7 @@ du Soleil où M. Colomb a collaboré cette année. Je
 supplie qu'on les achète. On ne s'ennuiera pas. Il ya |
 un pape en couleurs près de qui le sous-lieutenant
 
-4 Nous avons reçu trois désabonnements parce que
+Nous avons reçu trois désabonnements parce que
 4 … M. Simiand m'a flétri. Comme par hasard, deux de ces
 
 a à … désabonnements appartiennent à la Société Nouvelle de
@@ -2929,12 +2927,12 @@ a à … désabonnements appartiennent à la Société Nouvelle de
 4 -_ veaux Journaux pour tous ont trouvé momentanément :
 __ un asyle. Le troisième est formellement motivé sur la
 % . condamnation que j'ai subie de M. Simiand.
-4 M. Abel Rey, professeur agrégé de philosophie au
+M. Abel Rey, professeur agrégé de philosophie au
 
 ; lycée de Beauvais, nous écrit qu'il se désabonne parce
 
 Ke: qu'il trouve injustifiées et déplacées mes attaques à
-S contre les Journaux. Ce professeur de philosophie me 5
+S contre les Journaux. Ce professeur de philosophie me
 ne paraît peu ferré sur les méthodes. Pour savoir si mes
 n- attaques étaient des attaques, ou si au contraire elles
 
@@ -2971,8 +2969,8 @@ M. Casimir Perier. Pauvre socialiste nationalement et
 régionalement organisé de formulaire et de phrase vide.
 
 Mon ancien camarade, mon ancien ami M. Georges
-Weulersse, aujourd'hui professeur agrégé d'histoire au L
-lycée d'Orléans, m'écrit. Naturellement je ne publie î
+Weulersse, aujourd'hui professeur agrégé d'histoire au
+lycée d'Orléans, m'écrit. Naturellement je ne publie
 que les passages publics : :
 
 Je me désabonne aujourd'hui pour deux raisons. Ta cri- à
@@ -2982,12 +2980,12 @@ sixième de ce qu'il faudrait dire pour sauver le socia- |
 lisme en danger de corruption. :
 
 Ta critique impitoyable et imprudente contre ceux qui |
-d'une manière ou d'une autre travaillent pour une cause ï
-qui est la nôtre m'avait inquiété. ; 1
+d'une manière ou d'une autre travaillent pour une cause
+qui est la nôtre m'avait inquiété.
 
-D'une manière ou d'une autre : tout le débat est là, à Ë
+D'une manière ou d'une autre : tout le débat est là, à
 mon camarade. Ou ces mots n'ont aucun sens, ou ils .
-signifient : d'un moyen, par un moyen ou par un autre, Ë
+signifient : d'un moyen, par un moyen ou par un autre,
 quel que soit le moyen, par n'importe quel moyen. Ou a
 ces mots n'ont aucun sens, ou ils signifient que la fin ;
 
@@ -3020,7 +3018,6 @@ grave conflit s'est élevé entre M. Simiand et moi. Un
 ; un cri d'alarme qui n'a pas été mal entendu, j'ignorais
 | totalement qu'il y eût derrière M. Colomb toute une
 à machination de M. Simiand et de la Société Nouvelle,
-| 105
 
 quatrième cahier de la quatrième série |
 Je ne m'en suis aperçu qu'en recevant par derrière |
@@ -3048,11 +3045,11 @@ ce que je répondrais, et se former ainsi une opinion
 raisonnée. C'est le temps qu'il prend pour se désa- |
 bonner. Il a entendu ma condamnation préalable et
 sans preuve. Il coupe aussitôt la communication, de |
-peur d'écouter la défense que je présenterai. k
+peur d'écouter la défense que je présenterai.
 Ce paragraphe de Weulersse est triplement précieux.
 Quand je dis qu'il y a des hommes qui suivent aveuglément Simiand comme un chef militaire, j'ai des amis
 qui d'un air entendu me répondent : Mais non, cela a
-n'est pas possible; cela n'est pas de notre temps, nide 2
+n'est pas possible; cela n'est pas de notre temps, nide
 
 _ notre milieu. J'en avais depuis longtemps les preuves.
 à Pourquoi je ne les publiais pas, je le dirai dans un in-
@@ -3119,7 +3116,7 @@ j'ai dit à un seul abonné de m'acheter pas une édition de
 la Société Nouvelle, que cet abonné vienne, et parle; |
 puisqu'on m'a condamné publiquement, nous sommes |
 entrés dans la période des témoignages; même jai |
-vendu et fait acheter ces Opinions Sociales, dont l'an- i
+vendu et fait acheter ces Opinions Sociales, dont l'an-
 técédence fut acquise par des procédés si particuliers.
 Non seulement je me suis tu, mais tout récemment, dans
 une importante négociation commerciale et statutaire,
@@ -3146,7 +3143,7 @@ dt (1) Notre scrupuleux correcteur, M. Mahlmann, exige que je mette
 à: ici que, s'il y a des fautes grossières dans les lettres que nous .
 % citons ou que nous publions, c'est qu'elles étaient dans la copie.
 
-quatrième cahier de la quatrième série M
+quatrième cahier de la quatrième série
 Pourquoi M. Simiand n'envoyait des billets doux le À |
 1 juillet 1902 et pourquoi il me flétrissait le 10 octobre
 suivant, c'est ce que je dirai quand je présenterai ma D |
@@ -3171,13 +3168,13 @@ traire les amis communs ont demandé à Simiand les |
 mêmes engagements qu'ils me demandaient, Simiand
 a-t-il pris ou n'a-t-il pas pris ces engagements; s'il ne
 les a pas pris, pourquoi ne me rendait-on pas ma
-liberté, pourquoi au moins ne m'avertissait-on pas; si 0
+liberté, pourquoi au moins ne m'avertissait-on pas; si
 enfin Simiand a pris les engagements que j'ai tenus, a-t- mn |
-il ou n'a-t-il pas tenu ces engagements; le boycottage î
+il ou n'a-t-il pas tenu ces engagements; le boycottage
 n'a-t-il pas continué comme devant; un seul de ceux
 qui ne s'étaient pas abonnés, par entente, s'est-il abonné à
 depuis ; un seul de ceux qui s'étaient désabonnés, par +
-entente, s'est-il réabonné depuis; uu seul des calomnia- D
+entente, s'est-il réabonné depuis; uu seul des calomnia-
 
 ré teurs s'est-il reposé de calomnier; la Société Nouvelle /
 S a-t-elle cessé un seul instant d'être l'asile des calomnia-
@@ -3202,7 +3199,7 @@ qu'après. Je n'oublie pas que mon premier devoir est
 jamais qu'en supplément. C'est tout ce qu'elles valent.
 Fr Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-4 20
+4
 
 Un certain nombre de nos abonnés nous ont demandé < Rs
 
@@ -3230,6 +3227,6 @@ a l'Histoire de l'idée de temps; TER |
 ES le samedi à trois heures trois quarts il expliquere re : |
 second livre de la Physique d'Aristote. a |
 
-1 20
+1
 
 AP Cahiers de la quinzaine . |

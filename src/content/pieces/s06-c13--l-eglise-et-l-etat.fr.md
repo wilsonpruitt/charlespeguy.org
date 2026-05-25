@@ -15,7 +15,7 @@ paraissant vingt fois par an
 
 Nous avons publié dans nos éditions antérieures et Le
 dans nos cinq premières séries, 1900-1904, un Si
-grand nombre de cahiers de lettres, — nouvelles, É
+grand nombre de cahiers de lettres, — nouvelles,
 romans, drames, dialogues, poèmes et contes : — un si
 grand nombre de cahiers d'histoire et de philosophie ;
 un si grand nombre de cahiers d'action ; et ces cahiers
@@ -28,11 +28,11 @@ cahiers, il suffit d'envoyer un mandat de cinq francs à ;
 M. André Bourgeois, administrateur des cahiers, 8, rue
 de la Sorbonne, rez-de-chaussée, Paris, cinquième - +
 arrondissement; on recevra en retour le catalogue
-analytique sommaire, 1900-1904, de nos cinq pre- l
+analytique sommaire, 1900-1904, de nos cinq pre-
 
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
-une idée, abrégée, mais complète, de nos éditions anté- 1
+une idée, abrégée, mais complète, de nos éditions anté-
 rieures et de nos cinq premières séries ; tout y est classé
 dans l'ordre ; il suffit de le lire pour trouver, à leur
 
@@ -48,7 +48,7 @@ reçoit, par le fait méme de son abonnement, en tête de
 la série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
 
-4 Nous avons eu par les soins de Léon Deshairs une
+Nous avons eu par les soins de Léon Deshairs une
 Me ‘ photographie de Tolstoi et Gorki se Promerteile ss :
 . semble à lasnaia Poliana; cette photographie a été prise
 17 _ par une des filles de Tolstoi; elle a été commun qu ée à
@@ -99,7 +99,7 @@ J'emportai l''opuscule à Pétersbourg. Je le montrai à
 des amis qui le recopièrent et bientôt même il était
 lithographié par des étudiants de l'Université.
 
-Comme L. N. Tolstoï ne destinait pas cet article à j
+Comme L. N. Tolstoï ne destinait pas cet article à
 l'impression, nous, ses amis, longtemps nous nous
 sommes fait scrupule de le publier; nous nous le permettons maintenant que nous faisons paraître ses
 œuvres complètes. Jusqu'aujourd'hui cet article n'a été
@@ -143,7 +143,7 @@ En effet, au point de vue général, il est incompréhensible mais il est prouv�
 que toute religion n'est que tromperie et superstition,
 et c'est ce que tâche de démontrer la philosophie qui
 domine aujourd'hui. En me plaçant au point de vue
-général, je suis arrivé à la conclusion définitive que i
+général, je suis arrivé à la conclusion définitive que
 toutes les croyances sont des tromperies humaines ;
 toutefois, ce fait, que malgré la sottise et l'évidence
 de la tromperie, toute l'humanité s'y soumet, me
@@ -218,7 +218,7 @@ religion qui nous est connue, nécessaire et chère.
 Dans le christianisme toute la tromperie est basée
 sur la conception fantaisiste de l'Église, conception
 qui ne repose sur rien et qui frappe, au début de
-l'étude du christianisme, par son insanité inattendue ÿ
+l'étude du christianisme, par son insanité inattendue
 et inutile.
 
 Parmi toutes les conceptions et paroles athées,
@@ -243,7 +243,7 @@ sulterai de toutes les manières. Cette conception
 
 est un sophise nécessaire pour certain but dialectique et elle reste le bien de ceux à qui elle est né-
 cessaire. Dans le peuple, et non seulement dans le
-peuple maïs dans la société, dans les milieux instruits, bien qu'on l'apprenne dans le catéchisme, ÿ
+peuple maïs dans la société, dans les milieux instruits, bien qu'on l'apprenne dans le catéchisme,
 cette conception n'existe nulle part. Quelque hon-
 
 ‘ teux qu'il soit de discuter sérieusement cette défini-
@@ -437,7 +437,7 @@ sans se gêner, vivre en païen, comme avant. D'un
 | côté, Christ, fils de Dieu, ne venait que pour le °
 | racheter et racheter tous. C'est pourquoi Christ est
 mort; c'est pourquoi Constantin peut vivre comme
-25 2
+25
 
 il veut. Ce n'est pas tout : on peut se repentir et
 avec un peu de pain et de vin, ce sera le salut et
@@ -556,7 +556,7 @@ l'esclavage et amour de la paix. Malgré tous les
 efforts des maîtres de l'Église, ces deux côtés de la
 doctrine ne se mêlèrent jamais et, comme l'huile
 dans l'eau, furent toujours séparés en gouttes
-grandes et petites. d
+grandes et petites.
 
 La différence de ces deux côtés de la doctrine est
 claire pour chacun, et chacun peut voir le résultat
@@ -619,7 +619,7 @@ cela, la hiérarchie, bien qu'elle n'ose le nier, n'ose
 aussi le donner comme doctrine, car cette doctrine
 la renierait elle-même.
 
-7 0
+7
 les événements actuels en Russie
 les événements actuels en RUSSIE : RÈR
 
@@ -704,15 +704,15 @@ au contraire, plus les hommes d'une certaine société
 
 seront inférieurs, au point de vue religieux etmoral, * \
 plus le gouvernement sera puissant et plus le mal - |
-qu'il commettra sera grand. R
+qu'il commettra sera grand.
 
 De sorte qüûe le mal causé aux hommes par les. :
-agissements du gouvernement est toujours propor- 4
+agissements du gouvernement est toujours propor-
 tionnel à l'état religieux et moral de la société
 quelle que soit sa forme.
 
 Cependant, certaines gens, devant tout le mal
-commis présentement par le gouvernement russe, — É
+commis présentement par le gouvernement russe,
 gouvernement particulièrement cruel, grossier, stupide et mensonger, — pensent que tout ce mal ne se |
 produirait pas si le gouvernement russe était orga- .
 nisé comme il devrait l'être, sur le modèle des autres :
@@ -758,8 +758,8 @@ pareil et aussi violent.
 Je trouve cette activité irrégulière, parce que les
 hommes, qui actuellement, en Russie, luttent contre
 le gouvernement, — les membres libéraux des
-Zemstvos. les médecins. les avocats, les écrivains, Ë
-les étudiants, les révolutionnaires et quelques mil- É
+Zemstvos. les médecins. les avocats, les écrivains,
+les étudiants, les révolutionnaires et quelques mil-
 liers d'ouvriers détachés du peuple et influencés par
 la propagande, — bien qu'ils se croient et s'intitulent
 les représentants du peuple, n'ont aucun droitàce.  !
@@ -768,7 +768,7 @@ gouvernement la liberté: liberté de la presse,
 liberté de conscience, liberté de réunion, la sépara- |
 tion des Églises et de l'État, la journée de travail de
 huit heures, la représentation nationale, etc. Et “
-demandez au peuple, aux cent millions de paysans, k
+demandez au peuple, aux cent millions de paysans,
 ce qu'ils pensent de ces réclamations, et le vrai À |
 peuple, les paysans, aura beaucoup de peine pour ;
 répondre, parce que toutes ces réclamations, même .
@@ -897,27 +897,27 @@ hommes légers, émus particulièrement par la boucherie fratricide commise réc
 
 bourg, et par tous les événements qui accompagnè-
 rent ce crime, pensent que la cause principale de {
-ces événements est dans le despotisme du gouverne- L
-ment russe, et que si la forme autocratique du gou- j.
+ces événements est dans le despotisme du gouverne-
+ment russe, et que si la forme autocratique du gou-
 vernement russe était remplacée par la forme con- à
-stitutionnelle ou républicaine, de pareils événements L
-ne pourraient se répéter. L,
+stitutionnelle ou républicaine, de pareils événements
+ne pourraient se répéter.
 Mais le mal principal, (si l'on en pénètre attenti- À
-vement toute l'importance), dont souffre mainte- l
+vement toute l'importance), dont souffre mainte-
 nant le peuple russe, n'est pas dans les événements À
-de Saint-Pétersbourg : c'est dans la guerre honteuse Ÿ
-et cruelle, commencée à la légère, par une dizaine l
+de Saint-Pétersbourg : c'est dans la guerre honteuse
+et cruelle, commencée à la légère, par une dizaine
 d'hommes immoraux. Cette guerre a déjà tué et 1 |
 muiilé des centaines de mille Russes et menace À
-d'en tuer et d'en mutiler encore autant; elle a ruiné 4
+d'en tuer et d'en mutiler encore autant; elle a ruiné
 non seulement les hommes de cette génération, À
 mais ceux de la génération future qu'elle accable {
-.. d'impôts énormes, sous la forme de dette, et elle ù
-perd les âmes des hommes qu'elle déprave. Ge qui i
+.. d'impôts énormes, sous la forme de dette, et elle
+perd les âmes des hommes qu'elle déprave. Ge qui
 s'est passé à Saint-Pétershbourg le 9 janvier, n'est
 rien en comparaison de ce qui se fait là-bas. Là-bas, À
-à la guerre, on tue et mutile cent fois plus d'hommes g
-qu'il n'en a péri le 9 janvier, à Saint-Pétersbourg. Ë
+à la guerre, on tue et mutile cent fois plus d'hommes
+qu'il n'en a péri le 9 janvier, à Saint-Pétersbourg.
 Et la perte de ces hommes, là-bas, non seulement
 ne révolte pas la société, comme les massacres
 
@@ -958,8 +958,8 @@ nements que ceux qui se produisent maintenant ;,
 en Russie, — la guerre et la répression des ré- |
 
 De sorte que l'importance des événements qui se ‘4
-passent à Saint-Pétersbourg n'est pas du tout ce 3
-que pensent les hommes légers, à savoir qu'ils nous f
+passent à Saint-Pétersbourg n'est pas du tout ce
+que pensent les hommes légers, à savoir qu'ils nous
 ont montré la malfaisance particulière du gouver- %
 nement despotique russe et que, par conséquent, il
 faut tâcher de le remplacer par un gouvernement
@@ -998,7 +998,7 @@ comprendre de quoi il s'agit; et le voici : chaque
 gouvernement soutenu par la force, est, par essence
 même, un grand fléau inutile, et c'est pourquoi le
 devoir des Russes, et de tous les hommes asservis -
-par les gouvernements, est non de remplacer une l
+par les gouvernements, est non de remplacer une
 forme de gouvernement par une autre, mais de ;
 supprimer tout gouvernement.
 
@@ -1046,28 +1046,28 @@ général, mais qui exige de nous une seule chose : le
 perfectionnement moral, c'est-à-dire notre affranchissement de toutes les faiblesses, de tous les vices
 
 qui font de nous les esclaves des gouvernements et À
-les complices de leurs crimes. ï
+les complices de leurs crimes.
 
 J'avais terminé cet article et me demandais s'il :
 
-fallait le publier ou non, quand je reçus une remar- 4
+fallait le publier ou non, quand je reçus une remar-
 
 \ Depuis déjà plusieurs jours, je ne puis me ressaisir.
 Quand queiqu'un commence à me parler des ouvriers fl
 massacrés, je ressens pour lui de la haïne et j'éprouve |
-une sorte de mal physique. 4
+une sorte de mal physique.
 
-Il y avait des monceaux de cadavres, des femmes et il » LEP . 1
+Il y avait des monceaux de cadavres, des femmes et il » LEP
 des enfants ensanglantés, emmenés dans des voitures. #
 Mais est-ce là ce qui est horrible? Non, ce sont les sol- F:)
 4 dats avec leurs visages bonasses, ordinaires, sans pen- |
 sées, sans compréhension, qui sont horribles ! Les soldats à
 qui battent la semelle, sur la neige, et attendent l'ordre :
 de fusiller quelqu'un. C'est le public aussi, avec son “|
-aspect ordinaire, curieux, qui est horrible. Même les i
+aspect ordinaire, curieux, qui est horrible. Même les
 plus braves gens viennent là pour apprendre des autres fi
 ou voir eux-mêmes des choses épouvantables, les ca- !
-davres ensanglantés, mutilés, etc... Comme si l'on ù
+davres ensanglantés, mutilés, etc... Comme si l'on
 pouvait voir quelque chose de plus effroyable que ces
 soldats qui sont comme toujours et ces braves gens qui
 ne veulent qu'une chose, des frissons d'horreur.
@@ -1092,7 +1092,7 @@ hommes et l'on ne sent pas combien c'est horrible, et
 quand cela est partout autour de soi, comme ces joursci, momentanément tout le reste cesse d'exister et il n'y
 a plus que les capotes grises, les paletots noirs, les
 pelisses élégantes et tous sont occupés d'une seule chose
-mais chacun de façon différente ; personne ne s'étonne, 1
+mais chacun de façon différente ; personne ne s'étonne,
 personne, parmi eux, ne sait pourquoi les uns tirent,
 pourquoi les autres tombent, pourquoi les autres regardent. En d'autres temps, il y a la même vie terrible
 et incompréhensible, où il est dans l'ordre des choses
@@ -1112,7 +1112,7 @@ ce n'est pas la situation des ouvriers qui est terrible, ce
 
 | n'est pas eux qui ont besoin d'aide, mais ceux qui attirent les gens et les piétinent, et ceux qui, le lendemain,
 regardent les vitres brisées, les réverbères renversés, {
-les traces des balles, et, sans voir le sang glacé sur le 1
+les traces des balles, et, sans voir le sang glacé sur le
 Oui, le principal c'est que quelque chose désunit :
 les hommes, qu'il n'y a pas de lien entre eux. L'important est donc d'écarter ce qui désunit les hommes |
 et de le remplacer par ce qui les unit. C'est toute

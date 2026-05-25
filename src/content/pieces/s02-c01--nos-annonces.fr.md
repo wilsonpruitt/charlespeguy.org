@@ -232,7 +232,7 @@ la Faculté des Lettres de l'Université de Paris.
 
 Histoire. — MM. Gasrrez Moxo », de l'Institut; maître de
 conférences à l'École normale supérieure, HexRri HAUSER,
-professeur à la Faculté des Lettres de l'Université de Clezmont, et Émice BourG£ois, maître de conférences à l'École x
+professeur à la Faculté des Lettres de l'Université de Clezmont, et Émice BourG£ois, maître de conférences à l'École
 
 Pédagogie.— M. CuarLes Ricugr, professeur à la Faculté
 de Médecine de l'Université de Paris.
@@ -250,15 +250,15 @@ pourtant séparés et même contraires. — If. Le contrat de salaire. ,
 elle doit maintenir la séparation des intérêts de l'ouvrier et de ceux
 du patron. Échec de la participation aux bénéfices. — V. Le vrai
 moyen d'améliorer le taux des salaires : le syndicat. Le marché
-collectif du travail. — VI. A quelles conditions l'action des syndi- g
+collectif du travail. — VI. A quelles conditions l'action des syndi-
 cats est efficace. — VII. Relations des syndiqués avec les patrons,
 avec les non-syndiqués et avec les consommateurs.
 N. B. — Ces études seront strictement conduites d'après la méthode
 La maladie eonsidérée au point de vue social. — Affaiblissement
 de la race et de l'individu. — Lutte sociale contre les maladies
 évitables. — Histoire des associations animales au point de vue de
-la résistance aux maladies. k
-M. GrorGes Dumas, professeur de philosophie au collège j
+la résistance aux maladies.
+M. GrorGes Dumas, professeur de philosophie au collège
 Rollin, chef du laboratoire de psychologie de la Faculté
 de médecine de Paris.
 A. Plan général du positivisme. — Partie scientifique et partie
@@ -363,7 +363,7 @@ et Bibliothèques
 
 La succession ab intestat et les testamentaires. — Vues et senti-
 
-ments qui, dans l'ancienne France, décrétèrent les dispositions les F?
+ments qui, dans l'ancienne France, décrétèrent les dispositions les
 
 plus communes de la coutume et de la loi. Critique de ces dispositions. — Dispositions actuelles de la législation. Critique de ces dispositions. — Quelles doivent être, en matière de succession, les
 idées du législateur ? — Réformes à proposer pour mettre la loi sur
@@ -422,7 +422,7 @@ l'année.
 
 3. — Histoire de la Presse sous le règne de Louis-Philippe
 
-Situation de la presse au moment de la révolution de juillet. — 1
+Situation de la presse au moment de la révolution de juillet.
 Modifications apportées par la Charte. — Les lois de septembre
 leurs conséquences. — Le journal à bon marché; le roman-feuilleton.
 — La presse politique sous les ministères Thiers et Guizot. — La
@@ -444,7 +444,7 @@ de conférences à la Faculté des Lettres de l'Université de
 
 1. — La Presse russe. —M. AxDrÉé TripoN, attaché à l'agence
 
-1. Caractères généraux et législation de la presse russe. — 2 et 3.
+1. Caractères généraux et législation de la presse russe. — 2 et
 
 2. — La Pres$e américaine. — M. Louis Vraouroux, député.
 Leçon d'ouverture : Interview du professeur John French
@@ -810,7 +810,7 @@ l'Entendement comportent le rapport de contradic- ?
 tion proprement dite et d'exclusion mutuelle.
 Deux vrais savants, en tant que savants, se tolèrent
 donc nécessairement l'un l'autre. Ce n'est pas assez
-dire ; et l'on ne saurait douter qu'une science com- è
+dire ; et l'on ne saurait douter qu'une science com-
 mune, aussi complète et objective que possible, ne
 soit pour les esprits un principe de rapprochement
 singulièrement puissant. Largement instruits, et
@@ -949,7 +949,7 @@ mêmes, ou du moins dans lesquels le nom du conférencier
 indique tout de suite quel sera le caractère du cours. Il
 s'agit de cette question toujours présente : la luite de la loi
 morale contre les conditions extérieures, qui quelquefois
-la sollicitent, quelquefois, au contraire, l'entravent dans k
+la sollicitent, quelquefois, au contraire, l'entravent dans
 son développement, — contre la coutume dans les cours de
 l M. Marillier, — contre la tradition dans ceux de M. Guieysse;
 — et cette même lutte contre les devoirs professionnels du
@@ -966,13 +966,13 @@ compétence ordinaire, car je crois pouvoir dire qu'il a
 Vous trouvez aussi dans ce même programme un cours
 de M. Xavier Léon sur la vie de Fichte; pourquoi ce philosophe plutôt qu'un autre? Parce qu'ici nous ne nous préoc-
 cupons pas seulement d'éclairer les esprits, mais encore de
-former des volontés. Et il nous a semblé que la vie d'un j
-philosophe qui a été à la fois un homme et un citoyen, qui, 8
+former des volontés. Et il nous a semblé que la vie d'un
+philosophe qui a été à la fois un homme et un citoyen, qui,
 patrie était une vie dont l'exemple méritait d'être porté
-devant vous. j
+devant vous.
 J'aurai à entrer dans un peu plus de détails à propos du
 sujet que vous voyez inscrit sous le titre l'éducation morale
-dans les lycées. Ce mouvement est commencé depuis long- f
+dans les lycées. Ce mouvement est commencé depuis long-
 temps; d'abord par l'enseignement secondaire de l''Université, ensuite par le programme des établissements rivaux.
 L'enseignement secondaire ne s'est pas jusqu'ici préoccupé
 de l'éducation morale de ses élèves; je dis dans les programmes, Car vous savez que si elle n'a pas prêché par
@@ -1012,7 +1012,7 @@ nombre de professeurs de l'enseignement secondaire, émus
 de cette situation, préoccupés de l'avenir des jeunes géné-
 
 école des hautes études sociales
-rations dont ils avaient la garde, se soient posé la question suivante : Remplissons-nous notre devoir vis-à-vis de s
+rations dont ils avaient la garde, se soient posé la question suivante : Remplissons-nous notre devoir vis-à-vis de
 ces enfants ?
 
 Cette question posée par ces universitaires devait aboutir
@@ -1324,12 +1324,12 @@ nécessités de la vie, n'a plus tout à fait les qualités de l'enfance, avec l
 müûr et aiguisé, il est parfois préoccupé de problèmes
 autres que ceux qui tourmentent les élèves ordinaires ou le
 professeur; les esprits sont en même temps des esprits plus
-simplistes, plus intuitifs, moins habitués à la dialectique, 2
+simplistes, plus intuitifs, moins habitués à la dialectique,
 mais plutôt habitués à voir les choses plus en gros, ce qui
 n'empêche pas de les voir quelquefois juste. Et en échange
 de ces quelques défauts que ces auditeurs doivent à ce que
 leur éducation intellectuelle a peut-être été un peu négligée,
-ils apportent des qualités précieuses qui en font des audi- J
+ils apportent des qualités précieuses qui en font des audi-
 teurs de premier ordre pour le professeur qui sait les com-
 prendre et les aimer.
 
@@ -1450,7 +1450,7 @@ son expérience déjà longue et de toutes ses connaissances.
 
 La partie de l'éducation professionnelle comprend des
 noms sur lesquels je n'insiste pas, parce qu'ils sont
-trop connus, M. Cornély en tête, M. Jean Bernard, qui dans f
+trop connus, M. Cornély en tête, M. Jean Bernard, qui dans
 le programme de son cours, très intéressant, montrera
 comment on doit faire de la grande actualité, du reportage
 et de l'interview ; il donnera là-dessus aux journalistes des
@@ -1479,13 +1479,13 @@ des professeurs français en Angleterre, en Allemagne ou en
 pays, introduire, par conséquent, une connaissance géné-
 
 école des hautes études sociales
-rale plus approfondie des hommes et des choses. Voilà un ÿ
+rale plus approfondie des hommes et des choses. Voilà un
 buttrès noble, très louable, auquel nous nous associons.
-Nous avons aussi l'appui de la Bibliothèque des sciences e
+Nous avons aussi l'appui de la Bibliothèque des sciences
 sociales ; de sorte que notre action à l'extérieur est déjà un
 En somme, il n'est pas nécessaire de commencer grandement pour aboutir à de grandes conséquences; il suflit
 d'avoir du courage; il suflit aussi — et c'est peut-être le
-secret de ma présence ici — de songer que ce qu'on veut pro- ÿ
+secret de ma présence ici — de songer que ce qu'on veut pro-
 duire, c'est une fermentation. {Rires et applaudissements).
 Que faut-il pour une fermentation? C'est ici que ma compétence me reprend, et il est un peu tard. Pour une fermentation, il faut deux choses : une bonne semence et un
 bon milieu de culture. De la semence, je viens de vous en
@@ -1495,7 +1495,7 @@ mission qu'ils doivent remplir avec une bonne volonté, une
 bonne humeur, une cordialité qui nous touchent et dont je
 vous prie de les remercier avec moi.
 
-Quant au bon terrain de culture, mesdames et messieurs, F,
+Quant au bon terrain de culture, mesdames et messieurs,
 nous sommes convaincus que nous aurons toute satisfaction. C'est par vous que les bonnes doctrines peuvent se
 répandre, c'est par vous que la liberté d'appréciation peut
 se répandre, car, comme vous le disait tout à l'heure notre £.
@@ -1568,7 +1568,7 @@ exacte que l'entretien le plus bref.
 
 Nos collections de la première série sont à peu près
 épuisées. Il ne nous en reste guère que huit ou dix
-exemplaires complets. Nous les vendons au prix d'un x
+exemplaires complets. Nous les vendons au prix d'un
 abonnement. Nous ne les vendons qu'à nos nouveaux
 abonnés. Nous prions ceux de nos anciens abonnés
 qui n'ont pas tous les cahiers de la première série de
@@ -1579,10 +1579,10 @@ mière » de Jérôme et Jean Tharaud fut publiée dans les
 seplième, huitième et neuvième cahiers de la première
 série. Nous en avons fait pendant les vacances un très
 beau tirage à part en un volume. Ce tirage à part n'est
-pas mis dans le commerce. Nous le tenons à la dispo- Ë
+pas mis dans le commerce. Nous le tenons à la dispo-
 sition de nos abonnés pour un franc. : .
 
-Nous tenons gratuitement à la disposition de nos abon- î
+Nous tenons gratuitement à la disposition de nos abon-
 nés la « Jeanne d'Arc » de Marcel et Pierre Baudouin.
 Ajouter un franc pour les frais d'envoi. Nous devons
 Jaire cet envoi à plusieurs de nos anciens abonnés. Nous

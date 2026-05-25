@@ -7,28 +7,28 @@ author: ferdinand-lot
 isAvertissement: false
 wordCount: 37318
 ---
-.._ Que des mains, que des mains légères............ 39
+.._ Que des mains, que des mains légères............
 
 L'ÉSE _J'ai cueilli cette branche de saule fleurie. ......... 40 FER
 
-| Etvoici ce que je me suis souvent dit................. 49
+| Etvoici ce que je me suis souvent dit.................
 
 Rens |" Arrivée la campagne... OR
 ne Dans vos longues robes flottantes..........:...... 55 Fe.
 _  Tenez-vous par la main, jillettes, et marchez...…… 77% SR
 nos Ce doigt posé entre mes deux épaules............. 87 #6 À
-_ Ma barque, lentement descend le filde l'eau... 88 0
+_ Ma barque, lentement descend le filde l'eau...
 
 __ huitième cahier de la sept ème série
 Nos cahiers sont édités prsseeseeses seen MO
-Carces PÉeuy. — Cahiers de la quinzaine ... 9
+Carces PÉeuy. — Cahiers de la quinzaine ...
 Éditions sur whatman, et particulièrement abonne- MAS à
 Romain Rolland. — La Montespan, — drame en " me.
 Septième cahier, cahier de Noël de la septième De.
 Nous avons donné le bon à tirer après corrections …
 pour deux mille exemplaires de ce huitième cahier
 et pour vingt-et-un exemplaires sur whatman le mardi
-| - Ce cahier a été composé et tiré au tarif des ouvriers syndiqués : 7
+| - Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 QUE Suresnes. — Imprimerie ERNEST PAYEN, 13, rue Pierre-Dupont. — 665 46)
 
 il est impossible de suivre honnêtement le mouvement littéraire, le mouvement d'art, le mouvement
@@ -37,7 +37,7 @@ de la Quinzaine.
 
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 
-il suffit d'envoyer un mandat de trois francs cinquante k
+il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
 
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
@@ -59,11 +59,11 @@ Bourgeois, même adresse, le prix de l'abonnement ; on
 recevra les cahiers parus et de quinzaine en quinzaine, à
 leur date, les cahiers à paraître de cette septième série.
 
-Voir à l'intérieur en fin de ce cahier les conditions et ù
+Voir à l'intérieur en fin de ce cahier les conditions et
 le prix de l'abonnement.
 _ Nous mettons le présent cahier dans le commerce;
-huitième cahier de la septième série; un cahier blanc L
-de XXXVI + 116 pages; in-18 grand jésus; nous le s
+huitième cahier de la septième série; un cahier blanc
+de XXXVI + 116 pages; in-18 grand jésus; nous le
 
 de la situation faite
 à l'enseignement supérieur
@@ -89,8 +89,8 @@ autant qu'il se pouvait, une image en bref, un raccourci,
 une idée, abrégée, mais complète, de nos éditions anté- nn
 rieures et de nos cinq premières séries ; tout y est classé St
 dans l'ordre ; il suffit de le lire pour trouver, à leur ‘14
-place, les références demandées. Ps 1
-$ Ce catalogue, in-18 grand jésus, forme un cahier M
+place, les références demandées. Ps
+$ Ce catalogue, in-18 grand jésus, forme un cahier
 1 très épais de XII+-Z08 pages très denses, marqué cinq. Par a:
 
 FRE francs ; ce cahier comptait comme premier cahier de la
@@ -123,81 +123,81 @@ _ de ce cahier index.
 
 dans l'enseignement supérieur Me
 
-L Extrait de ce premier petit index alphabétique : : 4e
+L Extrait de ce premier petit index alphabétique :
 É Cahier d'annonces, — un cahier en voie d'épuisement, ps
 D Aulard, — Histoire politique de la Révolution fran- HS
 tas çaise, — extrait de l'avertissement, — un cahier en EA
 à Joseph Bédier, — sur l'œuvre de Gaston Paris......... #1
-Henri Bergson, — introduction à la métaphysique, — He É
+Henri Bergson, — introduction à la métaphysique, — He
 Émile Boutroux, président du Conseil de direction, — LT se
-4 discours lu pour l'inauguration des locaux et pour Ds « 4
+4 discours lu pour l'inauguration des locaux et pour Ds «
 louverture des cours à l'École des Hautes Études RACE A
 ‘ Sociales, — un cahier en voie d'épuisement.......... FR
 ê Collège libre des Sciences sociales, — une annonce, un EE
 * Daniel Delafarge, — M. Brunetière historien, — un ca- ; 11 ta
 Fr Pour et contre Diderot, — confrontation, — un cahier . ÿ: 2 Y
 ÿ épuisé, n'est plus mis en vente que dans les collec
-tions complètes de la deuxième série ................ 99
+tions complètes de la deuxième série ................
 
 : Éniile Duclaux, directeur de l'école, — allocution pro- *
 F noncée pour l'inauguration des locaux et pour l'ou- [
 F. - verture des cours à l'École des Hautes Études So- |
-ciales, — un cahier en voie d'épuisement............ l
+ciales, — un cahier en voie d'épuisement............
 % Édouard Dujardin, — la question budgétaire, — dans Eu:
 148 le cahier les Universités Populaires, 1900-1901, — I. — it
-Ë he _ Paul Dupuy, — la vie d'Évariste Galois ... deux francs 269
+Ë he _ Paul Dupuy, — la vie d'Évariste Galois ... deux francs
 D Et _ École des Hautes Études Sociales, — école de morale, #
 A _ école sociale, école de journalisme, 1900-1901, — un À
 SR École socialiste, — une annonce, — un cahier en voie fi
 “0 Mémoires et dossiers pour les libertés du personnel TA
 #0 enseignant en France, — un cahier en voie d'épuise- FQ
 
-D —  — épuisé, n'est plus mis en vente que dans n
-ny les collections complètes de la troisième série ....... 113 É:
-DR: : Anatole France, — Pour et contre le socialisme; la 5
-He: liberté par l'étude ; histoire contemporaine, Clopinel, j
-‘0 après Clopinel, spectacle consolant, — un cahier en 2
-4 _ _ Prolétariat et science, — un cahier en f
-val —  — l'Unité de l'Art, — un cahier en voie e
-_  — — Diderot, ami dupeuple,un cahier épuisé, 14
-_ m'est plus mis en vente que dans les collections 5e
+D —  — épuisé, n'est plus mis en vente que dans
+ny les collections complètes de la troisième série .......
+DR: : Anatole France, — Pour et contre le socialisme; la
+He: liberté par l'étude ; histoire contemporaine, Clopinel,
+‘0 après Clopinel, spectacle consolant, — un cahier en
+4 _ _ Prolétariat et science, — un cahier en
+val —  — l'Unité de l'Art, — un cahier en voie
+_  — — Diderot, ami dupeuple,un cahier épuisé,
+_ m'est plus mis en vente que dans les collections
 , dat ÉoMPietA de. la deuxième série... "at ur one fs
 
-| neuvième cahier  : de la septième série “A R
+| neuvième cahier  : de la septième série “A
 : Anatole France, — Cahiers de la Quinzaine; la liberté ? ne 15 he pe
 par l'étude; histoire contemporaine : la loi estmorte, JR: me
-mais le juge est vivant; vol domestique; les juges OO … 14
+mais le juge est vivant; vol domestique; les juges OO …
 T8 intègres ; pensées de Riquet; discours pour la liberté Re
-NU —  — L'affaire Crainquebille, — édition com- mir 4
+NU —  — L'affaire Crainquebille, — édition com- mir
 F2 plète, — un cahier retiré du commerce, n'est mis en ÈS #3
-ds vente que dans les collections complètes de la qua- #70 1e
+ds vente que dans les collections complètes de la qua- #70
 fe — — Discours prononcé à l'inauguration du EEASS
 L. Charles Guieysse. — /ntellectuels et socialisme, — con- ; k'
 Le tribution, — un cahier en voie d'épuisement ........ (ER
-‘æ — — les Universités Populaires et le mouve- 1
+‘æ — — les Universités Populaires et le mouve-
 ®: — — édition du cahier Les Universités Popu- Ov.
 : — — annonce, préface au cahier les Univer- Ta +
 Daniel Halévy, — Michelet et Quinet; — et dans le ne
 même cahier présentation des quelques textes...... Ki Re
 — — Louis Ménard, une étude préliminaire à
 la réimpression de Louis Ménard, Prologue d'une re
-4 Affaire Hervé, — mémoires et dossiers pour les libertés :447 0
+Affaire Hervé, — mémoires et dossiers pour les libertés
 à du personnel enseignant en France, attentats dans En :
 
 ; —  — un cahier épuisé, n'est plus mis en gE ji
 
 : vente que dans les collections complètes de la troi- Ro
 
-L Gustave Hervé, — Le droit des fonctionnaires .......... 4
+L Gustave Hervé, — Le droit des fonctionnaires ..........
 
 _ Paul Lafargue (en citation, et non point à titre de colla- di:
-pe borateur), — Le Socialisme et les intellectuels, — con- 4
-_ férence, — un cahier en voie d'épuisement.......... 1
-Hubert Lagardelle, — les Intellectuels devant le socia- *E
+pe borateur), — Le Socialisme et les intellectuels, — con-
+_ férence, — un cahier en voie d'épuisement..........
+Hubert Lagardelle, — les Intellectuels devant le socia-
 4 lisme; l'amnistie et les socialistes, —un cahier en voie ç a
 
-_ Adolphe Landry, — annonce d'un article, la supersti- 14
-__ Antonin Lavergne, — Jean Coste ou l'instituteur de 1
+_ Adolphe Landry, — annonce d'un article, la supersti-
+__ Antonin Lavergne, — Jean Coste ou l'instituteur de
 108 village, — un cahier épuisé, n'est plus mis en vente RD:
 à que dans les collections complètes de la deuxième À à
 que - — — Jean Coste, édition Ollendorff............ LA
@@ -208,31 +208,31 @@ que - — — Jean Coste, édition Ollendorff............ LA
 
 n_ un cahier en voie d'épuisement.......... huit franes 36 da:
 
-k \ _ René Litalien, — professeur au lycée de Brest, — la ÿ
+k \ _ René Litalien, — professeur au lycée de Brest, — la
 
-; _! crise religieuse de Renan, une étude.... deux francs 275 3 4
+; _! crise religieuse de Renan, une étude.... deux francs
 _ Paul Mantoux, — /ntellectuels et socialisme, — une à
-1 ü contribution, — un cahier en voie d'épuisement..... 4
+1 ü contribution, — un cahier en voie d'épuisement.....
 
 neuvième cahier é A la septième série +
 __ Henry Michel, — Edgar Quinet........... deux francs 2 9 #4 ne!
 TA Gaston Paris, — avec un portrait de Gaston Paris ; — 4 #
 nT Gaston Paris, Jaufré Rudel, une étymologie...
-Jean Perrin, — annonce d'un article Le principe d'équi- 24
+Jean Perrin, — annonce d'un article Le principe d'équi-
 Ÿ valence et la notion d'énergie, annonce du livre Les 3 TP
 nt Bibliothèque du Congrès international de Philosophie, RU :
 + Bulletin de la Société française de Philosophie, — , ia }
-D Edgar Quinet, — avec un portrait au crayon par Flora 4
-ie Géraldy ; quelques textes, choisis et présentés par : 110
+D Edgar Quinet, — avec un portrait au crayon par Flora
+ie Géraldy ; quelques textes, choisis et présentés par
 , Pour les étudiants russes, — un cahier en voie d'épui- #4
 Gabriel Séailles, — introduction au cahier les Univer- Be:
-sités Populaires, 1900-1901, I. — Paris et banlieue ..…… LE 4
+sités Populaires, 1900-1901, I. — Paris et banlieue ..…… LE
 Le Socialisme et les intellectuels, une conférence du #1
 citoyen Lafargue, — un cahier en voie d'épuisement. a #
-> —  — documents, — un cahier épuisé, n'est *100
+> —  — documents, — un cahier épuisé, n'est
 x plus mis en vente que dans les collections complètes FC
-ë de la première série, quand il y ena..............., 920
-Jules Tannery, sous-directeur de l'École normale supé- : pe e
+ë de la première série, quand il y ena...............,
+Jules Tannery, sous-directeur de l'École normale supé- : pe
 YA rieure, — un avertissement à La vie d'Épariste Galois (0
 
 6e So ciété des Universités Populaires, — annonce... 1)" NME
@@ -243,22 +243,22 @@ Albert Valès, — une bibliographie pour le cahier ÈS
 
 % Extrait de cette première table analytique très som- A
 Deuxième cahier de la sixième série, un cahier jaune de
-| XXXVI + 152 pages, in-18 grand jésus, bon à tirer du mardi $ 10
+| XXXVI + 152 pages, in-18 grand jésus, bon à tirer du mardi $
 ALexIS BERTRAND. — L'égalité devant l'instruction, he
-— crise de l'enseignement ; 11e
+— crise de l'enseignement
 La gratuité dans l'enseignement secondaire; l''Enseigne- Nment intégral et les Humanités scientifiques; l'organisation ‘à
 rationnelle des Universités populaires; annexes, où inclus De, LE
 un tableau de la correspondance partielle entre l'enseignement des Lycées et celui des Écoles primaires supérieures ; L Et
 
 Quatrième cahier de la sixième série, un cahier jaunede LE
-LII + 180 pages, in-18 grand jésus, bon à tirer du mardi M
+LII + 180 pages, in-18 grand jésus, bon à tirer du mardi
 RaouL ALLIER. — L'enseignement primaire des ind
 gènes à Madagascar; une erreur; vieillerie condamnée ; nu
 KL alarme inutile; une originale tentative; changement de
 front ; l'art des statistiques ; enfants à la rue; contre l'élite; ‘1
 % l'initiative interdite; l'arbitraire; paradoxe d'illégalité; ni Le
 leçons de français ; pour la langue malgache; fagots et
-; fagots:; pour les écoles laïques; éthiopianisme ; annexes : je 10
+; fagots:; pour les écoles laïques; éthiopianisme ; annexes : je
 ce qu'il faut aux malgaches; écoliers malgaches ; arrêté ‘#22 |
 organisant le service de l'enseignement des indigènes à
 
@@ -274,24 +274,24 @@ f visite officielle; pensions et gargotes ; Saint-Antoine; élec
 "Sae tions ; comment on ne se marie pas; affaire Piriou ; troi- pu,
 |__  sième partie ; au collège; nouvelles et dernières scènes d'in- LME
 4 hi térieur ; secondaire et primaire; veillée ; épilogue. ï &
-M Dix-septième et dernier cahier de la sixième série, un 51e
+M Dix-septième et dernier cahier de la sixième série, un
 “18 cahier jaune de XIL+ 136 pages, in-18 grand jésus, bon à FRE
-HR Pauz Dessarpns. — Catholicisme et critique. — Ré- br »  flexions d'un profane sur l'affaire Loisy. : 21
+HR Pauz Dessarpns. — Catholicisme et critique. — Ré- br »  flexions d'un profane sur l'affaire Loisy.
 
 de Par les soins de notre nouveau collaborateur M. Fer- | À
 _  dinand Lot, directeur-adjoint à l'École pratique des t48t
 M _ Hautes Études, ce cahier viendra aux mains d'un certain à ns
-_ nombre de personnes qui appartiennent à l'enseigne- e.
+_ nombre de personnes qui appartiennent à l'enseigne-
 _ ment supérieur; il viendra notamment aux mains du
-‘3 certain nombre de bibliothécaires. D:
-6 Sans vouloir entrer ici dans un commencement de 14
-de définition de ce que c'est que l'enseignement supérieur, 3
+‘3 certain nombre de bibliothécaires.
+Sans vouloir entrer ici dans un commencement de
+de définition de ce que c'est que l'enseignement supérieur,
 _ je me permets d'attirer l'attention de toutes ces per- de: ;
- sonnes sur ce que ces cahiers fonctionnent de plus en 4
+ sonnes sur ce que ces cahiers fonctionnent de plus en
 . plus comme une revue, comme un périodique, comme “4
 #4 une collection, comme un organe d'enseignement supé- 1]
 1% rieur. Je veux dire notamment par là que les questions te a :
-24 y sont traitées en elles-mêmes et pour elles-mêmes, 6
+24 y sont traitées en elles-mêmes et pour elles-mêmes,
 _ sans aucun souci de vulgarisation. à
 _ Particulièrement aux bibliothécaires je demanderai EM
 ne: qu'ils fassent abonner à ces cahiers les bibliothèques JA
@@ -302,29 +302,29 @@ nn. _ considérer une bibliothèque publique et même privée Wie
 Fe Comme instrument de science, au seul sens que nous
 puissions donner à ce mot, nos cahiers forment déjà et 4 KE
 4 formeront de jour en jour davantage, portant sur un
-; nombre tous les jours plus grand de questions impor- s:
+; nombre tous les jours plus grand de questions impor-
 1 tantes, un ensemble de textes et de commentaires, de
 Ë à documents et de renseignements, de textes formant pi
-| dossiers, véritablement unique, en ce double sens que T2
-la plupart de ces études et que la plupart de ces ren- b
-! seignements n'existent point ailleurs, et que, lorsqu'il : 0
+| dossiers, véritablement unique, en ce double sens que
+la plupart de ces études et que la plupart de ces ren-
+! seignements n'existent point ailleurs, et que, lorsqu'il
 ; s'agit de références, elles sont elles-mêmes rassemblées Ee
 h et viennent d'originaux eux-mêmes rares et rapidement A
-introuvables ou inaccessibles. 4
-j Comme instrument de culture et comme organe d'en- L
-seignement et de renseignement, nos cahiers publient 4
-_ régulièrement des études qui n'ont jamais cessé d'être L:
-sérieuses, des œuvres qui n'ont jamais cessé d'être 73
+introuvables ou inaccessibles.
+j Comme instrument de culture et comme organe d'en-
+seignement et de renseignement, nos cahiers publient
+_ régulièrement des études qui n'ont jamais cessé d'être
+sérieuses, des œuvres qui n'ont jamais cessé d'être
 Une bibliothèque publique ou privée qui est abonné
 aux cahiers reçoit automatiquement, constituant une #3
 série annuelle, et recommençant pour chaque série 211 ra
-annuelle, par chaque année scolaire successivement 54
+annuelle, par chaque année scolaire successivement
 | vingt de ces cahiers, aussi régulièrement qu'elle reçoit FX
 les périodiques, exactement dans la forme où elle reçoit he
 les périodiques. No:
 Une bibliothèque publique ou privée qui est abonnée 4 A
 k aux cahiers depuis un certain temps constitue automa- Ni Li
-f tiquement ainsi une collection; le maniement de cette ; 54
+f tiquement ainsi une collection; le maniement de cette
 collection déjà considérable est facilité par la publicæ
 tion régulière de catalogues et d'index; nous publions #4
 ÿ régulièrement tous les cinq ans un catalogue analytique à
@@ -346,8 +346,8 @@ série; toute personne qui jusqu'au 31 décembre 1905
 s'abonnaït rétrospectivement à la sixième série le
 recevait, par le fait même de son abonnement, en tête
 de la série; nous l'envoyons contre un mandat de
-cinq francs à toute personne qui nous en fait la L
-1 Pour le recevoir, il suffit donc d'envoyer un mandat
+cinq francs à toute personne qui nous en fait la
+Pour le recevoir, il suffit donc d'envoyer un mandat
 3 de cinq francs à M. André Bourgeois, administrateur
 1 des cahiers, 8, rue de la Sorbonne, rez-de-chaussée,
 de, Paris, cinquième arrondissement. D'une manière géné-
@@ -369,11 +369,11 @@ PAL série nous pouvons dire qu'elle est en voie d'épuise
 on ‘ la deuxième série cent francs l'une, ce qui est le ne ++ #
 hi fixe d'épuisement. Nos autres séries s'épuiseront suœ
 M cessivement aussi.” +26
-L Sy Charles Péguy, gérant F0
+L Sy Charles Péguy, gérant
 
 Fu en vente à la librairie des cahiers Fi
 
-4 Les Derniers Carolingiens : Lothaire, Louis V, Charles
+Les Derniers Carolingiens : Lothaire, Louis V, Charles
 
 7e de Lorraine, (954-991). Paris, Bouillon, 1891, un volume #
 
@@ -381,9 +381,9 @@ _ Études sur le règne de Hugues Capet et la fin du dixième
 
 ; siècle. Paris, Bouillon, 1903, un volume grand in-octavo,
 
-Fidèles ou vassaux ? Essai sur la nature juridique du lien He”. j
+Fidèles ou vassaux ? Essai sur la nature juridique du lien He”.
 
-qui unissait les grands vassaux à la royauté depuis le “90 2
+qui unissait les grands vassaux à la royauté depuis le “90
 milieu du neuvième siècle jusqu'à la fin du douzième siècle.
 Paris, Bouillon, 1904, un volume in-octavo, xxxiv+928
 
@@ -398,16 +398,16 @@ ee en vente à la librairie des cahiers Un: je
 | La Faculté de Philosophie en Allemagne et les Facultés
 | dés Lettres et des Sciences en France, — recherches
 (Extrait de la Revue internationale de l'Enseignement); De:
-Les publications périodiques des Universités françaises 5
+Les publications périodiques des Universités françaises
 ; de province. Paris, 1898, in-octavo /même recueil, volume à
-Ç Le budget de l'enseignement supérieur en Franceeten 3 É
-Allemagne. Paris, 1898, in-octavo, 16 pages. (Extrait de M
+Ç Le budget de l'enseignement supérieur en Franceeten
+Allemagne. Paris, 1898, in-octavo, 16 pages. (Extrait de
 la Revue Politique et Parlementaire) ; : Kôi
 Essai d'une statistique des étudiants des Universités ! À
-françaises. Paris, 1897, in-octavo, 41 pages. (Extrait du 4
+françaises. Paris, 1897, in-octavo, 41 pages. (Extrait du
 même recueil) ; 4 - 1°
 Les Facultés universitaires et la classification des
-paru très abrégé dans la Revue Internationale de l'Ensei- 14
+paru très abrégé dans la Revue Internationale de l'Ensei-
 
 Le lecteur qui voudra bien parcourir ce cahier
 - s'étonnera certainement que les lacunes graves et nombreuses que nous signalons n'aient été aperçues ni par
@@ -415,7 +415,7 @@ Le lecteur qui voudra bien parcourir ce cahier
 | tion de l'Enseignement Supérieur, ni par les Univer-
 _  sités elles-mêmes. Il était bien difficile en réalité qu'elles
 le fussent. Le ministre, homme politique avant tout, ne
-peut imprimer à son département qu'une direction É
+peut imprimer à son département qu'une direction
 . générale. Il n'a pas la compétence nécessaire pour
 + s'enquérir en personne des mille besoins d'une admi-
 | nistration très compliquée. Ces besoins, c'est à gs subor-
@@ -435,25 +435,25 @@ listes et ceux-ci ne s'intéressent à rien en dehors de £
 . Dira-t-on que, du moins, les spécialistes devraient
 signaler les lacunes dans leur propre domaine. Isle
 font parfois, et la Revue internationale de l'Enseigne- |
-ment renferme de bons mémoires en ce sens. Mais ils le 4
+ment renferme de bons mémoires en ce sens. Mais ils le
 he font trop rarement. Il faudrait se donner la peine de
-voyager, de compulser les documents étrangers, de les F
+voyager, de compulser les documents étrangers, de les
 comparer avec ce qui existe en France. Tout cela prend !
 du temps, c'est fastidieux. Et puis, à quoi bon? — Le
-sentiment général est que le Gouvernement et le Parle- 3
-‘ment ne veulent rien faire. 1
-- Il suffit de causer avec n'importe quel professeur de É
+sentiment général est que le Gouvernement et le Parle-
+‘ment ne veulent rien faire.
+- Il suffit de causer avec n'importe quel professeur de
 nimporte quelle université de province pour voir \
 Jusqu'à quelle profondeur le dégoût et le découragement à
-ont pénétré notre personnel d'enseignement supérieur. ü
-On ne s'en doute point dans les milieux gouverne- ï
+ont pénétré notre personnel d'enseignement supérieur.
+On ne s'en doute point dans les milieux gouverne-
 mentaux parce qu'on ne voit guère que le personnel À
-parisien qui ayant de l'argent et des élèves est à peu ÿ
-# près satisfait de la situation. Mais la province est plongée 1
-dans le marasme. Elle sait qu'on ne l'écoute jamais 1
+parisien qui ayant de l'argent et des élèves est à peu
+# près satisfait de la situation. Mais la province est plongée
+dans le marasme. Elle sait qu'on ne l'écoute jamais
 et c'est à peine si de loin en loin elle ose élever la voix. |
-Il faut pourtant échapper à ce lâche découragement 1
-et signaler ces besoins aux pouvoirs publics. Jusqu'ici 4
+Il faut pourtant échapper à ce lâche découragement
+et signaler ces besoins aux pouvoirs publics. Jusqu'ici
 
 _ ils ont une excuse: ils ne savent pas. Désormais ils NE
 _ sauront, et s'ils refusent de venir en aide à nos univer-
@@ -461,16 +461,16 @@ _ sauront, et s'ils refusent de venir en aide à nos univer-
 de notre infériorité scientifique. ! ‘1
 Ces études, qui paraissent aujourd'hui, étaient ache- TASSE
 _ vées depuis un an. Les sommes consacrées par l'État ri Mt:
-_ à l'Enseignement Supérieur n'ayant point été accrues, 11e
+_ à l'Enseignement Supérieur n'ayant point été accrues,
 _ Les conclusions n'ont pas à subir de modifications ha:
 
 On a profité de cet ajournement pour ajouter une Lt ke
-Fa annexe sur le Budget du Matériel en France et en 13e
+Fa annexe sur le Budget du Matériel en France et en
 Un dernier mot. — Une bonne part de ce cahier, la (EURE
-plus utile sans doute, est faite de chiffres. L'intérêt * Ÿ
-7 principal de cette étude est, je crois, de montrer que la ÿ 118
+plus utile sans doute, est faite de chiffres. L'intérêt
+7 principal de cette étude est, je crois, de montrer que la
 | méthode de la statistique comparée permet de révéler Di:
-Ke dans une institution des tares dont on n'aurait sans ce 10
+Ke dans une institution des tares dont on n'aurait sans ce
 | secours qu'une perception confuse. LEURS
 
 à Les revenus des Universités et
@@ -478,9 +478,9 @@ Ke dans une institution des tares dont on n'aurait sans ce 10
 Re en Allemagne et en France bee
 ere Revenus ordinaires des Universités allemandes “102
 
-| Sur ce total tout n'est pas à la charge de l'État. Les L
-droits d'inscriptions, de laboratoires, etc., représentent È
-un peu plus de cinq millions et demi de marks pour les È
+| Sur ce total tout n'est pas à la charge de l'État. Les
+droits d'inscriptions, de laboratoires, etc., représentent
+un peu plus de cinq millions et demi de marks pour les
 D'autre part, quelques Universités ont une fortune À
 # personnelle. Ce sont les vieilles Universités qui ont été %
 dotées jadis, à la Réforme, avec les biens des couvents A
@@ -490,50 +490,50 @@ Cela n'empêche pas l'État prussien de donner à Gôttingen un supplément de 6
 d'ajouter 2.008.248 par an à la fortune colossale de :
 Mais ces Universités sont loin d'être les plus nom- #
 breuses. Celles qui sont récentes n'ont presque aucune
-fortune personnelle. La plus pauvre est Berlin avec b
-12.000 marks de rente! Cet exemple devrait donner à 4
-réfléchir à ceux qui s'imaginent chez nous queles dona- 1
+fortune personnelle. La plus pauvre est Berlin avec
+12.000 marks de rente! Cet exemple devrait donner à
+réfléchir à ceux qui s'imaginent chez nous queles dona-
 tions aideront à vivre nos Universités. Paris ne sera |
-| certainement pas beaucoup mieux partagé que Berlin. 4
+| certainement pas beaucoup mieux partagé que Berlin.
 Il faut se mettre dans la tête qu'en Europe on ne donne
-(2) Imaginez ce que recevrait chez nous, de lEtat, Lyon, par 4
-- exemple, si cette Université possédait un million et demi de rente. x
+(2) Imaginez ce que recevrait chez nous, de lEtat, Lyon, par
+- exemple, si cette Université possédait un million et demi de rente.
 Pas un sou, la chose est évidente. {
 
 pas de somme considérable à des pays qui ont trois à HR
-sept milliards de revenus. Les Universités modernes . k
+sept milliards de revenus. Les Universités modernes
 n'y peuvent vivre que par l'État. $
 Déduction faite de ces deux sources de revenus, les \
-21 Universités allemandes touchent annuellement des on
+Universités allemandes touchent annuellement des on
 différents Etats du « Bund » : fi
-1 Mettons en regard ce que dépense l'État français, non :
+Mettons en regard ce que dépense l'État français, non :
 à seulement pour ses 15 Universités, mais pour tout l'En4 seignement Supérieur : Le dernier Compte définitif du FN
 L Budget du Ministère de l'Instruction publique qui ait #
 "4 paru comporte les chiffres suivants : %
-ne Chapitre 10. Universités et Observatoires universitaires. TE 4
+ne Chapitre 10. Universités et Observatoires universitaires. TE
 ‘si — 11. Universités et Observatoires
 ‘4 (1) 400.000 marks donnés par l'Empire, 610.000 par la province "R
 nr (2) Dont 3.650.125 francs pour l'Université de Paris. Ainsi, notre à
-50 grande Université est, dès l'heure actuelle, serrée de près non seuD lement par Berlin (3.406.000 marks), mais par Leipzig (3.369.000 Ÿ
+50 grande Université est, dès l'heure actuelle, serrée de près non seuD lement par Berlin (3.406.000 marks), mais par Leipzig (3.369.000
 marks). Enfin, Halle et Gôttingen réunis ont presque autant de #Y
 ._ revenus que Paris. En Amérique Harward et New-Yorkontchacune ++
 ‘1 7 à 8 millions de rente.
 
 — 13. Facultés dont les dépenses don- ;
-nent lieu à des comptes avec 1:
+nent lieu à des comptes avec
 — 19. Ecole des Langues Orientales. à
-— 20. École des Langues Orientales. 4
+— 20. École des Langues Orientales.
 — 21. École des Chartes. Personnel... 60.482 » ?
 Le total de ce que consacre vraiment l'État en France %
-à l'Enseignement supérieur atteint donc 16 millions 4
+à l'Enseignement supérieur atteint donc 16 millions
 L'Etat Français distribue donc 10 millions de
-moins que les États Allemands à son enseignement J
+moins que les États Allemands à son enseignement
 supérieur, privé déjà des 5 millions et demi de revenus! £
-(1) Nous omettons les chapitres 25 à 26 (Ecoles d'Athènes et de 3
-Rome) car les dotations des Institutions similaires de l'Allemagne k
-n'ont pas été comprises dans les chiffres rapportés plus haut. 1
-(2) Pour la même raison les chapitres 29 à 46 ne sont pas mentionnés ici. 4
-G) Idem pour les chapitres 49 et suivants. Si l'on voulait les com- 2
+(1) Nous omettons les chapitres 25 à 26 (Ecoles d'Athènes et de
+Rome) car les dotations des Institutions similaires de l'Allemagne
+n'ont pas été comprises dans les chiffres rapportés plus haut.
+(2) Pour la même raison les chapitres 29 à 46 ne sont pas mentionnés ici.
+G) Idem pour les chapitres 49 et suivants. Si l'on voulait les com-
 prendre il faudrait augmenter aussi les totaux allemands. Les dota- #
 tions des chapitres similaires allemands étant d'ailleurs plus élevées £
 la proportion entre les deux pays resterait donc la même.
@@ -570,15 +570,15 @@ Ces deux catégories de ressources ajoutées au budget
 Pre dans de simples Écoles, et non dans des Facultés, est
 to à la charge des Municipalités et des Départements.
 k Faisons état de ces subventions et aussi des rétribufie tions payées par les élèves. Le Compte définitif nous
-48 faisant naturellement défaut ici et la Statistique décen- ë
+48 faisant naturellement défaut ici et la Statistique décen-
 Fa nale de l'Enseignement Supérieur ne dépassant pas
 13 ( l'année 1898, j'aurai recours à la Minerva, Lehrbuch der
 : gelehrten Welt, chez K. Trübner à Strasbourg, année
-de "Marseille ie ELLES : 53
-| Ce qui, joint au total précédent, donne 21 millions 4
+de "Marseille ie ELLES
+| Ce qui, joint au total précédent, donne 21 millions
 Ainsi, les divers établissements d'enseignement supé- ?
 rieur Français ont, tout compris, en chiffres ronds à
-| (1) Les villes qui ont l'astérisque sont sièges d'universités.  ? >, 10
+| (1) Les villes qui ont l'astérisque sont sièges d'universités.  ? >,
 (2) Au compte de l'Etat depuis le 31 mars 1903. À
 
 21 millions de revenus. Les Universités allemandes
@@ -587,7 +587,7 @@ De ce dernier chiffre il faut déduire les 7 Facultés de
 théologie catholique et les 17 Facultés de théologie |
 « évangélique ». Je n'ai pas sous la main de chiffres À
 précis au sujet de ce qu'elles coûtent à l'ensemble ,
-de l'Allemagne. Mais pour la Prusse, qui compte Ÿ
+de l'Allemagne. Mais pour la Prusse, qui compte
 9 facultés évangéliques et 3 catholiques, soit environ la
 moitié du total, je trouve 542.400 marks, soit 677.000
 francs (2) pour le traitement des professeurs. En évaluant pour tout l'Empire l'ensemble des traitements à
@@ -596,50 +596,50 @@ C'est donc 1 million et demi à déduire du total allemand pour le comparer util
 35 millions et demi. we
 La déduction de notre côté des 107.050 francs que n°
 coûte le personnel des 2 Facultés protestantes de Paris
-| (62.900) et Montauban (45.150) ne change pas l'écart de ï
+| (62.900) et Montauban (45.150) ne change pas l'écart de
 \ façon très appréciable. ; %
 S 21 millions d'un côté, 35 millions et demi de l'autre, ;
 ÿ l'écart est considérable. (3)
 | (2) Voyez Preussischer Staatshaushaltsetat, 1903, Anlageband,
-f (3) 1 doit être, en réalité, beaucoup plus grand encore, car, pour la D
-} France, j'ai fait flèche de tout bois; pour l'Allemagne, je me suis f
+f (3) 1 doit être, en réalité, beaucoup plus grand encore, car, pour la
+} France, j'ai fait flèche de tout bois; pour l'Allemagne, je me suis
 ; préoccupé uniquement des Universités qui concentrent, il est vrai, à
 | presque tout l'enseignement supérieur allemand. Néanmoins, il Par
 178 reste des lacunes du côté allemand. #
 au Ainsi j'ai omis les cours supérieurs de Francfort, Cologne, y
 ; Hambourg, etc. Or les budgets de ces établissements ne sont pas \
-| insignifiants. A Francfort 1° l'Akademie für Sozial-und-Handelswis- w
+| insignifiants. A Francfort 1° l'Akademie für Sozial-und-Handelswis-
 À senschaften avait, en 1903, un budget annuel de 165.000 marks; ie
 
-Ne nous étonnons plus de la langueur dont sont L
-frappées chez nous presque toutes les branches de 4
+Ne nous étonnons plus de la langueur dont sont
+frappées chez nous presque toutes les branches de
 la Science. Parcourez un de ces Annuaires ou Jahrbücher où sont catalogués des travaux, livres et articles .
 parus dans un domaine spécial pendant l'année écoulée. ST
-Tout le monde est frappé de la rareté des noms fran- 1
+Tout le monde est frappé de la rareté des noms fran-
 En Psychologie expérimentale vous n'en trouverez pas
-un sur dix. É
-En Philologie classique un sur vingt ou sur cin- 4
-En Philologie orientale un sur cent (je n'exagère pas). 4
-Dans beaucoup de branches de l'histoire naturelle, 4
+un sur dix.
+En Philologie classique un sur vingt ou sur cin-
+En Philologie orientale un sur cent (je n'exagère pas).
+Dans beaucoup de branches de l'histoire naturelle,
 la proportion des noms français est très faible. Pour
 la Chimie également.
 En Histoire même, on surprendrait bien des gens in- -°
 struits en leur disant que pour l'Histoire moderne ou con- ‘4
-. . . 4
+. .
 temporaine, la proportion de ce que publie l'Allemagne
 est au moins le triple de ce que donne la France. Pour ]
-l'Histoire ancienne (gréco-romaine et orientalisme) toute N
+l'Histoire ancienne (gréco-romaine et orientalisme) toute
 comparaison devient impossible. Pour un livre ou un
 article français qui paraît, vous en trouverez cinquante
 | en allemand (je ne parle, bien entendu, que de travaux
-2 l'Institut für experimentelle Therapie, 54.750 marks. A Cologne, le D.
-Zoologischer Garten a 300.000 marks par an. À Hambourg, lObser- 4
+2 l'Institut für experimentelle Therapie, 54.750 marks. A Cologne, le
+Zoologischer Garten a 300.000 marks par an. À Hambourg, lObser-
 vatoire dispose de 350.000 marks, l'Institut Municipal de Chimie,
 de 65.000; l'institut de Physique, de 50.000; l'Institut de Botanique, ;
 de 127.000; le Museum d'Histoire Naturelle, de 124.000, etc., etc. J'ai ;
 laissé de côté le Lyceum Hosianum, les lycées (théologiques) de +
-Bavière. Enfin, depuis que ce travail a été rédigé, une nouvelle È
-4 Université a été fondée à Posen. En réalité, à l'heure qu'il est, le L
+Bavière. Enfin, depuis que ce travail a été rédigé, une nouvelle
+Université a été fondée à Posen. En réalité, à l'heure qu'il est, le
 budget de l'enseignement supérieur en Allemagne dépasse large- :
 ment 40 millions de francs. ]
 
@@ -670,19 +670,19 @@ Caire) que 10.973,727 francs sur un total de 21 millions :
 \ C'est-à-dire que Paris absorbe à lui seul la moitié du
 : revenu total de l'Enseignement Supérieur français, état
 4 (1) Voyez Ministère de l'Instruction publique. Compte définitif des
-13 6
+13
 
 de choses véritablement monstrueux et dont aucun autre
-pays n'offre l'équivalent. (, 3 2
+pays n'offre l'équivalent. (,
 
 Déduction faite de Berlin, les vingt Universités de À
 l'Allemagne possèdent un revenu annuel de 32 millions À
 
-Retranchons 1 million et demi pour les Facultés 4
-de théologie, il n'en demeurera pas moins établi que, 3
+Retranchons 1 million et demi pour les Facultés
+de théologie, il n'en demeurera pas moins établi que,
 en dehors de la capitale, l'Allémagne scientifique pos-
 
-_ sède des revenus presque triples de ceux (11 millions) 4
+_ sède des revenus presque triples de ceux (11 millions)
 de la province française. ‘
 
 Il serait peut-être bon de songer à une décentralisa- Ltion scientifique chez nous. .
@@ -690,30 +690,30 @@ Il serait peut-être bon de songer à une décentralisa- Ltion scientifique chez
 Les chiffres qu'on vient de lire pour l'Allemagne ne à
 concernent que les dépenses ordinaires. À
 
-Les dépenses extraordinaires pour le personnel, le 4
+Les dépenses extraordinaires pour le personnel, le
 
 _ matériel et les bâtiments, faites par l'État Prussien pour
 
-à Les dépenses des autres États (Bavière, Saxe, J
+à Les dépenses des autres États (Bavière, Saxe,
 Bade, etc.), pour les onze autres Universités de l'Empire, ‘4
 atteignent un chiffre sensiblement égal. Soit en chiffres
 ronds un total de 160 à 170 millions de francs de cré.
-dits extraordinaires pour l'ensemble de l'Empire accordés aux Universités de 1878 à 1903. (1) 4
+dits extraordinaires pour l'ensemble de l'Empire accordés aux Universités de 1878 à 1903. (1)
 
-| Eh bien! la situation est beaucoup plus mauvaise d
+| Eh bien! la situation est beaucoup plus mauvaise
 encore pour la France que ne le feraient croire les chiffres à
 précédents. C'est qu'en effet noë Facultés des Sciences \
 font fonction d'Ecoles techniques. En dehors de l'École SE ;
-Centrale, des Mines, des Ponts et Chaussées, des ù
-Beaux-Arts, à Paris, — de l'Institut technique-du Nord, ÿ
+Centrale, des Mines, des Ponts et Chaussées, des
+Beaux-Arts, à Paris, — de l'Institut technique-du Nord,
 | œuvre privée à Lille, la France ne possède rien (1) ji
-\ qu'elle puisse mettre en regard des neuf Technische J
+\ qu'elle puisse mettre en regard des neuf Technische
 | Hochschulen de l'Allemagne, peuplées de 16.000 étudiants
 À: dirigés par 1.200 (sic) professeurs jouissant de plusieurs
 À _ millions de revenus. Qu'est-ce que notre École Centrale HEC,
 j: avec ses 700 élèves, comparée à la Technische Hochschule |
 de Berlin avec ses 390 (sic) professeurs et ses 4.500
-À étudiants! La nôtre n'est même pas aussi peuplée que S
+À étudiants! La nôtre n'est même pas aussi peuplée que
 _  telie institution similaire de la province allemande. al
 À Les neuf Technische Hochschulen de l'Allemagne fa
 * possédaient en 1903 comme revenus ordinaires : Fe
@@ -721,32 +721,32 @@ M G) L'École polytechnique est une école militaire d'artillerie qui #
 fournit chaque année 20 à 30 étudiants pour les services civils. Elle a
 Nil | ne saurait entrer en ligne de compte. 1% » 15 #
 
-ou (en chiffres ronds) Francs / 7.800.000 » 4
+ou (en chiffres ronds) Francs / 7.800.000 »
 | Deux autres sont en construetion à Danzig et Breslau. ‘À
-Les frais prévus pour la première sont de 5.695.200 marks. É:
+Les frais prévus pour la première sont de 5.695.200 marks.
 L'effort de l'État français a consisté, en province à
-créer, depuis quinze ans, une douzaine de chaires ou 118
-conférences de chimie agricole, industrielle, de physique È
+créer, depuis quinze ans, une douzaine de chaires ou
+conférences de chimie agricole, industrielle, de physique
 appliquée, auprès des Facultés des Sciences de Nancy, À
 | Lyon, Lille, Marseille, Bordeaux, Grenoble. Encore les :
 frais nécessités par ces créations ont-ils été supportés à
 en majeure partie par les Villes, les Universités, les
-Qu'est-ce que cet effort, — si minime, — en comparai- 3
+Qu'est-ce que cet effort, — si minime, — en comparai-
 son des créations gigantesques de nos voisins ? ;
-On peut se féliciter que ce procédé ait valu à l'État É,
+On peut se féliciter que ce procédé ait valu à l'État
 français des économies. (1) ‘00
-De même l'institution du P. C. N. auprès des Facultés 4
-des Sciences lui a épargné des dépenses colossales. | 4
+De même l'institution du P. C. N. auprès des Facultés
+des Sciences lui a épargné des dépenses colossales.
 Dans le projet primitif, les Sciences Physiques, Chi- à
-miques et Naturelles devaient être enseignées dans les L
+miques et Naturelles devaient être enseignées dans les
 lycées. Tentez de supputer les frais de personnel et
 d'installation qu'eût entraînés le projet sur la Réforme ‘à
 du baccalauréat, si la Direction de l'Enseignement Supé- ;
 G) L'État refusant de rien faire depuis la loi de juillet 1896, les
-Facultés se sont endettées. Leurs faibles ressources sont toutes 1
+Facultés se sont endettées. Leurs faibles ressources sont toutes
 engagées, — à la veille de la loi militaire qui va les appauvrir.
 Est-ce si intelligent de la part de l'Etat? En Allemagne les Etats
-prennent presque tout à leur charge. 4
+prennent presque tout à leur charge.
 
 rieur n'avait trouvé une solution élégante et peu coû-
 
@@ -783,16 +783,16 @@ vérité c'est qu'elle est restée bien en arrière de ce
 É qu'ont fait, sans tant le crier, tous les royaumes et duchés germaniques.
 
 | Les Facultés des Lettres et des Sciences de.
-en France et en Allemagne 4
-Étude de statistique du Personnel Enseignant 3
-: Les Facultés des Lettres françaises 4
+en France et en Allemagne
+Étude de statistique du Personnel Enseignant
+: Les Facultés des Lettres françaises
 L et les Philosophische Fakultaeten d'Allemagne bi
 Une statistique n'est rien, — qu'un mirage, — si ellk
 n'est accompagnée d'éclaircissements. Nous allons les
 donner aussi nombreux que possible. >
 Les abréviations des deux tableaux concernant l'Alle
-magne s'expliquent ainsi : :174
-O désigne les professeurs titulaires, « ordinaires » 4
+magne s'expliquent ainsi :
+O désigne les professeurs titulaires, « ordinaires »
 disent les Allemands. Ils viennent en tête car ils sont
 | la gloire de chaque Université. Nommé généralement #4
 | assez tard, après une vingtaine d'années d'une produc-
@@ -802,38 +802,38 @@ sociale sensiblement supérieure à celle de son collègue
 
 français, surtout en province. Il jouit d'une prérogative CA
 qui peut nous paraître singulière : il n'est jamais mis no
-à la retraite. Que l'âge ou les infirmités lui interdisent 5
+à la retraite. Que l'âge ou les infirmités lui interdisent
 l'enseignement, l'État crée une autre chaire, voilà tout.
 On n'admet pas qu'un homme qui est beaucoup plus
 qu'un fonctionnaire, qui est un « savant », voie ses à
 ressources diminuées au moment même où il en a le #
 plus besoin. Il ne cesse jamais jusqu'à sa mort de à
 figurer sur l'affiche de la Faculté. Néanmoins, je me |
-suis abstenu de compter dans ma statistique les vieux L
+suis abstenu de compter dans ma statistique les vieux
 professeurs ordinaires qui « ne lisent pas », comme
 E s'entend du professeur « extraordinaire ». Il complète, enrichit, l'enseignement du professeur ordinaire, - $
 mais ce n'est pas un suppléant. Il a bien une chaire
 | à lui, quoique celle-ci soit moins rétribuée et moins
 | considérée, et dotée, d'ailleurs, de prérogatives moin-
-D s'entend des privatim docentes ou « privat-dozents », i
-jeunes savants qui obtiennent de la Faculté le droit de 3
+D s'entend des privatim docentes ou « privat-dozents »,
+jeunes savants qui obtiennent de la Faculté le droit de
 _  professer à leurs risques. Ils n'ont pas de rétribution. ä
 ; Tout au moins celle-ci est-elle faible et transitoire.
 Comme la coutume exige qu'on ne puisse obtenir un !
 poste d'« ordinaire » si on n'a pas été d'abord « privat- :
 | dozent », puis « extraordinaire », le nombre des maîtres
 Ë de cette catégorie est élevé, malgré les conditions défa- té
-h vorables en apparence de leur situation. ô
+h vorables en apparence de leur situation.
 é L désigne les « lecteurs » ou répétiteurs de langues ,
 vivantes. En Allemagne la situation jusqu'à présent £
 assez humble de ces maîtres, qui sont tous des étran- ;
 ï gers, tend à s'améliorer. Partout on augmente leur ;
 
-traitement et, pour rehausser leur prestige, quelques k
+traitement et, pour rehausser leur prestige, quelques
 Universités commencent à leur accorder le titre de
 Il existe une cinquième catégorie de maître, les pro- ‘4
 fesseurs « honoraires ». Je me suis abstenu de leur |
-consacrer une colonne spéciale et voici pourquoi : Les j
+consacrer une colonne spéciale et voici pourquoi : Les
 Honorar professoren de l'Allemagne n'ont point de rap- |
 : ports avec les « professeurs honoraires » français. Ces :
 derniers sont des professeurs titulaires mis à la retraite,
@@ -841,7 +841,7 @@ auxquels on a décerné ce titre pour récompenser un
 mérite exceptionnel. Ils figurent sur l'affiche, au bas, et
 ont le droit d'assister à certains actes de la Faculté.
 Mais ils ne sont pas rétribués et n'enseignent plus. |
-L'Honorar professor enseigne au contraire et est rétri- 4
+L'Honorar professor enseigne au contraire et est rétri-
 bué, mais uniquement sur des fonds d'État. Seulement
 il ne jouit pas des prérogatives académiques du professeur « ordinaire ». Cette distinction n'a qu'un intérêt |
 administratif. Elle ne valait pas la peine de compliquer
@@ -859,11 +859,11 @@ Nous avons établi ces trois catégories pour nous conformer à la nomenclature 
 nous égarer. On se tromperait fort en assimilant les ;
 « maîtres de conférences » de la troisième colonne aux ;
 
-« Dozents » allemands parce qu'ils occupent la même 5
+« Dozents » allemands parce qu'ils occupent la même
 à place respective sur nos tableaux. A l'origine, en effet,
 } il y à vingt-cinq ans, on eut vaguement l'idée de les
 | assimiler. Par la force des choses l'institution dévia
-| immédiatement. Le « Dozent » ne fait que de la Science, 1
+| immédiatement. Le « Dozent » ne fait que de la Science,
 donne chaque semaine le nombre d'heures qu'il lui plaît
 ou même, souvent, n'enseigne pas quand il a un gros
 livre à finir ou voyage en mission scientifique. Son
@@ -888,9 +888,8 @@ Le « chargé de cours » occupe une chaire de professeur titulaire, mais il n'e
 jeune encore pour l'emploi, soit surtout parce que
 l'Administration juge commode de faire une économie
 en baptisant « chargé de cours » un titulaire qu'elle
-| 21
 
-Le « chargé de cours complémentaires » enseigne des k
+Le « chargé de cours complémentaires » enseigne des
 
 choses qui paraissent moins fondamentales (on ne sait
 
@@ -901,11 +900,11 @@ sième colonne du tableau français qu'il faut assimiler à ..
 celui de la deuxième colonne (E) du tableau allemand, Fe
 
 et non pas celui de la deuxième (A). Le « profes- a
-“ seur adjoint » n'est autre chose, en effet, qu'un maître e
+“ seur adjoint » n'est autre chose, en effet, qu'un maître
 de conférences docteur que les circonstances ne per
 mettent pas de pourvoir d'une chaire magistrale. "
 Le principal avantage que confère le titre d' « adjoint » $
-n'est pas d'ordre pécuniaire : il assure la sécurité. Le 4
+n'est pas d'ordre pécuniaire : il assure la sécurité. Le
 « maître de'‘conférences » n'est en effet nommé que pour
 cette sorte de délégation pour ruiner absolument lave
 nir d'un maître de conférences. (1) En fait, ce renouvel- *
@@ -918,17 +917,17 @@ du « Conseil supérieur de Instruction » ét du « Conseil d'État ». à.
 Quand j'exprimais mes craintes sur la précarité de la charge à
 de « maître de conférences », mes amis de l'Université haussaient ;
 j les épaules. « Le cas Brunetière » a prouvé combien mes appré- is
-ñ hensions étaient fondées. On ne veut pas y prêter attention à la 22
+ñ hensions étaient fondées. On ne veut pas y prêter attention à la
 k Sorbonne, parce que l'homme est antipathique et que cest un De
 P esprit faux, anti-scientifique au dernier point. Mais il y a une à
-question de principe qui domine tout. En mettant Brunetière à la C1
-porte le Ministre est dans la légalité, mais non dans l'équité. Que 4
+question de principe qui domine tout. En mettant Brunetière à la
+porte le Ministre est dans la légalité, mais non dans l'équité. Que
 
-demain la roue tourne et ce sera les maîtres de conférences n
+demain la roue tourne et ce sera les maîtres de conférences
 
 « avancés » qu'on jettera dehors. Et ceux-ci n'auront pas la res- #
 
-1 source de la Reoue des Deux-Mondes et de fructueuses conférences k
+1 source de la Reoue des Deux-Mondes et de fructueuses conférences
 
 f suivies par un public bien pensant, — et riche.
 
@@ -1022,7 +1021,7 @@ et à l'École des Hautes Études. Ces cas sont nom4 breux (1) et pourtant il fa
 même deux et trois fois.
 1 (1) Presque toujours, ils ont pour origine une raison d'économie. à;
 La Faculté des Lettres, par exemple, au lieu d'avoir une chaire ou
-une conférence de métrique gréto-latine, demande cet enseigne25 ” Ferdinand Lot. — 2
+une conférence de métrique gréto-latine, demande cet enseigne25 ” Ferdinand Lot.
 
 Je pense être parvenu avec de l'attention à échapper à
 
@@ -1048,12 +1047,12 @@ section qui enseigne la « Structure du système nerveux |
 Il fallait aussi, dans la répartition, ne pas se laisser
 tromper par des dénominations traditionnelles mais |
 inexactes. Ainsi la « Géographie historique » n'est pas |
-ment à un professeur du Collège de France, qui le lui donne pour e
-une rétribution insignifiante. C'est par ce procédé que l'Ecole des Ë
-Hautes Etudes (quatrième section) peut enseigner une masse con- F
+ment à un professeur du Collège de France, qui le lui donne pour
+une rétribution insignifiante. C'est par ce procédé que l'Ecole des
+Hautes Etudes (quatrième section) peut enseigner une masse con-
 sidérable de sciences variées avec un budget minuscule. À
 
-| une branche de la Géographie mais de l'Histoire, C'est Û
+| une branche de la Géographie mais de l'Histoire, C'est
 | sous cette dernière rubrique que nous avons compris
 _ + les enseignements qui traitent de cette science au Col-
 | lège de France et à l'École des Hautes Études.
@@ -1062,7 +1061,7 @@ ciales sous des noms si divers avec ceux de la Faculté
 des Lettres, base de notre classification ?
 | Pour le Collège de France, il n'y a pas de difficulté: à
 il sufit de mettre ses professeurs à la même colonne ia
-que les « titulaires » de la Faculté. Mais pour l'École 3
+que les « titulaires » de la Faculté. Mais pour l'École
 ù Normale ! Le titre officiel est « maître de conférences ».
 ‘4 Force nous a été de mettre ses professeurs à cette
 je colonne, bien que la plupart touchent le même traite-
@@ -1092,14 +1091,14 @@ k aux Facultés des Lettres et des Sciences. Les autres conservent
 US compte de ce décret en dressant notre tableau. |
 
 professeurs-adjoints, maîtres de conférences et chargés
-de cours complémentaires de la Faculté des Lettres. 4
+de cours complémentaires de la Faculté des Lettres.
 Mais, tandis qu'un professeur titulaire de celle-ci touche
 10, 12, 15.000 francs de traitement, un directeur de
 l'École n'en a que 2.000 à 2.500 quand il est déjà professeur ailleurs. Quand ce n'est pas le cas, son traite-
 : ment n'atteint pas la moitié de celui d'un maître de
 conférences de la Faculté voisine ! Que dire des simples
 « maîtres de conférences » de l'École! Leur traitement
-n'est pas supérieur, ou presque pas, au stipendium que È
+n'est pas supérieur, ou presque pas, au stipendium que
 reçoit un privat-dozent prussien !
 
 Toutes ces assimilations sont donc plus ou moins fallacieuses. Mais il était impossible de les éviter à moins
@@ -1108,7 +1107,7 @@ de multiplier les subdivisions et de produire une confusion bien pire. |
 Au reste, comme, dans nos considérations finales, À
 nous ferons abstraction de ces dénominations adminis- |
 tratives pour ne considérer in globo que le personnel
-rétribué (quelle que soit cette rétribution) de la France i
+rétribué (quelle que soit cette rétribution) de la France
 et de l'Allemagne, — cet inconvénient est provisoire.
 
 Il n'a pas été tenu compte des « cours libres » pour la .
@@ -1119,35 +1118,35 @@ bien peu le total français. Aucune assimilation n'est
 possible entre le professeur « libre » et le dozent allemand, suisse, italien, scandinave, russe. On n'exige ;
 aucun grade du premier et il n'a aucun avantage en
 
-É perspective. Enseignât-il trente ans, cela ne lui vaudrait pas la moindre faveur. 4
+É perspective. Enseignât-il trente ans, cela ne lui vaudrait pas la moindre faveur.
 Dernière remarque, la plus délicate de toutes: L'unité . À
 
-professorale française vaut-elle l'unité allemande? Ÿ
+professorale française vaut-elle l'unité allemande?
 Scientifiquement oui, le plus souvent. Mais au point de
 9 vue du rendement pédagogique, non. Le professeur
-ordinaire allemand donne 6, 7,8 heures de cours et conférences par semaine; le français titulaire en donne 3. Ë
+ordinaire allemand donne 6, 7,8 heures de cours et conférences par semaine; le français titulaire en donne
 Comment assimiler au professeur d'histoire de l'art de
-l'Université de Berlin qui « rend » 6, 8, 10 heures de 44
+l'Université de Berlin qui « rend » 6, 8, 10 heures de
 À cours par semaine du 15 octobre au 15 juillet, le profes-
 | seur de l'École du Louvre de Paris qui, de décembre "
 à mai, donne vingt leçons d'une heure ? — Tous deux
 comptent pour 1 dans notre tableau et il est évident
 cependant que la valeur « professorale » du second est
 insignifiante en comparaison de celle du premier.
-4 Des considérations qui précèdent, il résulte déjà que,
+Des considérations qui précèdent, il résulte déjà que,
 ; dans le parallèle que nous allons instituer entre les
 \] deux pays, le nôtre sera constamment et fortement
 
 ...
 .
 
-114 33
+114
 
-La différence d'organisation rend la comparaison dif- # 1
+La différence d'organisation rend la comparaison dif- #
 : ficile. En Allemagne la philosophie, — exception faite.
 de la logique, — ne rentre pas dans le cadre de l'ense-
 
-gnement secondaire. Il est donc nécessaire que les Universités possèdent un nombre de maîtres beaucoup plus E
+gnement secondaire. Il est donc nécessaire que les Universités possèdent un nombre de maîtres beaucoup plus
 
 grand que chez nous. Et c'est ce qui explique le chiffre
 
@@ -1155,19 +1154,19 @@ grand que chez nous. Et c'est ce qui explique le chiffre
 
 lequel est d'une singulière maigreur. Cette importante
 
-réserve faite, il n'en demeure pas moins que le nombre 4
+réserve faite, il n'en demeure pas moins que le nombre
 
 des professeurs de philosophie est, dans nos Universités |
 _ de province, très réduit. Deux villes seulement, Lyon et
-Bordeaux, présentent 3 maîtres pour la Philosophie, la 4
+Bordeaux, présentent 3 maîtres pour la Philosophie, la
 Sociologie et la Pédagogie réunies. Lille, Montpellier, À
 Toulouse, n'en ont que deux. Les huit autres doivent se <
-contenter d'un seul professeur, ce qui est vraiment peu. 4
+contenter d'un seul professeur, ce qui est vraiment peu.
 Trois ou quatre conférences supplémentaires ne seraient
-pas de trop. NUE » L 44
+pas de trop. NUE »
 
 | L'enseignement de cette science est très mal organisé ;
-en France ou, plutôt, ne l'est pas du tout. Un seul pro- 4
+en France ou, plutôt, ne l'est pas du tout. Un seul pro-
 
 fesseur, à Rennes, pour toute la province française! (1)
 
@@ -1181,7 +1180,7 @@ professeurs qui l'enseignent, l'un au Collège de France, 8)
 
 | l'autre à la Faculté, un troisième à la 4 section de |
 
-4 l'École des Hautes Études, d'autres à la 3° ‘section. C'est F f
+4 l'École des Hautes Études, d'autres à la 3° ‘section. C'est
 
 à l'incohérence même. Au surplus, si la Psycho-physio- \
 logie est bien étudiée à Paris, à peine peut-on dire que
@@ -1232,42 +1231,42 @@ n'a pas sensiblement varié. En 1896, on relevait un
 î total de 82 (dont 65 professeurs). En France, le total |
 d général (70) se retrouve quasi identique. Il est curieux :
 d'observer, — par une exception unique, — que ce total À
-est égal à celui du personnel rétribué de l'Allemagne. L
+est égal à celui du personnel rétribué de l'Allemagne.
 L'anomalie s'explique aisément. Les étudiants français ;
-arrivent à la Faculté très jeunes et dans un état d'igno- f
+arrivent à la Faculté très jeunes et dans un état d'igno-
 rance à peu près complète du grec et même du latin. Il À
 est nécessaire qu'on refasse leur instruction. Maîtres de |
 conférences et professeurs ont besoin de professer tout {
 d'abord à leur intention, non pas des classes de rhéto- !
-rique supérieure, mais de quatrième supérieure. k
+rique supérieure, mais de quatrième supérieure.
 L'instruction donnée dans les gymnases allemands }
 durant trois ans de plus que chez nous, les professeurs
 de philologie classique des Universités allemandes ont
-affaire à un auditoire plus mûr et plus instruit et n'ont Ë
-pas besoin d'être relativement aussi nombreux que chez F
+affaire à un auditoire plus mûr et plus instruit et n'ont
+pas besoin d'être relativement aussi nombreux que chez
 nous. Encore faut-il remarquer que, à Caen et à Cler- ?
-mont, les professeurs de grec et delatin n'ont pas un maître É
+mont, les professeurs de grec et delatin n'ont pas un maître
 de conférences pour les aider. A Besançon, à Grenoble, ‘%
-ces fonctions sont remplies par un professeur du Lycée. l
+ces fonctions sont remplies par un professeur du Lycée.
 b) Nos voisins se rattrapent avec l'Histoire ancienne.
-Point d'Université qui n'ait à l'heure actuelle sa chaire Ï
+Point d'Université qui n'ait à l'heure actuelle sa chaire
 d'histoire ancienne. Les rares Universités allemandes à
-qui n'en possédaient point en 1896, Erlangen, Giessen, l
+qui n'en possédaient point en 1896, Erlangen, Giessen,
 -Münster, Tübingen, ont comblé cette lacune en 1904. — |
 Chez nous, si Paris est fort bien pourvu, la province |
 est demeurée aussi arriérée : 8 ou 9 professeurs (1) ou |
 (1) Le tableau en porte 2 pour Bordeaux; mais ce n'est pas tout
-à fait exact. M. Jullian est [était] professeur d'histoire du Sud- L
-Ouest et ne consacre à l'Antiquité qu'une partie de son activité. 1
+à fait exact. M. Jullian est [était] professeur d'histoire du Sud-
+Ouest et ne consacre à l'Antiquité qu'une partie de son activité.
 
 maîtres de conférences en 1904 (5 en 1896), en face des ;
 27 maîtres (dont 24 professeurs) de la province allemande ! — J'ai expliqué ailleurs et déploré le motif de *
 cette pénurie : chez nous l'histoire ancienne n'est im- |
-posée qu'aux seuls étudiants en histoire. Les « philo- É
+posée qu'aux seuls étudiants en histoire. Les « philo-
 logues » ont le droit de s'en désintéresser. j |
-c) Mêmes observations au sujet de l'Archéologie h
+c) Mêmes observations au sujet de l'Archéologie
 classique. Paris n'est pas supérieur à Berlin. (1) Et la
-_ province! Elle avait 7 professeurs en 1896 : elle en a 5
+_ province! Elle avait 7 professeurs en 1896 : elle en a
 _ en 1904! — En Allemagne, aucune Université, même la
 | plus petite, Rostock, n'est dépourvue de cet enseigne-
 | ment. Chez nous, dans 9 Universités (sur 14), il n'est
@@ -1276,7 +1275,7 @@ un philologue y consacre quelques leçons par an et
 irrégulièrement. C'est tout à fait insuffisant. Par raison
 d'économie, on pourrait, dans certains cas, réunir cet
 _ enseignement à celui de l'histoire ancienne, bien que
-cette combinaison présente des inconvénients assez Ÿ
+cette combinaison présente des inconvénients assez
 sérieux. De toutes manières, on voit combien nous
 sommes arriérés. Et ce n'est pas seulement par rapport
 , à l'Allemagne, mais par rapport à l'Italie. Dans ce
@@ -1298,29 +1297,29 @@ ordinaire, un extraordinaire, un ou deux dozents.
 \ L'histoire du Moyen-Age possède aussi toujours un ou à
 En 1896, l'Allemagne comptait déjà 104 maîtres (dont
 71 professeurs) pour l'histoire médiévale et moderne. À
-En 1904, ce total monte à 120 (dont 78 professeurs). 4
+En 1904, ce total monte à 120 (dont 78 professeurs).
 En France, si Paris, en comptant Faculté et écoles
 spéciales, est bien pourvu, la province n'a pas bougé : À
 en 1904 comme en 1896, 31 professeurs à opposer aux |
-104 maîtres (dont 69 professeurs) de la province alle- k
+104 maîtres (dont 69 professeurs) de la province alle-
 mande ! Encore faut-il observer que dans cinq Univer- |
 sités (Besançon, Clermont, Dijon, Grenoble, Poitiers) le
-professeur d'histoire moderne doit joindre à son ensei- ñ
+professeur d'histoire moderne doit joindre à son ensei-
 - (1) En février 1904. Voyez le Bulletin de la Société n° 21 et aussi \
-Reoue de Synthèse Historique, 1904, page 110, note 3[avec une erreur 5
-de transcription]. A la fin de la séance suivante, un des membres l
+Reoue de Synthèse Historique, 1904, page 110, note 3[avec une erreur
+de transcription]. A la fin de la séance suivante, un des membres
 de la Société, privat-dozent dans une Université allemande, taxa
 mes résultats d'exagération en faisant observer que beaucoup de
 dozents et même de professeurs « extraordinaires » suspendaient ]
 lenseignement et voyageaient pour des travaux personnels. à
-L'heure avancée ne me permit pas de répondre 1° que pour la ë
-France aussi les professeurs demandaient de loin en loin des D
+L'heure avancée ne me permit pas de répondre 1° que pour la
+France aussi les professeurs demandaient de loin en loin des
 congés, > que les professeurs et dozents en congé (dont mon contradicteur) n'avaient pas été portés dans ma statistique. Celle-ci |
-subsiste donc. 4
+subsiste donc.
 
 gnement celui de la Géographie et le professeur d'his- &
 toire médiévale celui de l'Antiquité! Enfin, deux Uni- DA
-| versités, Aix et Grenoble, n'ont pas de professeur d'his- 4
+| versités, Aix et Grenoble, n'ont pas de professeur d'his-
 Combien plus grave est la situation de la France au {
 ( Déjà Paris est, — faute d'organisation, — fort inférieur ‘à
 - à Berlin. Quant à la province, c'est lamentable. Deux à
@@ -1329,7 +1328,7 @@ _ maîtres de conférences, l'un à Lille, l'autre à Lyon; à
 | lycée, — et c'est tout !
 Je relevais en 1896 pour l'Histoire de l'Art moderne
 _ compris l'art musical. Néanmoins il existait encore
-six Universités ne possédant point cet enseigne- Ë
+six Universités ne possédant point cet enseigne-
 _ Rostock). Toutes ont comblé cette lacune et celles
 même qui possédaient déjà cet enseignement l'ont déveN loppé. En sorte qu'en 1904 on trouve 38 maîtres (dont 24 :
 _ professeurs), non compris l'art musical.
@@ -1337,7 +1336,7 @@ _ Pour ce dernier une distinction importante s'impose.
 … Chaque Université allemande possède un ou deux HÉRSE
 … « lehrer » qui enseignent l'harmonie et la composition À
 É comme dans nos Conservatoires. Cela n'a rien à faire ;
-2 avec l'Histoire. Aussi n'avons-nous point tenu compte , ù
+2 avec l'Histoire. Aussi n'avons-nous point tenu compte
 … de ces « lehrer », sauf dans le cas où ils joignent à leur $
 ù “enseignement professionnel celui de l'histoire de la muhe ; (1) [A Pheure actuelle, Grenoble est même réduite à un (sic) pro5 _fesseur devant enseigner toute l'histoire et toute la Géographie.]
 
@@ -1369,13 +1368,13 @@ extraordinaires, certains « extraordinaires » pouvant suspendre lenseignement 
 ce qui est, en l'espèce, insignifiant. Par contre, mon chiffre de
 À trente-trois pour l'art moderne est trop faible : il faut lire trentehuit. ; £
 
-4 Si l'on additionne l'Histoire de l'art musical à l''His- A » toire des arts plastiques on constate ceci : l'Allemagne 4
+Si l'on additionne l'Histoire de l'art musical à l''His- A » toire des arts plastiques on constate ceci : l'Allemagne
 _ qui, en 1891, comptait 36 maîtres (dont 17 professeurs) |
 en possède en 1904 — 62 (dont 33 professeurs). — Elle
 a presque doublé son personnel.
-4 Chez nous, la transformation en chaire d'un cours :
+Chez nous, la transformation en chaire d'un cours :
 Ÿ supplémentaire à la Sorbonne, dèux conférences en :
-| 1 province, (r) représentent tout l'effort qu'on a été ca- 4
+| 1 province, (r) représentent tout l'effort qu'on a été ca-
 i pable de faire!
 A Pour l'enseignement de l'histoire de l'art moderne, la
 _ France est inférieure non seulement à l'Allemagne mais !
@@ -1394,9 +1393,9 @@ Partout un ou deux professeurs, tout au moins un
 (4 _ Seules la France et l'Espagne font exception en Eu-
 
 He. Cet enseignement s'est encore développé en Alle- Fi
-* magne dans les dernières années, les deux seules Uni- Ÿ,
+* magne dans les dernières années, les deux seules Uni-
 13 versités qui ne le possédaient pas ont comblé la lacune.
-- Le nombre des professeurs a passé de 19 à 25 et les 10
+- Le nombre des professeurs a passé de 19 à 25 et les
 : 40 dozents se sont multipliés, à Berlin surtout. Au total |
 11e Chez nous le statu quo. Une conférence de plus à <
 LA d (1) Dans le tableau on a compté un professeur à Dijon. Ce n'est
@@ -1407,11 +1406,11 @@ x 11 qu'à moitié exact. La chaire est en réalité une chaire d'histoire lo-
 a) Langue et littérature allemandes. — Jusqu'àlafin
 du dix-neuvième siècle dans l'enseignement de la Philo-
 . logie germanique, l'histoire de la langue et l'étude de
-la littérature se distinguaient mal chez nos voisins. Ils É
+la littérature se distinguaient mal chez nos voisins. Ils
 ont gagné à cette confusion d'avoir des historiens de la |
 littérature allemande profondément versés dans l'his- |
 toire de leur langue natale et non, comme trop souvent .
-ce fut le cas chez nous, au temps jadis, des rhéto- 4
+ce fut le cas chez nous, au temps jadis, des rhéto-
 riciens ignares. La séparation semble néanmoins |
 à accomplie à l'heure actuelle. J'ai relevé un nombre égal ;
 (37) de littérateurs, et de « grammairiens », comme on |
@@ -1437,15 +1436,15 @@ J faire appel à des professeurs du lycée pour seconder le
 _ j'ai déjà dit pour quelle raison. Enfin, ilestinadmissible /
 A que deux Universités françaises, Besançon et Caen,
 4 n'aient ni professeur ni maître deconférences d'allemand
-4 Elles ne donnent cet enseignement qu'en ayant recours
+Elles ne donnent cet enseignement qu'en ayant recours
 : à un professeur du lycée. Encore la première doit-elle
 le rétribuer sur ses faibles ressources. C'est absolument
 honteux. L'État français doit au moins le nécessaire à
-__ nos Facultés des Lettres. L
+__ nos Facultés des Lettres.
 Elles tentent depuis trois ans d'organiser l'enseignement des langues vivantes en appelant des « lecteurs »,
 _ à l'exemple des pays voisins. Leur pauvreté est telle que
 trois cu quatre peuvent à grand peine s'offrir ce luxe!
-4 Un autre défaut de cet enseignement c'est que,
+Un autre défaut de cet enseignement c'est que,
 | lorsqu'il se hausse au-dessus d'une terne préparation
 | d'examen, il est simplement « littéraire ». L'histoire de
 4 la langue est négligée faute de personnel. Et cela est
@@ -1457,7 +1456,7 @@ trois cu quatre peuvent à grand peine s'offrir ce luxe!
 | b) Langue et littérature anglaises. — Mèmes doléances
 | du côté de la France. A Paris, le personnel est numéri-
 
-quement insuffisant. Il faudrait une chaire de « langue » 4
+quement insuffisant. Il faudrait une chaire de « langue »
 anglaise à côté de la chaire de « littérature » qui
 existe à la Sorbonne. En province, ni Aix ni Dijon n'ont À
 de professeur d'anglais ! Montpellier même combine
@@ -1467,22 +1466,22 @@ lycée. On relève quatre lecteurs ou lectrices seulement
 - pour 14 Universités.
 L'Allemagne, — cependant, — a fortement augmenté
 son personnel, qui a passé de 29 (dont 18 professeurs)
-université a un et parfois deux lecteurs. 3
+université a un et parfois deux lecteurs.
 Le total de la France (21 tout compris) est insuffisant. À
 Comme pour l'allemand, l'histoire de la langue est très
 négligée. Le remède serait le même : instituer l'ensei- à
-gnement de la linguistique comparée. J
-c) Langues et littératures romanes. —1. — Langue et È
+gnement de la linguistique comparée.
+c) Langues et littératures romanes. —1. — Langue et
 littérature françaises. — Chez nous l'étude de la « littéra- :
 ture » s'est toujours distinguée de celle de la langue. Actuellement encore nos chaires de « langue et littérature ,
 françaises » sont surtout littéraires.
 
 , Au point de vue « littéraire » Paris est suffisamment
-bien pourvu mais pas mieux que Berlin. La province F:
+bien pourvu mais pas mieux que Berlin. La province
 française ne l'est pas si bien qu'on pourrait croire. Vu À
 la richesse et l'importance de notre littérature il est
 impossible à un seul homme de l'embrasser toute '
-d'un maître de conférences, ce qui n'a lieu ni à Caen, 1
+d'un maître de conférences, ce qui n'a lieu ni à Caen,
 Besançon, on n'a pas voulu faire les frais d'une maîtrise À
 de conférences et on fait appel à un professeur du lycée. ‘4
 
@@ -1493,7 +1492,7 @@ spécialiste qu'à Paris, Lyon, Bordeaux, Lille, Caen. On
 4 romane ». Le malheur c'est que cinq de nos Universités
 (Besançon, Clermont, Dijon, Grenoble, Poitiers) n'ont
 | pas cet enseignement, lequel ne fait défaut à aucune Université allemande, suisse, italienne, scandinave, américaine, quelle que soit son importance. Le
-résultat c'est que pour l'ensemble de ia France on ne Ù
+résultat c'est que pour l'ensemble de ia France on ne
 trouve pas plus d'une demi-douzaine de spécialistes
 | pour enseigner l'histoire de la langue française tandis |
 : que dans les Universités allemandes une quarantaine se
@@ -1515,11 +1514,11 @@ x chaire anglo-italienne (!) de Montpellier, — par exemple,
 À III. Signalons comme curiosité que l'enseignement de la
 
 langue et de la littérature provençales est plus développé
-en Allemagne qu'en France. On ne s'en étonnera pas D:
+en Allemagne qu'en France. On ne s'en étonnera pas
 quand on songera qu'à Aix-Marseille même on 'apu
 se décider à créer une chaire de provençal et que cet
 enseignement est donné par le professeur de latin sous
-forme de conférence complémentaire. 5
+forme de conférence complémentaire.
 
 IV. Une lacune singulière dans le haut enseignement
 c'est l'omission de toute chaire ou conférence sur la
@@ -1532,7 +1531,7 @@ que ne le sera le français. Il semble qu'il serait bon de
 consacrer à la langue, à la littérature, à l'histoire du |
 | Portugal et du Brésil un minimum de deux chaires, |
 lune à Paris, l'autre à Bordeaux.
-d) Langues et littératures slaves.— Le voisinage de la F
+d) Langues et littératures slaves.— Le voisinage de la
 Pologne et de la Russie a conduit naturellement
 l'Allemagne à accorder plus d'attention que nous-mêmes |
 à cette branche d'études. Néanmoins, il est bien certain |
@@ -1546,7 +1545,7 @@ tous ces établissements se borne-t-on à enseigner les ;
 éléments du russe et à étudier un peu la littérature. La
 « philologie slave », à vrai dire, n'est pas enseignée
 
-en France (tandis qu'elle l'est à Leipzig, à Berlin, à Bonn, » à Breslau, etc), sauf à l'École des Hautes Études, F
+en France (tandis qu'elle l'est à Leipzig, à Berlin, à Bonn, » à Breslau, etc), sauf à l'École des Hautes Études,
 k les années où le professeur de grammaire comparée |
 prend cette science comme objet de son enseignement.
 k J'ai réuni sous ce titre commun les deux choses
@@ -1576,7 +1575,7 @@ __  d'« indianistes » (1) que d' « indo-germanistes ».
 (dont 41 professeurs et 9 dozents) auxquels la France
 E oppose vaillamment 8 (sic) professeurs et maîtres de
 1 conférences. Si l'on décompose ce dernier chiffre, on
-; woit qu'il n'y a dans l'enseignement français qu'un seul É
+; woit qu'il n'y a dans l'enseignement français qu'un seul
 + indianiste (au Collège de France), secondé par un
 à maître de conférences (à l'École des Hautes Études) à
 1 opposer aux 30 indianistes de l'Allemagne. Il n'existe :
@@ -1586,29 +1585,29 @@ qe « grammairiens ». Ces chiffres sont naturellement approximatifs.
 pas un pays au monde, j'entends un pays civilisé, où,
 dans ce domaine, l'on soit tombé aussi bas que chez nous. "1
 Pour la Linguistique comparée (unie d'ailleurs au FA
-sanskrit) deux Universités seulement, Lyon et Montpel- 4
-lier, sont pourvues d'un professeur. Les 12 autres n'ont 4
+sanskrit) deux Universités seulement, Lyon et Montpel-
+lier, sont pourvues d'un professeur. Les 12 autres n'ont
 ! rien. Si bien que la province française a ses 2 professeurs (1) à opposer aux 44 de la province allemande! |
 Et cependant la « linguistique comparée » tout au
 moins n'est pas de pur luxe. Elle n'est pas seulement
 utile aux étudiants de philologie classique (grec et
-latin), mais aux étudiants en anglais et en allemand. 1
+latin), mais aux étudiants en anglais et en allemand.
 On a dit plus haut, en effet, que pour les langues
 modernes, nos Universités, faute de personnel, ne pouvaient guère donner qu'un enseignement « littéraire ».
 Un maître de conférences consacrant deux leçons par +
 semaine à la grammaire comparée du grec et du latin, :
 deux autres à celle de l'allemand et de l'anglais serait
 extrêmement précieux. Son absence se fait sentir dans
-presque toutes nos Universités. Mais notre administra- ÿ
+presque toutes nos Universités. Mais notre administra-
 tion supérieure est tellement ignare qu'elle ne paraît À
 même pas se douter de cette importante lacune. il
 La Philologie iranienne (Perse, Afghanistan) est
 enseignée en Allemagne par les indianistes et les indo- ‘à
-germanistes. En France, cette science fait l'objet d'une 1
-heure de cours par semaine, professé par le directeur- 3
+germanistes. En France, cette science fait l'objet d'une
+heure de cours par semaine, professé par le directeur-
 adjoint de linguistique comparée de l'école des Hautes ‘4
 (1) Il y a, en outre, à Nancy et à Bordeaux, deux maîtres de confé- Fe
-rences de « grammaire », mais leur enseignement est, je-crois, 1
+rences de « grammaire », mais leur enseignement est, je-crois,
 plus philologique que linguistique; aussi les ai-je comptés parmi nù
 les philologues. Ki.
 
@@ -1631,7 +1630,7 @@ En France, le total est facile à faire : en dehors de
 ê Paris il n'y a absolument rien.
 Alger est le seul centre en dehors de Paris, avec3 pro-
 À fesseurs. En ajoutant même les deux cours publics de
-1 Constantine et d'Oran, on voit combien notre total est
+Constantine et d'Oran, on voit combien notre total est
 À faible. Nous sommes inférieurs sur ce terrain, comme
 % (1) Ce faible chiffre peut surprendre. C'est que l'hébreu s'apprend ;
 K surtout dans les Facultés de théologie qui ne comptent pas moins
@@ -1643,33 +1642,33 @@ Ge PAllemagne compte dans son enseignement supérieur plus de
 
 personnel, à tous les peuples d'Europe et d'Amérique(1)
 sans exception, inférieurs même à l'Espagne, car les a
-pauvres Universités espagnoles ont du moins leur pro- x 4
-Et nous sommes les maîtres de l'Afrique du Nord et, 1
+pauvres Universités espagnoles ont du moins leur pro-
+Et nous sommes les maîtres de l'Afrique du Nord et,
 en Syrie, la nation encore prépondérante! (2) Notre 1}
-infériorité n'est explicable, comme toujours, que par É
-lexcessive ignorance de l'Administration de la rue de 4
+infériorité n'est explicable, comme toujours, que par
+lexcessive ignorance de l'Administration de la rue de
 On lira plus loin qu'il paraît impossible d'introduire JA
 - d'une manière scientifique l'enseignement de l'Histoire
 de la Sociologie religieuse sans l'appui des langues é ]
- b) l'Extréme-Orient. — Les trois langues principales T4
+ b) l'Extréme-Orient. — Les trois langues principales
 sont le Chinois, l''Annamite, le Japonais, cette dernière ;.
 totalement différente des deux premières. En dehors de ;
-Paris, on ne trouve qu'un seul cours (de chinois) à Lyon. ÿ
-Marseille est tout désigné pour être le centre d'une 4
+Paris, on ne trouve qu'un seul cours (de chinois) à Lyon.
+Marseille est tout désigné pour être le centre d'une
 Ecole de langues orientakes qu'il faudra, bon gré mal ;
-gré, créer en province. L'Ecole française d'Hanoï, peut- 4
+gré, créer en province. L'Ecole française d'Hanoï, peut-
 () Vous ne trouverez pas d'Université aux États-Unis, si humble }
-soit-elle, qui wait au moins un professeur d'hébreu et d'arabe. En 4
+soit-elle, qui wait au moins un professeur d'hébreu et d'arabe. En
 - France la situation de lorientalisme est presque aussi mauvaise :
-qu'il y a cinquante ans. Renan pourrait en 1905 répéter les mêmes 14
+qu'il y a cinquante ans. Renan pourrait en 1905 répéter les mêmes
 plaintes que vers 1855.
 (2) On pourrait objecter que les längues orientales vivantes pré- \
-sentent seules un avantage pratique. Par suite ce n'est pas l'arabe 4
+sentent seules un avantage pratique. Par suite ce n'est pas l'arabe
 é littéraire qu'il faudrait enseigner mais l'arabe oulgaire, en ses mul- ! ‘
 tiples dialectes. Ceci n'est qu'à moitié vrai. L'arabe vulgaire n'est
 jamais écrit, c'est un patois pour celui qui le parle. Quand il prend $
-le roseau, fût-ce un marchand de dattes, l'Arabe écrit l'arabe litté- k
-raire. Ajoutons que l''Européen qui ne saurait que la langue vulgaire, : 012
+le roseau, fût-ce un marchand de dattes, l'Arabe écrit l'arabe litté-
+raire. Ajoutons que l''Européen qui ne saurait que la langue vulgaire,
 sans posséder la languë savante et littéraire, ne jouirait d'aucune \
 estime, pas plus que chez nous un paysan qui ne saurait que son ee
 
@@ -1707,42 +1706,42 @@ l'Économie, « politique » comme nous disons, « natio-
 ù compte en moyenne deux professeurs ordinaires et
 i un extraordinaire ou un dozent. Les deux premiers
 
-enseignent alternativement l « Économie nationale 1
-théorique » et | « Economie nationale pratique ». F4
+enseignent alternativement l « Économie nationale
+théorique » et | « Economie nationale pratique ».
 
-Chez nous cet enseignement ne rentre pas dans le 4
+Chez nous cet enseignement ne rentre pas dans le
 cadre de la Faculté des Lettres (1) maïs dans celui de ;
-la Faculté de Droit. Il y est d'ailleurs fort mal organisé, 4
-etcomme méthode, et comme programmes, et comme per- 1
-sonnel. Pas d'enseignement des faits économiques. 1
+la Faculté de Droit. Il y est d'ailleurs fort mal organisé,
+etcomme méthode, et comme programmes, et comme per-
+sonnel. Pas d'enseignement des faits économiques.
 L' « histoire des doctrines économiques » confiée trop
 souvent en province non à un spécialiste mais à un
 éviter de payer un homme compétent. De même pour
 l'économie industrielle. La Science financière, la Statistique, mal enseignées en province, ou même pas du }
 
 Le résultat le voici : la province française n'a pas
-plus de 12 à 15 professeurs ou agrégés à opposer aux 65 5
-(dont 13 dozents) de la province allemande. (2) Paris 2
-même, avec une douzaine de professeurs ou agrégés 4
+plus de 12 à 15 professeurs ou agrégés à opposer aux
+(dont 13 dozents) de la province allemande. (2) Paris
+même, avec une douzaine de professeurs ou agrégés
 niale, etc., est inférieur à Berlin (3) qui compte une
 vingtaine de professeurs et dozents.
 
-L'Allemagne a beaucoup développé cet enseignement 4
-depuis une dizaine d'années. 4
+L'Allemagne a beaucoup développé cet enseignement
+depuis une dizaine d'années.
 
-Chez nous les quelques améliorations réalisées con- | n
+Chez nous les quelques améliorations réalisées con-
 
-(1) Sauf une exception unique : la Sorbonne a un professeur 1
+(1) Sauf une exception unique : la Sorbonne a un professeur
 
 (2) Dans ce chiffre sont compris non seulement les professeurs À
-de Staatswissenschaft de la Faculté de Philosophie, mais ceux qui S
+de Staatswissenschaft de la Faculté de Philosophie, mais ceux qui
 enseignent dans les Facultés spéciales de Sciences politiques et
 économiques instituées en Bavière et Wurtemberg. fl
 
 G) Et à presque toutes les Universités américaines. Je ne serais
-pas embarrassé d'en citer plus de vingt aux Etats-Unis dont le É:
-personnel est plus riche que celui de Paris même en ce qui touche 4
-les Sciences économiques. x.
+pas embarrassé d'en citer plus de vingt aux Etats-Unis dont le
+personnel est plus riche que celui de Paris même en ce qui touche
+les Sciences économiques.
 
 cernent, comme toujours, Paris. La province s'en tire
 | <omme elle peut, c'est-à-dire fort mal.
@@ -1763,8 +1762,8 @@ Berlin, une à Paris, à l'École du Louvre.
 La Phonétique générale et expérimentale est professée
 au Collège de France (par un chef de travaux) et à
 | l'École des Hautes Études (deux maîtres).,
-Pour la Philologie byzantine : deux professeurs é
-1 Munich, Leipzig), un dozent (Würzburg) en Allemagne,
+Pour la Philologie byzantine : deux professeurs
+Munich, Leipzig), un dozent (Würzburg) en Allemagne,
 un professeur à Paris (École des Hautes Études).
 ; On le voit, ces omissions voulues n'influent que d'une
 4 manière insignifiante sur le total qui se trouve augmenté " |
@@ -1774,48 +1773,47 @@ D'autre part, il convient, pour comparer des choses £
 comparables, de faire abstraction des « lehrer » de
 « Staatswissenschaft » pour l'Allemagne, — puisque l'en- ;
 seignement analogue se donne chez nous, bien qu'avec {
-moins d'ampleur, dans les Facultés de Droit, — en retran- J
+moins d'ampleur, dans les Facultés de Droit, — en retran-
 chant de notre côté les trois ou quatre chaïires similairés
 du Collège de France et de la Faculté des Lettres de |
 Ces précautions prises, on arrive à chiffrer, pour ce |
 que nous appelons Faculté des « Lettres », au total : |
-Allemagne : 772 maîtres de tous ordres, dont 569.
+Allemagne : 772 maîtres de tous ordres, dont
 France : 363 maîtres de tous ordres, tous rétribués |
 (tout compris, Facultés des Lettres, Collège de France,
-On le voit, même en faisant abstraction des 203
+On le voit, même en faisant abstraction des
 privat-dozents de l'Allemagne, il reste à nos voisins une
 supériorité numérique qui dépasse le chiffre de 200 professeurs.
 Il y a huit ans, en 1896, le total allemand montait déjà +
 L'augmentation dans ce faible espace de temps a $
 dépassé le chiffre de 100 et il est remarquable qu'elle
-porte en entier sur le personnel rétribué. Ë
+porte en entier sur le personnel rétribué.
 En France, en 1896, nous avions 318 maîtres de tous :
 Nous, qui aurions eu beaucoup à faire pour rattraper |
 | nos rivaux, nous avons augmenté notre personnel dans |
-des proportions sensiblement plus faibles. Il est clair 4
-qu'à marcher de ce train nous perdons notre rang de L
+des proportions sensiblement plus faibles. Il est clair
+qu'à marcher de ce train nous perdons notre rang de
 
-| 1
 | Les Facultés des Sciences françaises |
 | et les Philosophische Fakultaeten d'Allemagne ;
 | (Mathematisch-Physikalische Abtheïlung) |
 La comparaison entre les deux pays est rendue
 1° par le fait que chez nous les Facultés des
 | Sciences servent d'écoles techniques, alors qu'en
-| Allemagne il existe pour la chimie industrielle, x
-| les applications de la physique, etc., neuf immenses ù
+| Allemagne il existe pour la chimie industrielle,
+| les applications de la physique, etc., neuf immenses
 | écoles techniques dont le personnel est en dehors de
 À l'Université. Cependant, dans de petits pays (Hesse,
 À Mecklembourg, etc.), la Faculté fait, comme en France, Li)
-| fonction d'école technique ; ÿ
+| fonction d'école technique
 Ë 2 en France les étudiants en médecine font leur
 | première année à la Faculté des Sciences, ce qui a
 | nécessité naturellement une augmentation du personnel #
 i pour les sciences physiques et naturelles. Il est vrai “ul
 ; qu'en Allemagne la pharmacie étant enseignée à la à
-_ () Les abréviations sont les mêmes que plus haut. Pour ne pas 5
+_ () Les abréviations sont les mêmes que plus haut. Pour ne pas
 ‘k multiplier les rubriques la Physique mathématique a été jointe à la “
-fe: Mathématique, la Chimie physique à la Chimie, la Météorologie à 24
+fe: Mathématique, la Chimie physique à la Chimie, la Météorologie à
 ik la Physique, la Géographie physique à la Géologie et Minéralogie. te
 
 « Philosophische Fakultät », il en résulte qu'on y compte è |
@@ -1836,17 +1834,17 @@ gnements du côté français et de ne tenir aucun compte
 de la Landwirthschaft du côté allemand. On laissera :
 aux spécialistes qui s'occupent de l'enseignement de
 l « Économie agraire » le soin de rechercher comment
-il est distribué dans les deux pays. C'est, au reste, un 4
+il est distribué dans les deux pays. C'est, au reste, un
 enseignement technique et notre étude envisage surtout ;
 À le côté purement scientifique.
 On a pris grand soin d'éviter l'écueil des doubles |
-(1) Les Allemands ont aussi, en plus de l'enseignement universitaire, des écoles spéciales, ce qui complique encore les choses et J
-rend les rapprochements très difficiles. k
+(1) Les Allemands ont aussi, en plus de l'enseignement universitaire, des écoles spéciales, ce qui complique encore les choses et
+rend les rapprochements très difficiles.
 
-emplois à Paris, et de ne compter qu'une fois le même ë
+emplois à Paris, et de ne compter qu'une fois le même
 professeur, même s'il enseigne dans plusieurs établisse- fé
-ments à la fois. F
-Les trois premières sections de l'École des Hautes 3
+ments à la fois.
+Les trois premières sections de l'École des Hautes
 Études n'ont presque pas de personnel enseignant spé- #
 cial. Tous les directeurs d'études sont, en même temps, ;
 professeurs au Collège de France, à la Sorbonne, à
@@ -1858,10 +1856,9 @@ maîtres de conférences de la Faculté des Sciences.
 Un cours complémentaire de mathématiques, de fondation privée, au Collège de France, a été porté aussi
 sous cette rubrique (maître de conférences). .
 
-| | 3
 eee. Sn ce eee eee neeee  de —
 
-4 16 37 17 12 129
+4 16
 
 La division est factice. Dans les petites Universités,
 aussi bien en Allemagne qu'en France, un professeur
@@ -1899,7 +1896,7 @@ Berlin et lui est même inférieur si l'on fait entrer en
 
 ; ligne de compte les privat-dozents.
 
-$ La province allemande oppose un contingent de 44
+$ La province allemande oppose un contingent de
 
 ; professeurs et 21 dozents à la quarantaine de profes-
 
@@ -1920,7 +1917,7 @@ représentée en Allemagne par un nombre infiniment plus élevé de chaïires da
 
 à F nellement, bien moins forte que celle de l'Allemagne,
 
-* dont le personnel passe de 64 (dont 41 rétribués), à 81
+* dont le personnel passe de 64 (dont 41 rétribués), à
 
 Il ne faut pas se le dissimuler : pour la physique et
 
@@ -1928,14 +1925,14 @@ Br particulièrement l'électrotechnique, nous avons encore
 
 Ù beaucoup à faire, je ne dis pas pour rattraper l'Alle-
 
-À magne, (je juge la chose impossible), mais pour ne e
+À magne, (je juge la chose impossible), mais pour ne
 
 : pas laisser s'élargir encore l'intervalle qui nous en
 
 La supériorité de l'Allemagne devient ici tout à fait
 écrasante. En 1896 déjà, elle possédait, rien que dans
 ses Universités (abstraction faite du copieux personnel
-des Technische Hochschulen) 105 maîtres dont 62 appointés, alors que nous n'en avions (tout compris) que 53.
+des Technische Hochschulen) 105 maîtres dont 62 appointés, alors que nous n'en avions (tout compris) que
 
 En 1904 son contingent monte à 149 (dont 51 appoin- :
 tés). De notre côté nous faisons un effort : la province
@@ -1957,7 +1954,7 @@ visiblement inférieure à la province allemande, toutes .
 j (1) On 2 laissé en dehors l'École des Mines. Il eût fallu, du côté
 allemand, porter le personnel, beaucoup plus nombreux, des Bergakademien.
 
-4 L'augmentation en France (1) n'est que de 2 depuis
+L'augmentation en France (1) n'est que de 2 depuis
 
 ;. 1896. Encore faut-il ajouter que l'État n'y est pour rien.
 
@@ -1998,7 +1995,7 @@ Mais n'avoir pour la Géographie aucun enseignement
 (1) Le total allemand semble avoir baissé de 1896 à 1904 (62 au :
 lieu de 65) mais, en réalité, le personnel rétribué a augmenté : 47 au
 
-ni dans l'une ni dans l'autre Faculté, c'est vraiment trop à $ k
+ni dans l'une ni dans l'autre Faculté, c'est vraiment trop à $
 peu. C'est ce qui se produit cependant à Besançon, à ‘ES
 Grâce au Muséum, Paris semblerait l'emporter de
 beaucoup sur Berlin pour la richesse du personnel.Mais :
@@ -2007,7 +2004,7 @@ logischer Museum, — qui ne figurent pas dans les cadres |
 « professoraux » de l'Université de Berlin ; si bien que
 la supériorité de Paris se trouve en fin de compte tout
 à fait fictive.
-La province française fait bonne figure avec 30
+La province française fait bonne figure avec
 maîtres (1) vis-à-vis des 33 maîtres rétribués de la
 province allemande. Il est vrai qu'il faut ajouter à ces )
 derniers 26 privat-dozents que nous n'avons pas. En
@@ -2066,29 +2063,29 @@ des comparaisons précédentes.
 
 1. Paris se voit serré de près par Berlin. Si le nombre |
 des professeurs rétribués est plus fort chez nous, il faut
-réfléchir que le traitement du personnel français est 4
+réfléchir que le traitement du personnel français est
 aussi plus faible généralement qu'en Allemagne. Nous
 n'avons pas les dozents qui donnent à l'Université de
 Berlin une activité scientifique si intense. Paris tient
 encore son rang, mais il est menacé d'être sous peu
 
-La Faculté des Sciences réduite à ses seules forces f
+La Faculté des Sciences réduite à ses seules forces
 (Go professeurs et maîtres de conférences) ne saurait #
 soutenir la comparaison avec la section équivalente de \
-la Philosophische Fakultät de Berlin, dont le personnel ï
+la Philosophische Fakultät de Berlin, dont le personnel
 (tout compris) monte au double. à
 
 Il y a un progrès à signaler chez nous : 214 maîtres
 de tous ordres au lieu de 192 en 1896. Mais, pendant le , :
 
-mêmé espace de temps, pour les mêmes études, l'Allemagne (hors Berlin) a passé de 395 maîtres de tous ë
+mêmé espace de temps, pour les mêmes études, l'Allemagne (hors Berlin) a passé de 395 maîtres de tous
 La progression française a donc été plus faible, en ne
 tenant compte que du personnel rétribué : 22, au lieu de
 41 dans la province allemande.
 
 Néanmoins, en dépit des restrictions précédentes, la À
 situation numérique des Facultés des Sciences de province, si elle n'est pas aussi bonne qu'on le souhaiterait, n'est pas mauvaise. Avec 40 chaires et conférences
-nouvelles, on la rendrait brillante. Même avec 25 ou 30
+nouvelles, on la rendrait brillante. Même avec 25 ou
 maîtrises de conférences en plus (pour les sciences
 physiques et naturelles), ces Facultés feraient bonne
 figure vis-à-vis de l'étranger.
@@ -2101,7 +2098,7 @@ _ distribuer est sensiblement plus considérable. Il y a
 | donc eu chez nous un manque de justice à l'égard des
 Facultés des Lettres. Une dernière remarque achèvera
 de mettre ce fait en lumière :
-4 Tandis que l'Allemagne (déduction faite de Berlin)
+Tandis que l'Allemagne (déduction faite de Berlin)
 __ oppose 312 maîtres rétribués à nos 214 (Facultés des
 __ Sciences), c'est 512 maîtres rétribués qu'elle place vis-à-
 _ vis des 216 maîtres de tous ordres de nos Facultés des
@@ -2121,7 +2118,7 @@ Il manque pour : les Facultés des Lettres, approxi
 
 Langue et littérature anglaises............. 5.528
 
-Linguistique générale et comparée........ 12
+Linguistique générale et comparée........
 Ce total semble élevé au premier abord. On a vu
 | pourtant que nos évaluations ont été des plus modérées.
 Les besoins des Facultés des lettres sont grands parce
@@ -2154,9 +2151,9 @@ Lettres doit distribuer est sensiblement plus élevé. En
 Langue et Littérature grecques. À
 
 Langues et littératures romanes. ‘
-Linguistique générale et comparée. e
+Linguistique générale et comparée.
 Archéologie et histoire de l'Art. .
-Langues et Littératures orientales. i
+Langues et Littératures orientales.
 
 Au total 14 branches d'études au lieu de 8. Admettons \
 même que, dans les très petites Facultés, on supprime la
@@ -2164,13 +2161,13 @@ philologie orientale, que la philologie romane soit unie
 en une seule chaire à l'histoire de la langue française,
 
 ; comme il est évident, d'autre part, que chaque branche #
-ne peut se contenter d'un seul professeur (ainsi l'histoire), ; F
+ne peut se contenter d'un seul professeur (ainsi l'histoire),
 il n'en demeure pas moins visible qu'avec 15 ou 16 pro-
 
 _ (à) Cest pourquoi, tändis que deux seulement sur quatorze Facultés des Lettres provinciales (Lyon, Bordeaux) sont à peu près con- |
 venablement dotées, nous possédons six belles Facultés des
 Sciences, soit presque la moitié (Nancy, Lyon, Bordeaux, Lille, '
-Toulouse, Marseille) et deux honorables : Montpellier, Rennes. É
+Toulouse, Marseille) et deux honorables : Montpellier, Rennes.
 
 à fesseurs et maîtres de conférences une petite Faculté !
 : des Lettres est relativement moins riche en personnel
@@ -2205,32 +2202,32 @@ E vraiment colossale., Nous n'avons rien de semblable en
 s dans chaque Faculté des lettres il y eût un pro FL,
 spécialement chargé d'exposer l'Histoire et la Socio Le
 ' logie religieuses. Les phénomènes religieux ont une re
-: importance tellement capitale dans la vie passée, — et #. 3
-actuelle, — des sociétés, qu'on ne comprend vraimentpas 4
+: importance tellement capitale dans la vie passée, — et #.
+actuelle, — des sociétés, qu'on ne comprend vraimentpas
 qu'on laisse aux clergés (en province du moins) le mono
 pole de ces études. Ce n'est pas avec des plaisante
 ries et des articles de journaux qu'on leur disputera les "À
 jeunes intelligences. Il faudrait des hommes de science .
 | et des spécialistes pour pouvoir lutter contre lanow
-velle génération cléricale qui possède quelques hommes 4
+velle génération cléricale qui possède quelques hommes
 d'une instruction tout à fait supérieure. À °@
-Le gouvernement et le parlement ne paraissent même 3
-pas se douter de la nécessité de recruter un personnel 4
+Le gouvernement et le parlement ne paraissent même
+pas se douter de la nécessité de recruter un personnel
 capable de lutter sur ce terrain contre le clergé mo- ;
-derne. Il ne s'agit pas dans une Université d'écraser i
+derne. Il ne s'agit pas dans une Université d'écraser
 l'adversaire sous les bulletins de vote comme au Parle- À
 ment. Il s'agit de le battre scientifiquement. Et com- LA
 ment un professeur, même intelligent, mais sans instruction technique, pourrait-il affronter un adversaire À
-préparé au combat par plusieurs années d'études ? — É
-Je sais des universitaires qui envisagent avec souci ce 4
+préparé au combat par plusieurs années d'études ?
+Je sais des universitaires qui envisagent avec souci ce
 problème qui semble échapper absolument à l'attention à
 du parti républicain. À
-Il paraît donc indispensable que dans chacune de nos 4
+Il paraît donc indispensable que dans chacune de nos
 Universités provinciales il existât au moins un profes- ‘12
 seur chargé de l'étude de la Sociologie religieuse. À
-Tâche immense pour un seul homme et à laquelle il 14
+Tâche immense pour un seul homme et à laquelle il
 succomberait s'il ne rencontrait la collaboration de col- à
-lègues auxquels seraient confiés, — dans notre dessein, 2
+lègues auxquels seraient confiés, — dans notre dessein,
 — l'enseignement de l'indianisme et des littératures sé- EX
 mitiques. Ainsi renforcée, l'étude des phénomènes reli- Le
 
@@ -2243,21 +2240,21 @@ s k prenantes existent encore à la Sorbonne. Se doute-t-on
 _ qu'iln'ya ni une chaire ni une conférence de littérature
 È hongroise? Cette langue est pourtant parlée par la moitié :
 & de la monarchie autrichienne, vingt millions d'hommes !
-114 Ïl est non moins fâcheux que les pays scandinaves
+Ïl est non moins fâcheux que les pays scandinaves
 18 (Danemark, Norvège, Suède) paraissent ignorés de la
 _ France. L'histoire, la langue, la littérature de ces con2 trées ne font l'objet d'aucun enseignement chez nous.
 | Les Chambres françaises ont reçu la visite des Parlepr" mentaires scandinaves. Elles s'honoreraient en créant
 (a _ deux conférences (dano-norvégien et suédois) à la Sor- ”
 LR bonne, consacrées à combler cette lacune. On n'imagine
-_ pas l'effet moral que produirait cette mesure qui ne 1
+_ pas l'effet moral que produirait cette mesure qui ne
 14 chargerait pas beaucoup nos finances.
-14 Arrêtons-nous ici. Nous n'avons pas tout signalé. Il y ï
+Arrêtons-nous ici. Nous n'avons pas tout signalé. Il y
 | aurait encore beaucoup à dire. (1) |
 130] . Totalisons maintenant pour les Facultés des Lettres
 _ l'ensemble des desiderata. Si aux 133 chaires à confé-
 _  rences nécessaires pour la province nous ajoutons |
 M: 14 chaïres à conférences de sociologie religieuse et
-k fr ? () Ainsi il n'existe pour toute la France qu'une seule chaire de R
+k fr ? () Ainsi il n'existe pour toute la France qu'une seule chaire de
 1 sociologie générale (à Bordeaux). Il n'y en a pas à Paris à la Sorbonne. #
 ri k La Science de l'Éducation est aussi beaucoup trop délaissée. On
 1: "08 ne trouve de spécialistes qu'à Lyon, Lille et Grenoble. Les langues
@@ -2277,7 +2274,7 @@ Mais, à vrai dire, je ne vois pas que les nouvelles
 créations soient destinées à manquer d'auditeurs, bien
 : au contraire. Je ne parle pas des chaïres de français,
 d'allemand, d'anglais, d'histoire, de géographie, etc.,
-dont l'absence est une honte. Ce qui fait défaut actuel- Ç
+dont l'absence est une honte. Ce qui fait défaut actuel-
 lement en ce domaine, ce ne sont pas les élèves, mais
 les professeurs. Ces chaires-là ne sont point de luxe, mais
 de nécessité, même pour l'humble besogne de préparation aux programmes.
@@ -2307,7 +2304,7 @@ Les desiderata des Facultés des Lettres de province
 néral bien pourvue de personnel. D'ailleurs, comme elle
 touche à la. santé générale, il n'y a pas lieu d'être inquiet sur le sort de cette Faculté. C'est celle qui inté-
 resse, — et pour cause, — le plus vivement le public.
-4 Restent les Sciences et le Droit.
+Restent les Sciences et le Droit.
 À Les Facultés des Sciences, nous l'avons vu, sont re-
 ÿ lativement beaucoup mieux traitées que les Facultés
 | des Lettres. Pour le nombre du personnel la moitié environ soutient la comparaison avec l'étranger. Sans "
@@ -2320,8 +2317,8 @@ Dans les Facultés (Besançon, Clermont, Grenoble,
 SA Poitiers) on ne trouve pour la Zoologie et la Physio-
 
 logie qu'un seul préfesseur, ce qui est fort insuffisant, Aa tÈ
-Ë Pour la Botanique et la, Biologie végétale des maîtres 54 14
-de conférences font défaut à Clermont, à Grenoble, à | PE 4: t
+Ë Pour la Botanique et la, Biologie végétale des maîtres
+de conférences font défaut à Clermont, à Grenoble, à | PE
 
 logie, Pétrographie, sont enseignées par un unique pro- fe
 fesseur, auquel on impose ainsi une tâche évidemment RU:
@@ -2330,30 +2327,30 @@ Rennes, à Marseille même. Mais, en somme, l'ensemble A
 de ces lacunes ne dépasse pas la trentaine et toutes ne Re
 sont pas urgentes à combler. 7344
 
-Ce que l'on appelle Faculté de Droit en France est 4
-en réalité une triple Faculté, juridique, administrative 4
-et politique, économique. On peut dépiorer que les 2
-Sciences économiques n'aient pas été placées à la Fa- 4
+Ce que l'on appelle Faculté de Droit en France est
+en réalité une triple Faculté, juridique, administrative
+et politique, économique. On peut dépiorer que les
+Sciences économiques n'aient pas été placées à la Fa-
 culté des Lettres, comme en Allemagne, ou qu'elles ne à
 constituent pas avec l'Histoire un Institut à part, comme À
 
 dans les Universités américaines. Mais il paraît diffi-
 
-. cie de revenir sur ce qui a été fait. La conséquence de 4
+. cie de revenir sur ce qui a été fait. La conséquence de
 cette union c'est que la Faculté de « Droit » doit possé- ‘4
 
 der chez nous un personnel nombreux. En fait, il est à.
-numériquement insuffisant. Dressons le schéma de ce $ 4
+numériquement insuffisant. Dressons le schéma de ce $
 que doit posséder la triple Faculté. CRE
 
 Professeurs ou agrégés pour le Droit Civil, f À
 
 re _ le Droit commercial....... 1 ,
 
-_— — le Droitinternationalprivé 1 4
+_— — le Droitinternationalprivé
 
 : ARE »° Section administrative et politique |
-M: Professeurs ou agrégés pour le Droit Administratif. 1 ï
+M: Professeurs ou agrégés pour le Droit Administratif.
 \ 4 ” — —_ le Droit public et con-
 
 Ni — — le Droit international
@@ -2376,14 +2373,14 @@ F Les neuf autres ont en moyenne dix à onze professeurs il
 
 a secondés par deux ou trois agrégés. C'est dire qu'il
 
-L leur manque à chacune deux ou trois maîtres. Les con- é
+L leur manque à chacune deux ou trois maîtres. Les con-
 
 ne séquences de cet état de choses sont regrettables. \
 j Comme il faut donner aux étudiants tous les enseigne- it
 
-qi! ments nécessaires, le personnel se partage la besogne ÿ
+qi! ments nécessaires, le personnel se partage la besogne
 
-À et fait des cours et conférences complémentaires. ï
+À et fait des cours et conférences complémentaires.
 
 gi 1 L' « histoire des doctrines économiques » est enseignée,
 
@@ -2458,39 +2455,39 @@ but est presque toujours strictement local. Trop souvent elles,con-
 
 des nouvelles créations seraient impossibles à fairesup- % +
 porter aux villes et aux départements : notre organisa- ; F À
-tion politique s'y oppose. Les Allemands ont pu créer *14
+tion politique s'y oppose. Les Allemands ont pu créer
 avec l'aide pécuniaire des annexés une Université à KE
-Strasbourg qui a coûté plus de 20 millions, parce que Ë
-autour de Strasbourg il y a une province, — l'Alsace- ï ï
+Strasbourg qui a coûté plus de 20 millions, parce que
+autour de Strasbourg il y a une province, — l'Alsace-
 Lorraine, c'est-à-dire 1.800.000 habitants. Autour de 4.74
-| Nancy il y a le département de Meurthe-et-Moselle, 4
+| Nancy il y a le département de Meurthe-et-Moselle,
 c'est-à-dire 400.000 habitants. Le Grand-Duché de Bade De
 peut entretenir deux Universités, le Wurtemberg une À
 autre. La Côte-d'Or ou l'Isère ne peuvent suflire à soutenir des Universités, même modestes, comme Dijon et ;
-Grenoble. Il est donc nécessaire que le pouvoir central 5
-se charge chez nous du rôle dévolu en grande partie K
+Grenoble. Il est donc nécessaire que le pouvoir central
+se charge chez nous du rôle dévolu en grande partie
 chez nos voisins aux « provinces », qui ne sont plus : A
 en France que des fantômes. ?
-Dernière objection : pourquoi les Facultés ne pour- J
-voient-elles pas elles-mêmes à ces dépenses, puisque la 1
-loi de 1896 leur laisse la disposition de leurs droits 4
+Dernière objection : pourquoi les Facultés ne pour-
+voient-elles pas elles-mêmes à ces dépenses, puisque la
+loi de 1896 leur laisse la disposition de leurs droits
 d'inscriptions ? — Cette objection serait dérisoire. :
-* Les Facultés des Lettres, — celles dont les besoins 4
+* Les Facultés des Lettres, — celles dont les besoins
 sont les plus grands, — sont les moins peuplées. D'ail- +4
 leurs, les étudiants en licence payent seuls des droits et ‘4
-l'on sait qu'ils ne les payent que pendant un an, tandis ï
+l'on sait qu'ils ne les payent que pendant un an, tandis
 que les étudiants en droit versent à leur Faculté pen- |
 dant 3 et parfois 4, 5 et 6 ans. De même à la Médecine.
-Il est vrai que l'on souhaiterait que les Facultés S.
-« riches » vinssent en aide à leur sœur misérable lors M
-de la fixation du budget au conseil universitaire. Ce L
-serait peu connaître les hommes que de s'étonner que, 3
-le fait ne se produise que rarement. È
-Sur leurs ressources misérables nos Facultés des 1
+Il est vrai que l'on souhaiterait que les Facultés
+« riches » vinssent en aide à leur sœur misérable lors
+de la fixation du budget au conseil universitaire. Ce
+serait peu connaître les hommes que de s'étonner que,
+le fait ne se produise que rarement.
+Sur leurs ressources misérables nos Facultés des
 
 e Lettres sont souvent obligées, — et c'est une honte, — de \
 4 prélever l'argent nécessaire pour des conférences indis- "
-3 pensables, d'anglais, d'allemand, de latin, etc., qu'en ; j
+3 pensables, d'anglais, d'allemand, de latin, etc., qu'en
 R: bonne justice l'État aurait dû prendre partout à sa
 
 | charge. Comment veut-on qu'elles trouvent les fonds né-
@@ -2500,20 +2497,20 @@ k. Seul l'État, encore une fois, peut y pourvoir. il
 centaines et par milliers des étudiants à nos universités,
 H en les retenant deux ans sous les drapeaux, va porter
 ÿ un coup sensible à leurs finances puisque celles-ci sont
-J alimentées par les droits d'inscriptions. En bonne jusji tice, l'État est tenu à une compensation. (1) F
+J alimentées par les droits d'inscriptions. En bonne jusji tice, l'État est tenu à une compensation. (1)
 B . Il le peut. Voyons en effet la carte à payer.
 
 Fe Nous avons signalé pour les Facultés des Lettres
 
 18 150 lacunes graves, 30 environ pour les Facultés des
-4 Sciences, 20 à 25 pour les Facultés de Droit, soit au
+Sciences, 20 à 25 pour les Facultés de Droit, soit au
 F. Bornons-nous aux Facultés des Lettres dont les
 
 À besoins sont particulièrement sensibles.
 4 (1) I y aurait bien une combinaison qui pourrait sauvegarder la :
 4 haute culture même avec la loi de deux ans. :
 Ar La première année serait entièrement consacrée au service. *
-1 Dans la seconde, — qui sera vide d'intérêt militaire, — les jeunes
+Dans la seconde, — qui sera vide d'intérêt militaire, — les jeunes
 
 jt gens qui se préparent aux grades de licenciés ès-lettres ou èsTANe sciences (ou aux agrégations si lon voulait être sévère), au docto- -
 ho: rat en droit ou en médecine, — seraient autorisés à faire leur ser- }
@@ -2525,7 +2522,7 @@ Qi Il va sans dire que toute absence non justifiée entrainerait le
 [TA — inespérée; enfin les jeunes gens gagneraient par leurs études
 ‘at léquivalent, sinon d'une année pleine, du moins d'un semestre.
 #1 J'ai soumis ce projet à quelques personnalités. qui ont bien »
-RE voulu déclarer qu'il était sans chance aucune parce que « assez L
+RE voulu déclarer qu'il était sans chance aucune parce que « assez
 
 On a expliqué plus haut comment, par une entente |
 avec les villes, on pourrait installer à peu de frais l'en- L;:1
@@ -2541,7 +2538,7 @@ En confiant l'Archéologie classique et l'Histoire de
 VAntiquité à un seul maître on pourrait réaliser une |
 économie réelle dans certaines petites universités
 (ainsi à Rennes, à Poitiers, à Clermont, à Besançon, à
-Grenoble, etc.). De ce fait les desiderata seraient ramenés de 150 à 145.
+Grenoble, etc.). De ce fait les desiderata seraient ramenés de 150 à
 
 Dans les autres branches d'études il ne s'agit pas non
 plus de créer des chaires de 8 à 10.000 francs, mais des |
@@ -2552,7 +2549,7 @@ derata, 100 environ seraient de simples maîtrises de
 conférences et le reste, — peut-être, — des chaires avec
 
 Créés aujourd'hui, ces postes n'imposeraient donc à |
-l'État qu'une charge annuelle de 650 à 700.000 francs, 4
+l'État qu'une charge annuelle de 650 à 700.000 francs,
 cinq, six, sept ans ou davantage. |
 
 Dira-t-on que c'est au-dessus des forces du pays ? Ceci
@@ -2593,10 +2590,10 @@ fait leurs preuves. Mieux vaut rien qu'un personnel
 
 | médiocre de simples vulgarisateurs. Or, à l'heure
 actuelle, nous sommes encore loin en France d'avoir à
-tous les hommes nécessaires pour relever notre haut 15e
+tous les hommes nécessaires pour relever notre haut
 enseignement. Tandis qu'en Allemagne l'arbre de la
 science compte sur chaque branche, sur chaque feuille, AE
-+ plusieurs chenilles, la pénurie d'hommes de valeur est f
++ plusieurs chenilles, la pénurie d'hommes de valeur est
 \ chez nous frappante, j'entends de spécialistes instruits, - ES
 de travailleurs originaux.
 
@@ -2605,70 +2602,70 @@ capables d'enseigner scientifiquement FHistoire de l'Art  ?
 moderne. (1) Je serais passablement embarrassé de à
 désigner quatorze professeurs de Sociologie religieuse.
 J'entrevois seulement cinq ou six jeunes savants en état
-d'enseigner avec l'éclat que réclame une chaire d'Uni- d
+d'enseigner avec l'éclat que réclame une chaire d'Uni-
 
-De même pour la Psychologie expérimentale. Il nous Ÿ
+De même pour la Psychologie expérimentale. Il nous
 faudrait une quinzaine de maîtres. En trouverait-on |
-chez nous le tiers ? 1
+chez nous le tiers ?
 | Seulement, dans un délai de cinq ans ou de dix ans, il : \
-est absolument sûr que ce personnel serait formé, si on ÿ
-le veut réellement, c'est-à-dire si l'on décide que dans 4
+est absolument sûr que ce personnel serait formé, si on
+le veut réellement, c'est-à-dire si l'on décide que dans
 un délai de cinq ou dix ans tous ces postes seront créés.
 Le seul moyen d'aboutir est de se mettre en mouvement #
 dès maintenant et d'en créer le quart, le cinquième,
 moins si l'on veut, mais en continuant chaque année. ?)
-En un mot, il faudrait établir, dès l'année 1905, un pro- ï
+En un mot, il faudrait établir, dès l'année 1905, un pro-
 ; gramme pour l'enseignement supérieur, tout comme on
 fait pour les constructions navales. ;
-(:) J'écarte naturellement la race des amateurs, la bande des L
+(:) J'écarte naturellement la race des amateurs, la bande des
 journalistes critiques d'art. Ces gens-là sont à fusiller, — tout sim- %
 
-4 Cette année 1905 pourrait fournir, au surplus, une “à
-* occasion financière inespérée. Si le Concordat est 5
-l dénoncé, que le Parlement n'oublie pas nos Universités 1
-à de province. C4
+Cette année 1905 pourrait fournir, au surplus, une “à
+* occasion financière inespérée. Si le Concordat est
+l dénoncé, que le Parlement n'oublie pas nos Universités
+à de province.
 t Mais, répétons-le, les ressources extraordinaires ne Fe ‘1
-À sont pas indispensables. (1) Par une augmentation 5
+À sont pas indispensables. (1) Par une augmentation
 ñ annuelle de 200.000 francs environ, le Parlement peut :
-_, amener progressivement, en quatre ou cinq annuités, K
+_, amener progressivement, en quatre ou cinq annuités,
 
-: nos Universités provinciales à posséder un personnel, 4
+: nos Universités provinciales à posséder un personnel,
 sinon exubérant, du moins décent. cl
 La production scientifique, actuellement insignifiante \ (à
 9 chez nous par rapport à l'Allemagne, pourra s'élever ui
-L considérablement, chose présentement impossible faute É
+L considérablement, chose présentement impossible faute
 # d'une armée suffisamment nombreuse. RE
-d: (1) Signalons cependant que la suppression, — inévitable, — des ; 18
+d: (1) Signalons cependant que la suppression, — inévitable, — des
 K deux Facultés de théologie protestante de Paris et de Montauban LEA
 ‘A laisserait en chiffres ronds 100.000 francs disponibles. Une partie ps
 1 : de cette somme pourrait être appliquée à l'Ecole des Hautes Etudes #8
 44 5 section. Le reste suflirait parfaitement pour amorcer em +6
 +4 province les études de Philologie orientale et de Sociologie #4
 K:: religieuse. La création des quatre ou cinq conférences de sociologie Pt -
-D religieuse, des huit ou dix conférences d'Indianisme, de Langues d
+D religieuse, des huit ou dix conférences d'Indianisme, de Langues
 ‘18 en province ne demanderait pas, en effet, de crédit supérieur à 60 Te
-KL: ou 70.000 francs par an. On sait que la suppression des Facultés de 4
+KL: ou 70.000 francs par an. On sait que la suppression des Facultés de
 Ru. théologie catholique en 1885 avait eu ce résultat pour Paris en #
 à): # permettant de créer la 5* section de VEcole des Hautes Etudes. #
 
-4 1
+4
 Admettons que toutes les augmentations indiquées |
 aux chapitres précédents aient été effectuées, que nos ;
 Facultés provinciales soient renforcées de 150 à 200 pro- |
-fesseurs nouveaux, seront-elles en état de produire 1
+fesseurs nouveaux, seront-elles en état de produire
 autant que leurs rivales germaniques, — toutes propor- ;
 Non certes. Et voici pourquoi : le mode de recrutement à
 
 des Universités allemandes tend à susciter une production scientifique énorme. On sait que le concours a été
 écarté chez nos voisins de parti pris; il développe un |
-mécanisme banal et tue l'esprit scientifique. Les Universités allemandes, autrichiennes, suisses, se recrutent ñ
+mécanisme banal et tue l'esprit scientifique. Les Universités allemandes, autrichiennes, suisses, se recrutent
 par cooptation. Nul n'est nommé professeur extraordi- !
 naire, puis ordinaire, s'il n'a pas été attaché pendant $
-de longues années à une Université comme docteur 3
+de longues années à une Université comme docteur
 libre (privat-dozent). L'habileté pédagogique du profes- €
 seur libre ne joue aucun rôle dans le recrutement. On £
 l'estime négligeable dans l'enseignement supérieur. Ce Fi
-qu'on exige, ce sont des titres scientifiques sérieux. Il 1
+qu'on exige, ce sont des titres scientifiques sérieux. Il
 
 en résulte que, pour arriver au professorat, — les jeunes
 
@@ -2701,38 +2698,38 @@ aucun autre pays. » (3)
 lettres, — analyse et critique. (Paris, Imprimerie Nationale, 1904,
 1 rieux en ce sens.
 L (3) Assertion bien téméraire !
-4 89
+4
 
 Ferdinand Lot eee DR de
 L'auteur n'oublie qu'une chose, c'est que le professeur x | | *
 de lycée, accablé de besogne, est dans l'impossibilité de
 se livrer à un travail scientifique suivi. Où trouver le
 temps de fouiller les Archives s'il est historien, de d ,
-voyager s'il est géographe, de travailler dans les biblio- . D.
-thèques spéciales s'il est philologue, littérateur, etc. ? $ j
-Et plus l'on ira, plus la situation s'aggravera. Faute 14
+voyager s'il est géographe, de travailler dans les biblio-
+thèques spéciales s'il est philologue, littérateur, etc. ? $
+Et plus l'on ira, plus la situation s'aggravera. Faute
 d'argent, la Direction de l'Enseignement secondaire, qui À
 ne peut ou ne veut pas créer de chaires nouvelles, — #4
 exige sans cesse des heures supplémentaires. Nos pro- ?
 fesseurs de lycée n'ont plus une minute à eux et c'est de fl
 ce personnel qui peut à peine suffire à sa besogne pro- {
-fessionnelle que vous attendrez du travail scientifique ? 4
+fessionnelle que vous attendrez du travail scientifique ?
 . ressort. L'auteur n'a donc jamais causé avec un
-collègue de lycée ? IL y a dix ou vingt ans, oui, le 4
+collègue de lycée ? IL y a dix ou vingt ans, oui, le
 professeur pouvait travailler, — très peu. Aujourd'hui, |
 c'est impossible dans ce bagne qu'on appelle l'en- |
-seignement secondaire où l'on ne rencontre plus que 4
+seignement secondaire où l'on ne rencontre plus que
 des gens surmenés, aigris, — ou ce qui est pire, — ; à
-Voilà une belle armée à opposer aux centaines de 1
-privat-dozents allemands dont tout l'effort est tendu l
-vers la production scientifique ! 4
+Voilà une belle armée à opposer aux centaines de
+privat-dozents allemands dont tout l'effort est tendu
+vers la production scientifique !
 p Sans doute, — de loin en loin, — un professeur de “0
 lycée réussit à présenter une thèse de doctorat. Mais à
-au prix de quel effort! Le malheureux a usé dix ou N
-quinze ans parfois à produire un livre qui ne lui k.
-aurait pas demandé peut-être deux ans s'il avait eu des 1
+au prix de quel effort! Le malheureux a usé dix ou
+quinze ans parfois à produire un livre qui ne lui
+aurait pas demandé peut-être deux ans s'il avait eu des
 Au reste, ce grand effort l'épuise, et s'il obtient une ‘4
-chaire dans une Faculté, il y a grande chance pour que, SH 48
+chaire dans une Faculté, il y a grande chance pour que, SH
 
 TN du mots
 i fourbu, il ne produise plus rien pendant le reste de sa
@@ -2772,10 +2769,10 @@ Faculté auprès de laquelle ils doivent être attachés,
 + alors complètement manqué. Un autre écueil à éviter
 M serait d'instituer pour le recrutement de ces « docteurs
 A libres » un concours. On retomberait dans la galère
-1 91
+1
 
 des agrégations et mieux vaudrait ne rien faire du
-Cette bourse serait valable quatre ou cinq ans. Si au 1
+Cette bourse serait valable quatre ou cinq ans. Si au
 bout de ce temps, le bénéficiaire n'avait trouvé ni une
 chaire ni une maîtrise de conférences, il pourrait continuer son stage, — mais sans traitement de l'État, — ou '
 bien renoncer à la carrière.
@@ -2785,16 +2782,16 @@ un moyen de gagner leur vie. Ceux-ci préféreront toujours l'enseignement secon
 répétitions, une existence plus large. Seuls les jeunes
 gens ayant le feu sacré prendraient la voie du « privat- .
 dozentisme »; mais, en même temps, cette bourse,
-malgré sa modicité, en permettrait l'accès à la démo- 4
+malgré sa modicité, en permettrait l'accès à la démo-
 Il ne faudrait pas que chaque Faculté eût droit à
 un nombre fixe de ces bourses : telle pourrait s'encombrer de médiocres pendant qu'une autre demeu- |
 rerait sans ressources suffisantes. En outre, les petites Facultés courraient le risque d'être délaissées,
 alors qu'elles ont plus besoin d'être aidées que les
-: Je concevrais l'institution sous forme d'une caisse 1
+: Je concevrais l'institution sous forme d'une caisse
 centrale dont le Ministre de lInstruction publique
-aurait naturellement la surveillance. Une Université 1
+aurait naturellement la surveillance. Une Université
 signale au Ministre un ou plusieurs jeunes gens (pour-.
-vus de titres) qui veulent entrer dans l'enseignement F
+vus de titres) qui veulent entrer dans l'enseignement
 supérieur et faire un stage scientifique. Le Ministre
 examine les travaux des impétrants. Selon les besoins, À
 selon l'état de la caisse, il accorde des bourses tantôt
@@ -2848,32 +2845,32 @@ br dozentisme sera impossible à établir dans nos Facultés #
 de Médecine. Ne à
 | Dans l'état actuel des choses, seules les Facultés des gs
 Lettres et des Sciences, — qui n'ont pas barrélechemin
-| -du professorat par le concours d'agrégation, — sont 14
+| -du professorat par le concours d'agrégation, — sont
 5 mûres pour le privat-dozentisme. ES
 - Nous possédons, au reste, les germes de l'institution } EP
 sous forme de bourses d'études, de voyage. L'Institut EVE
 Thiers offre le vivre et le couvert à de véritables AE
-« privat-dozents » (qui n'enseignent pas il est vrai). | « 4
-Mais cela est confus, chaotique. Après avoir formé de 4
-futurs professeurs de Facultés par des missions à l'étran- 2
+« privat-dozents » (qui n'enseignent pas il est vrai). | «
+Mais cela est confus, chaotique. Après avoir formé de
+futurs professeurs de Facultés par des missions à l'étran-
 ger, par les Écoles de Rome, d'Athènes, du Caire, d'Hanoï, % ke
 on ne sait qu'en faire à leur retour. On les envoie le “1
 plus souvent dans un lycée ou même un petit collège où “4
-ils s'étiolent. Ce sont des forces perdues. 32
+ils s'étiolent. Ce sont des forces perdues.
 On ferait mieux de les diriger sur les Universités 5°f
-de province comme « privat-dozents » ou bien, à Paris, k
-de les loger à l'École Normale. Cette École, dont visible- 1
+de province comme « privat-dozents » ou bien, à Paris,
+de les loger à l'École Normale. Cette École, dont visible-
 ment on ne sait plus que faire, que l'on n'ose ni suppri- +5
-mer complètement ni maintenir, — devrait être une sorte É
+mer complètement ni maintenir, — devrait être une sorte
 de Grand Institut Thiers où entreraient les privat.
 dozents sans fortune de l'Université de Paris. “4
-Reste une dernière question. Quel seraït le nombre, — 13
+Reste une dernière question. Quel seraït le nombre,
 _{ approximatif, — de ces « privat-dozents » français? Cela : à
 dépendrait uniquement des crédits votés par le Parle- Ne
 ) ment. À titre de renseignement voici les chiffres que j'ai 4 |
 
 place un grade scientifique élevé, un « doctorat en biologie » qui ‘234
-ouvrirait les portes de la Faculté de Médecine, comme le doctorat 44
+ouvrirait les portes de la Faculté de Médecine, comme le doctorat
 ès-lettres et és-sciences fait pour les Facultés des Lettres et les ; ST
 Facultés des Sciences. J À eus
 
@@ -2882,15 +2879,15 @@ disons, dans les listes des Philosophische Fakultäten : : à
 
 be y Pour l'ordre des « Sciences » proprement dites (Mathé- pe
 #4 matiques, Chimie, Physique, Biologie) le total est un #
-‘64 peu plus élevé. N,
+‘64 peu plus élevé.
 où Si bien que pour les Lettres et les Sciences (2) l'Alle- Re
 ‘4 magne possède un bataillon d'environ 500 jeunes de
-D: savants auquel nous ne pouvons quasi rien opposer. On F4
-Halo (x) Non compris les privat-dozents malades ou en congé. 4
+D: savants auquel nous ne pouvons quasi rien opposer. On
+Halo (x) Non compris les privat-dozents malades ou en congé.
 A8 j (2) 11 y a peu de privat-dozents pour le Droit chez nos voisins. qe
 
 ne s'étonnera plus que dans les Répertoires annuels de
-la production scientifique les noms français soient si f
+la production scientifique les noms français soient si
 rares en comparaison des allemands.
 Si l'on voulait sortir de cette infériorité, l'institution
 du privat-dozentisme semble le moyen le plus efficace. |
@@ -2902,15 +2899,15 @@ l'institution ne réussissait pas chez nous, ce crédit serait di
 supprimé dans trois ou quatre ans. Si elle avait du suc- |
 cès, on aviserait à la développer fortement. |
 On objectera à cette proposition que les Dozents
-existent en France, que ce sont les Maîtres de confé- 1
+existent en France, que ce sont les Maîtres de confé-
 rences d'Université. C'est une erreur complète. A l'ori- {
-gine, oui, on a voulu en faire des privat-dozents payés. l
+gine, oui, on a voulu en faire des privat-dozents payés.
 Mais l'institution a dévié immédiatement. (1)
 Il y a donc lieu de reprendre l'idée du privat-dozentisme. Si elle était adoptée il faudrait renoncer à cette ;
 dénomination surannée de « maîtres de conférences »et
 user de celle de « professeur extraordinaire » ou de
 ils prendraient le titre français de professeurs libres à
-l'Université de X.
+l'Université de
 (:) Voir plus haut, chapitre IL. |
 (2) Ce titre est actuellement accordé trop rarement au maître de |
 conférences après plusieurs années de service. Son avantage principal est de consolider la situation. Le « maître de conférences »
@@ -2937,7 +2934,7 @@ k Les exemplaires sur whatman, tirage non réimposé,
 ! souscripteur ; le tirage à part sur whatman a commencé
 F de fonctionner au premier janvier 1906 ; les inscripi tions pour cet abonnement particulier sont reçues en
 di tout temps et reçoivent un numéro d'ordre déterminé
-\ automatiquement par le rang méme qu'elles occupent k
+\ automatiquement par le rang méme qu'elles occupent
 | < dans l'ordre de l'arrivée, les numéros les plus bas venant
 ; naturellement aux inscriptions les plus anciennes; c'est
 1 ce numéro d'inscription qui devient automatiquement le

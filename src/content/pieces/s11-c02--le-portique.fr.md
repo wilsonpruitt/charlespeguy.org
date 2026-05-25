@@ -10,7 +10,7 @@ wordCount: 21988
 : su périodique paraissant tous les deux dimanches
 ndons 8, rue de la Sorbonne, au rez-de-chaussée
 
-Dans les treize cahiers de leur dixième série, année e!
+Dans les treize cahiers de leur dixième série, année
 scolaire 1908-1909, nos cahiers ont publié : ;
 X-1. — Pierre Mizee.— l'enfant et la reine morte. 3 50 ;
 X-0.— PrRrRE Hamp. — dix contes écrits dans le
@@ -38,24 +38,24 @@ de 72 pages; in-18 grand jésus; nous le vendons à
 : 8, rue de la Sorbonne, au rez-de-chaussée
 
 Nous avons publié dans nos éditions antérieures et à
-dans nos cinq premières séries, 1900-1904, un Si 4
-; grand nombre de documents, de textes formant dos- r
+dans nos cinq premières séries, 1900-1904, un Si
+; grand nombre de documents, de textes formant dos-
 si grand nombre de cahiers de lettres, — nouvelles, "æ
-romans, drames, dialogues, poèmes et contes; — un ï
+romans, drames, dialogues, poèmes et contes; — un
 si grand nombre de cahiers d'histoire et de philo- .
 sophie; et ces documents, renseignements, textes,
 dossiers et commentaires, ces cahiers de lettres,
 d'histoire et de philosophie étaient si considérables
-| que nous ne pouvons pas songer à en donner ici 1
+| que nous ne pouvons pas songer à en donner ici
 l'énoncé même le plus succinct; pour savoir ce qui a
 2 paru dans les cinq premières séries des cahiers, il
 suffit d'envoyer un mandat de cinq francs à M. André
 Bourgeois, administrateur des cahiers, 8, rue de la
-Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement; on recevra en retour le catalogue analytique l
-sommaire, 1900-1904, de nos cinq premières séries. x
+Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement; on recevra en retour le catalogue analytique
+sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner, .
 ÿ autant qu'il se pouvait, une image en bref, un raccourci,
-3 2
+3
 
  * uneid se, ab 7 égée, mais complète, de nos éditions anté-
 % . rieures et de nos cinq premières séries ; tout y estclassé Le
@@ -73,7 +73,7 @@ __  vait, par le fait même de son abonnement,en tête dela
 LA à toute personne qui nous en fait la demande. F0 RÈSRREN
 
 .
-aux Cahiers de la Quinzaine d
+aux Cahiers de la Quinzaine
 
 Le présent petit index donne automatiquement pour tout volume et pour tout
 
@@ -165,7 +165,7 @@ Dont le sang par ma mère en mes veines cireule,
 Toi de qui la devise était : « Je maintiendrai! »
 Apprends-moi la fierté, dans un siècle d'affaires,
 De souffrir sans espoir et d'agir sans salaire
-Pour l'amour seul du Juste et la splendeur du Vrai! E
+Pour l'amour seul du Juste et la splendeur du Vrai!
 
 A mon Père
 Nul cœur ne fut plus simple et plus pur que le tien.
@@ -174,7 +174,7 @@ Et tu fis, quarante ans, ta tâche coutumière,
 Sobre, tranquille et brave, heureux comme un Ancien. ”
 Lorsque vint l'ouragan hideux, je me souviens,
 Où la France eùt sombré sans quelques âmes fières,
-Tu fis ingénûment, avec elles, litière 20
+Tu fis ingénûment, avec elles, litière
 De tout ton clair bonheur, pour tenir tête aux chiens!
 Donnant ton être sans compter, plus pâle à peine,
 Moins meurtri que surpris de connaître la haine,
@@ -251,9 +251,9 @@ Près du guerrier défunt, on plaçail sous la terre
 Püt les étreindre encore, après qu'on l'inhuma.
 | Pour nous, l'amour de l'homme est plus loin de sa bouche.
 | Nul aujourd'hui ne pourrait plus, quand il se couche,
-4 Emporter avec lui ce qu'au monde il aima.
+Emporter avec lui ce qu'au monde il aima.
 
-le portique 2 Û
+le portique
 Près de l'humble cité qu'entourent des jardins,
 Après des mois obscurs de fouilles souterraines,
 On a presque exhumé la gigantesque arène :
@@ -266,7 +266,7 @@ Là, sous le masque hilare ou le masque farouche,
 Plaute, Eschyle ou Sophocle ont parlé, par la bouche
 D'une amoureuse illustre ou d'un mime défunt ;
 Œdipe en sang hurla près du mur octogone,
-Ft l'on pleura de voir disparaître Antigone F
+Ft l'on pleura de voir disparaître Antigone
 Sur la pente où ces lys exhalent leur parfum. |
 
 Le petit port de pêche abrite des colères
@@ -304,7 +304,7 @@ Sait aujourd'hui, pour une idée, offrir son sang.
 L'Abbaye de Landévennec
 L'abbaye est croulante au bord du golfe bleu.
 Mais une main pieuse, avec des feuilles vives,
-Simula les arceaux, les voûtes, les ogives; è
+Simula les arceaux, les voûtes, les ogives;
 Et c'est un cloître vert qui s'offre intact à Dieu,
 Non pas au Dieu vengeur, dont la guerre est le jeu,
 Tyranneau du farouche essaim des hordes juives,
@@ -409,7 +409,7 @@ F Décliner lentement, dans la brume obseurci!
 
 N° n'irons plus au Bois, les roses sont coupées
 Sur la pelouse rase à l'ombre du couvent
-Dont naguère nous fleurissions dans les cepées 4
+Dont naguère nous fleurissions dans les cepées
 Nos fronts suaves, où soufllait le léger vent !
 Nous n''irons plus au Bois, les roses sont coupées!
 Dans la ronde les morts se mêlent aux vivants;
@@ -455,13 +455,13 @@ D'un geste un peu plus tendre ou d'un mot dil trop bas.
 
 __  Calmes, d'un peu d'orgueil à peine compassées,- LT ENT
 _ Parmi la fête des regards, à pas très lents, RASE
-Re ES _ Sous le frisson de soie et d'or des voiles blancs, ja © 40R N
+Re ES _ Sous le frisson de soie et d'or des voiles blancs, ja ©
 Be - S'en vont ces déités d'un jour, les Fiancées. SRI
 M Vers l'Église où, suave, en houles cadencées, eee
-7 Fa _ Se déroule un triomphe d'orgues et d'encens, ESA
+Fa _ Se déroule un triomphe d'orgues et d'encens, ESA
 É Es _ Elles vont, l'œil mi-clos sous les cils frémissants, fre
 _  Fronts sonores aussi de chantantes pensées. Rue
-ke. PAS: 3 Elles s'en vont, les Vierges blondes, cœurs ravis; D
+ke. PAS: 3 Elles s'en vont, les Vierges blondes, cœurs ravis;
 % Leur pied indolemment foule sur le parvis RARE à
 Pix . Les myrtes nupliaux en neigeuses jonchées, FT HS
 _  Etces Enfants d'hier encor ne savent pas De À
@@ -526,7 +526,7 @@ Un archange en pleurant m'a suivi dans les bois !
 a Depuis, j'ai dû quitter tes collines, Florence,
 La croix sainte, le Dôme et mon San Giovanni
 Pour les rives d'exil, et, aux routes de France,
-4 J'ai connu l'amertume et le pain du banni...
+J'ai connu l'amertume et le pain du banni...
 | O Florence, j'ai fui ton beau fleuve et tes portes,
 : Et mon corps est errant comme les ombres mortes.
 
@@ -549,12 +549,12 @@ Jette encore en mon cœur des lueurs ineffables.
 L'Amour et la Mort
 L'Amour est ceint de myrte, et la Mort de cyprès.
 L'Amour folâtre rit à l''Aurore indulgente,
-4 La Mort penche son front dans le soir qui l'argente.
+La Mort penche son front dans le soir qui l'argente.
 L'un porte l'urne d'or, l'autre l'urne de grès.
 . « L'Amour chante, et s'en va vers la Mort par degrés.
 C'est, sous les bois profonds, une invisible sente;
 Les pas du dieu ne marquent point sur la descente,
-Et, peu à peu, l'ombre enténèbre la forêt. 1
+Et, peu à peu, l'ombre enténèbre la forêt.
 cs Nul n'a pu de ses yeux voir le baiser farouche :
 Que l'Amour et la Mort se donnent sur la bouche,
 Ou nul n'est revenu pour le dire aux Vivants;
@@ -586,19 +586,18 @@ Mais il me revenait plus frémissant; et comme
 Célèbre, adulé, fier, s'il est de ceux qu'on nomme,
 Il m'a dû sa grandeur, sa gloire et son émoi;
 Si j'ai pleuré par lui, si j'ai souffert, en somme
-Souffrir pour ce qu'on aime est doux : ce fut ma loi. 2
+Souffrir pour ce qu'on aime est doux : ce fut ma loi.
 ' Lorsque je vis mon charme et ma fraîcheur de femme
 k S'éteindre, je mourus, suprême effort de l'âme.
 | Devant mon lit de mort lui vint son plus beau chant. » Vers d'autres est allé son léger cœur d'artiste,
 À Non sans remords, peut-être — il n'était point méchant. —
 Va lui dire, Passant, que je ne suis pas triste.
-| 49
 
 le portique :
 Encore un jour, un pauvre jour, et c'est fini! |
 Le temps, pour l'astre bref, de terminer sa course, |
-Nos lèvres, qui buvaient à la divine source, k
-Se heurteront à la muraille de granit. 4
+Nos lèvres, qui buvaient à la divine source,
+Se heurteront à la muraille de granit.
 Je vous regarde fuir comme un pauvre bénit |
 Celle de qui l'aumône a délié la bourse;
 Lointaine, aussi lointaine, hélas! que la Grande Ourse,
@@ -607,14 +606,14 @@ Je ne reverrai plus, Fée aux robes légères,
 Ni votre jupe rose au milieu des fougères,
 Ni vos yeux d'or dont l'aube éclaira mon chemin...
 Ah! faut-il que l'instinct le plus puissant nous leurre,
-Et qu'on quitte en pleurant la Volupté qui pleure, 3
+Et qu'on quitte en pleurant la Volupté qui pleure,
 Sans lui baiser la bouche et lui prendre la main?
 
 re Je me rappellerai toujours, femme au cœur tendre, D jé =
 4 * Ce banc dans le chemin solitaire, à Neuilly. (S'ÉSnSe TEE
-È Le bois désert était par l'automne endeuilli, + 72 0e
-On voyait par instant une feuille descendre RE. 0
-4 D'un arbre vers le sol, et nous pouvions entendre EC a: RS
+È Le bois désert était par l'automne endeuilli, +
+On voyait par instant une feuille descendre RE.
+D'un arbre vers le sol, et nous pouvions entendre EC a: RS
 ._  L'aboi des chiens hurlant au loin dans les taillis. 'ÉL US "EA
 _  D'incertitude, et comme il fut près de se rendre! 151 Ge AC
 __ Mais la vie entre nous creusait ses noirs abimes, à DE:
@@ -652,7 +651,7 @@ Tel un Titan déchu, noir de foudre et dompté..
 À L'étoile d'or n'est plus qu'un bloc sans étincelle!
 à Ainsi, mon pauvre Amour, ayant rayé de l'aile
 k La ténèbre mélodieuse et l'éther bleu,
-Vous tombâtes dans un lieu perdu, faible Archange... s
+Vous tombâtes dans un lieu perdu, faible Archange...
 Là, depuis lors, s'élève un monolithe étrange,
 Un fragment d'astre mort, la carcasse d'un dieu!
 
@@ -664,8 +663,8 @@ PS 4 _ Dans les soirs fulgurants et les aubes mystiques, FRA
 4 iQ _ Sous des astres plus purs, dont s'étonnent les yeux, +) "C5
 J'ai dit mon grand amour aux abimes antiques x SA
 AE - Où l'Atlantide endort son front mystérieux. Rs
-__ L'océan séchera comme un peu de rosée; - 4
-NS END, Les étoiles, ainsi que des lampes au vent, D 34
+__ L'océan séchera comme un peu de rosée;
+NS END, Les étoiles, ainsi que des lampes au vent,
 _ Une à une mourront dans la nuit apaisée; ce
 _ Mais ce soupir léger vers ton ombre de femme, RRULE |:
 ai M O mon sublime Amour, demeurera vivant RE |
@@ -727,14 +726,14 @@ Des sites où s'était déroulé leur destin, Des SA
 
 (oi. 1rau Argentés par le soir, dorés par le matin. TA i is
 ne _ Ils eussent modelé ton front chaste et hautain, ANS
-4 Mo -- _ Ta bouche ferme, tes mains longues, tes yeux sages, ‘21
+Mo -- _ Ta bouche ferme, tes mains longues, tes yeux sages, ‘21
 Sur un océan lisse, immobile et lointain, à ENS
 LR Avec, peut-être, un vol de plumes en voyage... ÉTAT
 _ Car ton âme un peu triste a la sérénité >: c]
 “ _ De la mer, qu'à jamais enchante une clarté, DE à
-LE “En Azur tendre, ou mélancolique elair de lune, Est. Ne 4
+LE “En Azur tendre, ou mélancolique elair de lune, Est. Ne
 _ Elta vie est pareille aux purs sables dormants PARU :
- Oùse déplie, emblème exact des cœurs aimants FES F
+ Oùse déplie, emblème exact des cœurs aimants FES
 1e UE Qui ne fleurissent qu'une fois, le lis des dunes, ne. LEE
 
 Tes aïeux ont quitté l'énergique Angleterre,
@@ -798,7 +797,7 @@ La douant, pour un soir, du geste et de la voix 2...
 Je vous offre, endormie en ces pages de livre,
 Madame, l'ombre en deuil qui sans vous ne peut vivre.
 
-le portique L
+le portique
 ‘ Ton âme est sans vigueur, terne, désabusée,
 Dans la cité de pierre où manquent l'air et l'eau?
 Promène-la parmi le peuple des tableaux
@@ -823,7 +822,7 @@ Pure lampe immobile où rayonne l'esprit,
 Vers l'azur inconnu qu'habita la Péri $
 E Lève un bras de lumière et l'entraîne du geste !
 ] Faces de songe en qui palpite le destin !
-1 La nuit impénétrable autour d'elles éteint
+La nuit impénétrable autour d'elles éteint
 ; Le monde obscur, mais l'ombre est grosse d'une aurore.
 Et dans mon cœur aussi, plus d'un soir, je vous vois,
 Toi qui souris et Loi qui pleures et l'ignores,
@@ -908,7 +907,7 @@ Et redise, à tous ceux dont le temps fait sa proie,
 La Vie, et son étrange et forte volupté!
 
 Ma vie est un désert étincelant et plat
-4 Que charme le sanglot de la houle marine
+Que charme le sanglot de la houle marine
 | Où, chaque soir, ouvrant ses veines purpurines,
 Un dieu vermeil se couche et meurt dans leur éclat.
 Mes travaux? Je m'assieds sur les sables, et là
@@ -953,7 +952,7 @@ Alors, sans la baiser au front, car elle est morte,
 Rentre seul, à pas lents, et verrouille ta porte...
 
 'EMPEREUR est assis sous sa tente, et médite.
-15 La charge de l'empire est lourde, et dans sa main
+La charge de l'empire est lourde, et dans sa main
 Vacille, chancelant fardeau, l'orbe romain
 Où plus d'un germe impur se décèle et s'agite.
 Flavie est débauchée, et ne sert qu'Aphrodite;
@@ -968,17 +967,17 @@ Frustement relié d'écorce de bouleau,
 Marc Aurèle poursuit la page commencée.
 
 _ Tu fus chasseur, tu fis l'amour, tu fis la guerre. CAES
-_ Tu fus maître des champs, des villes et des bois; ñ 1e
+_ Tu fus maître des champs, des villes et des bois;
 _  Tusus forcer le cerf et la femme aux abois; {348
-_ Que l'on souffrit, alors, tu ne t'en troublais guère! 5
-100 Un jour, tu prends ta plume, et, comme ont fait naguère x.
+_ Que l'on souffrit, alors, tu ne t'en troublais guère!
+Un jour, tu prends ta plume, et, comme ont fait naguère
 _ Les chanteurs des vieux temps, tu dis ce que tu vois; FES
 à. è Un grand peuple muet sort de tombe à ta voix, 9 Et :
 + 30 _ Etla gloire te vient. Tu la trouves vulgaire. ÿ ie
 Alors, ayant vidé le vin jusqu'à la lie, DRE +. »
 ; De. Tu fis appel à la merveilleuse folie : ME à:
 _ Des saints; et tu devins un prêtre, presque un dieu... Fes |
-NE  « Ton soir, à grand Moujick, est splendide d'étoiles. 1 100
+NE  « Ton soir, à grand Moujick, est splendide d'étoiles.
 K | ra Mais, détail suggestif, la comtesse a, par jeu, FT
 RES _ Mis des sachets d'iris dans tes blouses de toile... Fa Ds
 
@@ -1019,7 +1018,7 @@ Où, debout devant l'âtre, en l'arrière-saison,
 Le Comte de Vigny, pour finir la soirée,
 Lisait la Bible aux serviteurs de sa maison.
 Sous les feuilles des bois par l'automne cuivrées,
-Il aimait cheminer dans cet humble horizon, j e
+Il aimait cheminer dans cet humble horizon,
 Dont l'énigme du Sort irritait la raison. -
 Le jour, tenant un livre, ou Pascal ou Montaigne,
 Il surveillait la cuve où la vendange saigne,
@@ -1031,7 +1030,7 @@ Absorbaient sa pensée, archange aux vastes ailes,
 En Ge fut l'ancêtre olympien, le père Hugo! ITS
 Dès l'aube, il se versait un broec froid sur la tête, LE ;
 
-__ Et, dans sa chambre claire où soufllait la tempête, $ 4
+__ Et, dans sa chambre claire où soufllait la tempête, $
 
 _  Chevauchant sa chimère en bon preux hidalgo, "#4
 = Pendant cinq heures, d'un élan que rien n'arrète, MS
@@ -1051,7 +1050,7 @@ Cyclope dont la lampe éclairait l'insomnie,
 Tu vécus seulement des fètes du génie,
 Indifférent à l'aube ainsi qu'au renouveau,
 Et tu disais : « Je sens que je deviens cerveau! »
-A l'heure où commença ta superbe agonie.., è
+A l'heure où commença ta superbe agonie..,
 Comme en sa pyramide un Pharaon d'Égypte,
 ; Tu dors le grand sommeil dans une auguste crypte
 Qui des siècles futurs peut dédaigner l'affront, à
@@ -1083,7 +1082,7 @@ En regardant les flots déferler sur le sable
 Tu songeais au ressac du gouffre sidéral, <
 . Et cherchais à saisir le rythme insaisissable
 .
-1 Tel tu vécus, bercé par ta sublime fièvre;
+Tel tu vécus, bercé par ta sublime fièvre;
 Un peu de miel attique avait doré ta lèvre,
 Ton doute fut le jumeau triste de la foi.
 Un jour, un beau matin de Pâques, où les cloches
@@ -1150,7 +1149,6 @@ Je ne sais quel ennui subtil m'émeut... Je reste
 Ah! sous les fruits vermeils, j'ai vu poindre un fruit noir,
 La Mort!.. faudra-t-il mordre aussi ce fruit funeste? ;
 Je ne peux pas croire à la mort, par ce beau soir...
-| 95
 
 le portique |
 Je suis couché, les muscles las, maussade et frêle,
@@ -1161,7 +1159,7 @@ Pourquoi souffrir ? — C'est notre lot, dit Mare Aurèle,
 L'Univers est aveugle, et l'homme doit pâtir.
 — Pour allumer les cierges purs du repentir,
 Répond Pascal. Vois, Jésus saigne! H nous appelle...
-Dans la cellule où je repose, les deux Voix 1
+Dans la cellule où je repose, les deux Voix
 Tour à tour flottent, liturgiques. Et je vois
 Par le vitrage un peu d'azur et quelques feuilles.
 Dehors, c'est le printemps, sans doute, où chaque front
@@ -1183,14 +1181,14 @@ Le miel et les parfums suaves, l'art sacré,
 Je ne sais trop quelle est la folie, à mon gré,
 De ton flegme, à Savant, ou de mes pleurs d'artiste...
 
-_ La Douleur, c'est comme une bête haletante F2
-; ua Dont un rude aïguillon pique les naseaux fous, De E
+_ La Douleur, c'est comme une bête haletante
+; ua Dont un rude aïguillon pique les naseaux fous, De
 TRES Et qui trébuche et qui se blesse dans les trous RT
-708 Que l'eau creusa dans une terre dégoûtante. Ke
-74 La douleur, c'est une humble femme grelottante : ee
+Que l'eau creusa dans une terre dégoûtante. Ke
+La douleur, c'est une humble femme grelottante : ee
 ot Ses enfants morts, son mari hurle sous l'écrou; ASE
 PC: Le haut des toits s'éclaire un peu d'un soleil roux... +
-7 Elle pleure de faim, d'insomnie et d'attente. AUS
+Elle pleure de faim, d'insomnie et d'attente. AUS
 LT La douleur, c'est la vierge russe au clair œil bleu ”. re %.
 ee Dont un Cosaque à coups de fouet fend la peau nue, ETS
 Pour avoir cru, Liberté sainte, à ta venue. LR
@@ -1202,8 +1200,8 @@ SR Re Tristesses, sous l'azur, du marin solitaire, SES ER
 F4 Sourire de l'infirme au printemps clair et vain, (SES Per
 ue Chanson, dans les vieux cœurs, de leur passé divin, 5 ete
 UE Franches gaîtés, sur les gazons, du prolétaire, TES ne
-6 Je vous connais, à pauvres bonheurs de la terre, ne ibn
-Où la douleur entre toujours comme un levain, +4 ts s
+Je vous connais, à pauvres bonheurs de la terre, ne ibn
+Où la douleur entre toujours comme un levain, +4 ts
 __ Bonheurs saignants et lumineux comme le vin Ù Mr LE
 20 “4h De vendanges qui sort du pressoir salutaire! Eur mA ne:
 F A subir, sans en être dupe, l'amer jeu LE LUTTER
@@ -1221,7 +1219,7 @@ Et seul, dans le rayon blafard du jour décru,
 M'assoirai-je, tendant les mains vers l'âtre blème?
 Ah! je sais qu'on s'accroche, hélas! à toute épave,
 Que le meilleur, que le plus fort, que le plus brave |
-Devient humble, à sentir qu'il penche vers le sol... s
+Devient humble, à sentir qu'il penche vers le sol...
 Vienne la Mort me prendre en plein ciel, en plein vol,
 Comme l'aigle blessé dont se ferment les ailes |
 Tombe, enivrant d'azur infini ses prunelles! |
@@ -1267,8 +1265,8 @@ Un professeur de l'Institut, dans le préau,
 L''index levé, démontre aux gens sa théorie. <
 La bête, qu'une lèpre innommable carie,
 
-Regarde, de ses yeux embrumés d'un halo, 4
-Songeant peut-être aux bois profonds de Bornéo 5
+Regarde, de ses yeux embrumés d'un halo,
+Songeant peut-être aux bois profonds de Bornéo
 Où naguère rôda son enfance fleurie.
 
 À Mère infirme du genre humain, l'homme et la femme
@@ -1285,7 +1283,7 @@ Ta sœur, la libertine et blonde pécheresse,
 
 LL Dans la Nature, où les vieux Poètes, naguère, +
 LA F0 _ Chantaient la Cérès blonde au lait rajeunissant, =
-Le Savant voit la nécropole où l'innocent ' L S
+Le Savant voit la nécropole où l'innocent '
 _  Succombe, la douleur partout, partout la guerre. s < #
 _ La vie, en nous et hors de nous, ne dure guère!  —
 ee La mort la guette en notre chair, en notre sang; ‘à
@@ -1294,8 +1292,8 @@ A L Notre esprit même, cet éclair éblouissant, ® &
 are Armé du microscope, au fond du crépuscule, ME se
 FO Vous avez poursuivi ces luttes minuscules, ai
 ait Metchnikoff, où frémit l'antique jeu du sort; SRE £
-Re Et vous dites à l'Homme : « Éduque ces cohortes! 2
-: | « Si tu sais vaincre l'une, et fais l'autre assez forte, f 4 4
+Re Et vous dites à l'Homme : « Éduque ces cohortes!
+: | « Si tu sais vaincre l'une, et fais l'autre assez forte,
 
 Lorsque l'Homme aura fait, selon sa fantaisie,
 De la vie une fête et du travail un jeu,
@@ -1311,7 +1309,6 @@ Vous n'insulterez plus le jour qui nous éclaire,
 N Corps infirmes, tordus par les ans et les maux;
 | Vous ne rongerez plus nos frémissants squelettes,
 Douleurs, chiennes de l'ombre aux lèvres violettes!
-| 105
 
 ' le portique
 Si tu dois naître un jour, si tu n'es pas chimère, À
@@ -1366,16 +1363,16 @@ Voici qu'ayant vaineu l'univers frémissant
 La Nuit farouche prend son essor, et délie
 Sa chevelure sombre où reluit le croissant...
 
-4 Le Crucifix de bois érige son symbole PT jun
+Le Crucifix de bois érige son symbole PT jun
 À Sur la colline heureuse où le pampre fleurit; ,
-+ Près du front mutilé que l'épine meurtrit, à 4
++ Près du front mutilé que l'épine meurtrit, à
 pe Un couple murmurant de colombes s'envole. 2e Lt
 Je ne reconnais pas dans cette maigre idole, Lù sr?
 Dieu farouche tordu sous le ciel attendri, de “
 Le Jeune Homme charmant, habité par l'esprit, RS Fr
 « Dont une pécheresse adora la Parole. de
 È Ce gibet, dans ce printemps clair, semble vétuste! #74 AE
-Le supplice barbare où succombe ce Juste 4
+Le supplice barbare où succombe ce Juste
 N'excite plus la crainte, à peine le courroux; ù ve #4
 La Nature, qu'il veut opprimer, l'ensoleille ; SA
 È Au creux de son épaule, une danse d'abeilles ve 2%
@@ -1389,7 +1386,7 @@ Quand il sentit la Mort l'inviter, sans dépit
 Il se coucha, tournant vers le mur son visage. |
 Il n'a pas accueilli le prêtre et son message;
 À sa prière, on fut lui quérir un épi
-Du beau blé de l'an neuf; alors il s'assoupit, 0
+Du beau blé de l'an neuf; alors il s'assoupit,
 . Le serrant dans sa main, sans parler davantage.
 Il a serré si fort l'épi vert dans ses doigts
 Qu'il a dû l'emporter dans son cercueil de bois.
@@ -1417,11 +1414,11 @@ d Pareil à ceux qui, en Juin, zèbrent l'éther.
 
 | Archange qui semblais aux caravanes Jentes
 
-1 Porter la lampe d'or des étoiles filantes,
+Porter la lampe d'or des étoiles filantes,
 
-1 Tu gis peut-être, caillou noir, dans un désert...
+Tu gis peut-être, caillou noir, dans un désert...
 
-le portique D
+le portique
 : J'ai vu l'Aviateur sur les Champs-Elysées. |
 Dans le ciel vif de Mars, où flambaient à l'ouest |
 Sous l'Arc Impérial des lueurs embrasées, :
@@ -1443,19 +1440,19 @@ Les astres ? As-tu créé l'Ordre universel,
 Et sais-tu quel secret dort sous l'amer silence ?
 | Ou n'es-tu que la flore étrange de cerveaux
 Ë Mortels ? L'illusion qui pouvait ne pas naître?
-3 L'écume qui sourit sur l'océan de l'Être,
+L'écume qui sourit sur l'océan de l'Être,
 à Dissoute, à peine éclose, en ses aveugles eaux ?
 | Je l'interroge, en proie au doute, à l'épouvante….
-3 Sais-tu qui suis-je, un monstre, un dieu, lueur vivante,
+Sais-tu qui suis-je, un monstre, un dieu, lueur vivante,
 Ë Ce que je vaux, ce que je puis, ce que je dois ?
 
 Je t'interroge et tu te tais, miroir factice !
 e Et je pleure, comme autrefois l'enfant Narcisse,
-| De voir couler ta splendeur vaine entre mes doigts... L
+| De voir couler ta splendeur vaine entre mes doigts...
 
 le portique ‘
 Es-tu l'hymne ou l'adieu d'une croyance, Espoir ;
-Tenace des vieux jours naïfs qui veux renaître ? 4
+Tenace des vieux jours naïfs qui veux renaître ?
 Phalènes lumineux qui heurtent nos fenêtres,
 Les morts sont-ils vivants sous la vitre des soirs ?
 Certains hommes ont-ils le scandaleux pouvoir
@@ -1471,16 +1468,16 @@ Tend les mains, sans savoir au juste ce qu'il voit.
 
 SE Ai-je donc tant de fois vécu, Métempsychoses ? * ge
 ; Comme un gueux émigrant de taudis en taudis, 2 ESC Le
-4 Ai-je donc habité tant d'écorces, jadis ? L rai en
+Ai-je donc habité tant d'écorces, jadis ? L rai en
 :. 4 - Et mon cœur est-il presque aussi vieux que les choses ? 1240 +
 Verrai-je refleurir des iilas et des roses SP
-Plus beaux, en des jardins fraîchement reverdis ? Le Fe 4
+Plus beaux, en des jardins fraîchement reverdis ? Le Fe
 
 +8 M'en irai-je, phalène aux ailes jamais closes ? | à
 , Évoque des aspects évanouis du monde : 14? FE
 Mon œil d'enfant n'est pas le seul qui la peupla, AR te, se
 . Et, quand mon front est lourd d'extase inassouvie, RE. dre
-4 Je sens bien que la voûte étroite de la vie PER
+Je sens bien que la voûte étroite de la vie PER
 Offusque le splendide Archange qui dort là... LÉ LEUR
 
 le portique |
@@ -1492,14 +1489,14 @@ Que l'Être nu soulève ou jette le flambeau, |
 C'est la même clarté d'un dieu blanc comme givre, |
 Le même geste de Quelqu'un qu'on ne peut suivre, |
 Le même astre voilé dont rayonne un lambeau.
-| Avant la vie, après la vie, il y a l'ombre. ÿ
+| Avant la vie, après la vie, il y a l'ombre.
 La lumière qui luit en nous, tressaille et sombre,
 Vient d'ailleurs, rentre ailleurs, gouffre où s'en vont nos pas.
 La Naissance et la Mort sont un masque identique.
 Nous sommes les héros obscurs d'un drame antique;
 Nos visages réels, nous ne les voyons pas...
 
-4 Il a été tiré de ce cahier douze exemplaires sur
+Il a été tiré de ce cahier douze exemplaires sur
 : whatman ainsi distribués :
 premier exemplaire de souche, exemplaire du gérant;
 deuxième exemplaire de souche, exemplaire de l'ad-
@@ -1517,7 +1514,7 @@ $ en caractères fin dix-huitième siècle (Didot) de la fon-
 à successeurs), 21,rue du Montparnasse, à Paris, sixième
 
 Fa rez-de-chaussée, Paris, cinquième arrondissement.
-À Nos Cahiers sont édités par des souscriptions men- 4
+À Nos Cahiers sont édités par des souscriptions men-
 Le suelles régulières et par des souscriptions extraordi- ;
 LE : naires; la souscription ne confère aucune autorité sur no
 1 la rédaction ni sur l'administration; ces fonctions ns
@@ -1530,31 +1527,31 @@ F. 31 août de l'année suivante ; l'abonnement se prend
 É l'année, mais l'abonnement ainsi souscrit est, de droit, (a
 _ valable pour la série en cours. LAS
 Et Prix de l'abonnement, pour chaque série annuelle .
-34 pendant le cours de cette série: EF; É
+34 pendant le cours de cette série: EF;
 # Paris, départements, Alsace-Lorraine, LACS
 dinaire........ | Autres pays de l'Union postale unis
 DE Abonnement sur whatman........... deux cents francs De,
 4: pour tous pays |
-2 Les exemplaires sur whatman, tirage non réimposé, ni
+Les exemplaires sur whatman, tirage non réimposé, ni
 À sont numérotés à la presse et imprimés au nom du
-‘+ souscripteur ; le tirage à part sur whatman a commencé 75
+‘+ souscripteur ; le tirage à part sur whatman a commencé
 ? de fonctionner au premier janvier 1906; les inscrip- A
 tions pour cet abonnement particulier sont reçues en Ke
 4 tout temps et reçoivent un numéro d'ordre déterminé La
 À automatiquement par le rang même qu'elles occupent £
 1 . dans l'ordre de l'arrivée, les numéros les plus bas venant LA
 ra naturellement aux premières inscriptions; c'est ce nu- a
-_ mméro d'inscription qui devient automatiquement le 42
-Ë numéro du tirage réservé à chacun des souscripteurs ; f
+_ mméro d'inscription qui devient automatiquement le
+Ë numéro du tirage réservé à chacun des souscripteurs
 a l'édition sur whatman est strictement limitée au :
 
-ee ; Pour tout changement d'adresse envoyer soixante i
+ee ; Pour tout changement d'adresse envoyer soixante
 -__ centimes, six timbres de dix centimes. à
 J Nous engageons nos abonnés de certains pays à nous
 i À demander un abonnement recommandé ; tous les cahiers
 pi de l'abonnement recommandé sont empaquetés à part et
 à recommandés à la poste; la recommandation postale,
-$ comportant une transmission de signature, garantit le f
+$ comportant une transmission de signature, garantit le
 2 destinataire contre certains abus; pour cette recommandation, pour tous pays, en sus, cinq francs.
 À Automatiquement et sans augmentation de prix les :
 # exemplaires sur whatman sont tous recommandés et

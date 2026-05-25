@@ -156,7 +156,7 @@ et toutes les revues qui nous intéresseraient; il est
 certain que nous n'avons pas mème le temps de
 chercher ce qui serait à lire dans les journaux et
 dans les revues que nous ne recevons pas réguliè-
-rement et personnellement. : F
+rement et personnellement.
 
 Enfin, dans les journaux que nous lisons réguliè-
 rement, nous ne recevons pas la vérité même. Cela
@@ -177,7 +177,7 @@ connu, et quand on nous parle de son point de vue
 élevé, si élevé, nous sentons venir la vérité d'État.
 Or nous avons passé vingt mois et plus à distinguer
 et à faire distinguer la vérité d'État de la vérité. —
-Vous avez célébré à Paris Le Triomphe de la Répu- ù
+Vous avez célébré à Paris Le Triomphe de la Répu-
 blique. Dans la Petite République du lendemain je
 trouve une manchette vraiment grandiose : Une
 
@@ -185,7 +185,7 @@ ment le socialisme. Et dans l'Aurore je trouve une
 manchette plus modeste : Le Triomphe de la Ré-
 publique. — Une Grande Journée. - Défilé de
 250,000 Citoyens. Cela fait mauvais effet sur les
-simples d'esprit. Ne pourrons-nous pas, victorieux, 54
+simples d'esprit. Ne pourrons-nous pas, victorieux,
 imiter au moins la véracité des généraux anglais
 battus ? Allons-nous avoir une vérité officielle, une
 
@@ -280,7 +280,7 @@ se fait le complice des menteurs et des faussaires ! »
 Voilà ce que nous proclamions alors. Voilà ce que
 nous proclamions au commencement de cet hiver:
 Cette proposition est-elle annuelle, ou bisannuelle ?
-Fond-elle avec la gelée? Et voilà ce que nous décla- é
+Fond-elle avec la gelée? Et voilà ce que nous décla-
 
 rons encore aujourd'hui contre les antisémites.
 Cette proposition est-elle, aussi, locale ? Non. Elle
@@ -415,7 +415,7 @@ trouver toujours un révolutionnaire comme Zola ?
 Il y a beaucoup de chances pour qu'un Comité
 général commette moins délibérément qu'un homme
 une de ces terribles imprudences qu'on nomme
-révolutions salutaires quand elles ont réussi. — 6
+révolutions salutaires quand elles ont réussi.
 Nous ne devons pas avoir une préférence, un goût
 malsain pour la vérité chirurgicale, nous devons au
 contraire tâcher d'y échapper modestement par la
@@ -511,7 +511,7 @@ fut-il pas une Histoire des Variations de l'ÉtatMajor fournie par lui-même?
 
 Jete prie de me donner tous les documents et
 tous les renseignements que tu pourras, même
-longs, même ennuyeux. Nous devons à la même s
+longs, même ennuyeux. Nous devons à la même
 affaire la publication exacte, historique, de procèsverbaux, de comptes rendus sténographiques, de
 documents, de papiers, de pièces. Nous avons eu le
 

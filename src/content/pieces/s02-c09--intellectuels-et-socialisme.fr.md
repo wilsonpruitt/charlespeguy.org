@@ -180,7 +180,7 @@ croyons appelé à renouveler en quelque sorte l'humanité,
 si l'idée du juste et de l'injuste en était retirée ? J'avoue
 
 que je n'oserais même plus croire à son succès : car.
-l'évolution est. le produit d'un déterminisme, et non k
+l'évolution est. le produit d'un déterminisme, et non
 d'une fatalité, et l'absence d'une cause aussi puissante
 ne manquerait pas de s'y faire sentir. Si nous cherchons
 à le propager, ce n'est pas surtout la science qui nous y
@@ -204,10 +204,10 @@ voisines des miennes. La manière dont il définit le rôle
 des intellectuels, et s'élève contre ceux qui trafiquent du
 socialisme, m'en est le meilleur garant. Mais il faut éviter certaines confusions et certaines illusions qui ont
 leur danger. Pour moi, j'aime mieux me réclamer d'un
-devoir certain que d'une science hypothétique et incomplète. Et je ne saurais être soupçonné de médire mé- Ë
+devoir certain que d'une science hypothétique et incomplète. Et je ne saurais être soupçonné de médire mé-
 chamment de cette science prétendue : ce serait le fait
 d'un cordonnier décriant l'usage des chaussures, A toi
-Paul Mantoux l
+Paul Mantoux
 
 M. Charles Guieysse nous écrit :
 
@@ -233,7 +233,7 @@ condition », et presque rien n'a été changé. Puis de
 nouveaux intellectuels ont dit : « Chassez les politiciens bourgeois, proclamez la lutte des classes » et
 
 ils se sont mis à la tête de la classe prolétarienne
-pour mener la lutte de classes. Et presque rien ez- . s:
+pour mener la lutte de classes. Et presque rien ez-
 
 J'ai peur que pendant longtemps rien ne soit toujours changé, si ce sont des intellectuels, socialistes
 ou non, qui veulent gérer les intérêts de la classe
@@ -517,7 +517,7 @@ sera véritablement organisé, seraunifié pour l'étude
 des lois morales et économiques du Travail. C'est
 pourquoi je critique un peu l'expression d'employés
 
-de Lagardelle, et que je préfère dire que lesintel- ï
+de Lagardelle, et que je préfère dire que lesintel-
 lectuels ont le devoir de se mettre au service de
 la classe ouvrière ; il me semble qu'ainsi je dis que ,
 non seulement ils ne sont plus des aristocrates,
@@ -568,7 +568,7 @@ nous avons cessé d'envoyer nos cahiers à tous ceux de
 nos anciens abonnés qui n'avaient pas accepilé nos
 reçus de réabonnement, André Bourgeois a fait depuis
 les envois suivants
-Belgique et autres pays. 672 67
+Belgique et autres pays.
 Nous avons en effet envoyé le septième et le huitième
 cahiers sous la même chemise. pr.
 Nous prions instamment nos abonnés de la Belgique
@@ -607,7 +607,7 @@ pressant que nous avons adressé à nos amis. Un de
 mes amis anciens, intime, ayant lu que je demandais
 de l'argent, m'a envoyé des conseils. J'éprouve toujours
 une singulière souffrance quand un ami, au lieu de
-neuvième cahier de la deuxième série h
+neuvième cahier de la deuxième série
 souscriptions, m'envoié des conseils mensuels réguliers
 antidreyfusards. Mais cette souffrance devient amère
 inquiétude quand, par exception, cet ami est juif. Si
@@ -820,7 +820,7 @@ raire ou commercial pour sa journée, — Écrire
 
 - Nous sommes heureux de reproduire les notes que
 
-M. André Bourgeois, envoyé à Montceau par l'adminis- j
+M. André Bourgeois, envoyé à Montceau par l'adminis-
 
 tration de Pages libres, a rapportées de son voyage.
 

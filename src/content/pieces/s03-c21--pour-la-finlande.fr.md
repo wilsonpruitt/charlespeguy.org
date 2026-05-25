@@ -11,7 +11,7 @@ wordCount: 66105
 …_ mouvement tournant qu'on organise sur toute la France
 k afin de former un « grand parti républicain » pour
 Ë Que fait pendant ce temps le « cher ami » de M. de
-4 Pressensé ? Il appuie de son mieux le mouvement tour7 nant en question. Entre temps, pour mieux moraliser à
+Pressensé ? Il appuie de son mieux le mouvement tour7 nant en question. Entre temps, pour mieux moraliser à
 les masses, il fait en deux colonnes l'apologie de la
 « bonne cuisine bourgeoise » (Petite République du
 20 juin), thème évidemment plein d'à propos dans une
@@ -39,20 +39,20 @@ la « Sociale-Lucullus » est « presque éteinte ». Ce n'est
 point parce qu'une voix s'est tue... momentanément que
 nous tous allons abdiquer nos consciences et cesser
 d'avoir l'œil sur nos chefs et sur leurs journaux. Et
-pourquoi dire encore « nos chefs »? Laissons-les à ceux e
+pourquoi dire encore « nos chefs »? Laissons-les à ceux
 qui ont besoin d'obéir. Le meilleur service que nous
 puissions rendre à l'humanité est de lui montrer ce que
-valent ces fameux chefs, de manière à chasser la vénération par le dégoût. Les idées seront mieux servies j
+valent ces fameux chefs, de manière à chasser la vénération par le dégoût. Les idées seront mieux servies
 quand les hommes le seront moins.
-Plusieurs de nos abonnés, de situation modeste, nous L
+Plusieurs de nos abonnés, de situation modeste, nous
 ont demandé S'il était utile d'envoyer à M. Pierre À
 sement, l'adhésion dont nous avons publié la formule
 page 157. Je ne suis pas suspect d'aimer les manifestations vaines. Si donc nous avons publié cette formule
 dans le cahier, c'est que l'adhésion avait de l'efficacité. à
 Les affaires d'Arménie, de Roumanie, de Russie, de
 Finlande sont de celles où ce qu'on nomme lopinion ‘à
-française a quelque poids. Il est d'ailleurs évident e
-que l'ensemble de nos abonnés forme une importante b
+française a quelque poids. Il est d'ailleurs évident
+que l'ensemble de nos abonnés forme une importante
 partie de l'opinion française. Enfin nous socialistes à
 nous n'admettons pas que la modestie des situations soit
 un empéchement à la manifestation d'une opinion libre.
@@ -72,7 +72,7 @@ sa 25 août au 20 septembre, où je fais mes vingt-huit jours. ”
 : Pendant la première semaine des vacances, où les
 déplacements sont le plus fréquents, du 28 juillet au
 d 2 août, je serai en permanence au bureau des cahiers,
-F tous les jours, aux mêmes heures. C
+F tous les jours, aux mêmes heures.
 Nous prions nos abonnés de vouloir bien nous indi_ quer sans tarder, s'ils peuvent, à quelle adresse exactement nous aurons à leur envoyer les cahiers de la
 | quatrième série ; c'est en effet pendant les vacances que
 nous préparons les feuilles d'étiquettes pour tous les
@@ -108,8 +108,8 @@ Do 0 Pour la Finlande
 
 À | 8, rue de la Sorbonne, au rez-de-chaussée
 
-2 Même en restreignant la question finlandaise au conflit À
-3 politique actuel, la bibliographie en serait trop longue ï
+Même en restreignant la question finlandaise au conflit À
+3 politique actuel, la bibliographie en serait trop longue
 5 pour que je la donne ici en entier. De plus, les ouvrages
 k qui traitent de la question sont pour une grande part écrits
 1 en langues peu connues en France, même par le publie
@@ -122,11 +122,11 @@ D 1. Finnländische Rundschau, première année. Leipzig, t'en
 e ne cite que les travaux en langues allemande, anglaise,
 . française ou russe.]
 
-4 Il existe deux histoires générales de la Finlande, toutes
+Il existe deux histoires générales de la Finlande, toutes
 k deuxième édition suédoise en cours de publication.]
 
 La géographie du pays est exposée dans l'ouvrage édité
-” par la Société de géographie de Finlande : J
+” par la Société de géographie de Finlande
 5. Atlas de Finlande, Helsingfors, 1899 : un atlas de ‘à
 32 feuilles in-folio et un volume de texte de 479 pages
 [Numéro 17 du Fennia, Bulletin de la Société].
@@ -147,9 +147,9 @@ de Finlande. Paris, Guillaumin, 1886. [L'ouvrage est épuisé
 le contenu en est repris dans le suivant.]
 10. L. Mecneuix : Das Staatsrecht des Grossfürstentums À
 : Finnland dans Marquardsens Handbuch des ôffentlichen
-, 11. R. HERMANSON : Ein Beitrag sur Beurteilung der L
-slaatsrechtlichen Stellung des Grossfürstentums Finnland. è
-| Leipzig, Duncker und Humblot, 1900, une brochure. [Résumé s
+, 11. R. HERMANSON : Ein Beitrag sur Beurteilung der
+slaatsrechtlichen Stellung des Grossfürstentums Finnland.
+| Leipzig, Duncker und Humblot, 1900, une brochure. [Résumé
 d'un ouvrage en suédois du même auteur sur « Le droit
 public de la Finlande ». La doctrine y est sur certains ne
 points différente de celle de M. Mechelin.]
@@ -192,7 +192,7 @@ X sont prononcés sur cette question. On ne peut ici les citer
 
 Pour la Finlande {7 PEINE CRE
 (traduit du norvégien), et C. V. NynoLm (traduit du danois).
-Un livre excellent a paru en Angleterre : j
+Un livre excellent a paru en Angleterre
 En langue française, citons, outre la Réponse (numéro 18):
 20. FRANTZ DESPAGNET : La question finlandaise au point
 de vue juridique. Paris, Larose, 1901, 84 pages [avec l'adhé- « sion de treize professeurs de droit international].
@@ -207,9 +207,9 @@ _ résumant l'histoire de la Finlande, et le texte in extenso du
 manifeste et des actes, pétitions et discours auxquels il
 25. Madame BERNARDINI. Le droit des faibles : la Fin- À
 à lande. Revue de Paris, 1899. Fi
-la conférence de la Haye. Revue des Revues, 1899. : i
+la conférence de la Haye. Revue des Revues, 1899.
 Les adresses internationales ont été reproduites en fac- s'
-similé dans une publication de luxe : É Ü
+similé dans une publication de luxe
 27. Pro Finlandia [Stockholm et] Berlin, Mertz, 1889, AC
 L'histoire de la députation internationale est racontée à
 
@@ -218,7 +218,7 @@ l'Humanité nouvelle, 1900, 132 pages [traduit du hollandais], %
 
 it: Le document principal est
 7. : 29. Diète de Finlande en 1899. Réponses des États aux
-pi propositions impériales concernant le service militaire perF. # sonnel. Traduit du texte officiel suédois. Paris, Société D
+pi propositions impériales concernant le service militaire perF. # sonnel. Traduit du texte officiel suédois. Paris, Société
 1 nouvelle de librairie et d'édition, 1900, un volume, 296 pages.
 #4 De cette réponse, parue aussi en traductions allemande
 et anglaise, il a été publié une sorte de résumé
@@ -237,7 +237,7 @@ lorsqu'il existe des équivalents français, allemands ou anglais.
 Quand il m'arrive de le faire, c'est que ces ouvrages sont les seuls
 existants sur une question donnée.
 
-u Le recueil de faits le plus complet et en général le mieux 424
+u Le recueil de faits le plus complet et en général le mieux
 a. informé est un journal rédigé en suédois, qui paraît à PAIE
 | et suivantes, 66 numéros parus. [Deux séries à 20 numéros
 a. parues, la troisième en cours de publication.] Le journal
@@ -251,7 +251,7 @@ ie et depuis le printemps de 1900, trois journaux
 ï [Ce journal est mis en vente.] a
 
 | Parmi les articles de revue, il faut citer : À
-4 Dans Le Mouvement Socialiste, deux notices de JEAN Deck
+Dans Le Mouvement Socialiste, deux notices de JEAN Deck
 \ Dans Pages Libres, un article de RENÉ Puaux (4 janvier s;.
 > Dans l'Effort de 1900 et 1901, plusieurs articles de RENÉ ‘4
 È Puaux et Jean DEcx (en particulier un article sur la presse, À
@@ -268,12 +268,12 @@ presque fatalement destinée à devenir l'objet des con- %
 se videraient leurs querelles, et finalement à rester la
 conquête du plus fort. C'est en effet le résumé de son
 Les circonstances historiques favorisèrent d'abord
-la Suède, qui, dès le douzième siècle, commença à s'em- c
+la Suède, qui, dès le douzième siècle, commença à s'em-
 parer du pays, où s'étaient établies des tribus finnoises.
 La conquête, la colonisation suédoise et la conversion
 au christianisme marchèrent du même pas. Au seizième
 siècle le pays, qui constituait une province distincte,
-reçut le titre de Grand-Duché (Storfurstendüme). Au È
+reçut le titre de Grand-Duché (Storfurstendüme). Au
 (1) Je me suis appuyé surtout, dans cette partie du travail, sur
 l'introduction de l'ouvrage Ur Finlands nyaste historia. On trouvera
 aussi un résumé de cette période dans la brochure de M. René
@@ -300,7 +300,7 @@ finlandaise : (Il nous est impossible d'avoir une frontière à 40 kilomètres d
 en 1703 elle eût exprimé l'état de choses réel. Les armées russes pénétrèrent bientôt en Finlande. Ce fat
 la période connue sous le nom de la « Grande guerre »
 (stora ofreden). Les ravages commis par les Russes
-furent épouvantables. Presque toutes les usines, (2) Ë
+furent épouvantables. Presque toutes les usines, (2)
 
 (1) Abo était alors la résidence du gouverneur, et resta la capitale '
 
@@ -354,15 +354,15 @@ du finnois fût exigée des candidats aux emplois publics
 en Finlande. Il y avait là sans doute les indices d'une
 orientation vers l'autonomie administrative. Un souvenir de la dernière guerre pouvait encore nourrir ces
 idées. La tsarine Élisabeth avait en effet publié le
-18 mars 1742 une proclamation où elle offrait son appui j
+18 mars 1742 une proclamation où elle offrait son appui
 aux Finlandais, au cas où ceux-ci désireraient ériger
 leur pays en un Etat indépendant servant de tampon
 entre les deux empires. (1)
-C'est à la réalisation de ce plan que travailla longtemps un homme qui exerça sur les destinées de la Ë
+C'est à la réalisation de ce plan que travailla longtemps un homme qui exerça sur les destinées de la
 Finlande une action très sensible : Sprengtporten.
 Sprengtporten avait aidé Gustave III dans son coup
 d'État; mais il devint bientôt un ennemi du roi. Retiré
-en Finlande en 1781, il s'entoura d'un cercle d'amis : M
+en Finlande en 1781, il s'entoura d'un cercle d'amis
 politiques, rêvant comme lui de l'autonomie de la Finlande. Ils se tournèrent d'abord vers le duc de Sudermanie, frère de Gustave (le futur Charles XIII), lui
 offrant la couronne de Finlande. Le duc refusa de s'en- à,
 À (1) La proclamation passe pour avoir été inspirée par Bestoujeff,
@@ -397,7 +397,7 @@ forme spéciale qu'elle a prise, la garantie de l'autonomie finlandaise,
 n'est pas un acte arbitraire et irréfléchi d'Alexandre I, signé dans
 une sorte d'accès de libéralisme. C'étaitun plan connu et déjà discuté
 à la cour de Russie. Toute une partie de l'argumentation russe
-| s'écroule dès qu'on fait cette remarque. e
+| s'écroule dès qu'on fait cette remarque.
 
 Pour la Finlande Re
 inévitable; à l'entrevue de Tilsit, il fut convenu que, si la
@@ -421,7 +421,7 @@ netteté du débat: c'est qu'on ne saurait ergoter ni sur
 le sens, ni sur la valeur de la garantie donnée par
 
 L'empereur se trouva partagé pendant le cours de la campagne entre trois influences : celle de Sprengtpor- i ten, celle d'Araktchéef, ministre de la guerre, et celle À
-du libéral Speranski. Sprengtporten voulait encore une M
+du libéral Speranski. Sprengtporten voulait encore une
 
 | fois tenter de réaliser l'idée d'Élisabeth, et former À
 une Finlande indépendante, à laquelle la Russie ren-
@@ -446,13 +446,13 @@ _ du 16 mars 1808, Alexandre parlait de la Finlande
 _ comme d' « une province conquise par les armes ». —
 _ Mais les choses changèrent bientôt de face. Le peuple, VA à
 que l'on contraignait à prêter serment au tsar, com- FUI
-fe mença une guerre de partisans; les troupes finlandaises, F
-Ni quoique abandonnées par la Suède, reprirent l'avantage ‘Al ù
+fe mença une guerre de partisans; les troupes finlandaises,
+Ni quoique abandonnées par la Suède, reprirent l'avantage ‘Al
 \ dans l'été de 1808. La campagne menaçait de trainer # Qué
-Ÿ en longueur. D'autre part, l'entrevue d'Erfurt avait été . 4 1h
-… loin de resserrer l'amitié napoléonienne ; la perspective D
+Ÿ en longueur. D'autre part, l'entrevue d'Erfurt avait été
+… loin de resserrer l'amitié napoléonienne ; la perspective
 - d'une guerre avec la France devenait déjà vraisem- RE
-fl blable ; et ce pouvait être pour la Russie une cause de À 4h
+fl blable ; et ce pouvait être pour la Russie une cause de À
 - ruine que d'avoir à ses portes une province non encore } TAN
 _ conquise, ou prête à la révolte au moment favorable. ‘LÉ
 à La prudence se joignait au libéralisme pour conseiller pe
@@ -460,7 +460,7 @@ un retour vers les idées de Sprengtporten. Un manifeste Re
 du 5/17 juin 1808 promit à la Finlande la garantie de pre
 ses privilèges et une prompte convocation de la diète. PE
 Tout d'abord, ce fut une députation qui se rendit à !
-… Pétersbourg, et exprima les vœux du pays (novembre). s
+… Pétersbourg, et exprima les vœux du pays (novembre).
 … Sprengtporten, devenu gouverneur général, et Speranski, ‘1 ‘
 
 Pour la Finlande
@@ -484,13 +484,13 @@ Grand-Duché, et tous ses habitants en général, tantgrands
 que petits, ont joui jusqu'à présent en vertu des Constitutions. Nous promettons de maintenir tous ces avantages et
 lois en pleine vigueur sans altération ou changement. En
 foi de quoi Nous avons signé le présent acte de garantie
-” de Notre propre main. l
+” de Notre propre main.
 Donné à Borgà, le 15/27 mars 1809.
 L'original est signé de la propre main de Sa Majesté
 Après la lecture de cet acte, lés états prêtèrent au tsar
 le serment de fidélité. Il y eut donc une sorte decontrat.
 Ce qui le confirme, du reste, ce sont les termes suivants
-à dans le préambule d'une ordonnance du 4 avril : ÿ
+à dans le préambule d'une ordonnance du 4 avril
 | Ayant réuni les États de la Finlande en une Diète géné-
 : rale, et reçu leurs sermens de fidélité, Nous avons vouluà
 8 (1) Voir l'édit de convocation dans la Constitution, page 110. ;
@@ -617,14 +617,14 @@ réellement assurer à la Finlande l'autonomie et un ré_ gime constitutionnel. 
 aux traités de Nystad et d'Abo était tombée dans un état
 (1) Est-ce pour cela que, parmi les personnes qui s'intéressent à la
 Finlande d'une sympathie active, il y a, à ma connaissance, un assez à
-| grand nombre de vieux conservateurs, aux yeux de qui la parole du È
-; roi est chose sacrée pour le roi lui-même, et aussi quelques prêtres? J
+| grand nombre de vieux conservateurs, aux yeux de qui la parole du
+; roi est chose sacrée pour le roi lui-même, et aussi quelques prêtres?
 
 de décadence profond : mauvaise administration, mau- ‘on
-Pr. vaise justice, violences des seigneurs à qui Pierre etses F4
+Pr. vaise justice, violences des seigneurs à qui Pierre etses
 ie successeurs avaient donné de grands territoires. (1)
 - _ Dès l'année 1802, une commission avait été instituée en OA
-É vue d'étudier les moyens de relever cette province, F2
+É vue d'étudier les moyens de relever cette province,
 ‘4 alors appelée la Finlande. L'oukase qui instituait cette +7
 ÿ commission (19 mai 1802 vieux style) contient un préam- _
 % divers systèmes en vue d'améliorer la situation économique FANS » de ce pays, condition des progrès du peuple; mais, à Notre te
@@ -638,11 +638,11 @@ La conquête de 1809 offrit une solution. Alexandre I ne
 \ réunir la « Vieille Finlande » (nom donné aux conquêtes Rent
 “4 de 1721-43) au reste du Grand-Duché. Le manifeste est "Ti
 daté du 31 décembre 1811. Dans le préambule, le rédacÀ teur avait mis : « Ayant en vertu de Notre Manifeste du ‘14
-11 Décembre 1811 réuni le Gouvernement de Wibourg, FA
+Décembre 1811 réuni le Gouvernement de Wibourg, FA
 incorporé à Notre Empire ; etc. » Val
 L'empereur raya de sa propre main sur le brouillon
 | les mots « incorporé à Notre Empire ». (2)
-(1) Sur l'histoire économique de la province de Viborg, lire l'ou- Ê
+(1) Sur l'histoire économique de la province de Viborg, lire l'ou-
 vrage cité de Frederiksen, pages 66-75. C'est une des meilleures CAF
 } parties de l'ouvrage. ES
 @) Réponse des Etats, page 133. — J'ai vu le document : la rature ci
@@ -655,7 +655,7 @@ Alexandre I. Une nouvelle période s'ouvrait pour le
 | pays. Le tsar recueillit bientôt les fruits de sa modération politique. La Finlande se trouva bien de sa situation autonome ; pendant la guerre contre Napoléon, des
 volontaires finlandais assurèrent la garde de SaintPétersbourg.
 
-4 Mais on put bientôt voir le principal défaut de la
+Mais on put bientôt voir le principal défaut de la
 situation politique de la Finlande. Le fonctionnement de la constitution dépendait en somme de la volonté
 du tsar de tenir la promesse qu'il avait faite. Alexandre
 ne tint pas la sienne. Il avait remis l'administration
@@ -675,7 +675,7 @@ peut-être fatale. Armfelt, devenu ministre de Finlande, était conservateur, et
 convocation de la diète. Le tsar semble avoir eu
 l'intention de faire codifier les dispositions constitutionnelles en un projet de loi qui fût soumis à la diète.
 Mais il n'y eut point de diète, et, bien entendu, pas
-davantage sous Nicolas I.
+davantage sous Nicolas
 au parti antifinlandais. Mais il faut noter que, en un
 certain sens, les tsars réactionnaires respectèrent les
 droits constitutionnels. Les lois fondamentales spécifiaient en effet les domaines législatifs où le vote de la
@@ -689,7 +689,7 @@ tsar refusa de suivre cet avis; il confirma la garantie
 donnée par son frère ; ettous ses successeurs, y compris
 le souverain actuel, ont suivi cet exemple. (1) — Une
 objection contre les droits de la Finlande, tirée de l'état
-d'ailleurs qu'au point de vue du droit pur, la confirmation était Û
+d'ailleurs qu'au point de vue du droit pur, la confirmation était
 superflue : le serment d'Alexandre I, comme lui-même le disait
 expressément, engage à perpétuilé ses successeurs.
 
@@ -743,17 +743,17 @@ Que la Forme de Gouvernement du 21 août 1772 et l'Acte
 Impériale, soient résumés tous en un seul acte, ou Loi
 fondamentale, sous la dénomination de Forme de Gouvernement du Grand-Duché de Finlande, et aussi
 Que les dispositions des anciennes lois qui seront insérées dans la nouvelle loi soient reproduites avec exactitude, tout en considérant la nécessité de les formuler d'une
-manière plus claire ; et qu'en modifiant la forme, il faudra c
+manière plus claire ; et qu'en modifiant la forme, il faudra
 
 ; pourtant ne pas s'éloigner des principes contenus dans les
-anciennes dispositions et exprimés notamment dans le l
+anciennes dispositions et exprimés notamment dans le
 paragraphe premier de l'Acte d'Union et de Sûreté. $
 
 Sa Majesté Impériale a, en même temps, arrêté les prescriptions et indications suivantes pour servir de règles aux
 travaux de rédaction de la Commission
 1° Que le Grand-Duché de Finlande, faisant partie de à
 
-( l'Empire Russe, est indissolublement uni à cet Empire ; d
+( l'Empire Russe, est indissolublement uni à cet Empire
 ; 2° Que le Grand-Duché est gouverné d'après sa Forme de
 ni? Gouvernement et ses lois ;
 | 3° Que l'Empereur de Russie est en même temps GrandDuc de Finlande, en suite de quoi, en ce qui regarde l'ordre |
@@ -817,7 +817,7 @@ dans le K 42 de la Forme de Gouvernement de 1772, l'initiative en matière de lo
 réservée à l'Empereur seul ; et .
 13° Que la liberté religieuse devra être étendue de manière
 que tout chrétien, quelle que soit la confession spéciale
-- à laquelle il adhère, puisse obtenir le droit de citoyen J
+- à laquelle il adhère, puisse obtenir le droit de citoyen
 en Finlande et y être admis au service publie, civil et
 Sa Majesté Impériale veut en outre charger la Commission de l'élaboration d'un projet de statut complet sur la
 Diète, en vue de quoi la Commission devra
@@ -828,10 +828,10 @@ ainsi que les parties du Statut sur la Diète du 17 octobre
 décisions prises par les Diètes réunies après l'année 1772; €
 Tenir compte des usages et des formes qui, ayant été
 pratiquées aux Diètes du temps passé, ont complété les
-| règles prescrites par la loi ; et enfin 3 F
+| règles prescrites par la loi ; et enfin
 Proposer des dispositions qui, suivant l'expérience
-| acquise à la dernière Diète et d'après l'opinion de la Com- L
-mission, seront propres à simplifier et accélérer le traite- M
+| acquise à la dernière Diète et d'après l'opinion de la Com-
+mission, seront propres à simplifier et accélérer le traite-
 ÿ ment des affaires, sans en compromettre l'examen approfondi. +
 F Finalement, Sa Majesté Impériale a voulu ordonner à la
 
@@ -849,7 +849,7 @@ lois ($ 71-74); elle confirmait le principe que l'accord
 Le régime ainsi inauguré a fonctionné régulièrement HU
 permis le développement politique et économique de la
 Finlande, et a donné libre carrière aux partis poli : & Les
-_ tiques. Dans son ensemble, il n'est pas douteux qu'il Ë
+_ tiques. Dans son ensemble, il n'est pas douteux qu'il
 nait profité au pays; il présentait en particulier sur le pi
 régime suédois cet avantage que les ressources du : SEC
 _ pays étaient appliquées directement à ses besoins. de
@@ -857,7 +857,7 @@ _ Dans ses grandes lignes, en voici l'économie. ka
 La Finlande constitue un domaine législatif, judi- CE
 - ciaire, budgétaire, douanier et même militaire distinct. #3
 . Le souverain est l'empereur de Russie, qui gouverne en Re.
-qualité de grand-duc de Finlande. Il est représenté par Ê
+qualité de grand-duc de Finlande. Il est représenté par
 un gouverneur-général qui, en fait, a toujours été un
 Russe. Il délègue son autorité administrative et son
 _ pouvoir judiciaire à un Sénat Impérial divisé en deux
@@ -882,15 +882,15 @@ Le Finlande, d'abord parce que je la connais mal. Elle est À
 
 # dominée par la question des langues et la lutte entre l'élément suédois et l'élément finnois. (2) L'élément
 suédois ne constitue qu'un neuvième de la population; mais la position sociale de ses membres lui donne à maintenant encore une grande influence, et lui assure à
-Fr {1) Voir Constitution, Commentaire à la Forme de Gouvernement, : N
-2, (2) Cette question des langues serait fort intéressante à étudier E
+Fr {1) Voir Constitution, Commentaire à la Forme de Gouvernement,
+2, (2) Cette question des langues serait fort intéressante à étudier
 A pour elle-même; mais les documents sont dispersés et difficiles à
 à 4 trouver; en outre, une grande partie est écrite en finnois, ce qui
 1 3 les rend pour un étranger encore moins accessibles.
 LU la majorité dans la noblesse et la bourgeoisie. 1% à
 L'élément finnois a lutté pendant un demi-siècle pour PRE
 . obtenir la mise sur un pied d'égalité des deux langues. à ‘1
-Autant que j'aie pu voir et apprendre, ce résultat n'a n4
+Autant que j'aie pu voir et apprendre, ce résultat n'a
 
 _ pas été obtenu sans résistance, et c'est sans doute ce ip
 qui explique la formation, au sein de l'élément finnois,
@@ -899,7 +899,7 @@ d'un parti qui vise à la suppression totale du suédois ie
 _ dansles actes de la vie publique, et-prend pour devise
 la formule : « Un pays, une langue ». C'est le parti
 vieux-finnois. En face de celui-là s'est formé un parti ‘
-jeune-finnois, moins exclusif, moins réactionnaire et 4 J
+jeune-finnois, moins exclusif, moins réactionnaire et
 clérical aussi, orienté plutôt vers des réformes sociales, à se
 et, sur ce terrain, se retrouvant aussi en lutte avec nr
 l'élément suédois, que sa situation sociale rend très
@@ -908,7 +908,7 @@ Des progrès législatifs incontestables ont été accom- | À
 plis, même dans l'ordre social. Mais il me semble difficile de nier qu'ils auraient pu être plus grands encore. Ge
 Les partis dirigeants ont montré à l'égard des mesures ANNE
 sociales, en particulier des lois de protection des
-classes travailleuses, une réserve qui frisait souvent d
+classes travailleuses, une réserve qui frisait souvent
 l'hostilité. La réforme pourtant timide de la loi sur les
 fermages, qui a été votée en 1900, aurait pu et dû l'être je
 plus tôt; le droit de suffrage aurait pu être étendu à des
@@ -949,7 +949,7 @@ Ja fois pour le pays et pour les souverains. Le loyalisme À
 n'a peut-être été nulle part plus sûr qu'en Finlande; ta
 ; nulle part on n'a aussi vivement condamné les mé4 thodes révolutionnaires et nihilistes : on peut même AIT: trouver que dans cette voie, les Finlandais ont été plus S %
 
-loin qu'il ne convenait. — On n'en est que plus étonné F
+loin qu'il ne convenait. — On n'en est que plus étonné
 3 de voir les attaques dirigées contre la constitution et qe l'autonomie finlandaises. vi
 ‘is Celles-ci avaient de nombreux ennemis en Russie : la
 | presse panslaviste, surtout les Moskovskja Vjedomosti,
@@ -968,14 +968,14 @@ lité contre le régime constitutionnel, aggravée encore
 de la crainte que le bien-être matériel et social de la
 Finlande ne fût un exemple contagieux et un argument
 toujours prêt sous la plume des libéraux russes; enfin, !
-et surtout, dans l'avide bureaucratie russe, le désir l
+et surtout, dans l'avide bureaucratie russe, le désir
 d'exploiter un domaine encore neuf et à l'abri de la
 De son côté, la Finlande se défendit mal; ou plutôt
 ses défenseurs naturels la soutinrent mollement. Contre
 les polémiques de presse, les journaux finlandais ne
 pouvaient riposter parce qu'on leur imposait silence;
 et les personnages officiels se montrèrent au-dessous
-de leur tâche. Sous Alexandre II, la Finlande avait eu R
+de leur tâche. Sous Alexandre II, la Finlande avait eu
 deux ministres de valeur, Snellman et le baron Stjernvall-Walleen, et un gouverneur-général remarquable, '
 le comte Adlerberg. En 1881, Adlerberg fut remplacé
 par le comte Heiïden, qui s'était acquis une grande réputation comme militaire, mais qui fut un administrateur
@@ -986,7 +986,7 @@ crois des informations de gens qui l'ont connu, Heïden
 et injonctions impériales, il ne savait que rédiger des
 mémoires où il combattait les mesures proposées, mais
 s'inclinait en serviteur fidèle. Il a, dit-on, laissé après
-sa mort (1901) des papiers qui le feraient voir sous ce Ÿ
+sa mort (1901) des papiers qui le feraient voir sous ce
 jour. En tous cas, Le résultat est le même, et jusqu'ici !
 on ne peut juger que sur le résultat. Comme ministre
 de Finlande, de 1888 à 1899, on eut successivement trois
@@ -1012,7 +1012,7 @@ le Précis de droit public de Finlande de M. Mechelin ve
 en 1887, avec des notes où l'auteur réfutait la thèse de
 M. Mechelin. Le même Ordine reprit ses arguments en à
 1889 dans un livre, la Conquête de la Finlande, qui est
-resté l'arsenal où ont puisé les polémistes ultérieurs, f
+resté l'arsenal où ont puisé les polémistes ultérieurs,
 Korkunoff, Jeléneff, etc. — La réfutation de ces ouvrages
 fut entreprise et conduite d'une manière décisive par
 M. Danielsson, dans ses ouvrages sur {a Réunion de
@@ -1053,22 +1053,22 @@ La Diète de 1888 avait voté un Code pénal, sanctionné
 en 1889, et qui devait entrer en vigueur en 1891. Une
 campagne de presse fut menée contre la rédaction de
 k certains articles, où l'on voulait voir une négligence des à
-(1) Le contreseing est indispensable en Finlande. L
+(1) Le contreseing est indispensable en Finlande.
 
 a intérêts de l'empire de Russie. Les polémistes russes fi
 . obtinrent par le manifeste du 15 décembre l'ajour-
 - nement de la mise en application du Code jusqu'à
 modification par la prochaine Diète. Les changements de:
 ( réclamés étaient pour la plupart de pure forme. (1) Ait
-; D'autres mesures suivirent. Le « comité pour les S
+; D'autres mesures suivirent. Le « comité pour les
 ; affaires finlandaises » qui siégeait au ministère de FinÀ lande fut supprimé par rescrit du 13 mai 1891; c'était
 “ un solide appui de juristes compétents qui disparaissait
 % s'entendaient guère aux questions de droit public.— Dès : ve
 : l'été de 189r, une ordonnance stipulait que la corresponà dance officielle entre le ministre etle gouverneur-général,
 | outre (nouvelle violation de la constitution), des fonc- ps
-| tionnaires russes pourraient être nommés aux chancel- é
+| tionnaires russes pourraient être nommés aux chancel-
 | leries du secrétariat d'État et du gouverneur-général. REA
-À Une nouvelle ordonnance du 7 décembre 1891 décidait é
+À Une nouvelle ordonnance du 7 décembre 1891 décidait
 $ que la connaissance du russe donnerait à un candidat #3
 F la préférence absolue pour la nomination aux emplois He
 | Mais il y eut encore des faits de plus de portée. te
@@ -1103,7 +1103,7 @@ seul était une négation de l'autonomie finlandaise. Les
 un projet à part. — L'avis du sénat de Finlande fut
 demandé, et dans l'hiver de 1892 un comité mixte se
 réunit à Saint-Pétersbourg, présidé par le ministre russe
-des finances, Bunge. Il se composait de six membres S
+des finances, Bunge. Il se composait de six membres
 russes (dont quatre ministres et le comte Heïden) et
 La tactique adoptée par les Russes était de tirer
 parti d'un point laissé obscur dans la constitution finlandaise. Il pouvait y avoir des cas, assez rares du
@@ -1115,20 +1115,20 @@ _ quéeexpressément dans la constitution. Les adversaires &
 _ de la constitution finlandaise dirigèrent de bonne
 . heure leurs attaques de ce côté. On parla « d'affaires
 à d'empire » qui exigeaient une législation commune; on
-| déplora que cette législation n'existât point. Déjà dans t
+| déplora que cette législation n'existât point. Déjà dans
 | un rescrit du 28 février 1891, du reste très bienveillant
 pour la Finlande, l'empereur disait que « le manque A
 d'accord entre certaines lois finlandaises et les lois EP
 | générales d'empire, ainsi que le manque de précision NE
-- dans la législation sur les rapports du Grand-Duché é
-avec l'Empire de Russie, font qu'on se représente sous ï
+- dans la législation sur les rapports du Grand-Duché
+avec l'Empire de Russie, font qu'on se représente sous
 | un faux jour le sens des mesures prises dans les AE
-questions intéressant au même degré toutes les parties k
-de l'empire ». — La majorité de la commission Bunge 2.
+questions intéressant au même degré toutes les parties
+de l'empire ». — La majorité de la commission Bunge
 rédigea un projet fixant la procédure législative dans
 les « affaires d'empire »; c'était le conseil de l'empire be
 qui serait l'organe législatif. La minorité finlandaise ne %
-| put naturellement adopter le projet, et s'en tint à celui i
+| put naturellement adopter le projet, et s'en tint à celui
 | du sénat. — La commission se sépara au printemps de
 1893. Alexandre III vit les projets, et les fit remettre au 5 et
 | secrétariat du conseil de l'empire, enjoignant que la
@@ -1140,10 +1140,10 @@ de son successeur témoignaient de meilleures intentions. Le comte Heïden se re
 ; Gontcharoff. Le régime de la presse redevint plus
 
 Pour la Finlande CRÉCAUE
-libéral, comme le montre la statistique des censures de ù
+libéral, comme le montre la statistique des censures de
 On crut l'orage passé ; et cette confiance aveugle n'est
 pas un des phénomènes les moins curieux de toute
-cette période. l
+cette période.
 Il est vrai de dire, à l'excuse des Finlandais, que
 personne ne les avertit. Le départ de Heiden tient peutêtre à ce qu'il savait quels desseins on nourrissait à
 Saint-Pétersbourg, desseins auxquels il ne voulait pas se
@@ -1157,7 +1157,7 @@ surprise. — Néanmoins, on peut estimer que les esprits
 dirigeants en Finiande ont manqué de perspicacité.
 L'exposé que nous avons fait de la période de 1890 à
 1898, tout sommaire qu'il est, montre néanmoins quelle à
-en est l'importance. C'est alors que s'est précisée M
+en est l'importance. C'est alors que s'est précisée
 la tactique adoptée depuis. Le manifeste de 1899 et
 celui de 1900 ne sont que des reprises. Le peuple finlandais s'était fié évidemment à la parole de ses souve- À
 rains; l'histoire des dernières années a montré combien
@@ -1212,10 +1212,10 @@ des hommes d'Etat russes, et qu'ils l'aient fait partager au tsar.
 
 FL Finlande en harmonie avec les principes qui réglaient
 la matière dans l'Empire de Russie ». “LATE
-fs Un comité se réunit à Pétersbourg, pour préparer , W
+fs Un comité se réunit à Pétersbourg, pour préparer
 1% était présidé par Pobedonostseff, et ne comptait qu'un
 K Finlandais, le ministre Procopé. Les Russes adoptèrent ie
-À les projets de 1897, et décidèrent de les renvoyer à la j
+À les projets de 1897, et décidèrent de les renvoyer à la
 diète, mais en termes si vagues et si obscurs que le
 | ministre de Finlande fit des réserves formelles. La
 ù question fut rapportée au tsar par Pobedonostseff, sans î A
@@ -1242,7 +1242,7 @@ $ sénat. Kouropatkine n'hésita pas à partir de sa personne pour Livadia; il g
 ignorance profonde de la constitution. En face d'un passage où il était question de « l'autonomie finlan4 daise », il mit un point d'interrogation; là où le sénat , sd y parlait des lois de 1772 et de 1789, le tsar mit en marge
 
 Pour la Finlande PAT
-« qu'il était temps pour les Finlandais de commencer n.
+« qu'il était temps pour les Finlandais de commencer
 à oublier des lois aussi vieilles ». — Il ordonna enfin
 que le projet russe serait présenté à la diète sans les
 changements apportés par le sénat. (1) à
@@ -1251,8 +1251,8 @@ en Finlande, et surtout un profond étonnement, qui
 s'accrut encore lorsque le tsar publia peu après (fin
 août) son fameux « manifeste de la paix ». L'inquiétude
 ne se calma point lorsque, le 30 août, on apprit la nomination comme gouverneur-général du général Bobrikoff.
-On savait que c'était un parvenu, sorti de très bas, L
-arrivé par la politique, serviteur aveugle du grand-duc N
+On savait que c'était un parvenu, sorti de très bas,
+arrivé par la politique, serviteur aveugle du grand-duc
 Vladimir, qu'il avait accompagné en 1886 lors de la
 russification des provinces baltiques : type parfait du
 militaire politicien comme il en foisonne en Russie,
@@ -1269,7 +1269,7 @@ malheureusement répandu dans le paysune conception
 ‘ .…… Laissant intactes, dans les limites du rescrit de
 1897, les particularités des institutions religieuses, des droits
 | et privilèges et du gouvernement intérieur de la Finlande, .
-: () J'ai raconté un peu dans le détail cette histoire du projet de n:
+: () J'ai raconté un peu dans le détail cette histoire du projet de
 4 loi de 1899, parce qu'elle est tout à fait typique. On y voit et l'efface- &
 ment complet du ministre de Finlande, et les moyens employés ‘
 hs pour gagner le tsar, et la facilité avec laquelle ces moyens réussissent,
@@ -1311,7 +1311,7 @@ imposé au général Procopé le secret absolu. Le ministre ti
 de Finlande eut le tort de garder sa parole : tout au A
 moins est-il certain qu'il n'avertit aucun membre du d 41 LENS
 
-Pour la Finlande é
+Pour la Finlande
 sénat. Ce fut une faute dont les résultats sont incalculables. Le manifeste tomba d'une façon inattendue : et
 pourtant il semble bien que, si la discussion sur la pro- À
 mulgation s'était prolongée de trois jours, la majorité
@@ -1324,9 +1324,9 @@ Dans la séance du 14, on acheva de rédiger le mani- à
 feste et les règlements qui anéantissaient la constitution finlandaise. Le grand-duc Michel, président du
 conseil de l'empire, les contresigna. Ils furent datés du
 3/15 février 1899. Voici la teneur de ces documents
-Par la grâce de Dieu, Nous, Nicolas II, Empereur et J
+Par la grâce de Dieu, Nous, Nicolas II, Empereur et
 Autocrate de toutes les Russies, Roi de Pologne, Grand-Duc
-de Finlande, etc., etc., etc. s
+de Finlande, etc., etc., etc.
 À tous Nos fidèles sujets, savoir faisons : !
 Le Grand-Duché de Finlande, étant devenu depuis le
 commencement du siècle partie intégrante de l'Empire
@@ -1336,9 +1336,9 @@ Alexandre I”, d'heureuse mémoire, et des Souverains ses
 (1) Je les cite in extenso, quoiqu'ils aient été souvent reproduits;
 il n'y a pas de documents plus inaccessibles le moment venu que à
 ceux qui se trouvent partout, — J'ignore par qui ils ont été présentés à la sanction impériale. Mais il faut remarquer qu'ils sont
-datés du 15; ou ils sont postdatés, ou, lorsque Bobrikoff partit de j
+datés du 15; ou ils sont postdatés, ou, lorsque Bobrikoff partit de
 Pétersbourg le 14 au soir, il n'emportait que des documents sans à
-valeur officielle; et il lui fallait une solide confiance dans la fai- L
+valeur officielle; et il lui fallait une solide confiance dans la fai-
 blesse de l'empereur pour les présenter le lendemain au sénat.
 
 { | successeurs, d'institutions spéciales, en ce qui concerne Da
@@ -1354,7 +1354,7 @@ C haute administration se rapportant à ce pays d'autres FALL ki
 À de solution de questions de ce genre n'est pas défini dans #3
 C8 les lois existantes par des règles précises, et cette absence HER
 i] . de définition a donné lieu à de graves inconvénients. sis
-4 Pour écarter ces inconvénients, Nous avons trouvé utile, NE
+Pour écarter ces inconvénients, Nous avons trouvé utile, NE
 dans Notre sollicitude incessante pour le bien de tous Nos Fr
 ss fidèles sujets sans distinction, d'établir d'une manière ferme g ex
 et inébranlable, pour compléter les lois existantes et à titre —
@@ -1366,7 +1366,7 @@ munes à tout l'Empire. x FE
 3 tion des lois d'intérêt local, qui ont exclusivement trait à
 è aux besoins du pays finlandais, Nous avons reconnu néces- Le
 | saire de réserver à Notre appréciation la spécification rA5t
-| finale des questions législatives communes à tout l'Empire. É M
+| finale des questions législatives communes à tout l'Empire.
 En conséquence de ce qui précède, Nous avons ratifié de à
 Notre propre main les règlements ci-joints devant servir Ra
 4 à la rédaction, à l'examen et à la promulgation des lois KES 2$
@@ -1378,7 +1378,7 @@ la plus étroite avec l'Empire. Sous la protection de la
 puissance russe, la Finlande, puisant sa force dans la *
 sauvegarde que la Russie lui donne, a marché invariablement pendant près d'un siècle dans la voie du progrès
 à pacifique, et il Nous a été agréable de Nous convaincre WE:
-ne d'après les récentes énonciations des États de la Diète que û
+ne d'après les récentes énonciations des États de la Diète que
 
 Pour la Finlande ; à
 les sentiments de dévouement pour Notre Personne et pour
@@ -1407,7 +1407,7 @@ avec la législation de l'Empire.
 précitées ($ r et 2) est demandée par le ministre compétent
 de l'Empire et par le ministre secrétaire d'État du GrandDuché de Finlande, après communication préalable entre
 eux à ce sujet. Le gouverneur général de la Finlande,
-quand il trouve nécessaire, d'après la marche de l''adminis- F
+quand il trouve nécessaire, d'après la marche de l''adminis-
 
 Dr tration du Grand-Duché, de compléter les lois existantes du
 | pays dans l'ordre indiqué par les présents règlements, ‘
@@ -1433,9 +1433,9 @@ impérial convoquant dans ce but une Diète extraordinaire. à a
 de la Finlande, du ministre secrétaire d'État du Grand- AR
 Duché de Finlande et du Sénat Impérial de Finlande, et, Ga Ge
 dans les cas voulus ($ 5), de la Diète de Finlande, le ministre si
-compétent de l'Empire transmet le projet de loi au Conseil é
+compétent de l'Empire transmet le projet de loi au Conseil
 de l'Empire dans l'ordre voulu d'après les statuts de cette « VE
-haute institution de l'Etat. Les conclusions du Sénat et de a L
+haute institution de l'Etat. Les conclusions du Sénat et de a
 la Diète y sont annexées. ;
 7. Le projet de loi est examiné par le Conseil de l'Empire DRE
 5 d'après le mode général ordinaire avec la participation du
@@ -1443,7 +1443,7 @@ gouverneur général de la Finlande, du ministre secrétaire “;
 d'Etat de Finlande, ainsi que des membres du Sénat Impé- des.
 rial de Finlande qui seront désignés à cet effet sur le choix À
 de Sa Majesté l'Empereur. (à
-8. L'avis du Conseil de l'Empire, sanctionné par Sa F
+8. L'avis du Conseil de l'Empire, sanctionné par Sa
 Majesté l'Empereur, concernant le dit projet de-loi, est
 publié dans le mode voulu dans l'Empire, ainsi que dans
 le Grand-Duché de Finlande. ; A
@@ -1497,12 +1497,12 @@ ne constituait pas une reconnaissance de la légalité du
 S (1) Cette doctrine avait été exprimée, autant que je sache, déjà
 + auparavant par le ministre Snellman, au moins dans des termes
 
-_ manifeste, ni une condition indispensable dans la pro- À L
+_ manifeste, ni une condition indispensable dans la pro- À
 cédure législative. Il suflisait d'adresser ensuite une < Le
 pétition à l'empereur pour demander une explication et : (7
 proposer qu'un projet de loi discuté à la prochaine KE
 diète fixât les limites de la législation nouvelle. MR
-3° Au contraire, les partisans de la résistance faisaient v
+3° Au contraire, les partisans de la résistance faisaient
 valoir d'autres arguments. Le sénat ne pouvait sans $
 doute opposer un refus définitif qui eût été une révolte ;
 mais il pouvait adresser une pétition avant de promul- À
@@ -1512,9 +1512,9 @@ ministre de Finlande, l'empereur n'avait pas été éclairé
 sur la portée de cet acte. Si la réponse était défavo- à
 rable, le sénat pourrait ensuite démissionner. *
 Une première séance eut lieu le 16 février, une autre is
-le 17; un vote d'essai donna : pour la promulgation 15, k
-contre la promulgation immédiate 5.
-Le contenu du manifeste avait cependant été connu j
+le 17; un vote d'essai donna : pour la promulgation
+contre la promulgation immédiate
+Le contenu du manifeste avait cependant été connu
 dans l'intervalle. Les membres de la diète s'occupèrent
 de la question : le parti suédois envoya des députés aux
 sénateurs pour leur demander de né pas promulguer ; le
@@ -1555,7 +1555,7 @@ de la promulgation.
 On procéda alors au vote officiel. Les voix se partagèrent ainsi : nombre des votants, 20; majorité
 
 Pour : les sénateurs Bergbom, Borenius, Eneberg,
-Sohlman, Tudeer et Yrjo-Koskinen, soit 11.
+Sohlman, Tudeer et Yrjo-Koskinen, soit
 Contre : les sénateurs Cederholm, Charpentier, Clouberg, Gripenberg, Hornborg, Hougberg, Ignatius,
 
 () S'il était parti, la séance définitive eût été nécessairement
@@ -1588,12 +1588,12 @@ serait accueillie de Sa Majesté Impériale, et que celle-ci n'y
 verrait que l'accomplissement fidèle du devoir qui incombe
 aux conseillers finlandais de Sa Majesté Impériale.
 | Le sénateur Schauman déclara alors revenir sur son
-_ vote. Les voix se partageaient : dix contre dix ; la voix d
+_ vote. Les voix se partageaient : dix contre dix ; la voix
 prépondérante du vice-président Tudeer l'emporta. Une
 fois de plus la Finlande était abandonnée par ses défenseurs naturels. (1)
 (1) Le vice-président du département judiciaire était alors -
 - malade et absent de la séance. On sait qu'il voulait voter contre,
-. | et qu'il eût du reste par droit d'ancienneté présidé la séance, qui è
+. | et qu'il eût du reste par droit d'ancienneté présidé la séance, qui
 
 Pour la Finlande
 
@@ -1618,15 +1618,15 @@ l'adresse du sénat, ïl se montra fort irrité qu'on püi le
 supposer capable de violer son serment. Du moment
 qu'il s'était réservé de décider quelles seraient les
 « affaires d'empire », c'était, disait-il, la meilleure
-garantie que pût souhaiter la Finlande. Jamais l'empereur n'est sorti de ce raisonnement; jamais il i
+garantie que pût souhaiter la Finlande. Jamais l'empereur n'est sorti de ce raisonnement; jamais il
 n'a pu ou voulu comprendre la portée réelle de son
 manifeste. Sa réponse à l'adresse du sénat fut courte :
 « Aucune mesure à prendre ». Cette réponse fut communiquée au sénat par le ministre, et enregistrée dans
 la séance du 2 mars.
 
-La tactique adoptée par la majorité avait donc M
+La tactique adoptée par la majorité avait donc
 aurait tourné autrement. On peut se demander s'il n'eût pas mieux
-fait de risquer une aggravation de son mal, et de se faire transpor- M
+fait de risquer une aggravation de son mal, et de se faire transpor-
 ter au sénat. Li v échoué. La tactique contraire aurait-elle réussi? Tout 4 à
 k _ ce qu'on peut dire, c'est qu'elle n'eût pas tourné plus DTA ‘|
 
@@ -1659,15 +1659,15 @@ comme un conseil politique, car le procureur n'est pas qualifié pour en donner.
 une observation sur la légalité de la mesure prise par le
 Sénat, je suis obligé de la regarder comme défectueuse
 car M. le procureur n'a pas indiqué de motif légal en vertu à
-duquel le Sénat eût pu s'abstenir de promulguer immédia- f
+duquel le Sénat eût pu s'abstenir de promulguer immédia-
 Forme de Gouvernement de 1772, je me bornerai à rappeler À
 que l'on n'avait demandé ni l'avis du Sénat ni la signature $
 des sénateurs. (1)
 Je ne veux pas envisager ici la question de savoir si
-M. le procureur, qui trois jours auparavant avait eu connaissance du contenu du manifeste impérial, ne pouvait Gpas se croire lui-même autorisé, en vertu des pouvoirs que ë,
+M. le procureur, qui trois jours auparavant avait eu connaissance du contenu du manifeste impérial, ne pouvait Gpas se croire lui-même autorisé, en vertu des pouvoirs que
 lui confèrent ses instructions, à s'adresser directement à Sa LEE
-Majesté Impériale pour obtenir d'Elle, avant la séance plé- L
-nière du Sénat, telle mesure qui lui eût paru possible. Je n'ai M
+Majesté Impériale pour obtenir d'Elle, avant la séance plé-
+nière du Sénat, telle mesure qui lui eût paru possible. Je n'ai
 (1) Effectivement, le manifeste fut imprimé dans les journaux
 officiels sans la signature des sénateurs. C'était une conséquence de
 la théorie fallacieuse que la promulgation n'implique pas reconnais- “T
@@ -1683,7 +1683,7 @@ bi suédois) le blâme qu'on faisait retomber sur le parti de
 te Koskinen. Elle a encore une autre importance. A la 11%
 ;' suite de cette protestation, Koskinen fut désavoué ou
 ._ au moins délaissé par la majorité de ses amis politiques;
-mais cet isolement ne dura pas. Un groupement se Ê
+mais cet isolement ne dura pas. Un groupement se
 ñ reforma de gens appartenant, pour la plupart, au parti
 vieux-finnois, et qui voulurent essayer de tirer le meil- (Fi
 7 leur parti possible de la situation, de sauver ie plus des NS
@@ -1692,10 +1692,10 @@ des concessions de détail : c'est du moins leur système .)
 dé défense. Ce parti a pour lui le plus ancien journal Ta
 À finnois, le Uusi Suometar, une partie du clergé et de
 l'élément finnois. Il a de bonne heure cherché à entrer
-_ dans le gouvernement, et ses efforts ont été couronnés J
+_ dans le gouvernement, et ses efforts ont été couronnés
 de succès lors du renouvellement du sénat en 1900, à
 après lequel il n'y est resté que des adeptes de cette ET
-politique ou des instruments dociles. Mais, comme on < È
+politique ou des instruments dociles. Mais, comme on <
 le verra, dans la pratique le parti dirigé par Koskinen Gé
 n'a fait que sanctionner d'abord, et plus tard même As
 ; appuyer toutes les mesures de russification.
@@ -1709,7 +1709,7 @@ réunion de citoyens à Helsingfors. Le comité rédigea
 une adresse; on convint de la faire distribuer dans tout
 le pays par des délégués; une députation composée
 d'un membre par commune se rendrait auprès de
-l'empereur. On trouva en deux jours les fonds nécessaires, et au delà (460.000 francs). Le 24 on commen- J
+l'empereur. On trouva en deux jours les fonds nécessaires, et au delà (460.000 francs). Le 24 on commen-
 çait à faire circuler l'adresse ; le 5 mars, les Communes
 choisissaient leurs délégués. Le 10, les premières listes
 revenaient entre les mains du comité ; le 14, arrivait la
@@ -1728,7 +1728,7 @@ un chagrin profonds.
 Le droit séculaire du peuple finlandais à prendre part
 à la législation par l'intermédiaire de ses représentants, !
 les États, a été confirmé à perpétuité par l'empereur 3%
-Alexandre I, dont nous bénissons la mémoire. Ce droit a k:
+Alexandre I, dont nous bénissons la mémoire. Ce droit a
 été développé et organisé sous le règne des défunts empe- %
 reurs Alexandre II et Alexandre III.
 Mais, au terme des réglements publiés à la suite du mani- KR:
@@ -1748,7 +1748,7 @@ PER finlandais, appartenant à toutes les classes de la société,
 ‘8 venons exprimer devant le Trône notre profond chagrin du
 ÿ sort qui menace notre patrie, si le maintien de ses lois
 À fondamentales n'est plus assuré; et nous prions respeck tueusement Votre Majesté de prêter l'oreille à notre sup-
-Très gracieux Empereur! ï
+Très gracieux Empereur!
 Sous le sceptre de monarques magnanimes et l'égide
 de ses lois, le peuple finlandais n'a cessé de faire des
 progrès dans le bien-être matériel et la culture intellectuelle. Le peuple a cherché à remplir fidèlement ses devoirs
@@ -1781,8 +1781,8 @@ seront mis en accord avec les lois fondamentales finlan- %
 daises. Nous ne pouvons concevoir de doute sur l'inviolabilité de la parole Impériale. Nous savons tous que notre
 Souverain est celui qui devant toute l'humanité a déclaré
 que la force doit respecter le droit. Et le droit d'un petit
-peuple est aussi sacré que celui de la plus grande nation; x?
-l'amour de ce peuple pour sa patrie est aux yeux du Dieu M
+peuple est aussi sacré que celui de la plus grande nation;
+l'amour de ce peuple pour sa patrie est aux yeux du Dieu
 Tout-Puissant une vertu dont il ne doit pas s'écarter. eo
 C'est avec le plus profond respect, etc. x #3
 Si extraordinaire que la chose paraisse, les cinq cents : %
@@ -1792,7 +1792,7 @@ spécial avant que le général Bobrikoff eût appris et à
 l'entreprise et le départ de la députation. On n'avait
 pas voulu le prévenir par une délégation, de peur qu'il !
 ne fit son possible pour arrêter le voyage. Il l'essaya
-en effet, mais sans y réussir. Du moins semble-t-il qu'il ï
+en effet, mais sans y réussir. Du moins semble-t-il qu'il
 ait fait prévenir directement, par un messager spécial,
 le ministre de l'intérieur Goremykine.
 Les députés, une fois arrivés à Pétersbourg, adressèrent au ministre de Finlande une délégation qui lui
@@ -1818,7 +1818,7 @@ leurs suppliques à leurs gouverneurs respectifs, pour être RE
 transmises au gouverneur-général, qui vous les enverra à LAS
 son tour, pour m'être présentées s'il y a lieu d'en tenir LES
 _ compte. Expliquez à cette députation le sens du manifeste
-du 3/15 février, et qu'ils retournent ensuite en paix. (1) 104
+du 3/15 février, et qu'ils retournent ensuite en paix. (1)
 Le général Procopé lut la réponse aux députés le Va
 - samedi à deux heures de l'après-midi. Il n° « expliqua » à
 rien ; il avait même fait savoir d'avance qu'il ne voulait NS
@@ -1916,11 +1916,11 @@ tout caractère propre et autonome. Les principes géné- raux en étaient les s
 1° Le ministre de la guerre aurait la haute main sur
 toute l'organisation militaire, qu'il fallait soustraire aux
 autorités civiles (sénat et diète); il rapporterait seul les
-2 Le grand-duché disparaissait, en tant qu'unité militaire, pour faire place au district militaire finlandais,
+Le grand-duché disparaissait, en tant qu'unité militaire, pour faire place au district militaire finlandais,
 commandé par le gouverneur-général, avec un seul étatmajor (suppression par suite du commandement et de
 l'état-major finlandais);
 
-3 Le russe deviendrait la langue administrative; les
+Le russe deviendrait la langue administrative; les
 sous-officiers seraient tenus de le parler; les officiers
 pourraient être Russes (et non pas exclusivement Finlandais)
 & Une assimilation complète aurait lieu entre les
@@ -1932,7 +1932,7 @@ de trois), trois ans de réserve (au lieu de deux, et de cinq
 pour les bons numéros), et le reste dans la milice jusqu'à
 quarante-trois ans. Les Russes pourraient par suite servir comme soldats dans ces troupes;
 
-6 L'effectif du contingent annuel serait fixé par le
+L'effectif du contingent annuel serait fixé par le
 souverain sur le rapport du ministre de la guerre (et non
 du sénat), sans qu'on indiquât, comme dans la loi de
 1878, un effectif maximum ;
@@ -1985,10 +1985,10 @@ sa capitale une armée qui ne regarde pas l'Empire de Russie comme sa patrie.
 Enfin, parmi les raisons invoquées pour supprimer le
 caractère de loi fondamentale aux quatorze para- graphes de la loi finlandaise qui le possédaient, on
 invoquait le fait que le ministre de Finlande (baron
-Stjernvall-Walleen) aurait caché en 1878 au ministre de i
+Stjernvall-Walleen) aurait caché en 1878 au ministre de
 la guerre (comte Milioutine) la demande faite par la
 diète au sujet de ces quatorze paragraphes, pour éviter À
-l'opposition du ministre, et arracher ainsi par tromperie la sanction impériale. Cette histoire, soulevée une Ë
+l'opposition du ministre, et arracher ainsi par tromperie la sanction impériale. Cette histoire, soulevée une
 première fois par le comité russe, fut portée par Koux LÉ [al opatkine à la connaissance de l'empereur (14 novembre a ‘1
 _ La diète nomma immédiatement deux commissions: Re
 Û Fr lune dite de législation, qui se chargea d'examiner si ka
@@ -2003,10 +2003,10 @@ dant tout ce temps, il n'y eut pas de séances publiques ; Aie les discussions p
 Sur ces entrefaites survint le manifeste de février. La 7e diète envoya une pétition à l'empereur; cette pétition “fe ne fut pas lue. Certains membres des commissions se ‘1
 demandèrent alors si, devant la menace de voir la ques- … Fo tion militaire résolue par la voie illégale du manifeste, ê hs
 
-L la diète ne devait pas refuser d'examiner les projets we n
+L la diète ne devait pas refuser d'examiner les projets we
 | qui lui étaient soumis, pour ne pas prêter la main à
 | l'illégalité possible. La majorité se rangea pourtant à vi
-Vavis contraire, et les travaux continuèrent. N
+Vavis contraire, et les travaux continuèrent.
 
 Le 19 mai les deux rapports étaient distribués. La EN
 commission de législation avait mis en lumière et réfuté l toutes les violations de la constitution, tacites ou for- VUE
@@ -2014,7 +2014,7 @@ commission de législation avait mis en lumière et réfuté l toutes les violat
 À (1) La diète a montré le mal fondé de ces allégations /Réponse des va)
 Etats, pages 145-155) ; il est à noter du reste que, la commission ayant LA
 demandé au ministre de la guerre communication des pièces qu'il : Le
-possédait relativement à cette affaire, le général Kouropatkine L.
+possédait relativement à cette affaire, le général Kouropatkine
 
 refusa de les communiquer. | À
 
@@ -2041,7 +2041,7 @@ Comme ils étaient la majorité, ils l'emportèrent.
 Le principe des nouvelles propositions était de faire
 participer la Finlande aux dépenses militaires et au
 recrutement des forces russes dans la même proportion que dans l'empire de Russie. Le contingent annuel
-serait donc porté à 7.200 hommes ; le surplus, une fois ù
+serait donc porté à 7.200 hommes ; le surplus, une fois
 À les troupes finlandaises complétées, serait versé dans les
 6 troupes russes. Le budget militaire (9.200.353 francs 97)
 de serait augmenté de 10.091.664 francs, qui seraient versés
@@ -2056,7 +2056,7 @@ manifeste de février 1899. L'empereur répondit qu'on
 agît selon ses instructions du 22 mars, qui ne contenaient rien à cet égard; et le ministre de Finlande, de
 sa propre autorité, décida qu'on suivrait la procédure pes
 législative nouvelle. Une tentative du sénat pour faire "
-rentrer la question dans les voies légales échoua. Le Ô
+rentrer la question dans les voies légales échoua. Le
 26 avril, l'empereur sanctionnait définitivement les deux
 La commission de législation, appelée à se prononcer,
 proposa que, vu le caractère inconstitutionnel de ces
@@ -2079,7 +2079,7 @@ l'effectif maximum était porté de 5.600 à 12.000 hommes.
 comprendrait plus que les soldats sortis des troupes
 : actives ; la durée du séjour y était fixée à sept ans. —
 Les conscrits qui, lors du tirage au sort, auraient eu un
-bon numéro, seraient inscrits directement dans la mi-. l
+bon numéro, seraient inscrits directement dans la mi-.
 _ lice, appelée seulement en temps de guerre. La milice
 comprendrait en outre les soldats ayant achevé leur
 service dans la réserve.
@@ -2098,7 +2098,7 @@ on songe qu'elles sont adressées à un souverain auto-
 l'être partout. (x)
 Aux termes de la Constitution de la Finlande, une loi
 obligatoire pour le peuple finlandais ne peut être créée que .
-(1) Réponse des États, pages 168-170. D
+(1) Réponse des États, pages 168-170.
 : su conformément à la procédure établie par les lois fondamen__ tales du pays, laquelle suppose, d'une part que le souverain
 est assisté dans ses fonctions législatives par des autorités
 | nationales, et de l'autre que la loi, dans toutes les matières
@@ -2146,25 +2146,25 @@ dans ces questions une procédure législative contraire aux
 lois fondamentales finlandaises, les Etats ne sont pas entrés
 dans l'examen du fond de ces propositions.
 La session de la diète fut close le 30 mai selon le
-. cérémonial usuel. Les discours prononcés par les prési- l
+. cérémonial usuel. Les discours prononcés par les prési-
 dents des quatre ordres exprimèrent encore une fois
 les sentiments de la nation, et surtout l'irritation où elle
 était à la fois du manifeste de février et des accusations
 portées contre elle dans les actes qu'on lui avait soumis. Le discours du trône était très court et sec. Il fut
 lu par le gouverneur-général, que l'empereur avait
-désigné à cet effet. È
+désigné à cet effet.
 ! Le sénat envoya son avis sur la réponse des états le
 ë 6 novembre 1899. Il proposait de sanctionner la loi
 votée par les états, et de considérer comme caduques
 les secondes propositions.
 
-(1) Réponse des États, page 294.
+(1) Réponse des États, page
 
 L'administration intérieure de 1898 à 1900 fe
 Il est probable que, dans le ton un peu amer des discours prononcés à la clôture de la diète, il faut faire une
 part à l'irritation causée par l'administration du nouveau gouverneur-général. Le général Bobrikoff n'avait
 pas tardé à montrer de quelle brutalité cynique il était
-capable pour réaliser ses desseins. h
+capable pour réaliser ses desseins.
 Il n'osa pas s'attaquer de suite aux institutions et aux À
 fonctionnaires, que protégeaient la loi et les traditions.
 Mais, dès 1899, il se tourna surtout contre la presse, dont
@@ -2181,8 +2181,8 @@ journaux et des livres était remise à une « Direction
 générale des affaires de la presse » subordonnée au
 Il va de soi que les questions à l'ordre du jour susci73
 
-: Pour la Finlande g
-taient des polémiques dans la presse. Bobrikoff se con- e
+: Pour la Finlande
+taient des polémiques dans la presse. Bobrikoff se con-
 tenta, au début, de faire multiplier les « avertissements ». Mais plusieurs journaux en appelèrent au sénat et firent lever les avertissements abusifs. Bobrikoff
 obtint alors de l'empereur une addition à l'ordonnance
 en vigueur, lui accordant le droit de donner des avertissements sans appel. À
@@ -2211,7 +2211,7 @@ aux suppressions, elles allaient aussi leur train : en 1899 à
 G suppressions et 27 suspensions atteignant 17 journaux
 pour une durée totale de 43 mois.
 
-Matti Meikäläinem, Helsingfors (illustré, hebdomadaire), j
+Matti Meikäläinem, Helsingfors (illustré, hebdomadaire),
 "Titre, lieu de publication fois fois fois fois Total
 Pour la première moitié de 1900, les chiffres sont relativement plus modérés : sept suspensions seulement et
 aucune suppression. Mais cela tient en partie à la sévé-
@@ -2219,7 +2219,7 @@ aucune suppression. Mais cela tient en partie à la sévé-
 Pour la Finlande
 rité déployée auparavant, en partie aussi au zèle de la
 censure, dirigée par un Finlandais passé au service de
-Bobrikoff, le comte Cronhjelm. û
+Bobrikoff, le comte Cronhjelm.
 Les pertes matérielles subies par la presse étaient
 considérables : en comptant la valeur des abonnements,
 de la vente au numéro et des annonces perdues ainsi
@@ -2247,7 +2247,7 @@ un ordre au sénat d'avoir à payer pour ce journal
 30.000 francs de subvention annuelle. La Finljandskaja
 Gazeta commença de paraître au début de 1900.
 Le général Bobrikoff, comme nous l'avons dit, avait
-pris une part active à la russification des provinces bal- û
+pris une part active à la russification des provinces bal-
 
 ; _ tiques. Il savait quel succès le gouvernement russe ia
 _ avait remporté en excitant contre les barons allemands re
@@ -2270,7 +2270,7 @@ appelant leur attention sur « les persécutions » dont les
 colporteurs russes avaient été l'objet. Cette circulaire
 * avait été provoquée sans doute par une pétition adressée au gouverneur-général, et signée d'une quarantaine
 de maisons de commerce russes. On y faisait remarquer
-que la loi finlandaise défend le colportage aux non- L
+que la loi finlandaise défend le colportage aux non-
 finlandais, et le restreint à certaines marchandises
 d'origine finlandaise. Les signataires demandaient au
 gouverneur de faire prendre des mesures pour abroger
@@ -2303,8 +2303,8 @@ l'exercice de ses fonctions. Le gouverneur se défendit
 par un rapport adressé à l'empereur, où il disait que
 « s'il y a eu dans cette affaire quelque chose d'illégal,
 ce ne peut être que la tentative faite par le gouverneurgénéral pour franchir arbitrairement les limites de la
-justice et de la légalité ». Le gouverneur-général m'attendit pas que le rapport arrivât sous les yeux de i
-à l'empereur; il fit révoquer le gouverneur, et lui fit après F
+justice et de la légalité ». Le gouverneur-général m'attendit pas que le rapport arrivât sous les yeux de
+à l'empereur; il fit révoquer le gouverneur, et lui fit après
 | coup infliger un blâme. a
 
 -
@@ -2313,14 +2313,14 @@ De même qu'il avait procédé contre la presse, le PUR
 fie r général Bobrikoff se tourna aussi contre les associa- Ne
 __ tions et réunions. Le droit d'association et celui de 1 DER
 12) réunion étaient réglés par des dispositions assez libé- MES
-de rales, qui ne concordaient pas du tout avec les ten- 28e
+de rales, qui ne concordaient pas du tout avec les ten-
 Lé dances autoritaires du gouverneur-général. Il profita de 2 ?
 deux occasions pour les faire restreindre partiellement. à s: 1° La loterie à l'occasion de la presse. Sur la demande Fe
 à de Bobrikoff, le tsar décida qu'à l'avenir le gouverneur- LLHÈSES
 ( général aurait seul le droit d'autoriser des loteries, de | Fes
-quelque nature qu'elles fussent. he F
+quelque nature qu'elles fussent. he
 
-2 Un dîner offert à M. Mechelin pour son soixantième 40)
+Un dîner offert à M. Mechelin pour son soixantième 40)
 anniversaire décida le gouvernement russe à une q jf
 réforme ultérieure du droit de réunion (voir plus loin). NS
 
@@ -2329,7 +2329,7 @@ En outre, comme des sociétés d'enseignement popu- ‘1
 laire avaient demandé la ratification de leurs statuts, We le gouverneur-général fit savoir au sénat (juillet 1899) L 1%
 
 ; qu'il doutait de l'utilité de ces associations, et s'adressa mt
-à l'empereur pour lui soumettre le cas. A l'instigation M.
+à l'empereur pour lui soumettre le cas. A l'instigation
 | de Bobrikoff, le tsar déclara que, si le gouverneur- :
 général estimait qu'une association avait un caractère
 politique, il aurait le droit d'ajourner l'examen des tri
@@ -2338,7 +2338,7 @@ politique, il aurait le droit d'ajourner l'examen des tri
 . toutefois l'empereur ne voulait pas qu'il lui fût soumis ‘
 ” de demande d'autorisation avant 1901.
 | Le général Bobrikoff ne tarda du reste point à être Ré
-soutenu dans son œuvre de russification par un nouveau ministre de Finlande. Le général Procopé fut D.
+soutenu dans son œuvre de russification par un nouveau ministre de Finlande. Le général Procopé fut
 
 3 en effet relevé de ses fonctions de ministre intéri- ci
 # maire de Finlande, tout en gardant celles de ministre-
@@ -2385,7 +2385,7 @@ _ L'empereur était déjà trop circonvenu pour que les
 
 . pétitions pussent produire de l'effet. Celle sur la présse fut rejetée. A la pétition sur l'administration, l'empereur fit une réponse encore moins favorable : il refusait de prendre la pétition en considération, comme violant le $ 51 de la Loi organique de la diète, et conte- nant un blâme insolent de mesures administratives prises selon la procédure en vigueur pour la haute adminis- tration; il faisait envoyer au général Bobrikoff une attestation déclarant que sa conduite avait été correcte et conforme aux instructions impériales; enfin il ordon- nait au sénat de procéder à une revision de la Loi organique, en vue de délimiter plus exactement la compétence de la diète et de compléter la procédure de discussion des affaires au sein de celle-ci.
 
-Les manifestes de 1900. — L'administration S
+Les manifestes de 1900. — L'administration
 
 Le 6 juin, la diète de 1900 avait été close. Le sénat
 allait prendre ses vacances, on ne s'attendait à rien de
@@ -2423,7 +2423,7 @@ l'empereur sanctionnait l'un et l'autre. Le manifeste
 disait que, lors de « lincorporation » de la Finlande à
 « l'Empire de Russie » l'empereur Alexandre I « prescrivit que le russe serait, comme langue principale,
 introduit peu à peu dans le maniement des affaires se
-rapportant à l'administration ». Cette mesure « n'a pas Ÿ
+rapportant à l'administration ». Cette mesure « n'a pas
 été appliquée jusqu'ici, par suite de l'extension insufisante de la langue russe en Finlande ». Mais le moment
 est venu de donner à la langue russe « l'importance
 qui lui revient ». Le projet dressé par la commission
@@ -2441,7 +2441,7 @@ département administratif avec le secrétariat d'État et
 le gouverneur-général, et les requêtes au souverain se
 
 | feraient exclusivement en russe, les actes et documents Lo
-A partir du premier octobre 1903, les procès-verbaux N
+A partir du premier octobre 1903, les procès-verbaux
 et actes du département administratif du sénat seraient : 5258
 rédigés en russe, et le russe serait la langue des délibé- te
 rations ; toutefois le président (le gouverneur-général)
@@ -2483,14 +2483,14 @@ la suivante
 1° Une réunion ne peut être organisée sans l'autorisation du gouverneur-général, celui-ci pouvant déléguer
 ses pouvoirs aux autorités locales. — Le gouverneurgénéral ne s'est réservé que l'autorisation des réunions
 à tenir dans la capitale et dans un rayon de 25 kilomètres autour de Helsingfors
-2 Les réunions tombant sous le coup du décret sont
+Les réunions tombant sous le coup du décret sont
 celles qui sont organisées par des particuliers et des
 sociétés pour traiter de questions sociales, économiques,
 scientifiques (sauf les réunions ordinaires des sociétés
 savantes), pour prendre des résolutions et fêter des
 événements ou des personnes;
 
-3 La demande doit être faite par trois organisateurs
+La demande doit être faite par trois organisateurs
 jouissant de tous les droits civils et politiques, qui sont
 responsables jusqu'au moment de la constitution d'un e président de la réunion, qui devient responsable du
 maintien de l'ordre;
@@ -2563,11 +2563,11 @@ _ côté, Plehwe fit savoir aux sénateurs que « la question À
 
 _ de promulgation et celle des retraites étaient connexes ».— Le 6 juillet eut lieu le vote décisif. Les séna- fe
 teurs dont la démission était acceptée n'en avaient pas (4
-été prévenus. Les voix se partagèrent ainsi: nombre des f
+été prévenus. Les voix se partagèrent ainsi: nombre des
 
-Pour la promulgation : Bergbom, Bæœhm, Borenius, s
+Pour la promulgation : Bergbom, Bæœhm, Borenius,
 
-Abstentions : Nybergh et Langenskiôld, soit 2.
+Abstentions : Nybergh et Langenskiôld, soit
 
 Le manifeste était donc promulgué.
 
@@ -2581,7 +2581,7 @@ avec lequel la censure veillait sur la presse, les jour-
 contenu des nouvelles ordonnances, les articles se mul- Rss
 tiplièrent, où l'on combattait l'idée même de la promulgation; après la promulgation, la campagne se prolongea encore pour blämer la décision du sénat. Ce fut
 pour le gouverneur-général l'occasion de nouvelles
-hécatombes. Dans l'espace de cinq semaines, deux suppressions, une suspension, huit avertissements et deux i
+hécatombes. Dans l'espace de cinq semaines, deux suppressions, une suspension, huit avertissements et deux
 changements forcés de rédacteurs réduisirent la presse
 La promulgation des ordonnances de juillet 1900 fut
 _ suivie à bref délai du renouvellement du sénat. Les
@@ -2660,26 +2660,26 @@ la statistique des censures est interdite, mais le journal
 censuré n'a même pas le droit de le dire. Seule la formule « le journal a été en retard hier » a jusqu'ici
 
 Les tableaux suivants indiquent les suppressions et
-suspensions depuis le premier janvier 1900 jusqu'à s
+suspensions depuis le premier janvier 1900 jusqu'à
 
 . Hämäläinen, Tavastehus;
 
 Titre, lieu de publication suspensions Date mois
 Hämäläinen, Tavastehus. . . . I mars 2 À
-| Pour la Finlande dits J
+| Pour la Finlande dits
 Titre, lieu de publication suspensions mois
 Titre, lieu de publication suspensions Date mois
 
 En comparant les résultats pour 1899, 1900) 4907 etre
 1899 1900 1901 1902
 Nombre de journaux suspendus. 17 14 18 ,
-Nombre des suspensions. . . . . 27 15 18
-Durée totale en mois des suspen- ù
+Nombre des suspensions. . . .
+Durée totale en mois des suspen-
 
 _ Les conséquences économiques, calculées pour 1899
 . et 1900, ressortent du tableau suivant. On y a fait entrer les journaux supprimés en les comptant jusqu'à la fin de l'année.
 
-Nombre de numéros supprimés. 1.100 900
+Nombre de numéros supprimés. 1.100
 
 Montant des abonnements pendant la durée de la sup:
 
@@ -2723,7 +2723,7 @@ les administrations que de ,russifier les fonctionnaires finlandais. Ils ont che
 systématiquement de Finlandais les services qui les touchent immédiatement. Au secrétariat d'État de Finlande,
 le ministre-adjoint Procopé fut remplacé par un Finlan-
 
-Vas, le comte Armfelt; mais celui-ci eut pour succes- 40
+Vas, le comte Armfelt; mais celui-ci eut pour succes-
 _ seur, dans ses fonctions de chef de la chancellerie, un
 . juriste russe, créature de M. de Plehwe, D. Ohrstrôm. AS
 En outre, le ministre se fit adjoindre pour missions nue
@@ -2743,14 +2743,14 @@ Quant à la chancellerie du gouverneur-général, elle N &
 . Se vide aussi peu à peu de Finlandais. — A la suite des NL
 ordonnances de juillet 1900, le gouverneur du Nyland, 5 ANS
 le général de Pont, avait donné sa démission, déclarant taun
-qu'il né voulait pas appliquer ces décrets illégaux. Il £ 197
+qu'il né voulait pas appliquer ces décrets illégaux. Il £
 fut remplacé par le colonel von Minckwitz, chef de la A
-chancellerie du gouverneur-général. Le poste vacant j
+chancellerie du gouverneur-général. Le poste vacant
 fut attribué à un oflicier de l'état-major russe en Fin- ATCATESS
 lande, le colonel Seyn, qui s'était fait connaître par des de
 _ brochures et des conférences antifinlandaises. Puis - é » vinrent les fonctionnaires russes chargés de missions LA
 spéciales. On s'ingénia à faire des choix blessants pour “ma
-les Finlandais, en particulier celui du fils de Jeléneff. Et Û
+les Finlandais, en particulier celui du fils de Jeléneff. Et
 le gouverneur cherche à placer dans les autres admi-
 > nistrations les Finlandais qui lui restent. Au printemps SAUCE
 
@@ -2804,7 +2804,7 @@ faiblesse du côté du gouverneur-général. Aucune protestation ni objection n'
 au printemps de 1go1, le sénat, questionné par le
 général Bobrikoff sur les mesures à prendre pour
 appliquer le manifeste du 20 juin 1900, répondit par
-un plan complet. On exigerait des fonctionnaires la ï
+un plan complet. On exigerait des fonctionnaires la
 
 Pour la Finlande
 connaissance du russe, ce qui ne causerait aucune
@@ -2836,8 +2836,8 @@ ni Enire autres tracasseries imaginées par le général Bo_brikoff, il faut sig
 l'été de 1900, d'une vieille ordonnance d'Alexandre II
 sur l'obligation du passeport pour la sortie et l'entrée.
 L'ordonnance était, tombée en désuétude. Bobrikoff
-prétexta pour la reprendre que des émigrants russes, Û
-et surtout des Juifs, sortaient de Russie par la Finlande. Ÿ
+prétexta pour la reprendre que des émigrants russes,
+et surtout des Juifs, sortaient de Russie par la Finlande.
 En réalité, le gouverneur avait espéré trouver une occasion de faire servir ses gendarmes. Jusqu'ici, du reste,
 il n'a pas réussi.
 Ne pouvant introduire sa police en Finlande, le général Bobrikoff a du moins cherché à désorganiser celle
@@ -2851,7 +2851,7 @@ révoqué pour incapacité. Il fut remplacé par un Finlandais tout à fait russ
 donna bientôt la mesure de ce qu'il peut faire. Quelques
 procès avaient été entamés contre des manifestants
 (21 mai). Un commissaire de police fit une déposition
-d'où il ressortait qu'un officier de gendarmerie russe f
+d'où il ressortait qu'un officier de gendarmerie russe
 avait menti. Quelque temps après, sous un prétexte
 futile, Carlstedt le fit révoquer par le général Kaigoro- !
 doff, En revanche, il encombrait la police d'agents de Us
@@ -2879,7 +2879,7 @@ clandestins. L'une de ces perquisitions a provoqué en
 avril et mai une série de procès devant le tribunal de
 première instance à Helsingfors. Le censeur en chef,
 Wainio, a été débouté de sa plainte et condamné d'autre
-part pour dénonciations calomnieuses à une amende. J
+part pour dénonciations calomnieuses à une amende.
 
 D. — La suppression des timbres-poste finlandais.
 
@@ -2892,7 +2892,7 @@ _ décida de les supprimer. Au premier janvier 1900 ils ms
 _ devaient cesser d'être en usage dans le service exté- ue
 rieur, et à partir du premier juin 1900 dans le service
 intérieur. — Puis on n'avait plus entendu parler de cette
-mesure, que l'on croyait abrogée. Mais elle fut reprise È
+mesure, que l'on croyait abrogée. Mais elle fut reprise
 On décida que l'usage des timbres finlandais cesse- |
 rait pour la correspondance extérieure le 14 août 1900 À
 (premier août vieux style), et pour la correspondance PA
@@ -2906,19 +2906,19 @@ de 10 kopecks. Mais on se ravisa pour les timbres du Fa
 service intérieur, devant les difficultés qui en fussent à
 résultées pour la comptabilité. On mit en service à La
 partir de 1901 des timbres en monnaie finlandaise, mais Re:
-identiques pour l'apparence aux timbres russes. On *14
+identiques pour l'apparence aux timbres russes. On
 supprima ainsiles armes du Grand-Duché. Cette mesure
 d'ailleurs était superflue, depuis que le décret de 1890 va
 avait décidé que les timbres russes auraient cours
 forcé dans le service intérieur finlandais. ui
 La diète avait voté la loi militaire de 1899 parce
-qu'elle supposait que la question recevrait une solution rt Ë
+qu'elle supposait que la question recevrait une solution rt
 conforme à la constitution. Mais, à la fin de juin 1899,
 un rescrit impérial adressé au gouverneur-général indi- Re
-quait d'autres intentions. Ce rescrit avait été provoqué f
+quait d'autres intentions. Ce rescrit avait été provoqué
 par les discours prononcés à la clôture de la diète. A
 
-: À Pour la Finlande ê
+: À Pour la Finlande
 côté de l'expression du mécontentement impérial, il
 contenait la déclaration, faite en vue de « rassurer » la
 Finlande, que les décisions et avis de la diète seraient
@@ -2991,17 +2991,17 @@ c'était impossible. Ce fut à peine si à la fin d'avril
 La question vint définitivement à l'ordre du jour du
 conseil de l'empire à la fin de mai. Aux séances qui lui …
 furent consacrées assistaient la plupart des membres.
-Quelques-uns des grands-ducs y prirent aussi part. i
+Quelques-uns des grands-ducs y prirent aussi part.
 
-L'attitude des délégués finlandais fut très molle; ils N
+L'attitude des délégués finlandais fut très molle; ils
 firent des objections de détail, mais aucune réserve de
 principes. En revanche, la majorité des membres à
 russes se montra hostile au projet du ministre de la
 guerre. — Devant l'échec qui menaçait ses plans, le à
 général Kouropatkine perdit patience, et fit un appel « désespéré aux membres militaires du conseil. Mais ses
-arguments furent réfutés par un des membres civils, « Ivan Goloubjeff, qui fit inscrire une protestation au M
+arguments furent réfutés par un des membres civils, « Ivan Goloubjeff, qui fit inscrire une protestation au
 procès-verbal. L'impression produite fut considérable.
-Le projet Kouropatkine fut rejeté par 60 voix contre 20, « et le ministre déclara alors le retirer et en présenter un « 106
+Le projet Kouropatkine fut rejeté par 60 voix contre 20, « et le ministre déclara alors le retirer et en présenter un «
 
 _ autre. Les grandes lignes de ce nouveau projet étaient
 _ la suppression de l'armée finlandaise, son remplace- #$
@@ -3050,15 +3050,15 @@ russe; par suite la population mâle en Finlande,
 sans distinction de classe, est soumise au service militaire, — $ 2. Il n'est pas permis de se racheter du service militaire à prix d'argent ou de fournir à sa place
 un volontaire. — $ 3. Les sujets russes (chrétiens) qui
 n'appartiennent pas à la population finlandaise de
-naissance ont le droit d'accomplir leur service militaire M
+naissance ont le droit d'accomplir leur service militaire
 J conformément à cette loi si, deux ans avant l'inscription dans le district de recrutement, soit eux-mêmes,
-soit leurs parents ont obtenu une situation fixe en Finlande. » 2
+soit leurs parents ont obtenu une situation fixe en Finlande. »
 L'économie de la loi nouvelle est donc la suivante.
 Tout Finlandais est astreint au service militaire : le
 tirage au sort décide s'il fera du service actif. La durée
 
 du service actif est de trois ans, suivis de quinze années
-dans la réserve. Les jeunes gens favorisés par le sort ù
+dans la réserve. Les jeunes gens favorisés par le sort
 
 . sont versés directement dans la milice, convoquée seulement en temps de guerre, mais qui peut l'être même
 sans invasion du pays. La réserve finlandaise à caractère de milice est par suite supprimée. Les hommes
@@ -3087,7 +3087,7 @@ part dans la loi de 1go1. Les services et états-majors
 finlandais sont supprimés et remplacés par les services
 russes. La connaissance parfaite du russe sera exigée
 pour la nomination aux grades non seulement d'of- !
-ficier, mais de sous-officier. Les recrues prêteront le û
+ficier, mais de sous-officier. Les recrues prêteront le
 serment suivant une formule sanctionnée par l'empereur. « Ces troupes... pourront, en temps de paix
 comme en temps de guerre, être employées selon notre
 
@@ -3121,9 +3121,9 @@ loi et une discussion de la question juridique. Le viceprésident Linder l'inter
 
 à vota immédiatement. Quatre sénateurs, MM. Heïkel, ke Homén, Nummelin et Ramsay, votèrent contre, tous les
 
-4 autres (seize) pour la promulgation. ù
+4 autres (seize) pour la promulgation.
 
-3 En 1899, on n'avait pas employé de mesures discipli-
+En 1899, on n'avait pas employé de mesures discipli-
 
 3 naires contre les dix opposants; en 1900 on avait
 accepté les onze démissions. Cette fois, comme pour
@@ -3132,7 +3132,7 @@ ministre von Plehwe décidèrent l'empereur à sévir. Au
 
 | début de septembre, les quatre sénateurs opposants
 furent révoqués « pour ne pas avoir obéi aux messages
-et aux ordres de Sa Majesté ». È
+et aux ordres de Sa Majesté ».
 
 En même temps que le sénat décidait de promulguer
 la nouvelle ordonnance illégale, il envoyait à l'empereur une pétition. Il y était dit que le sénat avait vu
@@ -3206,12 +3206,12 @@ L'Église pèse certainement peu aux yeux des gens qui
 … _ sont prêts à la mettre en danger pour une affaire comme Ft la présente. Il y a aussi chez nous des personnes qui, bien ra
 
 | que l'existence de notre peuple soit menacée, nous invitent -
-à poser devant l'Europe, cette Europe qui laisse sous ses yeux écraser le Transvaal.. È
+à poser devant l'Europe, cette Europe qui laisse sous ses yeux écraser le Transvaal..
 
 Helsingfors, le 12 août 1901. | $
 L'archevêque fut soutenu, souvent d'une manière très active, par les évêques et même par certains chapitres.
 Cependant sa circulaire pastorale n'eut que peu de
-succès. Du reste, dans les paroisses où le pasteur em- J
+succès. Du reste, dans les paroisses où le pasteur em-
 
 brassait le parti de l'archevêque par passion politique
 ou par manque de courage, la population se chargea
@@ -3225,21 +3225,21 @@ descendre de sa chaire.
 
 De leur côté, beaucoup de pasteurs refusaient net de $
 
-se soumettre aux prescriptions de l'archevêque ; d'autres Ë
+se soumettre aux prescriptions de l'archevêque ; d'autres
 
 demandaient au souverain, par voie de supplique au
 sénat, à être dispensés d'une obligation qui les plaçait - en face d'une crise de conscience des plus pénibles. 2108
 
 Le sénat s'était informé en octobre auprès des gouverneurs de province pour savoir où en était la question.
-Les réponses donnaient les résultats suivants (1) : F
+Les réponses donnaient les résultats suivants (1)
 
 : 275 paroisses où la lecture avait eu lieu (mais sans doute
 souvent malgré les protestations de l'assemblée : c'était le
 
-- 110
+-
 
 Pour la Finlande à
-cas pour 47 paroisses au moins dans le gouvernement de f
+cas pour 47 paroisses au moins dans le gouvernement de
 
 29 où elle n'était que commencée;
 
@@ -3279,8 +3279,8 @@ sortie, la foule se trouva en présence de la police,
 qui intervint avec brutalité pour disperser le public.
 Des arrestations furent opérées, et des procès intentés
 par la police à quelques-unes des personnes arrêtées.
-Les accusés s'empressèrent d'ailleurs d'accuser à leur Ÿ
-tour les policiers pour arrestations illégales et violences. Les débats devant le tribunal de première È
+Les accusés s'empressèrent d'ailleurs d'accuser à leur
+tour les policiers pour arrestations illégales et violences. Les débats devant le tribunal de première
 instance montrèrent que la police avait exagéré certains faits et inventé certains autres. Trois commissaires ,
 où agents furent condamnés à des amendes et à des
 peines de prison (l'un d'eux, Kaïitokangas, deux fois)
@@ -3326,9 +3326,9 @@ aux questions ici exposées toute l'attention que mérite leur
 Le sénat fut très embarrassé. Il se décida pourtant à
 transmettre l'adresse, mais sans donner son avis. De
 
-() Texte in-extenso dans la Chronique de Finlande, numéro 15.
+() Texte in-extenso dans la Chronique de Finlande, numéro
 
-Le son côté, le gouverneur-général envoya aux gouverneurs é;
+Le son côté, le gouverneur-général envoya aux gouverneurs
 di _ une circulaire et au sénat une note (16 octobre) pour se EE
 
 .. plaindre et de l'attitude des pasteurs, et de « l'adresse
@@ -3353,7 +3353,7 @@ membres de la direction médicale, du directeur de lenseignement Lindelôf et d'
 
 _. du bureau de statistique et du directeur des forêts.
 
-3 Mais on permit à ces victimes de la seconde fournée 100
+Mais on permit à ces victimes de la seconde fournée
 
 ; d'offrir leur démission « par égard » pour leur âge et leur situation.
 
@@ -3364,7 +3364,7 @@ peuple : au contraire. La première mesure qui suivit fut
 
 7 prévoyait un délai de trois ans pour cette opération.
 
-4 Mais le général Bobrikoff était trop pressé de jouir de ,
+Mais le général Bobrikoff était trop pressé de jouir de ,
 son triomphe ; de son côté le ministre de la guerre était
 
 Pour la Finlande
@@ -3413,11 +3413,11 @@ presque tous préférèrent rester en retraite et se contenter de leur faible pe
 que le ministre fut très affecté de cette grève imprévue, de
 ; et fort sensible pour le moment en Russie, où l'on CE
 manque d'ofliciers; tout porte à croire qu'il fit savoir
-î son mécontentement au gouverneur : car il l'a exprimé Ë
+î son mécontentement au gouverneur : car il l'a exprimé
 i devant d'autres. — Bobrikoff chercha une vengeance;
 il ne tarda point à la trouver. Aiïidé, prétend-il, du
 (a ministre von Plehwe, il a obtenu le droit de nommer
-des officiers licenciés aux postes de commandants de p
+des officiers licenciés aux postes de commandants de
 cercle créés par la loi illégale de 1901. En cas de refus,
 la pension de licenciement leur serait retirée. Les ofli-
 - ciers se trouveront donc placés en face du dilemme :
@@ -3446,17 +3446,17 @@ district de recrutement (ceux-ci ne siègent que pendant
 les opérations faites dans leur commune respective). .
 Un médecin est adjoint pour l'examen médical. — Les
 communes furent donc invitées, comme tous les ans, à
-procéder à l'élection de leurs délégués. Mais cette question se posait pour elles : le vote n'impliquait-il pas ï
+procéder à l'élection de leurs délégués. Mais cette question se posait pour elles : le vote n'impliquait-il pas
 une reconnaissance tacite de l'ordonnance de 1901? —
 Sans doute, il ne s'agissait pas encore cette fois d'appliquer les dispositions de cette loi, et les recrues
 incorporées feraient leur service dans un corps finlandais. D'autre part, le manifeste de juilletindiquait, du
 reste assez vaguement, que la loi de 1878 serait encore
 suivie pour l'appel de 1902. — Mais il était évident en
 tous cas que la limitation du contingent était une conséquence du manifeste. La majorité des communes !
-résolurent par suite de protester contre cette ordon- « 122
+résolurent par suite de protester contre cette ordon- «
 
 . nance en refusant délire des délégués. Cette grève des
-| communes devenait très embarrassante pour le gouver- s
+| communes devenait très embarrassante pour le gouver-
 
 … nement; car les commissions, en l'absence des délégués { ti communaux, ne pourraient fonctionner. Le gouverne- ”
 ment recourut par suite aux moyens extrêmes. Le gou- Me. ”
@@ -3464,9 +3464,9 @@ ment recourut par suite aux moyens extrêmes. Le gou- Me. ”
 : verneur du Nyland, Kaigorodoff, s'adressa selon son
 ; habitude au procureur du sénat; et le procureur, selon j son habitude aussi, lui indiqua une ressource. Une
 
-“ disposition légale autorise les gouverneurs de province, dans le cas où les communes se refusent à accomplir Œ
+“ disposition légale autorise les gouverneurs de province, dans le cas où les communes se refusent à accomplir
 
-. quelque démarche commandée par la loi, à leur impo- È
+. quelque démarche commandée par la loi, à leur impo-
 
 ; ser des amendes jusqu'à concurrence de cinq cents Fes francs. Kaïgorodoff, poussé par le procureur, envoya pa
 des notes aux communes récalcitrantes, où il les invi- à
@@ -3474,7 +3474,7 @@ des notes aux communes récalcitrantes, où il les invi- à
 | tait à procéder sans retard au vote sous peine |
 d'amendes. Mais ces amendes dépassaient considéra- ES
 
-- _ blement la limite permise : 30.000 francs pour Hel- j
+- _ blement la limite permise : 30.000 francs pour Hel-
 
 | singfors, et de 2.000 à 10.000 pour les autres. L'exemple Top
 
@@ -3541,14 +3541,14 @@ Mais les opérations de recrutement comprennent un
 examen médical, pour lequel la présence du médecin
 est de rigueur. Les médecins sont nommés par la direction du service médical. Si celle-ci refusait de les nommer, tous les plans du gouvernement se trouvaient déjoués. C'est pourquoi on se rappela tout à coup que les
 membres de cette direction avaient tous signé en septembre l'adresse relative au manifeste, et on leur signifia
-d'avoir à démissionner, ou de se voir révoquer. Ils ù
+d'avoir à démissionner, ou de se voir révoquer. Ils
 offrirent leur démission (fin février). — Du reste, le gouverneur-général, pour avoir sous la main des médecins,
 avait obtenu de l'empereur l'autorisation de garder en
 service actif les médecins militaires des bataillons licenciés. On les désigna pour siéger dans les commissions.
 _ Le refus d'obéir pouvait les conduire devant le conseil
 . de guerre. Quelques-uns pourtant trouvèrent le moyen
 de se soustraire à cette obligation en se faisant mettre
-en congé pour raisons de santé. Le 15 avril, jour où ù
+en congé pour raisons de santé. Le 15 avril, jour où
 (1) Je dis expressément; car la loi de 1878 porte que les délégués
 communaux ne siègent que pour les opéfations relatives à leur
 commune ; dans l'esprit de la loi, leur présence est donc nécesL'saire.
@@ -3557,12 +3557,12 @@ Pour la Finlande :
 devaient commencer les opérations du recrutement, deux
 commissions se trouvaient sans médecins. Le sénat, le !
 17 avril, décida de nommer à ces deux commissions
-deux médecins militaires russes. Les sénateurs y mirent S
+deux médecins militaires russes. Les sénateurs y mirent
 une telle hâte que, quand il fallut télégraphier aux gouverneurs respectifs, on ne savait même pas le nom de
 ces médecins.
 
 Comme on le voit, tout avait été préparé avec le plus
-grand zèle pour annihiler les résistances. Là où les L
+grand zèle pour annihiler les résistances. Là où les
 assemblées communales avaient refusé de vérifier les
 tableaux de recensement des conscrits, on s'était passé
 de cette formalité légale. On se croyait sûr de recruter
@@ -3573,7 +3573,7 @@ fonctionnaires refusèrent de siéger comme secrétaires
 n'avait pas encore réussi à en trouver un. — Un autre
 refus plus remarquable encore se produisit. Un officier
 du bataillon de la garde, le lieutenant Waldén, avait
-offert sa démission. Avant que la réponse fût arrivée, È
+offert sa démission. Avant que la réponse fût arrivée,
 le commandant du bataillon le désignait pour siéger
 dans une commission de recrutement pour le premier
 district de Kuopio. Il refusa. Sur un rapport de sonchef
@@ -3591,7 +3591,7 @@ $ PCR Le plus difficile restait pourtant à faire. On s'était His è es procur�
 
 : efforts énergiques avaient été faits de part et d'autre.
 
-Les défenseurs de la constitution avaient fait une pro- Fr U
+Les défenseurs de la constitution avaient fait une pro- Fr
 
 : pagande active pour décider les jeunes gens, de qui, en
 | dernière analyse, dépendait l'application de la loi, à ne
@@ -3606,7 +3606,7 @@ beaucoup d'endroits la totalité des jeunes gens refusait à de se présenter à
 commençait par la commune de Sääksmäki, les , délégués communaux protestèrent et se retirèrent ; le
 | secrétaire de la commission se joignit à eux, et il fallut Aa renoncer à terminer ce jour-là. Ailleurs, les jeunes gens at se présentaient, déposaient une protestation en bonne
 et due forme, et se retiraient. D'autre part, il se révélait
-que la plus grande partie des jeunes gens présents È
+que la plus grande partie des jeunes gens présents
 
 - étaient ceux qui étaient assurés d'être réformés ou à
 , Les résultats des premiers jours ne se modifièrent re]
@@ -3623,34 +3623,34 @@ les communes où des conscrits se sont présentés pour déposer une
 protestation et se retirer. Le nombre entre parenthèses après la
 colonne 2 indique le nombre de ces conscrits quand il est connu,
 
-| Karislojo et Sammatti. . . . . .. 20
+| Karislojo et Sammatti. . . . . ..
 
 Pour la Finlande
-Hyrynsalmi et Ristijärvi . . . . . 32
-Gouvernement de Vasa e
-Sumiais et Kongiskangas . . . .….. 46 o
+Hyrynsalmi et Ristijärvi . . . .
+Gouvernement de Vasa
+Sumiais et Kongiskangas . . . .…..
 
 Pour la Finlande
 Gouvernement de Kuopio
 
-Nurmes et Rautavaara. . . . . .. 137
+Nurmes et Rautavaara. . . . . ..
 Gouvernement de Tavastehus
 
 Pour la Finlande
 Gouvernement de Viborg
 
-Kymmene, Hogland et Tytärsaari . 9ÿ
+Kymmene, Hogland et Tytärsaari
 Pour la Finlande
 Gouvernement de Saint-Michel
 
-Lappi, Hinnerjoki et Honkalahti. . 69
+Lappi, Hinnerjoki et Honkalahti.
 ÿ Pour la Finlande ‘
 Halikko, Angelniemi, Kiükka et
-Éetala et-Kadisjoki::7.2: 0000 94
-Hura et Karinais. 012 tn eme 21
+Éetala et-Kadisjoki::7.2: 0000
+Hura et Karinais. 012 tn eme
 
-Lemland et Lumparland. . . . .. 20
-Hammarland et Eckerô . . . . . . 26
+Lemland et Lumparland. . . . ..
+Hammarland et Eckerô . . . . .
 Kumlinge, Brändô et Sottunga. . . 21 13 -
 Il ressort de suite de ce tableau qu'un bon nombre
 . des conscrits ont refusé ou négligé de se présenter à
@@ -3660,7 +3660,7 @@ jouir de dispenses ou d'être réformés pour infirmités, et
 qui n'avaient pas voulu s'exposer aux risques de linsoumission. C'est ainsi qu'à Bjôrneborg, sur 42 présents,
 22 avaient envoyé des mandataires pour faire connaître
 leur droit à des dispenses, et les 20 autres étaient pour
-la plupart dans le même cas. A Helsingfors, sur les 57,
+la plupart dans le même cas. A Helsingfors, sur les
 55 avaient fait valoir des droits à des dispenses; sur
 57, 38 sealement se présentèrent à la visite médicale, où
 ; Pour la Finlande
@@ -3687,11 +3687,11 @@ destinée évidemment au public et au gouvernement
 russes. Les différences des deux textes sont si caractéristiques de la manière d'administrer de Kaiïgorodoff et ‘
 de ses deux chefs que les deux textes valent la peine
 Texte des journaux officiels Texte russe dans la Finlet des affiches jandskaja Gazeta
-À l'occasion des désordres Pendant ces jours derniers, Î
-qui ont eu lieu ici pendant il s'est produit dans la ville F
+À l'occasion des désordres Pendant ces jours derniers,
+qui ont eu lieu ici pendant il s'est produit dans la ville
 ces jours derniers, le gou- des désordres qui ont obligé .
 
-Nyland fait savoir au public quelle est autorisée en pa- que, dans le cas où ces dé- reil cas par la loi à employer L
+Nyland fait savoir au public quelle est autorisée en pa- que, dans le cas où ces dé- reil cas par la loi à employer
 sordres viendraient à se re- ses armes, dont les effets,
 produire, il serait obligé de avecl'armement actuel, sont
 continuer à appliquer les effrayants.
@@ -3740,7 +3740,7 @@ qui a été sanctionnée au cours du siècle dernier est impuis- -
 sante à assurer la tranquillité de la vie publique et le
 respect de l'autorité.
 Les menaces de la fin cachent mal les craintes exprimées au début. L'effet attendu ne s'est du reste pas
-produit. La section des affaires militaires au sénat de F
+produit. La section des affaires militaires au sénat de
 d Finlande a adressé le 24 avril des instructions. Là où le
 | tirage au sort a déjà eu lieu, on ne peut procéder à un
 GA nouvel appel ; mais là où le tirage n'a pu avoir lieu
@@ -3756,11 +3756,11 @@ On a pourtant procédé en quelques endroits à de
 nouvelles opérations. Le résultat est peu encourageant
 Gouvernement de Nyland
 Gouvernement de Vasa
-Jyväskylä, campagne, et Toivakka. 9
-Sumiais et Kongiskangas. . . . .. 46 o
+Jyväskylä, campagne, et Toivakka.
+Sumiais et Kongiskangas. . . . ..
 F J'ai réuni, pour plus de commodité, en un tableau
 f unique les résultats de l'appel de 1902 tels qu'ils ont été
-4 143
+4
 
 Pour la Finlande
 publiés jusqu'à la date du premier juillet dans les Fria
@@ -3776,7 +3776,7 @@ ceux qui sont relatifs aux communes où un second appel a déjà
 eu lieu. Dans la colonne 4, on a ajouté le nombre des présents au
 deuxième appel à celui des présents au premier; la colonne
 représente donc les absences des deux appels là où il y en a deux.
-Il a pu se glisser un élément d'erreur dans le comptage des communes, parce que j'ai compté comme distinctes celles qui sont réunies j
+Il a pu se glisser un élément d'erreur dans le comptage des communes, parce que j'ai compté comme distinctes celles qui sont réunies
 sous un même chiffre dans les Fria Ord; mais l'erreur est en tous &
 cas insignifiante. Le nombre total des communes est de 513. $
 
@@ -3811,7 +3811,7 @@ Finlande a été rendue impossible par le licenciement
 accomplir leur service militaire ; se
 « Attendu qu'aucune autre prescription émanée dans
 
-Pour la Finlande “4 Ë
+Pour la Finlande “4
 les formes légales et juridiquement valable n'existe en
 la matière
 « Décide que les accusés ne se sont point rendus
@@ -3839,7 +3839,7 @@ En outre la thèse peut se fonder en droit : la loi de 1878 stipule !
 que le bataillon de la garde sera recruté par engagements volon-
 : taires ou en prenant lors du tirage les conscrits qui ont déclaré .
 vouloir y entrer. Or cette année il est question d'y incorporer, si
-* besoin en est, même ceux qui ne l'auraient pas demandé. F
+* besoin en est, même ceux qui ne l'auraient pas demandé.
 
 # résultats de l'appel de 1903 (le premier qui doive se
 * faire selon la loi nouvelle). D'ici à ce qu'une procédure
@@ -3868,7 +3868,7 @@ Les derniers événements. — Les questions prochaines
 Les incidents qui se sont produits durant l'hiver de
 l'appel de la classe, ont eu pour effet de préciser lattitude des partis. Le mécontentement croissant du peuple
 a creusé entre lui et les principaux organes du gouver- te
-nement un fossé de plus en plus large. On a pu voir en ù
+nement un fossé de plus en plus large. On a pu voir en
 effet que le sénat, recruté en presque totalité dans le
 parti vieux-finnois, avait cherché, par des concessions
 de toute sorte au gouvernement russe, à poursuivre
@@ -3909,27 +3909,27 @@ ceux de beaucoup d'autorités civiles comprennent une
 majorité de communes de langue finnoise. Dans la pratique, le suédois se trouve donc éliminé de presque
 partout : résultat au moins étrange, puisqu'il est langue
 oflicielle. Sous couleur de régler l'emploi des deux
-* langues, l'ordonnance sert donc des intérêts de parti. f
+* langues, l'ordonnance sert donc des intérêts de parti.
 Mais ce n'est pas tout. L''ordonnance du 19 juin est
 “é accompagnée d'une autre « concernant l'emploi de la rs
-langue russe dans les expéditions faites par les autorités i
+langue russe dans les expéditions faites par les autorités
 
 ; Le en Finlande ». Cette ordonnance met en somme le russe JA
-F7 sur le même pied que les deux autres langues. Dans ÿ D
+F7 sur le même pied que les deux autres langues. Dans
 _ les affaires concernant les particuliers, les autorités et ‘68
 à tribunaux sont tenus de rédiger les documents origi- un
 ; naux en russe si les actes de la procédure sont écrits j A
 à en russe (ou de les faire traduire si ces autorités ou # “
 3 tribunaux ne sont pas tenus de savoir le russe). De
-4 même les communications faites à des communes de D
+4 même les communications faites à des communes de
 | Le préambule de la seconde ordonnance n'indique gi
 ÿ _ pas qui a soulevé la question. J'aime mieux croire que : GS &
 | ce n'est pas le sénat; et il est infiniment probable que ps Le
 2 c'est M. de Plehwe. Mais le sénat reste en tous cas Se
 | coupable de l'avoir provoquée. Donnant, donnant : on : ‘e
 devait s'attendre à cette seconde ordonnance. C'est une Fa
-"4 fois de plus le pays entier qui a payé les frais de la 10e
-politique de parti. me 7e
+"4 fois de plus le pays entier qui a payé les frais de la
+politique de parti. me
 Les ordonnances de juin 1902 sont le dernier événement notable survenu en Finlande. Mais on sait déjà
 que d'autres questions sont à l'étude, sur lesquelles je (5e
 voudrais orienter le lecteur dès à présent. 1e à
@@ -3938,7 +3938,7 @@ Dans un mémoire signalé ci-dessus (page 99), le
 sénat disait que l'introduction du russe dans les admi- 1 “
 nistrations ne présenterait à l'avenir aucune difficulté. (&
 Il suflirait de renforcer l'étude de cette langue dans les ;
-__ écoles. Et le sénat proposait de généraliser le plan ÿ
+__ écoles. Et le sénat proposait de généraliser le plan
 | d'études adopté pour le lycée de Viborg, qui compte Et
 trente heures de russe pour l'ensemble des classes.
 Effectivement, un rescrit impérial publié à la fin de “a
@@ -4044,7 +4044,7 @@ pour ne pas surcharger le consommateur. Et, dans ces
 conditions, les recettes douanières ont suivi une progression rapide :
 Au contraire, le tarif douanier russe est nettement
 protecteur. Il est aisé de s'imaginer quel bouleversement profond dans les conditions économiques suivrait
-(1) Le marc finnois est égal au franc. Ç
+(1) Le marc finnois est égal au franc.
 
 Pour la Finlande
 le relèvement des tarifs finlandais. La population finlandaise n'aurait aucun moyen de se soustraire aux
@@ -4072,7 +4072,7 @@ membres russes : car ceux-ci firent ajourner les séances à
 « pour permettre de réunir des matériaux statistiques
 supplémentaires ». Les séances reprirent au début de
 mars. Plusieurs sous-commissions furent créées pour
-examiner des questions de détail. Le comité s'ajourna t
+examiner des questions de détail. Le comité s'ajourna
 bientôt au mois d'avril. Le 23 avril, après quelques
 __ nouvelles séances, il s'ajournait « à une époque indé-
 Cette victoire était due à l'énergie des délégués fin- ,
@@ -4119,7 +4119,7 @@ autorités ou institutions publiques » et les « déclarations de nature délic
 aussi, l'arbitraire peut vite se glisser. En outre les pouvoirs disciplinaires des ordres et du président seraient
 encore renforcés.
 La question sera vraisemblablement soumise à la
-Certains indices permettraient de croire que le S
+Certains indices permettraient de croire que le
 gouvernement russe songe à se tourner vers l'église '
 luthérienne. M. de Plehwe a envoyé dernièrement un
 fonctionnaire étudier sur place, dans le gouvernement
@@ -4147,7 +4147,7 @@ scandale ; et une démission en masse des sénateurs, ou
 la perspective d'avoir à les révoquer tous lui eût inspiré de la prudence. Mais le temps des hésitations est
 visiblement passé. L'empereur a montré à plusieurs !
 reprises qu'il soutient personnellement la politique de
-ses ministres ; il n'est pas possible de se faire d'illu- î
+ses ministres ; il n'est pas possible de se faire d'illu-
 sions à cet égard.
 
 En face de ces attaques imminentes, quelle est la
@@ -4158,7 +4158,7 @@ soutenu par un groupe assez nombreux et influent du
 parti vieux-finnois. Sans doute, on a vu durant le printemps dernier un changement dans l'orientation du
 parti jeune-finnois, décidé à se rapprocher du parti
 
-Pour la Finlande é
+Pour la Finlande
 suédois pour une lutte commune sur le terrain constitutionnel. Mais il faut attendre quels seront les fruits de
 cette union, et même si elle sera durable. Et il reste
 toujours à envisager les formes possibles de lutte.
@@ -4185,7 +4185,7 @@ passagère. Quand on vit de près ce service redouté,
 Une baisse de salaires, un arrêt dans le développement
 industriel augmentait l''émigration, comme à la fin de
 ù la période 1880-1890. Deux années de disette successives, 1892-1893, provoquant par contre-coup une stagnation des affaires, produisaient un résultat identique.
-Mais, même alors, le chiffre total d'émigrants ne dé- F
+Mais, même alors, le chiffre total d'émigrants ne dé-
 
 a _ De plus, parmi ces émigrants, beaucoup avaient la ÿ nt
 192 pensée de revenir, et laissaient en Finlande une fiancée NE EL
@@ -4193,7 +4193,7 @@ a _ De plus, parmi ces émigrants, beaucoup avaient la ÿ nt
 x _ émpiraient aux États-Unis ou qu'elles s'amélioraient } Ki
 en Finlande, on voyait s'établir un courant de retour ‘4
 1 très fort. En 1898, 2.600 étaient partis, mais 2.200
-ë _ étaient revenus : l'émigration nette n'est donc que de w
+ë _ étaient revenus : l'émigration nette n'est donc que de
 _ des rentrants dépasse de 1.200 celui des partants. Et
 __ d'autres statistiques montrent que l'année 1894 avait TRE
 1] été signalée par une reprise d'affaires, 1897 par une ‘4
@@ -4206,7 +4206,7 @@ mois de janvier même présente un chiffre d'émigrants L à
 4 vrai de ce mouvement) de 308 personnes. — Survintle se
 à manifeste, et la menace toute prochaine de voir rem- sos FA
 placer la loi de 1878, d'aller servir, en nombre qua9 druple, pendant cinq ans, en Russie, ne comprenant a » pas la langue du pays, méprisés ou détestés de leurs A
-camarades et de leurs chefs. Ÿ
+camarades et de leurs chefs.
 É Dès que la dernière ressource, la grande pétition, eut
 | échoué, on vit l'émigration prendre des proportions À
 inouïes. En mars, elle atteignait 500 personnes par Us
@@ -4230,14 +4230,14 @@ c'est la part plus grande prise à l'émigration par les
 | _ gouvernements intérieurs. Jusqu'en 1898, jusqu'aux
 “._ premiers bruits d'une réforme du service militaire,
 1 c'était le gouvernement de Vasa, c'est-à-dire l'Ostro-
-. bothnie, qui fournissait surtout les émigrants. Depuis, 4S
+. bothnie, qui fournissait surtout les émigrants. Depuis,
 . … les quatre gouvernements intérieurs (Kuopio, Saint-
-— Michel, Tavastehus et Viborg) ont donné un nombre d:
+— Michel, Tavastehus et Viborg) ont donné un nombre
 Un tableau comparatif de la proportion prise par
-_ les gouvernements de Nyland (celui où se trouve la ï
+_ les gouvernements de Nyland (celui où se trouve la
 . capitale), Kuopio, Vasa et Uleäborg (ces deux derniers
 . comprenant l'Ostrobothnie), montre clairement le chan_ gement qui s'est opéré en 1898 et 1809. Lt
-Voici, d'autre part, la proportion du chiffre des émi- Ë
+Voici, d'autre part, la proportion du chiffre des émi-
 _ grations à celui de la population, pour chaque gouvernement. Cette proportion est calculée pour 100 habitants
 d'après le chiffre de la population au 31 décembre 1890,
 Pour la Finlande
@@ -4249,8 +4249,8 @@ gouvernement et par dix kilomètres carrés, donne le
 Les effets de cette émigration énorme se font déjà
 sentir dans certaines régions. Il paraît qu'en Ostrobothnie certains villages sont déjà très dépeuplés,
 ; presque déserts. Ce sont des familles entières qui émigrent, et probablement sans espoir de retour. ILest certain qu'une bonne part des « absents » à l'appel de 1902
-sont déjà en Amérique. Il est inutile d'insister sur le M
-À double danger que cette situation présente pour la Finà 166
+sont déjà en Amérique. Il est inutile d'insister sur le
+À double danger que cette situation présente pour la Finà
 
 x lande. Danger économique par la disparition de la maïn-
 … d'œuvre agricole dans certaines régions ; danger poliÀ … tique également, si le comité slave se met à acheter les
@@ -4292,7 +4292,7 @@ choses, et pour réunir complètement la Finlande aux autres
 parties de l'empire russe. ‘
 Telle est bien la situation. Les discussions juridiques
 n'ont dès lors plus de place; il faut résister, c'est-à-dire À
-lutter. Les résultats obtenus ce printemps montrent que Î
+lutter. Les résultats obtenus ce printemps montrent que
 la résistance n'est pas impossible.
 
 Dans le cahier que l'on vient de lire un assez grand
@@ -4311,14 +4311,14 @@ le commencement de mars 1900.
 ) Conquête de la Finlande . ..........
 tentatives contre la constitution finlandaise , . . .
 CaaAPITRE V. — L'administration intérieure de 1898
-d). — La suppression des timbres-poste finlandais 102
+d). — La suppression des timbres-poste finlandais
 
 -
 
 A titre d'essai, et pour constituer comme une section,
 analytique, de l'index que nous préparons pour la fin de «
 la quatrième série, nous avons groupé ci-après, dans
-l'ordre où nous les avons publiés, un sommaire des d
+l'ordre où nous les avons publiés, un sommaire des
 documents, renseignements, travaux et des œuvres que $
 nous avons publiées depuis le commencement de la
 première série qui intéressent les publics nationaux et
@@ -4348,7 +4348,6 @@ même au même, publiée dans l'Écho de Paris du
 directeur de l'Action française, à L'Écho de Paris; une
 réponse de Gérault-Richard à M. Henri Vaugeois, dans
 la Petite République du dimanche 24 décembre; chez
-| 197
 
 Liebknecht, troisième interview, dans l'Écho de Paris
 du dimanche 24 décembre. — Premier cahier de la
@@ -4362,7 +4361,7 @@ Hyndman; une lettre de Napoléon Colajanni; une
 adresse des députés socialistes belges à Jaurès; la consultation; texte; une lettre de Bebel; adresse des
 députés socialistes italiens à Jaurès; les réponses à la
 Léon Defuisseaux ; Pierre Lavrov; Henry Hyndman ; les
-cahier de la première série, épuisé, L
+cahier de la première série, épuisé,
 n'existe plus que dans les collections complètes ;
 La Consultation internationale, suite : Tom Mann;
 de la première série, épuisé,
@@ -4408,16 +4407,16 @@ Cahier de courriers, dix-septième cahier de la troisième série, un franc ‘4
 Félicien Challaye.— Impressions sur la vie japonaise. À
 Edmond Bernus. — La Russie vue de la Vistule.
 Jean Deck. — Courrier de Finlande.
-René Salomé. — Courrier de Belgique, dans le dix- Ÿ
+René Salomé. — Courrier de Belgique, dans le dix-
 
-Pierre Quillard. — Pour l'Arménie, mémoire et L
+Pierre Quillard. — Pour l'Arménie, mémoire et
 
-70 Nous prions nos abonnés de vouloir bien acheter et pe
+Nous prions nos abonnés de vouloir bien acheter et pe
 FA 44 Jaire relier leurs livres à la librairie des cahiers. #54
 AUS _Adresser les ordres à M. André Bourgeois, administra « M he 2° MRC:
 Ft | teur des cahiers, 8, rue de la Sorbonne, Paris, cin-
 Vient de paraître à la Société nouvelle de librairie et
-d'édition, en vente à la librairie des cahiers: è
+d'édition, en vente à la librairie des cahiers:
 HeNRI-CHARLES LEA. — Histoire de l'Inquisition
 ] au Moyen-Age, ouvrage traduit sur l'exemplaire revu &
 et corrigé de l'auteur par SALoMoN REINAcH, tome HI,
@@ -4450,7 +4449,7 @@ attentats dans l'Yonne (affaires Hervé et Fradet),
 mémoires et dossiers pour les libertés du personnel
 enseignant en France, un cahier de 72 pages, un franc
 
-! CHARLES GuIEYSSE. — Les Universités Populaires et le mouvement ouvrier, deuxième cahier Ê
+! CHARLES GuIEYSSE. — Les Universités Populaires et le mouvement ouvrier, deuxième cahier
 de la troisième série, un cahier de 72 pages, un franc
 
 Georces .Sorez. — De l'Église et de l'État, cahier de 72 pages, un franc
@@ -4458,7 +4457,7 @@ Georces .Sorez. — De l'Église et de l'État, cahier de 72 pages, un franc
 question de méthode; préface, République et Socialisme ; le mouvement rural; revision nécessaire; évolution révolutionnaire : majorités révolutionnaires; Liebknecht et la tactique; grève générale et révolution; le
 but; le socialisme et la vie; de la propriété individuelle
 les radicaux et la propriété individuelle; propriété individuelle et code bourgeois; la propriété individuelle
-et l'impôt; la propriété individuelle et le droit successoral; la Révolution française et le droit successoral; l 183
+et l'impôt; la propriété individuelle et le droit successoral; la Révolution française et le droit successoral;
 
 la propriété individuelle et les lois bourgeoises d'expro- priation; la propriété individuelle et les sociétés de À
 
@@ -4488,7 +4487,7 @@ l'Europe orientale, les Juifs en Roumanie, huitième
 
 Tozsror. — Une lettre inédite, adressée à Romain cahier de 36 pages, un franc
 
-Dixième cahier. — Les Universités Populaires J
+Dixième cahier. — Les Universités Populaires
 4900-1904, I, Paris et banlieue, introduction de
 M. Gabriel Séailles, un cahier de 48 pages, un franc
 184 ,
@@ -4522,14 +4521,14 @@ Vingtième cahier. — Les Universités Populaires
 4900-1901, IT, Départements, préface de Charles
 Guieysse, un cahier de 156 pages, deux francs
 
-JEAN DECK. — Pour la Finlande, mémoire et docu- j fort cahier de xx + 240 pages, trois francs cinquante C
+JEAN DECK. — Pour la Finlande, mémoire et docu- j fort cahier de xx + 240 pages, trois francs cinquante
 
 Les Cahiers servent des abonnements ordinaires à
 vingt francs et des abonnements de propagande à
 
-. huit francs. Il va de soi qu'il n'y a pas une seule F
+. huit francs. Il va de soi qu'il n'y a pas une seule
 différence de service entre ces différents abonnements.
-Nous voulons seulement que nos cahiers soient acces- F
+Nous voulons seulement que nos cahiers soient acces-
 sibles à tout le monde également. ; $
 
 L'abonnement de propagande cesse de fonctionner
@@ -4538,7 +4537,7 @@ troisième série ayant fini fin juillet dernier, on pouvait
 jusqu'au 31 juillet inclus avoir pour huit francs les
 
 L'abonnement ordinaire cesse de fonctionner pour
-chaque série au plus tard le 31 décembre qui suit R
+chaque série au plus tard le 31 décembre qui suit
 l'achèvement de cette série ; ainsi du premier août au
 31 décembre 1902 on peut encore avoir pour vingt
 francs, s'ils ne sont pas épuisés, ou en épuisement, les
@@ -4570,7 +4569,6 @@ il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
 8, rue de la Sorbonne, Paris. On recevra en spécimens
 six cahiers de la deuxième et de la troisième série.
-| 187
 
 vingt-et-unième cahier | de la troisième série
 M. André Bourgeois, administrateur des cahiers,
@@ -4578,7 +4576,7 @@ reçoit pour l'administration et pour la librairie tous à
 les jours de la semaine, le dimanche excepté, — de
 huit heures à onze heures et de une heure à sept
 M. Charies Péguy, gérant des cahiers, reçoit pour
-la rédaction le jeudi soir de deux heures à cinq heures. j
+la rédaction le jeudi soir de deux heures à cinq heures.
 
 Adresser à M. André Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, Paris, toute la correspon- ki
 dance d'administration et de librairie : abonnements et À
@@ -4589,18 +4587,18 @@ sur l'étiquette, avant le nom. ?
 Adresser à M. Charles Péguy, gérant des cahiers, /
 8, rue de la Sorbonne, Paris, la correspondance de
 rédaction et d'institution. Toute correspondance d'administration adressée à M. Péguy peut entraîner pour
-la réponse un retard considérable. e
+la réponse un retard considérable.
 Nous avons donné le bon à tirer après corrections $
 pour irois mille exemplaires de ce vingt-et-unième
 cahier le samedi 16 août 1902. À
-Ce cahier a été composé et tiré au tarif des ouvriers syndiqués. L:
+Ce cahier a été composé et tiré au tarif des ouvriers syndiqués.
 
 On nous prie de publier la circulaire suivante
 Le Livre pour Tous Jeudi 31 Juillet 1902
 8, Rue de la Sorbonne
 
 Il est institué, 8, rue de la Sorbonne, rez-de-chaussée,
-Paris, cinquième arrondissement, une œuvre intitulée Le L
+Paris, cinquième arrondissement, une œuvre intitulée Le
 Livre pour tous.
 
 Depuis longtemps les Journaux pour tous étaient devenus
@@ -4612,7 +4610,7 @@ Nous sommes en mesure d'assurer pour la prochaine .
 rentrée le fonctionnement de cette œuvre plus large et plus
 
 Non seulement nous expédierons gratuitement les journaux et les revues, mais nous enverrons en communication
-les brochures, les livres et même les collections. ; M
+les brochures, les livres et même les collections.
 M. Émile Boivin, qui avait constitué les Journaux pour
 
 . tous et qui les administrait depuis leur fondation, a bien'
@@ -4620,18 +4618,18 @@ voulu assumer la gestion de la nouvelle œuvre.
 
 Adresser désormais lettres et mandats à M. Émile Boivin,
 secrétaire-administrateur du Livre pour tous, 8, rue de la À
-Sorbonne, Paris, cinquième arrondissement. l
+Sorbonne, Paris, cinquième arrondissement.
 
 : Le contrôle administratif de la nouvelle œuvre sera exercé
 ÿ et Émile TERQUEM.
 
 Nota. — Nous enverrons sous peu à tous les adhérents
-une circulaire où nous indiquerons le fonctionnement de Î
+une circulaire où nous indiquerons le fonctionnement de
 la nouvelle œuvre.
 
 +. Cette annonce volontairement limitée demande une ie explication brève.
 
-4 L'initiateur des Journaux pour tous fut un réfugié
+L'initiateur des Journaux pour tous fut un réfugié
 
 | russe qui ne put s'en occuper longtemps. $
 
@@ -4665,7 +4663,7 @@ F nous préparons la naissance et la vie, c'était que tout y j était administr
 . | le gouvernement y était nul; M. Émile Boivin n'avait
 pas à commander ; il n'avait pas à décider quels jour- à aux seraient envoyés, qui les enverrait, qui les rece- k vrait; les envoyeurs présentaient eux-mêmes leurs
 
-4 191
+4
 
 journaux ; depuis le Temps jusqu'aux Temps Nouveaux tous les journaux républicains étaient admis ; les destinataires demandaient eux-mêmes leurs journaux, ou on les demandait pour eux; M. Émile Boivin n'avait qu'à donner la communication. Telle était la devise de
 l'œuvre : proposer à tous les idées de tous. Émile Boivin,
@@ -4699,7 +4697,7 @@ grave et dont il portera longtemps la responsabilité.
 à _ A quel degré de prospérité l'œuvre était parvenue,
 
 Re … c'est ce que je dirai dans la monographie des Journaux
-re _ pour tous que je prépare pour un cahier de la quatrième j
+re _ pour tous que je prépare pour un cahier de la quatrième
 
 F _ série. Boivin commit une faute'grave. L'œuvre, pour un
 
@@ -4738,7 +4736,7 @@ Burés innombrables. Enfin il fut battu. Nos adversaires,
 
 | à main forte les fiches, les livres, les meubles, les outils allèrent dans je ne veux savoir quels réduits rejoindre l'argent premièrement dérobé. Boivin fut laissé sur le à
 plancher, sans un sou, sans une fiche. à
-Quand un ouvrier défend son droit contre un patron j
+Quand un ouvrier défend son droit contre un patron
 tyrannique, c'est un beau débat; mais quand un ouvrier
 défend plus que son droit même et plus que ses intérêts
 l'œuvre où il travaille, c'est un débat qui doit susciter
@@ -4759,7 +4757,7 @@ cartes envoyées désormais à M. Émile Boivin toute allu-
 adressés seraient l'objet d'un détournement contre
 lequel nous sommes juridiquement désarmés.
 Le détournement des fiches ne peut avoir aucun effet
-désastreux pour les personnesintéressées; quand même Î
+désastreux pour les personnesintéressées; quand même
 ces fiches traîneraient dans quelque bureau clandestin
 du ministère de l'intérieur, elles n'apporteraient aux
 veau : mettre des journaux à la poste pour des destinataires habituels ne constitue pas en effet une opération à : LE LIVRE POUR TOUS
@@ -4822,7 +4820,7 @@ de journaux que, personnellement, je trouvais mauvais.
 
 + J'écrivais dans le seisième cahier de la troisième
 PT. série, les élections, fin : ne
-Ne Quelle situation nous est désormais faite par la domi74 nation sénile du radicalisme et du radical-socialisme, M
+Ne Quelle situation nous est désormais faite par la domi74 nation sénile du radicalisme et du radical-socialisme,
 ne c'est ce que nous examinerons dans un des premiers
 0 cahiers de la quatrième série.
 "LEE Je pensais dès lors que le gouvernement radical ferait …
@@ -4835,7 +4833,7 @@ Plusieurs journaux du mardi 22 juillet publiaient l'appel suivant
 
 : Le Comité catholique pour la défense du droit,
 
-4 Fidèle aux principes de 1789, dont il n'a cessé de réclamer
+Fidèle aux principes de 1789, dont il n'a cessé de réclamer
 
 L l'application loyale, soit qu'il s'agît d'un juif, illégalement et injustement condamné pour le crime d'un autre, soit
 qu'il s'agît de pères de famille empêchés, comme au temps
@@ -4860,15 +4858,15 @@ sens ait été trouvé, après coup, par le conseil d'État (avis à du 23 janvi
 expirés (15 janvier 1902) lorsque apparut l'interprétation
 
 Le comité convie tous les citoyens sincèrement libéraux $
-à user du droit de pétition que leur confère la Constitu- h
+à user du droit de pétition que leur confère la Constitu-
 
 Il engage les intéressés à se pourvoir devant les tribunaux compétents après examen attentif de chaque situation.
 Pour le comité
 membre de l'Institut. ne
 
 On se rappelle que le Comité catholique pour la
-défense du droit, presque seul parmi les catholiques, Ÿ
-prit parti résolument pour la justice dans l'affaire Drey- J
+défense du droit, presque seul parmi les catholiques,
+prit parti résolument pour la justice dans l'affaire Drey-
 
 L'Éclair du jeudi 24 juillet publiait cette lettre de
 Monsieur le directeur de l'Éclair,
@@ -4878,7 +4876,7 @@ l'application de la loi sur l'instruction obligatoire, des effets à
 de la circulaire ministérielle qui entraîne la fermeture de
 
 Il est certain qu'en principe l'État devrait avoir assez à
-d'écoles et de maîtres pour donner l'instruction à tous les . Ê
+d'écoles et de maîtres pour donner l'instruction à tous les
 enfants. Mais la loi de 1886, en décrétant la laïcité du per- À
 sonnel enseignant dans les écoles publiques, n'a pas supprimé l'enseignement privé, même par les congréganistes.
 L'instruction seule est obligatoire, qu'elle soit donnée dans
@@ -4886,13 +4884,13 @@ les écoles publiques, dans les écoles privées ou dans la
 
 Pour répondre plus spécialement à la question que vous
 me posez, il me paraît tout à fait impossible que le gouver- .
-nement prenne la responsabilité de laisser en dehors de L
+nement prenne la responsabilité de laisser en dehors de
 
 F2 toute école les enfants qui fréquentaient jusqu'ici les éta4 … blissements dont la fermeture vient d'être ordonnée. Aussi, +
 As sans vouloir apprécier la mesure en elle-même, ni les conNES … ditions dans lesquelles elle s'exécute, je suis persuadé qu'elle
-:10 n'a été prise que pour mettre ces établissements en demeure f
+:10 n'a été prise que pour mettre ces établissements en demeure
 . de demander une autorisation qui ne leur sera pas refusée
-| 4e) et que, pour la plupart au moins, la réouverture aura lieu i
+| 4e) et que, pour la plupart au moins, la réouverture aura lieu
 i avant la rentrée des classes.
 RES Je me demande seulement comment on espère combattre
 - efficacement ainsi le cléricalisme.…..
@@ -4923,10 +4921,10 @@ l'application qu'il fait de cette loi.
 Je ne suis pas l'ami des congrégations. Je sais qu'elles
 sont fatalement animées d'un esprit hostile à notre société
 issue de la Révolution, et qu'il est nécessaire de combattre
-cet esprit. Mais je ne crois pas qu'il soit profitable de sup- d
+cet esprit. Mais je ne crois pas qu'il soit profitable de sup-
 primer les congrégations elles-mêmes. Je ne parle pas des
-jésuites, qui, ainsi que vous le dites, devraient être dispersés depuis longtemps en vertu des lois de la monarchie. Je parle de ces diverses et nombreuses congrégations i
-qui se sont établies depuis des années sur notre territoire, s
+jésuites, qui, ainsi que vous le dites, devraient être dispersés depuis longtemps en vertu des lois de la monarchie. Je parle de ces diverses et nombreuses congrégations
+qui se sont établies depuis des années sur notre territoire,
 et j'estime qu'aucun gouvernement ne serait en état de les
 Ce sont des mesures que l'on peut prendre au lendemain
 d'une révolution. Elles me paraissent absolument imprati-
@@ -4934,24 +4932,24 @@ d'une révolution. Elles me paraissent absolument imprati-
 | moins de complète tolérance. On en a vainement essayé en
 1880 contre les congrégations non autorisées. Comment
 pourrait-on en user aujourd'hui vis-à-vis de toutes les con- Fi
-grégations sans distinction ? On risquerait de soulever un ï
+grégations sans distinction ? On risquerait de soulever un
 violent mouvement d'opinion. Ce qui se passe en ce %
-moment, à propos de l'application de la dernière circulaire Î
+moment, à propos de l'application de la dernière circulaire
 Je ne souhaite même pas la suppression complète des
 congrégations enseignantes, non seulement parce qu'il À
-n'existe pas actuellement assez d'écoles et de maîtres Î
+n'existe pas actuellement assez d'écoles et de maîtres
 laïques pour recueillir tous les enfants qui reçoivent l'in- À
 struction congréganiste, mais parce que je suis un partisan à
-déterminé de la liberté d'enseignement et que, tout en L:
+déterminé de la liberté d'enseignement et que, tout en
 demandant que l'État ouvre aussi largement que possible &
 ses établissements à tous les enfants, je ne lui reconnais A
 pas le droit d'empêcher les parents de faire donner, s'ils le nt
-préfèrent, l'instruction à leurs enfants dans des établisse- D.
+préfèrent, l'instruction à leurs enfants dans des établisse-
 ments privés, même tenus par des religieux. Tel était bien ‘4
 l'esprit de la loi de 1886 que je m'honore d'avoir fait voter
 comme ministre de l'instruction publique. .
 Au surplus, la nouvelle législation, celle de 1907, ne supprime nullement les congrégations. Au contraire, elle con- 4%
-sacre de nouveau et plus fortement les congrégations auto- E:
+sacre de nouveau et plus fortement les congrégations auto-
 202 | he si risées, puisqu'elle ne touche en rien ni à leur existence,
 x ni même à leurs biens. Elle fait plus, car elle invite les
  congrégations non autorisées à solliciter l'autorisation, ce
@@ -4980,7 +4978,7 @@ régime, l'État n'aurait plus à autoriser ou à refuser d'autod riser des cong
 ‘ préoccuper de les soumettre à la juridiction de l'ordinaire,
 “ comme le fait la loi de 1907, ce qui fortifie la puissance de
 L l'Église, au lieu de la diminuer.
-k En second lieu, je voudrais qu'on laissät les congrégaè tions libres de se former moyennant une simple déclara- d
+k En second lieu, je voudrais qu'on laissät les congrégaè tions libres de se former moyennant une simple déclara-
 ñ tion, comme je l'avais indiqué dans ma proposition, mais
 fl en réservant le droit d'inspection de l'État, tel qu'il existe
 4 pour tous les établissements où se pratique la vie en
@@ -5002,7 +5000,7 @@ avec regret le parti républicain s'engager.
 
 Veuillez agréer, monsieur le rédacteur, avec mes remerciements pour votre sympathie, l'assurance de mes sentiments très distingués et dévoués.
 
-Une lettre de M. Gabriel Monod Î
+Une lettre de M. Gabriel Monod
 
 M. Viollet, membre de l'Institut, président du « Comité catholique pour la défense du droit », dont on connaît la protestation *
 contre la circulaire Combes, nous communique la lettre suivante,
@@ -5033,12 +5031,12 @@ _ d'obéir à la loi.
 …_ ses propres partisans et a soulevé dans toute la France
 “ une agitation dont il est difficile de prévoir les consé-
 al Ceux qui, comme moi, sont partisans d'une liberté abso-
-… lue d'association et en même temps de la séparation de R
+… lue d'association et en même temps de la séparation de
 “ l'Église et de l'État, persuadés qu'alors c'est l'Église elle-
 , même qui imposerait des limites'au développement indéfini
 “ des ordres religieux, sont effrayés et navrés de voir les
 L anticléricaux d'aujourd'hui manifester à l'égard de l'Église
-catholique des sentiments et des doctrines identiques à d
+catholique des sentiments et des doctrines identiques à
 … ceux que les catholiques ont manifestés naguère à l'égard
 des protestants et des hérétiques de tout ordre. On lit
 ; aujourd'hui dans certains journaux qu'il n'est pas possible
@@ -5093,10 +5091,10 @@ date de la promulgation de la Loi sur le contrat d'association, 300 établisseme
 filles, avaient été créés par des congrégations autorisées
 ou non. Sur ce nombre, 120 avaient été ouverts sans
 demande préalable d'autorisation. Le décret prononçaït
-la fermeture de ces 120 établissements. Le droit du gouvernement était incontestable, et l'on ne voit pas trop le s
-but poursuivi par les créateurs de ces écoles, sinon s
+la fermeture de ces 120 établissements. Le droit du gouvernement était incontestable, et l'on ne voit pas trop le
+but poursuivi par les créateurs de ces écoles, sinon
 celui de protester contre la loi ou de provoquer une agitation en faisant fermer leurs locaux, au besoïn par la
-force. Ils excipaient, il est vrai, du fait que le proprié- î
+force. Ils excipaient, il est vrai, du fait que le proprié-
 taire ou le locataire principal de l'immeuble dans lequel
 étaient tenues les classes, était choisi en dehors de la
 congrégation, mais ils avaient contre eux l'avis sollicité
@@ -5106,16 +5104,16 @@ de la congrégation », et ils ne s'étaient jamais mis en £
 mesure de se pourvoir juridiquement contre cet avis. ŸÉ
 Aussi la position était-elle pour eux mauvaise, peu $
 très légère agitation produite se fût vraisemblablement
-calmée. Mais le 15 juillet, le président du Conseil Ë
+calmée. Mais le 15 juillet, le président du Conseil
 adressait aux préfets la circulaire suivante : %
 
 Monsieur le préfet,
-Le décret du 27 juin dernier, inséré au Journal officiel È
+Le décret du 27 juin dernier, inséré au Journal officiel
 du 28, a prononcé la fermeture de plusieurs établissements EU
 congréganistes qui, contrairement aux prescriptions de la
 loi du premier juillet 1901, s'étaient créés depuis cette loi ‘
 sans avoir obtenu, ni même demandé l'autorisation nécessaire. La plupart de ces établissements prétendaient ne pas
-tomber sous le coup des prescriptions du paragraphe 2de
+tomber sous le coup des prescriptions du paragraphe
 
 : article 13 de la loi, pour ce motif qu'ils n'étaient pas
 installés dans des immeubles appartenant en propre à la
@@ -5151,7 +5149,7 @@ rejoint le siège de leur maison-mère, si celle-ci veut deman-
 ; attendre pour ouvrir qu'un décret du Conseil d'État ait
 È accepté leur demande : le récépissé qui leur sera délivré en vertu du dernier paragraphe de l'article 22 précité,
 
-mayant que la valeur d'un simple reçu de pièces et nepou- Î
+mayant que la valeur d'un simple reçu de pièces et nepou-
 vant permettre aux établissements de fonctionner comme
 le récépissé délivré aux établissements anciens qui ont
 formé leur demande dans les délais.
@@ -5169,17 +5167,17 @@ La loi pourra ainsi recevoir son exécution, c'est-à-dire
 6 que les pouvoirs compétents (Parlement ou Conseil d'État)
 pourront alors statuer sur les demandes d'autorisation
 puisque tout contentieux aura disparu, sur le point de
-savoir si un établissement a à demander ou ne pas deman- ï
+savoir si un établissement a à demander ou ne pas deman-
 der l'autorisation. !
 
-Le président du conseil, F
+Le président du conseil,
 ministre de l'intérieur et des cultes, F À
-Si nous dégageons de la phraséologie administrative 4!
+Si nous dégageons de la phraséologie administrative
 le sens précis et clair, nous constatons que toute la ri
 politique du gouvernement consiste à donner à la loi du %
-premier juillet 1901 et à l'avis du Conseil d'État une M
-force rétroactive. Quel est l'article précis de la loi, quel : î
-est cet avis du Conseil d'État, comment le gouvernement de M. Waldeck-Rousseau et de M. Millerand en È.
+premier juillet 1901 et à l'avis du Conseil d'État une
+force rétroactive. Quel est l'article précis de la loi, quel
+est cet avis du Conseil d'État, comment le gouvernement de M. Waldeck-Rousseau et de M. Millerand en
 a-t-il envisagé les conséquences ? L'article visé de la *
 loi du premier juillet rgo1 est l'article 13, le voici : e..
 
@@ -5231,23 +5229,23 @@ congrégation », et que par conséquent « l'autorisation
 préalable » était nécessaire. Se conformant à l'avis du
 Conseil d'État, le ministre de l'intérieur envoya, le
 6 février 1902, à tous les préfets, la circulaire qui suit:
-Il résulte d'un avis du Conseil d'État, en date du 23 jan- 7
+Il résulte d'un avis du Conseil d'État, en date du 23 jan-
 , vier 1902, que les écoles dans lesquelles l'enseignement est
-donné par les congréganistes constituent des établissements de la congrégation, quels que soient le propriétaire j
+donné par les congréganistes constituent des établissements de la congrégation, quels que soient le propriétaire
 ou le locataire de l'établissement et le mode de rémunéra- $
 tion du personnel enseignant.
 La congrégation autorisée , dont le siège prin- $
 cipal est dans votre département, a ouvert postérieurement
-à la promulgation de la loi du premier juillet 1907, F
-, des écoles qui constituent aux termes de l'avis F
+à la promulgation de la loi du premier juillet 1907,
+, des écoles qui constituent aux termes de l'avis
 précité de nouveaux établissements.
 Il importe que cette situation soit régularisée. Fi
 Je vous prie, en conséquence, de faire venir le supérieur [4
 de cette congrégation et de lui faire savoir qu'il devra ou .
 rappeler les congréganistes qui donnent l'enseignement
-FA ki dans l'école sus-indiquée ou se mettre en instance pour è
+FA ki dans l'école sus-indiquée ou se mettre en instance pour
 HS … obtenir l'autorisation par décret, faute de quoi, après une
-- dernière mise en demeure, le gouvernement ne pourrait È
+- dernière mise en demeure, le gouvernement ne pourrait
 qu'user des pouvoirs qui lui sont conférés par laloi
 AE Vous aurez soin de faire remarquer au supérieur qu'il
 4 s'exposerait aux mêmes sanctions s'il ouvrait désormais un
@@ -5279,7 +5277,7 @@ s'il croyait avoir intérêt à résoudre d'une façon
 1 déterminée la question de l'enseignement, il devait
 | proposer une loi nouvelle. S'il pensait que toute inter-
 
-1 213
+1
 
 prétation, sauf la sienne, était inexacte, s'il croyait %
 avoir le droit pour lui, son gouvernement devait le
@@ -5287,24 +5285,24 @@ faire établir par les tribunaux et en dernier ressort par
 la Cour de cassation. En dehors de cela on était fatalement conduit aux excès de pouvoir et à la violation
 de la liberté individuelle, ‘jusqu'au point d'assigner par
 mesure administrative un domicile déterminé à une &
-catégorie de citoyens. (1) | è
+catégorie de citoyens. (1)
 
 Comment a été accueillie la circulaire de M. Combes? $
-Elle a été approuvée par l'unanimité des partis radicaux, radicaux-socialistes, et socialistes, blâmée par Æ
+Elle a été approuvée par l'unanimité des partis radicaux, radicaux-socialistes, et socialistes, blâmée par
 les progressistes, attaquée avec violence par les natio- dt
 nalistes, les impérialistes, les royalistes et les cléri- à
-caux. A côté de leurs manifestations il faut placer les È
+caux. A côté de leurs manifestations il faut placer les
 observations ou protestations de M. René Goblet, du À
 Comité catholique pour la défense du droit, de MM. Gabriel Monod et Michel Bréal qui se sont joints à lui, et il
 de quelques notabilités protestantes qui se sont agré- Pr
-Fait notoire, si nous faisons abstraction du Comité î
+Fait notoire, si nous faisons abstraction du Comité
 catholique, de ses adhérents, et de M. Goblet, tous les
 M. Jules Roche, de l'abbé Gayraud à M. Jules Lemaiïtre, ra
 de M. Cavaignac à M. Aynard, ont protesté au nom
 de la liberté violée. Les fractions diverses du parti &
-républicain ont approuvé au nom des droits de la M
+républicain ont approuvé au nom des droits de la
 société civile et ont applaudi la légitimité de la forcemise
-au service de ces droits. C'est là un fait gravé, car il ne L
+au service de ces droits. C'est là un fait gravé, car il ne
 
 , (1) Ordre au préfet de mettre en demeure les congréganistes.
 de se retirer dans un délai de huit jours au siège de leur maisonmére. &
@@ -5337,7 +5335,7 @@ promptitude de l'Église à modifier ses traditions et à se
 # en face des révolutionnaires qui s'étaient donné pour
 4 mission, comme en certaines circonstances de l'affaire
 Dreyfus dans sa dernière phase, de défendre l'ordre. £
-Ils sont descendus dans la rue, ont barricadé l'entrée w
+Ils sont descendus dans la rue, ont barricadé l'entrée
 des établissements congréganistes, ont organisé des
 tumultes, ont tenu des réunions où la résistance aux lois
 était préconisée et Sont entrés en conflit avec la police.
@@ -5349,15 +5347,15 @@ défenseurs des congrégations? Parce qu'en réalité ils à
 n'ont pas qualité pour agir ainsi; parce qu'ils ne se sont
 nullement levés pour défendre la liberté. Le mot qu'ils
 inscrivent sur leur drapeau, ils ne peuvent s'en servir À
-sans hypocrisie et sans mensonge, ils ne défendent pas H
+sans hypocrisie et sans mensonge, ils ne défendent pas
 les droits de l'Église, c'est-à-dire les droits des individus *
 qui en font partie, ils défendent les privilèges de l'Église, £
 privilèges indépendants de ses membres. A ces hommes FA
 qui aujourd'hui nous parlent de justice et clament sur &
-È les places et les voies publiques : Vive la liberté! nous ê
+È les places et les voies publiques : Vive la liberté! nous
 devons dire : Ce cri vous est défendu; nous pouvons,
-nous, parler au nom de la liberté, vous non. Où étiezvous, où était votre protestation quand les bandes anti- Ÿ
-sémites, à Alger, urinaient sur le ventre des femmes È
+nous, parler au nom de la liberté, vous non. Où étiezvous, où était votre protestation quand les bandes anti-
+sémites, à Alger, urinaient sur le ventre des femmes
 enceintes, saccageaient les quartiers ouvriers israélites
 et assommaient les habitants à coups de matraque; Le
 quand, selon le mot de {a Croix : « le Christ régnait à
@@ -5367,11 +5365,11 @@ loi, quand on faisait de leurs fragments des trophées
 antijuifs. Avez-vous protesté quand sous vos yeux, 4 .
 à Paris, en province, les Juifs étaient insultés dans
 
-UN _ les rues, quand leurs maisons étaient assaillies et F5
+UN _ les rues, quand leurs maisons étaient assaillies et
 
-_ criblées de pierres, leurs synagogues envahies? Que fai- R
+_ criblées de pierres, leurs synagogues envahies? Que fai-
 siez-vous encore quand nous luttions pour la justice,
-quand nous souffrions pour la vérité? Mais c'était contre L
+quand nous souffrions pour la vérité? Mais c'était contre
 
 | FPiniquité, contre le mensonge, contre le faux, que nous
 combattions et le faux, le mensonge, l'iniquité, c'était
@@ -5383,11 +5381,11 @@ Le innocent était au bagne et qu'on l'y maintenait parce
 
 Ë qu'il était juif, et M. de Mun me répondait qu'il ne pou- vait même pas accepter une conversation sur le cas du à s capitaine Dreyfus. Il est resté sur ce point logique avec .
 
-f: * lui-même; les troupes qu'il commande ont encore pour Ë
+f: * lui-même; les troupes qu'il commande ont encore pour
 
 4 mot d'ordre le cri de mort aux juifs, et son allié Coppée,
 
-# aux applaudissements de tout un auditoire préalable- f
+# aux applaudissements de tout un auditoire préalable-
 
 4 ment préparé par le signe de la croix, ne sait demander
 s l'égalité pour les sœurs qu'on expulse, sans justifier ?
@@ -5411,31 +5409,31 @@ _ tel M. Barth, par exemple, protestant et membre de
 
 une -iniquité, elle leur enjoint plus impérieusement ‘4
 encore de se séparer de ceux qui sont les représentants
-de toutes les iniquités. Il aurait été bon même que L:
+de toutes les iniquités. Il aurait été bon même que
 Gabriel Monod, que Michel Bréal, en tendant la main à &
 ceux des catholiques qui ont conservé, peut-être plus À
 chèrement et plus douloureusement que quiconque, le
 droit d'élever la voix au nom des principes de 1789, ‘4
-dont, disent-ils, « ils n'ont cessé de réclamer l'application loyale, soit qu'il s'agît d'un juif illégalement et F
+dont, disent-ils, « ils n'ont cessé de réclamer l'application loyale, soit qu'il s'agît d'un juif illégalement et
 injustement condamné pour le crime d'un autre, soit
 qu'il s'agît de pères de famille empêchés, comme au
-temps de la révocation de l'édit de Nantes, de donner à E
-leurs enfants l'éducation de leur choix, soit, enfin, qu'il D:
-s'agit de religieux privés des droits que garantit à tous D:
+temps de la révocation de l'édit de Nantes, de donner à
+leurs enfants l'éducation de leur choix, soit, enfin, qu'il
+s'agit de religieux privés des droits que garantit à tous
 les Français la déclaration des droits de l'homme et du Es
 citoyen, statut fondamental de la société moderne »; (1)
-il aurait été bon que Michel Bréal et Gabriel Monod M
+il aurait été bon que Michel Bréal et Gabriel Monod
 dissent pourquoi ils marchaïent avec Paul Viollet et ses
 amis et pourquoi il leur était impossible de s'entendre À
 avec M. de Mun; toutefois, et cette réserve faite, ils .
-sont restés d'accord avec eux-mêmes, et conséquents : È
+sont restés d'accord avec eux-mêmes, et conséquents
 - avec les principes qu'ils ont toujours affirmés. Si
 Nous ne saurions en dire autant soit des radicaux,
 soit des radicaux-socialistes, soit des socialistes, à la
 ; seule exception de M. René Goblet. Mais nous pouvons À
-ne pas considérer l'opinion de ce dernier comme … k
+ne pas considérer l'opinion de ce dernier comme …
 valable, car il a pu s'accommoder facilement de tous les
-attentats contre un citoyen et contre des citoyens, M
+attentats contre un citoyen et contre des citoyens,
 commis au cours de l'affaire Dreyfus. Quand, en 1897 %
 encore, je lui ai demandé s'il admettait qu'on aït con-
 (1) Appel du Comité catholique pour la défense du droit (21 juillet).
@@ -5476,26 +5474,26 @@ loi ne doit pas être prise en soi comme un acte isolé,
 nouveau, indépendant du passé. Elle est au contraire le
 point d'aboutissement de toutenotre histoire. Elle reproduit avec une très grande modération, avec encore de
 notables atténuations dans le détail, notre doctrine traditionnelle en matière de communautés religieuses. Le à
-droit des congrégations, ajoute-t-il, est fixé depuis un F
+droit des congrégations, ajoute-t-il, est fixé depuis un
 siècle. Pour les congrégations d'hommes, en vertu des
 lois de 1790 et de 1792, qui n'ont jamais été abrogées,
 elles sont et demeurent abolies et supprimées. Aucune
 congrégation ne peut être établie ou rétablie en France à
-que par une loi. Et cette loi il ne s'est trouvé personne k.
+que par une loi. Et cette loi il ne s'est trouvé personne
 jusqu'ici pour la proposer, même sous la Restauration. -
 Premier fait à retenir. ‘4
 
 « Quant aux congrégations de femmes, la loi de 1825, à
-qui en a reconstitué un certain nombre, ne l'a fait qu'à K
-la condition expresse que pour chacun de leurs établissements nouveaux, les congrégations seraient tenues E
+qui en a reconstitué un certain nombre, ne l'a fait qu'à
+la condition expresse que pour chacun de leurs établissements nouveaux, les congrégations seraient tenues
 de demander l'autorisation, conséquence toute naturelle du privilège, mais du privilège limité que l'État pl
 leur conférait. » (1)
 Toute loi, peut-on répondre à M. Buisson, est le point
-d'aboutissement d'une évolution juridique, mais précisément parce qu'elle est une fin, elle doit être juridi- È
+d'aboutissement d'une évolution juridique, mais précisément parce qu'elle est une fin, elle doit être juridi-
 quement prise « en soi comme un acte isolé, nouveau »;
 dans son application on ne doit pas tenir compte des
 chaînons qui la rattachent au passé, mais de ce qu'elle
-(1) L'Aurore du 7 août. L
+(1) L'Aurore du 7 août.
 
 ne contient en ses termes. De plus, si, en l'espèce, la loi
 sur les associations « reproduit avec une très grande
@@ -5522,27 +5520,27 @@ autorisés, et si ce que dit M. Buisson est exact, ne
 ; peuvent l'avoir été que par une loi. Bien plus, le décret
 du 17 mars 1808, portant organisation de l'Université,
 L incorpore les Frères des Écoles chrétiennes à l'Université. De plus, la société laïque a, en fait, et depuis
-je: longtemps, reconnu — judicieusement ou non — l'exis- s
+je: longtemps, reconnu — judicieusement ou non — l'exis-
 L tence des congrégations, elle les a acceptées, elle a À
 4 reconnu la validité de leurs contrats avec toutes les
 + conséquences civiles ou commerciales qu'ils comportent,
 : elle les a même soumises à payer les droits d'accroisL sement. Enfin, il n'est pas permis de dire que personne $
-4 221
+4
 
 n'a proposé une loi permettant de rétablir ou d'établir
-les congrégations, puisque la loi du premier juillet 1907 L.
+les congrégations, puisque la loi du premier juillet 1907
 détermine les conditions dans lesquelles les congréga- ‘4
 tions religieuses peuvent exister, et que si l'actuelle
 chambre anticléricale est déterminée à refuser l'auto- “4
-risation aux réguliers, une chambre progressiste pourra n.
+risation aux réguliers, une chambre progressiste pourra
 tout aussi légitimement l'accorder.
-La raison donnée pour justifier les mesures prises L
+La raison donnée pour justifier les mesures prises
 vis-à-vis des congrégations de femmes paraît d'abord
 plus forte, si vraiment la loi de 1825 exige que l'autorisation soit demandée pour chaque établissement créé.
 Mais alors, pourquoi, puisque depuis des années on
-avait laissé des établissements s'établir sans autorisa- : M
+avait laissé des établissements s'établir sans autorisa-
 & tion, pourquoi dans la discussion de la loi de 1901, dans
-les arrêtés pris, dans les circulaires envoyées, ne pas R
+les arrêtés pris, dans les circulaires envoyées, ne pas
 rappeler le dispositif de la loi de 1825 et ne pas mettre
 en demeure les religieuses de s'y conformer, en les
 avisant que la tolérance en vertu de laquelle elles
@@ -5556,10 +5554,10 @@ ou au sujet des congrégations, puisqu'il avait des lois ‘à
 précises et non abrogées, et que, s'il a légiféré, ce ne
 peut être qu'en faveur des congrégations, en leur don
 nant des facilités et des possibilités d'existence qu'elles
-n'avaient pas avant. Je ne justifie pas cette tendance, je n
-la constate. D
+n'avaient pas avant. Je ne justifie pas cette tendance, je
+la constate.
 | Voici donc exposé et discuté le point de vue juridique
-| des républicains ou plutôt de celui d'entre eux quia M
+| des républicains ou plutôt de celui d'entre eux quia
 
 - cru devoir se placer sur ce terrain. Qu'ont fait les
 autres pour approuver la circulaire Combes et en
@@ -5604,7 +5602,7 @@ dans une bataille qui n'est pas finie, nous donner À
 d'autres raisons que des raisons théologiques. Or c'est
 une raison théologique que de nous dire : « Il y a des
 crimes politiques et sociaux qui se payent, et le grand
-crime collectif commis par l'Église contre la vérité, F
+crime collectif commis par l'Église contre la vérité,
 contre l'humanité, contre le droit et contre la République, va enfin recevoir son juste salaire. Ce n'est pas à
 en vain qu'elle a révolté les consciences par sa com- ‘
 plicité avec le faux, le parjure et le trahison. Ce n'est
@@ -5622,7 +5620,7 @@ se payaient, les congrégations ne seraient pas seules à A
 
 en mériter le prix. L'Église, au cours du drame où
 () L'article 12 permet de dissoudre les associations composées en
-majeure partie d'étrangers si elles menacent la sûreté intérieure à ou extérieure de l'État (!). Ÿ
+majeure partie d'étrangers si elles menacent la sûreté intérieure à ou extérieure de l'État (!).
 
 « Jaurès à joué si noblement sa partie, l'Église n'a pas Fa
 1e “été la seule coupable. Si elle a pu violer le droit, elle ne À
@@ -5664,14 +5662,14 @@ _ garde de la révolution, qu'ils ont approuvé ses mani: Qt
 festations primitives, qu'ils n'ont pas protesté contre (it ses premiers excès, qu'ils ont salué comme un allié
 l'homme qui écrivait cette France juive dont le Père "3
 
-; du Lac corrigeait les épreuves après en avoir fourni M
+; du Lac corrigeait les épreuves après en avoir fourni
 
 tous les matériaux. « 4 À
 
 Il vaut donc mieux ne pas soulever le problème des
-responsabilités, puisque aussi bien nous ne devons pas D
+responsabilités, puisque aussi bien nous ne devons pas
 
-admetire qu'il soit soulevé en s'appuyant sur le principe religieux de la répercussion pénale. 2:
+admetire qu'il soit soulevé en s'appuyant sur le principe religieux de la répercussion pénale.
 
 | Il ne faut pas recevoir des justifications semblables, %
 
@@ -5691,7 +5689,7 @@ d'anarchisme ; il y a quelques jours à peine on nous
 menaçait de l'Ile du Diable si nous ne nous inclinions
 pas devant la toute-puissance de la juridiction militaire.
 D'autres encore adjurent leurs amis de s'opposer aux manifestations d'éloquence des avocats des sœurs:
-l'écho n'est pas mort encore de leurs protestations 1 e
+l'écho n'est pas mort encore de leurs protestations
 
 ; contre les décerveleurs qui menaçaient en nous la
 4 liberté de la parole. Si nous n'y prenons garde, demain
@@ -5750,7 +5748,7 @@ avec les pupilles de Condorcet, de Janson de Sailly, etc,
  etles membres du Cercle catholique, élevés danslesin. ds.
 4 stitutions congréganistes, marchaient avec les membres à de l'Association générale des étudiants, éduqués dans ae À
 # les établissements laïques. Ce sont des universitaires
-‘4 qui ont fondé la Ligue de la Patrie française, et com- L
+‘4 qui ont fondé la Ligue de la Patrie française, et com-
 
 bien de leurs collègues les ont suivis! Que sont Le
 Ya maître, et Faguet, et Gebhart, et Marcel Dubois et tant CR
@@ -5769,7 +5767,7 @@ _ nous confiance ? En ceux que saura former la liberté, ET
 ï bâillonnée. Le jour où on aura fait la séparation de ME. » l'Église et de l'État, que le prêtre parle à l'enfant, LE
 
 1 qu'importe, puisque aussi bien, si on ferme son école, ‘à
-4 il lui enseignera le catéchisme, et il lui parlera par la . i
+4 il lui enseignera le catéchisme, et il lui parlera par la
 bouche des laïques qu'il aura formés et qui, légion,
 J pensent comme lui. Que l'on prépare l'esprit de l'édu- pe
 C1 cateur, par une discipline, une méthode et une éduca-
@@ -5823,7 +5821,7 @@ LA à la contrainte pour la faire triompher, nous serions
 Ne À raison est malhabile à employer la force, et le droit
 #4 sait parfois s'en servir pour se défendre, jamais pour
 
-4 Tout ce que je vous ai écrit là, mon cher Péguy, vau4 drait d'être développé, je n'ai voulu qu'indiquer rapi1 dement toutes les questions soulevées ; peut-être les
+Tout ce que je vous ai écrit là, mon cher Péguy, vau4 drait d'être développé, je n'ai voulu qu'indiquer rapi1 dement toutes les questions soulevées ; peut-être les
 $ reprendrai-je en détail plus tard.
 É Bien votre
 
@@ -5842,17 +5840,17 @@ M. Yves Guyot, que nous sommes heureux de ne pas
 compter parmi les dreyfusistes, ayant commenté la
 lettre de M. Monod, celui-ci répondit par la lettre sui- EE
 vante, publiée dans Le Siècle du samedi 2 août :
-Vous donnez à ma lettre une portée qui la dépasse. Je ne È
+Vous donnez à ma lettre une portée qui la dépasse. Je ne
 bläme pas le gouvernement d'appliquer la loi du premier juil-
-? let 1901; il doit l'appliquer, mais je demande qu'il applique -4
-avec des scrupules extrêmes de légalité et même avec des M
+? let 1901; il doit l'appliquer, mais je demande qu'il applique
+avec des scrupules extrêmes de légalité et même avec des
 ménagements qui ne permettent à personne d'arguer de sa De
 508 bonne foi en résistant à la loi. * “4
 | En outre, j'ajoute que je voudrais, d'une part, mettre des a.
 …._… l'autre, ne créer aucun régime d'exception pour les asso- LES
 — ciations. Ce serait, je crois, facile avec la séparation de LES
 ue TÉglise et de l'État. Toutes les associations jouissant d'un “4
-M: régime identique de liberté réglé par la loi, c'est là ce que 3
+M: régime identique de liberté réglé par la loi, c'est là ce que
 j'ai appelé : liberté absolue d'association. TES
 “_ Veuillez publier cette lettre et me croire tout à vous. pe
 
@@ -5860,8 +5858,8 @@ Ds. Le Temps du jeudi 7; août publiait la communication
 
 à M. Viollet, membre de l'Institut, président du « comité cathoi lique pour la défense du droit », dont on sait la protestation contre €
 4 la circulaire et les décrets Combes, nous communique la lettre (as
-os suivante qu'il a reçue de M. Michel Bréal, membre de l'Académie 4 414
-1 Vous me demandez pourquoi je ne me suis pas joint à
+os suivante qu'il a reçue de M. Michel Bréal, membre de l'Académie
+Vous me demandez pourquoi je ne me suis pas joint à
 la protestation de Gabriel Monod et à la vôtre en faveur y
 _… dela liberté de l'enseignement. Je pensais qu'ayant déjà Rs
 _. protesté récemment, je faisais bien de ne pastrop souvent …
@@ -5871,7 +5869,7 @@ occuper le public de ma personne. MQAgE
 E : … Constitution, l'on ne peut que déplorer des mesures qui #
 sont la violation de cette liberté. J'ajoute que, politiqueFE ment, elles constituent une erreur et une faute, car le tre
 ne parti qu'on veut frapper en sera certainement fortifié. sr
-18 Recevez, mon cher confrère, l'assurance de mes senti- &
+Recevez, mon cher confrère, l'assurance de mes senti- &
 E— Les manifestations antidreyfusistes sont beaucoup a
 4 #. plus nombreuses; nous ne pouvons citer que les plus PL.
 
@@ -5888,7 +5886,7 @@ j bràlé leur poudre. Elles ont épuisé et dépensé en pure
 perte les petites provisions d'indignation cléricale qui
 Mais surtout, la majorité républicaine se dira que toute
 * concession faite par elle sera interprétée par les chefs de la
-résistance comme l'effet des émeutes cléricales. Si le parti É.
+résistance comme l'effet des émeutes cléricales. Si le parti
 républicain accordait aux congrégations les autorisations,
 tous les prédicants de la nouvelle croisade se vanteraient
 d'avoir fait peur aux républicains, de les avoir obligés à
@@ -5896,14 +5894,14 @@ reculer. Et dès lors, c'en serait fait de tout espoir d''émanciÎ pation pour 
 ans pour refouler la servitude congréganiste, pour rouvrir
 à l'esprit laïque les voies trop longtemps fermées, se brisait
 ou paraissait se briser contre les manifestations fanfaronnes et débiles des cercles catholiques et des dames de
-l'aristocratie, l'Église aurait le sentiment qu'elle est toute- d
+l'aristocratie, l'Église aurait le sentiment qu'elle est toute-
 puissante, qu'elle n'a plus rien à craindre, qu'elle peut
 braver impunément tout pouvoir civil et toute loi.
 La majorité républicaine ne s'exposera pas certainement
 k à un pareil désastre. Ceux qui croiraient par leur faiblesse, À
 par des concessions de détail, qui, accumulées, supprime- ‘
-raient la loi, désarmer la haïne des cléricaux, se trompe- n
-raient étrangement. L'Église profite de ces faiblesses, mais L
+raient la loi, désarmer la haïne des cléricaux, se trompe-
+raient étrangement. L'Église profite de ces faiblesses, mais
 elle n'en sait aucun gré. Ceux qui, ayant voté la loieten
 ayant commencé l'application, reculeraient ou s'arrèteraient avant l'application complète, seraient peut-être cajolés un moment, à la minute précise où l'on aurait besoin
 
@@ -5931,7 +5929,7 @@ x. avec la sottise la plus épaisse et la plus bestiale.
 Ré nous allons entrer, d'achever dans l'ordre intellectuel
 V2 l'œuvre de la Révolution française, en fondant définitive4 ment l'enseignement de la raison et de la liberté. Il n'y a
 * à là aucune violence contre aucune croyance : c'est au con4 traire la libération de toutes les consciences et de tous les » esprits appelés à se diriger eux-mêmes.
-14 Ceux qui se déroberaient à cette grande tâche, ceux qui
+Ceux qui se déroberaient à cette grande tâche, ceux qui
 M, gaspilleraient le trésor de généreuses indignations et de
 généreuses espérances qui s'est amassé depuis quatre ans
 4 . dans les esprits, ceux qui feraient avorter le mouvement
@@ -5941,14 +5939,14 @@ Le chemin est libre et large devant nous. Il n'y aura
 de péril que pour ceux qui ne marcheraient pas. Mais je
 suis sûr que dès la rentrée, la majorité républicaine, plus ,
 unie et plus résolue que jamais, portera à la servitude
-congréganiste des coups décisifs. -4
+congréganiste des coups décisifs.
 Bernard Lazare a déjà répondu à plusieurs des allégations contenues dans cet article. Je montrerai dans
 un des premiers cahiers de la quatrième série que ce
 langage de Jaurès n'est pas le langage de la raison; qu'il .
-n'est pas le langage de la justice ; qu'il n'est pas même le È
+n'est pas le langage de la justice ; qu'il n'est pas même le
 langage du droit. Comment pouvez-vous, Jaurès, nommer vraiment grande la période racornie où nous
 sommes entrés ? A qui ferez-vous accroire que M. Combes : .
-est un grand homme d'État? Où était M. Combes, L:
+est un grand homme d'État? Où était M. Combes,
 où étaient les radicaux de gouvernement, et les radi-
 | caux-socialistes de gouvernement, et les socialistes de
 gouvernement, et les socialistes d'anti-gouvernement,
@@ -5962,12 +5960,12 @@ française fut un bloc ? Vous négligez beaucoup l'ordre .
 social, pour un socialiste. Qu'est-ce que fonder défini- ,
 tivement l'enseignement de la raison et de la liberté ?
 Quand Téry commit ce délicieux calembour de rempla- %
-cer la liberté de l'enseignement par l'enseignement de D
+cer la liberté de l'enseignement par l'enseignement de
 la liberté, il n'y donna pas lui-même une importance Le
 excessive ; il est homme de talent ; il fabrique abon- a.
 
 | damment le calembour, surtout le calembour littéraire.
-24 Croyez bien qu'aujourd'hui, tout occupé à régenterla ne Ke
+Croyez bien qu'aujourd'hui, tout occupé à régenterla ne Ke
 4 _ congrégation qu'il vient de fonder sur le sable des
 grèves, il n'y pense déjà plus. “ee
 Le: Il est pénible qu'un homme de votre âge, de votre
@@ -5975,13 +5973,13 @@ Le: Il est pénible qu'un homme de votre âge, de votre
 …_ famille, ramasse un calembour d'un jeune amuseuret
 % résiste, cela pouvait vous arriver; mais devenir téryste. EE
 ne Vous faites appel dans l'avant-dernier paragraphe et a
-3 _ dans le dernier, dans les paragraphes péroratoires, à la M.
+3 _ dans le dernier, dans les paragraphes péroratoires, à la
 ‘à peur. Vous serez écouté. On ne fait jamais en vain EE
 _ appel à la lâcheté parlementaire. Surtout quand la US
 NL k majorité est radicale et radicale-socialiste. Que votre
 … âme se calme. Vous serez écouté. Non les radicaux ne til
 ‘0 se déroberont pas à ces grandes tâches; non les radi-
-‘à _ caux ne gaspilleront pas le trésor de généreuses indi- P
+‘à _ caux ne gaspilleront pas le trésor de généreuses indi-
 _ gnations et de généreuses espérances qui s'est amassé (7e
 3 0 depuis quatre ans dans ce que vous voulez bien nom- JR
 … mer leurs esprits ; non lesradicaux ne feront pas avorter KENIA
@@ -5994,13 +5992,13 @@ lumière du pouvoir, au phare du gouvernement, aux
 étoiles des ministères, au soleil de la présidence. Soyons
 F DA romantique. Les radicaux s'accrocheront désespéré à
 Hi #2 ment aux lambeaux des faveurs gouvernementales,
-cs style Combes. Les radicaux se hisseront éperdument s d
+cs style Combes. Les radicaux se hisseront éperdument
 . toujours à côté du gendarme, Fd
 é ï ‘ _ Le chemin est libre et large devant eux. Il n'y aura à À
-lors, ils marcheront. Vous qui les connaissez bien, et E
+lors, ils marcheront. Vous qui les connaissez bien, et
 qui vous êtes fait leur colonel, vous concluez aussitôt :
 Je suis sûr que dès la rentrée, la majorité républicaine,
-plus unie et plus résolue que jamais, portera à la ser- Î
+plus unie et plus résolue que jamais, portera à la ser-
 vitude congréganiste des coups décisifs.
 Un scrupule me reste, Jaurès, et bien qu'il ne soitpas %
 du jeu parlementaire, vous m'entendez. Si vraiment il
@@ -6008,19 +6006,19 @@ contraire si c'est la libération de toutes les consciences
 et de tous les esprits appelés à se diriger eux-mêmes, !
 on recommence à demander pourquoi vous n'avez pas !
 commencé par libérer ainsi les consciences qui vous
-sont les plus chères. Quand survint ce qu'on nomma D:
+sont les plus chères. Quand survint ce qu'on nomma
 grossièrement le cas Jaurès, vos ennemis, c'est-à-dire *
-lunanimité de vos ennemis politiques et l'immense 714
+lunanimité de vos ennemis politiques et l'immense
 majorité de vos amis politiques, prétendirent que vous
 aviez laissé faire par faiblesse et par lâcheté. Je soutins au contraire que votre conduite était inspirée par
 ‘un sens vrai de la liberté, que la liberté familiale était
 pour vous le commencement indispensable de la liberté À
 politique et sociale. Je puis vous avouer, à présent
-que le débat est clos, et que vous êtes redevenu puis- É.
-sant, que la grande majorité de nos abonnés se prononça contre mon explication. Et pourtant le personnel M
+que le débat est clos, et que vous êtes redevenu puis-
+sant, que la grande majorité de nos abonnés se prononça contre mon explication. Et pourtant le personnel
 de nos abonnés n'a rien de sectaire. Presque tous ceux
 qui me répondirent me dirent ou m'écrivirent que je À
-vous faisais un crédit injustifié, que l'explication donnée è
+vous faisais un crédit injustifié, que l'explication donnée
 par vos ennemis était la bonne.
 Ici vous allez nous départager. Nous saurons dans
 quelques jours, et j'ai peur, hélas, de savoir depuis
@@ -6046,11 +6044,11 @@ i 4 Pendant que Lazare continuait à rédiger la consulta-
 3 inintelligents encore ; et M. Doumer fait son jeu.
 # Nous continuerons autant que nous le pourrons ce
 É. dossier au commencement de la quatrième série.
-4 Aujourd'hui nous ferons mention des deux articles
+Aujourd'hui nous ferons mention des deux articles
 | ne cités par Bernard Lazare.
 # L'Aurore du samedi 9 août reproduisait la conclusion
 4 de l'article publié par son collaborateur, Francis de
-4 Pressensé, dans l'Européen de la semaine. L' Européen
+Pressensé, dans l'Européen de la semaine. L' Européen
 # s'occupe beaucoup des discordes françaises, et dans un
 certain sens, pour un certain parti. Je retiens cette “4
 De vrais amis de la liberté ont cru se joindre à ces Tartufes libérâtres pour devoir protester. Apparemment ils À
@@ -6060,15 +6058,15 @@ factums nationalistes, ils auraient vu qu'il n'y a pas plus
 lieu d'accuser M. Combes d'appliquer trop durement la loi
 Waldeck-Rousseau — à laquelle il obéit instinctivement —
 que de reprocher à cette loi de violer les principes.
-Tels sont les premiers effets des mœurs parlementaires ; quand M. Francis de Pressensé était un simple Ë
+Tels sont les premiers effets des mœurs parlementaires ; quand M. Francis de Pressensé était un simple
 citoyen, il combattait ses adversaires loyalement; son
 admiration publiquement manifestée pour un catho_lique éminent est restée célèbre ; aujourd'hui qu'il est
 député, il commence par déclarer que nous n'avons pas %
 | étudié la question ; ces exordes font bien à la tribune ;
 ils n'ont pas cours dans la république des lettres.
 L'article de M. Ferdinand Buisson, Le rôle de à
-du jeudi 7 août, presque trois colonnes en tête, com- E
-mence par cette phrase : Ë
+du jeudi 7 août, presque trois colonnes en tête, com-
+mence par cette phrase
 En quittant Paris pour quelques jours, .j'ai emporté les
 journaux qui contenaient votre lettre à M. Viollet. Et c'est
 à la montagne, dans la paix de la grande nature, que je la Be
@@ -6088,8 +6086,8 @@ _ reposer dans la paix de la grande nature
 T4 Lettre de M. Guieysse, député du Morbihan, Aurore
 _ du jeudi 14 août
 
-4 S Éloigné de Paris et prenant quelque repos dans le midi...
-« Que le gouvernement trouve un élément de faiblesse Û
+S Éloigné de Paris et prenant quelque repos dans le midi...
+« Que le gouvernement trouve un élément de faiblesse
 …__ chez ceux-là mêmes qui devraient lui être un appui, cela
 . me semble inadmissible, presque ‘une trahison, et je ne
 - voudrais pas, même par mon silence, paraître m'y assoh 7. scier…
@@ -6106,7 +6104,7 @@ _ M. Buisson travaillera sur les textes, quand il fera une
 Re étude approfondie de la question, nous publierons cette
 . étude. Une étude qui n'est pas approfondie n'est pas
 une étude.
-70 Tels sontles premiers effets des mœurs parlementaires;
+Tels sontles premiers effets des mœurs parlementaires;
 __ quand M. Ferdinand Buisson était un simple citoyen,
 Lee Fe . quand il était un professeur, il n'eût pas au commence1& ere, CP 24 . . . .
 F FR _ mentd'une leçon ditàsesélèves : « Mes chers amis, j'ai fait $
@@ -6127,7 +6125,7 @@ Puisque nous revenons aux premiers temps de l'af- $
 faire, puisqu'il faut, comme alors, S'inscrire pour avoir
 sa part d'injures, nous devons déclarer dès ce jour que
 nous entendons n'endosser aucune responsabilité, à
-morale, politique, ou sociale, dans les agissements du È.
+morale, politique, ou sociale, dans les agissements du
 présent ministère. ne
 
 Les cahiers de Bernard Lazare, l'Oppression des Juifs
@@ -6135,14 +6133,14 @@ dans l'Europe orientale, les Juifs en Roumanie, les à:
 Juifs en Russie, les Juifs en Galicie;
 le cahier dé Quillard, pour l'Arménie;
 ce cahier de Jean Deck; :
-et les cahiers analogues E
-sont faits pour mettre nos abonnés au fait des siluations K
-présentes et des événements récents; pour les tenir au L
+et les cahiers analogues
+sont faits pour mettre nos abonnés au fait des siluations
+présentes et des événements récents; pour les tenir au
 courant des événements éventuels, nous publierons
 des mêmes auteurs des courriers à mesure que les
-événements le demanderont. ; E
+événements le demanderont.
 
-, 3 400
+,
 
 -
 AP Cahiers de la quinzaine .

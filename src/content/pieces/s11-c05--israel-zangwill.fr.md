@@ -40,34 +40,34 @@ ancien camarade d'école des Sciences politiques, libéral,
 Ï m'intimidait un peu. Je l'admirais. Il était si fin, si
 
 ae curieux, si subtil, si mobile. Et au moment oùallaitse
-décider sa carrière il avait été si malheureux. F7
-Son père était Galicien ; naturalisé Français. Pendant M
+décider sa carrière il avait été si malheureux.
+Son père était Galicien ; naturalisé Français. Pendant
 un hiver qu'il passait à Munich pour y copier les chefs- è EX.
 d'œuvre de la Pinacothèque, sa jeune femme accoucha. . à
 Mon ami aurait pu naître à Florence, à Rome, à Londres, …
-à Pétersbourg, dans l'une quelconque des grandes. D
+à Pétersbourg, dans l'une quelconque des grandes.
 villes où son père fut obligé de résider pour étudier la, 2504
 peinture. Pour un Juif naître à Munich, c'était la pire es
 des malchances. FR
-ï Premier prix de dissertation française, premier prix. F 4
-d'histoire, premier prix de philosophie, l'élève Sitlen. M
+ï Premier prix de dissertation française, premier prix.
+d'histoire, premier prix de philosophie, l'élève Sitlen.
 heim, né à Munich, avait appelé l'Inspecteur d'Académie, …
-à la distribution des prix du Concours général; etles 04
+à la distribution des prix du Concours général; etles
 lycéens avaient regardé sans bienveillance leur concur- Re.
-rent victorieux. Né à Munich, disaient les palmarès; né. 6
+rent victorieux. Né à Munich, disaient les palmarès; né.
 à Munich, portait l'extrait de naissance qu'il présenta FA
 au Conseil de revision, au secrétariat de l'École de QE
-— Vous êtes né à Munich? Monsieur, lui dit le Con- F
+— Vous êtes né à Munich? Monsieur, lui dit le Con-
 5 seiller Maître à la Censure des comptes, chargé de faire 5°
 une enquête sur les candidats au concours de l'audi- “4
 torat. Comme c'est ennuyeux! Vos coreligionnaires ‘oi
 sont très. attaqués. Aucun d'eux n'a réussi encore à #1
-entrer dans cette maison. Vous seriez mal reçu par vos 4
+entrer dans cette maison. Vous seriez mal reçu par vos
 s — Mais je suis Français! La famille de ma mère est Ÿ '
-fixée en France depuis plus de trois cents ans. D. x
-— Vous avez raison, Monsieur. Du séjour en France, +1 4
-des parents en France, vous en avez plus, beaucoup 1
-plus que beaucoup de Français. Mais vous êtes né à pe: K
+fixée en France depuis plus de trois cents ans.
+— Vous avez raison, Monsieur. Du séjour en France, +1
+des parents en France, vous en avez plus, beaucoup
+plus que beaucoup de Français. Mais vous êtes né à pe:
 Munich. On ne comprendrait pas. On ne pardonnerait ‘4
 
 pas. Vous voyez d'ici la manchette de la Libre Parole :
@@ -84,11 +84,11 @@ d'un article. Il reçut plus d'un coup de poing. Il cassa
 plus d'une canne sur des épaules nationalistes. Il protégea Zola, menacé à la sortie de la Cour d'assises. €
 A Rennes, il releva Labori blessé. Plusieurs de ses
 | années de revenus filèrent en dons à des Universités
-4 Populaires, à des Coopératives. Quand la victoire
+Populaires, à des Coopératives. Quand la victoire
 vint il se trouva, sans l'avoir voulu, l'ami de députés
 4 puissants et de Ministres. Ces chefs de clan, ces chefs -
 4 de bandes, au pouvoir avaient besoin de spécialistes.
-4 Ils se méfiaient de l'Administration qui les avait
+Ils se méfiaient de l'Administration qui les avait
 combattus. Ils furent obligés de se servir de la science
 de Sittenheim. C'est lui qui rédigea le fameux rapport
 sur la réforme de l'impôt présenté par l'ancien typo
@@ -100,8 +100,8 @@ Sittenheim. Ce fut à la Mairie du Septième une éton-
 : nante pompe civile en musique. La mariée avait pour
 . témoins un ancien Président du Conseil et un Général
 
-3 André Spire vu :
-; à plumes blanches. Et les revues illustrées repro- E
+André Spire vu :
+; à plumes blanches. Et les revues illustrées repro-
 duisirent en première page la robe de point d'Angleterre que portait la jolie Madame Sitenème-Martin.
 IL eut une automobile. Il retourna dans le monde. Il
 était le chef de 21.000 gardes-frontières, de 11.000 gabe :
@@ -111,7 +111,7 @@ bornés, infréquentables alliés d'un moment. Des
 ment. Il avait bravement combattu dans l'opposition.
 Vainqueur, il faisait son devoir bravement, au poste où <
 la fortune l'avait porté. Pourquoi lui en aurais-je voulu |
-d'accomplir maintenant sa fonction qui est de défendre 4
+d'accomplir maintenant sa fonction qui est de défendre
 l'État contre la paresse des ouvriers des monopoles et
 les parlementaires contre les appétits des syndicats
 d'employés. Il avait un peu de bonheur. Je l'aimais. Il
@@ -122,9 +122,9 @@ par gestes; qui vous comprend à demi-mot.
 
 Enveloppé dans un plaid havane il était étendu sur
 une chaise longue. Je le trouvai fiévreux, et dans ses |
-yeux il y avait encore des larmes. 4
+yeux il y avait encore des larmes.
 
-— Connais-tu cela, me dit-il; et il prit sur ses genoux 4
+— Connais-tu cela, me dit-il; et il prit sur ses genoux
 un petit livre qu'il me tendit.
 
 — Comment, tu ne sais pas; toi non plus tu ne sais |
@@ -171,42 +171,42 @@ l'avaient enserré dans des émotions, dans des impul-
 Gadya, Chad Gadya! La vieille mélopée réveillait en
 
 * Jui d'innombrables associations. Qu'elle était adorable “4
-l'antique succession des fêtes : Pâques et Pentecôte, 7
+l'antique succession des fêtes : Pâques et Pentecôte,
 Nouvel An et Tabernacles! Un désir le saisit de s'enve- cn
-lopper comme son père dans un châle à franges, de 34
-chanter, de se balancer avec lui dans le rythme pas- k
+lopper comme son père dans un châle à franges, de
+chanter, de se balancer avec lui dans le rythme pas-
 sionné de la prière. Pourquoi les Juifs avaient-ils <
-souhaité l'émancipation? Pourquoi avaient-ils essayé 5
+souhaité l'émancipation? Pourquoi avaient-ils essayé
 d'échapper à l'esclavage joyeux du ghetto? Leur vie =
 était centrée, complète par elle-même. Mais, ils étaient "1
 inquiets, condamnés à errer. Marchands allemands ou >
 levantins, ils avaient aidé à élever la capitale commer- $
 ciale du quinzième siècle; puis ils étaient arrivés, émi- si
-grés espagnols, fuyant l'Inquisition. Quelles sources 3
-d'énergie bouillonnaient dans ces extraordinaires an- e
+grés espagnols, fuyant l'Inquisition. Quelles sources
+d'énergie bouillonnaient dans ces extraordinaires an-
 
 : cêtres qui unissaient le calme de l'Orient et la fièvre &
-de l'Occident! Il se rappelait les rubriques d'un 4
+de l'Occident! Il se rappelait les rubriques d'un
 nonnes et juifs. Eh bien, les Doges avaient vécu, Venise
-était une ruine mélancolique, et les Juifs vivaient è
+était une ruine mélancolique, et les Juifs vivaient
 somptueusement dans les palais des fiers patriciens. si
 N'est-ce pas miraculeux cette persistance? Où est le ‘à
 secret de leur force, sinon dans leur certitude de Dieu, Re
-leur confiance inébranlable qu'il leur enverra son 5
+leur confiance inébranlable qu'il leur enverra son
 Messie pour reconstruire le Temple et les placer, eux, à a
 
-la tête des nations? À È
+la tête des nations? À
 Mais lui, il se battait la tête contre le déconcertant Éd
 mystère de la vie. La science, quel secours lui a-t-elle #
 apporté? Elle classifie tout et n'explique rien. Les À
 
-; choses sont. Expliquer les choses, c'est énoncer A en 4
+; choses sont. Expliquer les choses, c'est énoncer A en
 l'explication? Peut-être seulement par l'extase arrive-t- a
 
 ee Mais non, il ne peut croire; son intelligence est sans
 ; remords; car, même ainsi atteinte, l'Essence doit être
 = jugée par ses manifestations, et ses manifestations sont
-4 Il pensa aux vendanges ruinées l'an dernier par un
+Il pensa aux vendanges ruinées l'an dernier par un
 s. orage, et à l'effrayante pauvreté des paysans sous le
 ? joug des propriétaires; il eut la vision d'une seiche que |
 à des pêcheurs avaient laissée haletante, presque avec
@@ -238,8 +238,8 @@ vendent, deux sous la paire, sur la place du marché!
 les dalles. La vie, même pour un instant la vie sans
 Dieu, lui semblait intolérable. La mort, la mort à tout
 prix pour en finir de ramper sur la lisière de la vie! Er
-11 se glissa sans bruit par la porte entr'ouverte, des- j
-cendit les marches mouillées du perron de marbre et se é
+11 se glissa sans bruit par la porte entr'ouverte, des-
+cendit les marches mouillées du perron de marbre et se
 laissa couler mollement dans le canal : « Il se retrouva
 luttant, mais vainquit l'instinciive volonté de vivre. |
 Quand il s'enfonça pour la dernière fois le mystère de |
@@ -248,7 +248,7 @@ la nuit, des étoiles et de la mort, se mélèrent avec un
 de la splendeur de la vie, et les mots hébreux du Juif
 mourant essayèrent de jaillir de sa gorge pleine d'eau :
 « Écoute, Israël, le Seigneur notre Dieu, le Seigneur |
-Quel génie, dit Sittenheim! Avoir posé ces émotions, k
+Quel génie, dit Sittenheim! Avoir posé ces émotions,
 ces idées, dont toutes ne sont pas neuves, chacun des
 pas de ce drame, sur chacun des degrés de la plus
 vieille peut-être des chansons populaires. Israël qui
@@ -272,7 +272,7 @@ culture de son temps! Sais-tu qui il est; d'où il vient;
 dans quel pays il habite; ce qu'il a écrit?
 
 — Je ne connais que son nom : Israël Zangwill.
-Péguy, dans l'article de quatre-vingt-neuf pages qu'il a k
+Péguy, dans l'article de quatre-vingt-neuf pages qu'il a
 placé en tête de Chad Gadya, cite Taine, Renan, La
 
 : Séailles et l'historien Pierre Deloire, mais ne nous
@@ -293,35 +293,35 @@ bibliographiques, au milieu de cette vie infernale où je
 À que lorsque je saurais quelque chose sur Zangwill je
 1 viendrais. en parler à mon ami. $
 
-4 J'appris que Zangwill est un des écrivains vivants les
+J'appris que Zangwill est un des écrivains vivants les
 4 _ plus connus de l'Angleterre ; qu'il est né à Londres, en
 
 1864, de pauvres parents juifs. Je lus ses livres. Je le vis
 lui-même. Je vis ses cheveux presque blancs: sa jeune
-face volontaire, immobile; ses fines mains inquiètes. 75
+face volontaire, immobile; ses fines mains inquiètes.
 
 Et je revins heureux à l'avance des belles heures de ‘4
 
 _ causerie que j'allais passer avec Sittenheim. Tel
 C'est au Ministère, au milieu de l'après-midi, que : À
-j'avais le plus de chances de le trouver seul et libre. 41
+j'avais le plus de chances de le trouver seul et libre.
 — M. Martin est chez le Ministre. Maïs entrez dans TÉ
-son cabinet, il va revenir, me dit le vieil huissier pâle et 4
-Dans l'immense pièce toute rouge de tapis épais et 0
+son cabinet, il va revenir, me dit le vieil huissier pâle et
+Dans l'immense pièce toute rouge de tapis épais et
 de tentures cerise, j'attendis longtemps. Enfin, Sit- “4
-tenheim arriva suivi d'un attaché qui portait sous le … 0
+tenheim arriva suivi d'un attaché qui portait sous le …
 bras une énorme chemise de maroquin pleine de dos: ee .
-— Excuse-moi, dit-il. Le Ministre a eu la fantaisie de 2e
+— Excuse-moi, dit-il. Le Ministre a eu la fantaisie de
 demander la signature à une heure. Ça n'en finissait nn"
 
-: plus. Et comment ça va-t-il? Qu'as-tu fait depuis que je E
+: plus. Et comment ça va-t-il? Qu'as-tu fait depuis que je
 
 L'attaché classait des papiers sur un petit bureau
 
-_ dans un coin de la pièce. à 3
-J'ai vu Zangwill. 0
+_ dans un coin de la pièce. à
+J'ai vu Zangwill.
 
-— Zengwill? me dit Sittenheim. 44
+— Zengwill? me dit Sittenheim.
 L'huissier entra, présentant une carte. 2 “4
 
 — Oui, dis-je en baïissant la voix, Zangwill. Chad ÈS
@@ -331,7 +331,7 @@ L'huissier entra, présentant une carte. 2 “4
 — Ah! Chad Gadya! Suis-je bête? — Tu permets |
 n'est-ce pas que j'expédie ça! — Faites entrer. ai
 — C'est bien difficile, lui dis-je, quand le gros député
-fut sorti, de causer ici un peu sérieusement avec toi. 1e
+fut sorti, de causer ici un peu sérieusement avec toi.
 
 Donne-moi rendez-vous chez toi un soir, un après-midi.
 
@@ -358,7 +358,7 @@ de préférence le quatrième et le onzième arrondissements, mais ils sont noy�
 
 augmente chaque jour. Cependant, Paris n'est pour eux |
 
-qu'un lieu de passage; c'est vers New-York, vers 4
+qu'un lieu de passage; c'est vers New-York, vers
 
 Londres, qu'émigrent les ouvriers juifs. Les salaires }
 
@@ -421,36 +421,34 @@ corrompus, et s'écrit en caractères hébraïques. Le
 
 ———
 
-| 17
-
-_ delsohn l'abandonnaït et recommandait aux Juifs d'Alle- 5
+_ delsohn l'abandonnaït et recommandait aux Juifs d'Alle-
 | magne de se servir de l'allemand littéraire. Cependant
-comme il est la langue d'un prolétariat de huit ou dix 120
-millions d'hommes, le yiddish n'est pas en décadence. D
+comme il est la langue d'un prolétariat de huit ou dix
+millions d'hommes, le yiddish n'est pas en décadence.
 Il s'est au contraire développé depuis que les émeutes Re.
 antijuivés ont resserré les Juifs les uns contre les autres. Es
 _ Les marchands chrétiens de l'East End rédigent leurs #0
-+ réclames en jargon, et les sectes protestantes elles 00
++ réclames en jargon, et les sectes protestantes elles
 mêmes, dont les missionnaires essayent de conquérir à Le.
 l'Évangile les misérables du ghetto, annoncent l'heure à
 de leurs conférences et de leurs services à l'aide de ET
 Cest le ghetto que Zangwill connaît le mieux. Sans FT
 ï doute, certains de ses romans, de ses nouvelles, 7 :
 racontent ou raillent la vie des artistes, la vie politique, Re.
-: la vie sociale, socialiste, ouvrière, un monde réel et 2
+: la vie sociale, socialiste, ouvrière, un monde réel et
 LS observé, un monde imaginaire et inventé; Londres, nn "
-OA Paris, New-York, beaucoup d'espèces de villes et beau 4
+OA Paris, New-York, beaucoup d'espèces de villes et beau
 & coup d'espèces d'hommes. Cependant comme Kipling LE
-est surtout le peintre de l'Inde et de la jungle, Zangwill 24
-; est surtout le peintre du ghetto. Il le décrit dans une 78
-quarantaine de contes, histoires humoristiques, grandes … é S ï
+est surtout le peintre de l'Inde et de la jungle, Zangwill
+; est surtout le peintre du ghetto. Il le décrit dans une
+quarantaine de contes, histoires humoristiques, grandes …
 . nouvelles, réunis sous divers titres : Ghetto Tragedies, FE :
-De Ghetto Comedies, The King of Schnorrers, Drea- 4
+De Ghetto Comedies, The King of Schnorrers, Drea-
 mers of the Ghetto et un roman ou plutôt une suite de EM =
 En France, on chercheraïit en vain une œuvre compa-
 Ë rable à celle de Zangwill. Robert Dreyfus dans un petit Si ;
 livre sur l'écrivain Alexandre Weill (1) explique pour.
-(1) Robert Dreyfus : Alexandre Weil, ou le prophète du faubourg 114
+(1) Robert Dreyfus : Alexandre Weil, ou le prophète du faubourg
 ù Saint-Honoré. Cahiers de la Quinzaine, 8, rue de la Sorbonne. Es
 
 à quoi jusqu'à présent il n'y a pas eu de littérature judéofrançaise. « Les Juifs de France sont à présent trop
@@ -465,7 +463,7 @@ Français de tous les groupes et de toutes les prove-
 J proprement juives [qu'ils ne trouvent] plus en eux-
 
 + mêmes. » C'est exact; les Juifs de France ont été trop
-peu nombreux et trop dispersés pour former une classe x
+peu nombreux et trop dispersés pour former une classe
 
 à part. Ils ont pu prendre place dans la sociélé, non pas
 
@@ -485,11 +483,11 @@ peu nombreux et trop dispersés pour former une classe x
 
 Li que parler des Juifs c'était provoquer l'antisémitisme.
 
-53 L'antisémitisme est né tout de même et les Juifs ont été
+L'antisémitisme est né tout de même et les Juifs ont été
 
 2 obligés de se défendre, On a écrit en faveur des Juifs.
 
-3 Mais il n'est pas né d'œuvre d'art. L'apologie ne tente -
+Mais il n'est pas né d'œuvre d'art. L'apologie ne tente -
 
 Ée pas un artiste. Ce qu'il veut c'est la vie, la réalité; il
 
@@ -508,7 +506,7 @@ He Dans la littérature européenne le Juif est presque
 
 toujours un type conventionnel. Quand il n'est pas …
 Shylock, le traître, ou le boursier, il est Nathan le à.
-Sage de Lessing. Lorsque Georges Elliot composa k
+Sage de Lessing. Lorsque Georges Elliot composa
 Daniel Deronda, elle avait cessé d'observer les hommes, )
 et les Juifs qu'elle peignit sont au-dessus et en dehors
 de l'humanité. M. Paul Bourget essayant dans l'Étape
@@ -530,15 +528,15 @@ chrétien. Il faut avoir vécu au milieu des Juifs pauvres,
 
 il faut avoir mangé avec eux le Xugrel du samedi et le À
 Matzes de Pâques. Il faut aimer le poisson frit, la carpe ;
-à la Juive et la viande Xosher. Il faut avoir passé ses 4
+à la Juive et la viande Xosher. Il faut avoir passé ses
 soirées avec les petites gens qui jouent autour d'une :
 table verte au Napoléon, au vingt-et-un, au brag, au À
-Klobbiyos, (1) avoir parcouru les carrefours où des Ë
+Klobbiyos, (1) avoir parcouru les carrefours où des
 du piano mécanique tourné par une Italienne, les si
 squares où les bonnes femmes assises devant leurs ;
 portes « bavardent et tricotent comme si la mer venait
 
-écumer à leurs pieds ». (2) Il faut avoir grimpé les L
+écumer à leurs pieds ». (2) Il faut avoir grimpé les
 escaliers gluants des maisons ouvrières, visité les back-
 
 rooms (1) où des lingères travaillent quatorze heures
@@ -568,19 +566,18 @@ leur chère ruelle... plongent leurs mains dégantées
 dans les tonneaux où des concombres confits nagent
 dans leur saumure, ou goûtent, à même les barils
 amoncelés, les olives grasses et juteuses,.… sans plus de
-| 21
 
-fausse honte que les écolières... Car c'est la nuit des d:
-nuits. Ce soir elles peuvent rire, jeter bas toutes k,
+fausse honte que les écolières... Car c'est la nuit des
+nuits. Ce soir elles peuvent rire, jeter bas toutes
 les barrières sociales: et, malgré l'éclat de leur haute à
-position qui éblouit le ghetto, causer du temps des Ë
+position qui éblouit le ghetto, causer du temps des
 Olov Hasholom (1) avec leurs vieilles camarades...
 Scène sans pareille dans l'histoire cette fantasmagorie
 de chenilles et de papillons se rencontrant, comme au
-bon vieux temps, sur le lieu même de leur ponte. Con- è
+bon vieux temps, sur le lieu même de leur ponte. Con-
 peut rencontrer de pareil que sur les champs d'or où
 dans les pays neufs, et jeté tout naturellement au milieu
-d'une civilisation sans couleur par un peuple doué d'un 7
+d'une civilisation sans couleur par un peuple doué d'un
 don indestructible pour le pittoresque. » (2) : |
 (1) Cest-àa-dire : des temps où, quand on parlait d'un mort, on re
 disait Olos Hasholom (paix soit sur lui); du bon vieux temps. Re
@@ -722,7 +719,7 @@ des yeux candides, une gamine obéissante et mal vêtue,
 si anxieuse de plaire à sa maîtresse d'école, si passionFr née pour l'étude, si audacieusement ambitieuse de
 devenir elle-même une institutrice. Mais elle ne peut
 aller tous les jours à l'école. Il faut faire la cuisine, |
-acheter les provisions. Quand l'argent manque, elle ya É
+acheter les provisions. Quand l'argent manque, elle ya
 au fourneau populaire, « pareille, avec sa démarche
 orientale, à une Réhecca en miniature allant au puits ».
 Elle rêve, comme tous les pauvres gens, du jour où le
@@ -733,8 +730,8 @@ sont déçus : elle heurte la porte de son galetas et la
 re _cruche pleine de bouillon tombe à terre, se casse. Le
 _ shilling qu'elle a économisé pour acheter le poisson :
 Le … et la viande de la veille de Pâques lui est volé au mar-
--_ ché par un pick-pocket, et son frère Benjamin, l'espoir è
-de la famille, qu'une bonne œuvre élève et fait in- 6
+-_ ché par un pick-pocket, et son frère Benjamin, l'espoir
+de la famille, qu'une bonne œuvre élève et fait in-
 _ struire, meurt d'un mauvais rhume. :
 £ Malgré tout, elle ne doute pas de J'existence d'une
 À puissance invisible, quoique cette puissance lui paraïisse
@@ -790,10 +787,10 @@ aux siens qu'on a envoyés aux États-Unis, et se dit que
 malgré ses toilettes élégantes et ses bonnes manières,
 elle n'est tout de même qu'une « vilaine petite jeune
 femme à l'âme médiocre, sujette à des migraines, et
-absolument sans le sou ». t
+absolument sans le sou ».
 
 Dans le salon des Goldsmith, Esther Ansell rencontre à
-Raphaël Léon. Les philanthropes sont obligés parfois V
+Raphaël Léon. Les philanthropes sont obligés parfois
 
 d'aller dans de singuliers milieux. Raphaël Léon est un
 de ces dreamers, un de ces rêveurs qu'Israël Zangwill
@@ -838,7 +835,7 @@ smith et s'enfuit vers Whitechapel. à 21144
 patient du travail. Esther revoit son quartier, sa rue, ES “4
 ses voisins, sa maison. Elle retrouve son ghetto : Re
 Tout remuait dans le ghetto, car il était huit heures et
-; demie du matin, un jour de travail, Mais Esther n'avait 2e
+; demie du matin, un jour de travail, Mais Esther n'avait
 pas marché cent mètres, que son cœur s'alourdit de pénibles NN
 _  pressentiments. La bonne vieille rue de jadis, où elle venait
 d'arriver, avait été étrangement élargie. Au lieu de maisons
@@ -858,10 +855,10 @@ et vie. Ces immenses boutiques magiques où l'on trouvait
 ; de tout, des pastilles de menthe et du coton, des poupées à. re
 % tête de porcelaine et des citrons lui paraissaient toutes Fa
 rétrécies maintenant entre les fenêtres de minuscules mai- +
-sons d'habitation. Les vieilles femmes à perruque noire, les. x
+sons d'habitation. Les vieilles femmes à perruque noire, les.
 hommes cerasseux, au pas lourd, étaient encore plus laids a
-\ et plus crasseux qu'elle ne l'imaginait. Ils lui paraissaient D:
-: des caricatures d'humanité, épouvantails en chapeaux : |: M
+\ et plus crasseux qu'elle ne l'imaginait. Ils lui paraissaient
+: des caricatures d'humanité, épouvantails en chapeaux : |:
 MU TA enfoncés et en jupons crottés. Mais peu à peu, au fur et à pe
 : mesure qu'elle avançait elle comprenait que malgré les eee
 ci bâtisseurs de maisons modèles pour ouvriers, la szène, dans % Ecus 30 FÉES
@@ -896,7 +893,7 @@ _ commun avec ces demi-misérables, avec cette race d'êtres
 
 É- brutalité, aucune ivrognerie; tout simplement la saleté
 
-E d'une cité orientale, sans son originalité ni sa couleur. Elle è
+E d'une cité orientale, sans son originalité ni sa couleur. Elle
 “ examinait les affiches et les devantures des magasins et
 
 7 attrapait les mèmes bribes de bavardages en passant devant
@@ -912,7 +909,7 @@ ce rédigé une nouvelle enseigne. C'était une mixture d'allemand,
 
 Fe ment en lettres hébraïques.. Baruch Emmanuel avait proRe _ spéré depuis les jours où il affichait qu'il avait besoin de
 
-le: finisseurs et de poseurs de chevilles et n'était pas capable ÿ
+le: finisseurs et de poseurs de chevilles et n'était pas capable
 E de se les offrir. Il avait plusieurs établissements et possé-
 dait cinq maisons à deux étages, et était trésorier de sa :
 
@@ -938,7 +935,7 @@ Terre Sainte : the Flowers of Zion society, dirigé par des
 jeunes gens de l'East End pour l'étude de l'hébreu et la
 propagation de l'idée nationale juive. Juste à côté, comme
 pour montrer ironiquement l'autre face de la vie du ghetto,
-était collée une autre affiche qui avait l'air d'une proclamation 5
+était collée une autre affiche qui avait l'air d'une proclamation
 royale, informant le public que par ordre du Secrétaire
 d'État à la guerre, une vente de vieux ôbjets en fer et en
 fonte, en zinc, en toile et en cuir aurait lieu à l'Arsenal
@@ -987,26 +984,26 @@ Raphaël. Est-il sage d'épouser le sombre esprit du
 .
 
 Zangwill n'a pas regardé seulement la face grave du :
-ghetto. Son talent est complet, et ses dons sont mul- L
+ghetto. Son talent est complet, et ses dons sont mul-
 tiples. Il sait rire. |
 Le ghetto n'est pas triste. Rien n'est plus amusant
-que les réunions de famille chez les Juifs de condition Ë
-modeste, et qui ne sont pas trop déjudaïsés. Le prolé- 103
+que les réunions de famille chez les Juifs de condition
+modeste, et qui ne sont pas trop déjudaïsés. Le prolé-
 tariat juif ignore « la grande douleur juive ». Il est gai,
-il est jovial. Les Juifs qui travaillent n'ont pas le temps É
+il est jovial. Les Juifs qui travaillent n'ont pas le temps
 d'être tristes. Ils laissent le pessimisme à leurs philan- ;
 Le philanthrope ressemble à ces gens qui pleurent en ji
-lisant des romans. Quand un riche se met tout à coup à 1
+lisant des romans. Quand un riche se met tout à coup à
 regarder d'un peu près la vie du peuple il est effrayé de ;
 tant de misère et de tant de bassesse. IL en est triste à
 jamais. Cependant le confortable de la maison où il!
 revient le soir, l'empêche d'en mourir. On peut s'ima- à
-giner l'Ecclésiaste comme une sorte de roi philanthrope s Ë
+giner l'Ecclésiaste comme une sorte de roi philanthrope
 pris d'une crise de désespoir, après une tournée dans :#%
 
 _ les Slums de sa capitale. Mais il rentre dans son palais -
 __  oùil y a des femmes, des serviteurs et des parfums.
-"0 Le bourgeois philanthrope, lui, ne se résigne plus au ù
+"0 Le bourgeois philanthrope, lui, ne se résigne plus au
 ._ bonheur. Ayant bien diné il va les yeux baissés en Re
 Le pensant à la douloureuse condition des hommes qui
 pendant ce temps-là rient et s'amusent, C'est parce que :
@@ -1017,10 +1014,10 @@ L plaindre dans les Universités populaires et qu'il est
 1e vrais militants étaient plus clairvoyants que les jeunes Fe
 xd gens bien mis. Îls connaissent la valeur de la joie.
 Eu Presque tous sont de francs bons garçons comme la :
-ge plupart des entraîneurs d'hommes. Le secret de leur ô
+ge plupart des entraîneurs d'hommes. Le secret de leur
 D. influence n'est pas seulement dans leur « esprit de harF diesse », mais aussi dans leur jovialité.
 ; Les Rabbins, les Docteurs, qui se sentaient responsables de l'avenir, et surtout de la conservation de la
-race juive ont lutté contre le pessimisme. Beaucoup S
+race juive ont lutté contre le pessimisme. Beaucoup
 d'entre eux comme le rabbin David Sichel de l'Ami
 je Fritz, (1) furent de gais compagnons. (2) Le soleil ne Fe
 L pénétrait pas dans le ghetto, mais ils y firent entrer le
@@ -1070,7 +1067,7 @@ Quelle chance vous avez! — C'est ce qui vous trompe;
 car il ne peut s'empêcher d'y jouer.
 
 Zangwill sourit. Et voyant ces deux têtes pâles, rapprochées l'une de l'autre, ces corps inclinés sur ces
-sièges bas, je me demandais si j'étais dans le siftingroom d'un modeste hôtel anglais de la rue Saint- j
+sièges bas, je me demandais si j'étais dans le siftingroom d'un modeste hôtel anglais de la rue Saint-
 Hyacinthe, ou dans une de ces académies orientales où
 les sages talmudistes enseignaient selon la méthode
 hagadique, par questions et par réponses, par maximes,
@@ -1091,20 +1088,20 @@ Aussi le peuple juif possède-t-il un immense folk-lore :
 
 (1) Sentences et proverbes du Talmud et du Midrasch, op. cit.
 
-et les maîtres d'école, les Badchen dont c'est le mé- 20
-tier de faire rire les convives aux repas de noces et 5
-les Schnorrer dont les bouffonneries amusent l'hôte 1e
+et les maîtres d'école, les Badchen dont c'est le mé-
+tier de faire rire les convives aux repas de noces et
+les Schnorrer dont les bouffonneries amusent l'hôte
 pieux qui, pour obéir à la Loi, a toujours un pauvre à ,
 sa table la veille du Sabbat. Ke
-Ces histoires sont originaires de tous les pays : de 2
+Ces histoires sont originaires de tous les pays : de
 Palestine et d'Afrique, de Russie, de Pologne, de :
 Galicie, d'Allemagne, d'Autriche, d'Aisace, des Trois à
-Évêchés, d'Espagne, de France, de Paris même, de tous è
+Évêchés, d'Espagne, de France, de Paris même, de tous
 les lieux et de tous les pays où le peuple errant s'est ;
 reposé, a travaillé dans l'ignominie et dans la crainte, soi
 a cru pouvoir respirer enfin. Les unes viennent des
 temps les plus reculés, des époques bibliques outalmu
-; diques, ont été racontées, manuscrites, déformées et ï
+; diques, ont été racontées, manuscrites, déformées et
 transformées sans cesse; les autres sont d'hier, d'au- #4
 jourd'hui même, chaque génération admirant, vantant à
 ; ses aspirations, se moquant de ses travaux ou de ses
@@ -1168,7 +1165,7 @@ Voici une historiette où l'intention du conteur est
 claire. Le Rabbin d'Altona montrait à l'incrédule Salomon Maïmon le Schofar, cette trompette primitive dont
 l'officiant tire des cris sauvages lorsque la Synagogue
 prononce le Herem, l'excommunication juive : « Connais-tu ceci? » lui dit-il d'un air sombre. Le disciple
-de Kant répondit fort tranquillement : « Je sais que c'est F
+de Kant répondit fort tranquillement : « Je sais que c'est
 la corne d'un bouc. »
 
 Henri Heine qui rapporte cette histoire, admire le
@@ -1207,19 +1204,19 @@ F — Patience, dit l'un. — C'est vrai, dit l'autre. Sait-on
 à hôtel, les deux amis se rencontrent. — Monte, dit le
 premier, moi je ne pourrais voir Ça; tu me raconteras
 
-comment ça s'est passé. Et il fait les cent pas sur le à E:
+comment ça s'est passé. Et il fait les cent pas sur le à
 trottoir. Enfin son ami redescend : Comment va l'en "8
-fant? — L'enfant, il n'y a pas un enfant, il y a deux 5
-enfants. — Deux enfants? Très bien, très bien; alors F2
+fant? — L'enfant, il n'y a pas un enfant, il y a deux
+enfants. — Deux enfants? Très bien, très bien; alors
 nous en aurons chacun un. — Oui! C'est ça! Mais il y
 a un malheur! — Quel malheur? — Eh bien! le mien, ae
 il est mort! de
-Beaucoup de blagues juives sont construites sur ce type 2
+Beaucoup de blagues juives sont construites sur ce type
 et ne sont pas sévères pour la ruse. Les antisémites en À
 font sans cesse le reproche aux Juifs. Avec leur mau- À
-vaise foi. Car ils connaissent plus d'une farce chrétienne, Ÿ
+vaise foi. Car ils connaissent plus d'une farce chrétienne,
 dont les héros chrétiens, en fait de ruse, rendraient des À
-points à des Juifs. Mais la défense des Juifs est mala- ù
+points à des Juifs. Mais la défense des Juifs est mala-
 droite : avec le renard, renarde, (1) ont enseigné les :
 La psychologie d'une race persécutée justifie, en effet, :
 les récits où les Juifs mettent dedans les Chrétiens. |
@@ -1227,9 +1224,9 @@ ou les Infidèles. Mais ceux-là, et ils sont nombreux, où
 les Juifs jouent au plus fin les uns avec les autres? <
 Tout s'éclaire si on envisage la blague juive comme
 l''amusement d'un peuple de gens d'affaires. €
-Quel est donc le point d'honneur de l'intermédiaire ? ÿ
-Imposer sa marchandise, et ne quitter la place que son l
-marché en poche. Il a toujours le dernier mot le Schadchen, le fabricant de mariages, l'agent matrimonial, « 4
+Quel est donc le point d'honneur de l'intermédiaire ?
+Imposer sa marchandise, et ne quitter la place que son
+marché en poche. Il a toujours le dernier mot le Schadchen, le fabricant de mariages, l'agent matrimonial, «
 toujours à l'affût de jeunes hommes à marier. La bellemère ne me plaît pas, lui objecte-t-on; c'est une femme |
 stupide et méchante. —. Ce n'est pas la belle-mère, à
 c'est la fille que vous épousez. — Mais elle n'est plus
@@ -1266,7 +1263,7 @@ certains vizirs juifs, grands et petits, se sont montrés de
 -première force. Leurs grands-pères ont appris pour eux
 l'esprit de repartie sur la place du marché. L'un d'eux,
 à marchand de chevaux, examinait un cheval de selle.
-4 IL est si rapide, lui dit le propriétaire de la bête, que si
+IL est si rapide, lui dit le propriétaire de la bête, que si
 
 vous montez dessus à quatre heures du matin vous
 serez à six heures et demie à Strasbourg. — Qu'est-ce
@@ -1301,7 +1298,7 @@ des caractères très particuliers : d'abord l'emploi fré-
 (:) On trouve beaucoup d'histoires juives dans l'ouvrage cité de
 Freud, et en particulier une version allemande de l'histoire ci-dessus. à
 
-(2) Par exemple the Hope Extinct, dans Ch. of the Gh., 189.
+(2) Par exemple the Hope Extinct, dans Ch. of the Gh.,
 
 quent de la blague juive. Zangwill a recueilli un grand
 nombre de contes, de sorte que certains morceaux de
@@ -1336,27 +1333,27 @@ Et si la discussion avait porté sur un sentiment, il SE
 vous l'aurait coupé en quatre. C'est parce que la plu- -
 part des Juifs ont été soumis pendant des siècles à une : Fe
 telle gymnastique, que le jôur où les grandes Écoles leur Le
-ont été ouvertes, ils ont montré une telle aptitude M
-: aux études de philosophie et de jurisprudence. Mais ÿ
+ont été ouvertes, ils ont montré une telle aptitude
+: aux études de philosophie et de jurisprudence. Mais
 quelques esprits en sont restés tordus et faussés à jamais. =
-Comme Pascal, dans ses Provinciales, a prêté à son 4
+Comme Pascal, dans ses Provinciales, a prêté à son
 Père jésuite le langage de la casuistique jésuitique, $
 Zangwill écrit souvent ou fait parler ses personnages
-_ dans la langue tarabiscotée du commentateur talmudiste, le plus subtil des ergoteurs, le plus dangereux des 3
+_ dans la langue tarabiscotée du commentateur talmudiste, le plus subtil des ergoteurs, le plus dangereux des
 adversaires parce qu'il a l'orgueil d'avoir le dernier mot, "
 et qu'il finit toujours par vous bloquer dans un coïn
 par un argument de détail que vous sentez être faux et
 que vous enragez de ne pouvoir en logique démontrer :
-tel. C'est un des moyens les plus drôles du talent de E
+tel. C'est un des moyens les plus drôles du talent de
 à Zangwill. C'est un des aspects les plus originaux et les Fe
-plus neufs de son humour. Le premier, il a deviné tout é
+plus neufs de son humour. Le premier, il a deviné tout
 le comique, le tragique même, qu'un romancier pouvait <
 tirer de cet « instinct juridique de l'Hébreu qui a déve- fe
 loppé le plus gigantesque et le plus minutieux code de 'e
-conduite qu'il y ait au monde ». (2) 4
-De chacun des éléments qui composent l'humour de 24
+conduite qu'il y ait au monde ». (2)
+De chacun des éléments qui composent l'humour de
 Zangwill il est très difficile de donner des exemples >=
-. (1) Talmud de Jérusalem. Traduction Moïse Schwab, tome III, 8
+. (1) Talmud de Jérusalem. Traduction Moïse Schwab, tome III,
 page 155. Maisonneuve, éditeur, Paris, 1879. SES
 
 purs; car, même dans ses Essais, /où il discute à la manière juive sur des sujets non juifs, tous les éléments
@@ -1391,7 +1388,7 @@ Pinchas envoie ses ouvrages aux Juifs riches qui,
 pour se débarrasser de lui, lui donnent, en retour, quelques shillings. Mais il accepte de toutes mains et porte
 à domicile ses livres chez de plus humbles, dont il
 reçoit, en échange, des compliments et aussi le break-
-: fast. Le voici qui se présente chez Reb Shemuel. (2) è
+: fast. Le voici qui se présente chez Reb Shemuel. (2)
 Il entra par la porte de la rue, qui était entr'ouverte,
 frappa légèrement à la porte de la chambre, et l'ouvrit, puis
 il baisa la mezouzah clouée sur le chambranle; il s'avança
@@ -1452,38 +1449,38 @@ réunions, dans les sociétés, dans les comités, où il
 sollicite avec une naïve et inlassable ambition un
 poste de président, de secrétaire, de trésorier, d'orateur.
 
-: On n'ose le mettre à la porte. On sait que seule la force 4
+: On n'ose le mettre à la porte. On sait que seule la force
 physique est capable de le faire sortir; et ce n'est pas “5
 toujours sans danger, comme l'éprouva le Directeur du À
 Théâtre Juif de New-York qui, s'étant permis de trans- À
 former en opéra-comique un drame écrit par Melchitzedek Pinchas, reçut en pleine scène un coup de canne ;
 à travers la figure. (1) |
-Mais la plupart du temps, pour obtenir ce qu'il désire, 4
+Mais la plupart du temps, pour obtenir ce qu'il désire,
 Pinchas emploie la méthode insinuatoire. à
-Une grève d'ouvriers tailleurs se prépare contre les 2
-sweaters de Whitechapel. C'est une bonne occasion d
+Une grève d'ouvriers tailleurs se prépare contre les
+sweaters de Whitechapel. C'est une bonne occasion
 de se mettre en avant. Il réussit à pénétrer dans la ‘
 salle du Comité et essaye de gagner les bonnes grâces :
 de Simon Wolf, le grand leader ouvrier Juif. Il lui À
 expose ses idées, mais Simon Wolf se méfie. Il a peur a
-que Pinchas ne lui chipe sa position, comme il dit. 5
+que Pinchas ne lui chipe sa position, comme il dit.
 Alors Pinchas l'enveloppe, se met à son service, lui offre ;
 de parler dans les meetings.
 De là mes paroles se précipiteront comme les torrents des
 montagnes pour balayer la corruption... Vous savez, Simon,
 Ë moi et vous sommes les deux seules personnes de l'Est de
-Londres qui parlent correctement anglais. (2) F
+Londres qui parlent correctement anglais. (2)
 — Je sais, mais les discours doivent être en yiddish. "à
-— Gewiss ! mais qui sait la parler comme moi et vous. 2
+— Gewiss ! mais qui sait la parler comme moi et vous.
 Vous me donnerez un discours à prononcer ce soir. :
-— Je ne peux. Non vraiment! Le programme est arrangé. 3
+— Je ne peux. Non vraiment! Le programme est arrangé.
 Vous savez, ils sont tous déjà jaloux de moi ; je n'ose pas en À
 rayer un.
 — Ah non! ne dites pas ça! plaida Pinchas en posant
-l'index sur l'aile de son nez. 3
-(2) Ch. of the Gh., 179. Je n'essaye pas de traduire l'accent judéo- 2
+l'index sur l'aile de son nez.
+(2) Ch. of the Gh., 179. Je n'essaye pas de traduire l'accent judéo-
 anglais qui augmente encore le comique du personnage. FE
-50 1
+50
 
 — Il le faut bien!
 
@@ -1549,7 +1546,7 @@ seul méchant détruit l'effort de dix hommes de bien.
 
 Alors n'est-il pas sage de s'asseoir en criant : à quoi
 bon, et d'attendre délicieusement la mort, au milieu du
-jeu des idées, des couleurs et des parfums, ou, au con- É
+jeu des idées, des couleurs et des parfums, ou, au con-
 traire, de s'abandonner à la grâce de Dieu ? Mais le Juif
 vénitien, héros de Chad Gadya, que sa fortune et son
 amour des idées ont fait dilettante, au fond haït les
@@ -1584,7 +1581,7 @@ les « résultats, mais l'action elle-même ». (3) Car il
 
 appartient à cette race incapable de désespoir, à cette FFE
 race si active, si vivante, qu'il lui est impossible d'ima- Fe
-giner que ses morts eux-mêmes cesseront d'agir un 5 L
+giner que ses morts eux-mêmes cesseront d'agir un
 jour. « Il ne faut pas envisager le monde futur comme :
 un lieu de repos, a dit un de ses sages. Là même, l'acti- ;
 
@@ -1593,9 +1590,9 @@ de nous amuser en peignant des personnages. Il a ;
 besoin de les aimer. Il ne peut s'empêcher de crier :
 quand on maltraite ses modèles; il ne peut laisser en :
 repos ceux qui permettent qu'on détruise le peuple juif. “
-Le peuple juif, voilà trois mots que supportent diffi- 2
+Le peuple juif, voilà trois mots que supportent diffi-
 .  cilement certaines oreilles. Les Juifs prétendent qu'ils À
-sont des citoyens de religion juive. On se rappelle leur 4
+sont des citoyens de religion juive. On se rappelle leur
 joie quand dans une conférence fameuse, Renan leur à
 révéla que leur race contenait quelques gouttes de sang
 étranger. Ils s'étaient donc mêlés aux peuples! Ils pouvaient avoir les mêmes aspirations, les mêmes rêves!
@@ -1603,21 +1600,21 @@ Le vieil idéal national était bien mort; Israël n'avait
 plus qu'une mission à remplir : colporter au lieu de
 vieux habits quelques idées neuves; (2) puis il se dissoudrait dans les nations, comme un amendement dans
 une terre fatiguée, en les régénérant. +
-Tel était à peu près l'état d'esprit des Juifs cultivés e
+Tel était à peu près l'état d'esprit des Juifs cultivés
 dans toute l'Europe quand Zangwill arrivait à l'âge !
 d'homme. Israël avait renoncé à son antique solidarité ;
 trop égoïste, pour répandre à travers le monde l'idéal
 de la fraternité universelle. Les Russes commencèrent
 à massacrer leurs frères juifs. Les Roumains avaient
 (1) Moëd Quaton, cité dans Des Ailes à la Terre, publication de '
-l'Union libérale Israélite, Paris, rue Copernic, 24. 3
+l'Union libérale Israélite, Paris, rue Copernic,
 
 inventé pour eux une condition inférieure à celle de
 citoyen, celle de sujet tenu aux charges, ne jouissant
 .pas des droits. (1) Vienne élisait une municipalité
 antisémite. En France, paraissaient les pamphlets de
 Drumont et la Libre Parole: les pays anglo-saxons
-élevaient la barrière des Alien acts pour se protéger ë
+élevaient la barrière des Alien acts pour se protéger
 contre les masses toujours croissantes d'émigrants.
 Nous sommes un contre mille, pensaient les Juifs; à quoi
 bon résister? Attendons; on nous oubliera. Zangwill
@@ -1640,7 +1637,7 @@ Lion de Juda, où es-tu? Une peau d'âne sur le dos! (2)
 Et puis au fur et à mesure que les événements se dé-
 roulaient, que les expulsions et les massacres se préci-
 
-(1) Bernard Lazare, les Juifs en Roumanie, et Jérôme et Jean ï
+(1) Bernard Lazare, les Juifs en Roumanie, et Jérôme et Jean
 Tharaud, Bar-Cochebas. Cahiers de la Quinzaine, février 1902 et
 
 pitaient, il essaya de remuer la conscience juive en lui :
@@ -1687,7 +1684,7 @@ cartouches. Il rend visite aux commerçants de la petite
 ville. Les Cent Noirs, leur dit-il, vont bientôt être
 lâchés sur le quartier juif. Mais les Juifs ne doivent plus
 se laisser conduire à la boucherie comme des agneaux.
-Trop longtemps, lorsqu'ils ont reçu des coups sur une 6
+Trop longtemps, lorsqu'ils ont reçu des coups sur une
 joue, ils ont tendu l'autre. Il faut se défendre soimême... Il faut acheter des brownings. Mais l'aubergiste, le marchand de bois, le marchand de chevaux,
 pleurent et tremblent. Le Rabbin propose un jour de
 jeûne et de prière. Les autres pensent qu'il est préfé-
@@ -1842,16 +1839,16 @@ The Melting Pot est, je crois, l'œuvre la mieux %
 réussie de Zangwill. Toutes ses autres œuvres ont Ée
 quelques taches : des fautes de goût, un certain manque
 du sens des proportions, une surabondance et, comme
-dit un critique anglais, M. Oliphant, une surélabo- F
+dit un critique anglais, M. Oliphant, une surélabo-
 ration du détail. A cette nature d'une richesse tumul- rs
-tueuse il aurait été bon, peut-être, de passer à travers È
+tueuse il aurait été bon, peut-être, de passer à travers
 la filière française. Le public anglais est un maître
 dangereux. Il ne vous demande pas comme le nôtre de
 vous contraindre. Il n'exige pas que vous ne disiez que
 l'essentiel. Dans cette dernière œuvre, au contraire, le
 théâtre qui ordonne la concision, le ramassé, a tenu
 l'office de notre discipline. Il a bridé Zangwill, et a
-donné une puissance extraordinaire à ce don qu'il a è
+donné une puissance extraordinaire à ce don qu'il a
 reçu en naissant et dont il fait un fréquent usage, ;
 d'arracher, au moyen d'une scène de farce, nos nerfs
 déjà tendus par une forte situation dramatique. On lira CHERS
@@ -1950,27 +1947,27 @@ où des quantités effroyables de misérables agonisent
 
 dans des ruelles à pic, pleines de détritus »: (r) la Pa- #
 lestine, ce pays dévasté, où les peuples n'ont laissé que
-des pierres brûlantes et de la poussière, sous un amas de 5
+des pierres brûlantes et de la poussière, sous un amas de
 !  tombeaux et d'excréments. Mais d'esprit aussi détaché ss
 de l'orthodoxie et aussi laïque que le docteur Herzl, il
 craignait avec lui qu'un État juif installé dans un pays Fi
-neuf ne laissât indifférente la masse des croyants. Il 3
+neuf ne laissât indifférente la masse des croyants. Il
 espérait au contraire que des hommes qui, à l'issue des -
-fêtes de Rosch-Haschanah, se séparent, chaque année 3
+fêtes de Rosch-Haschanah, se séparent, chaque année
 depuis dix-huit siècles, en se souhaitant « l'an prochain Le
-à Jérusalem », s'enthousiasmeraient à l'idée de Sion 1
+à Jérusalem », s'enthousiasmeraient à l'idée de Sion
 retrouvée et du Temple reconstruit. En effet, le Sionisme fè
 rendit aux Juifs le sentiment de leur unité; Israël se it
-sentit de nouveau une Nation. De tous les pays de la È
-ù Dispersion, des Juifs s'embarquèrent pour Jérusalem. À 2
-Le docteur Herzl négocia avec la Porte. Maïs aban- È
+sentit de nouveau une Nation. De tous les pays de la
+ù Dispersion, des Juifs s'embarquèrent pour Jérusalem. À
+Le docteur Herzl négocia avec la Porte. Maïs aban-
 donné par l'Empereur d'Allemagne, il reçut du Sultan
 au lieu de la Palestine une décoration, et, désespéré,
 malade, chercha dans tous les coins du monde un territoire où transplanter son malheureux peuple. En 1903,
 le Gouvernement anglais lui offrit dans le protectorat ne
-Est-Africain un vaste territoire, avec une charte d'auto- 4
-nomie. Mais les fanatiques qui composaient la majorité 4
-du sixième congrès refusèrent de consacrer un centime 4
+Est-Africain un vaste territoire, avec une charte d'auto-
+nomie. Mais les fanatiques qui composaient la majorité
+du sixième congrès refusèrent de consacrer un centime
 des fonds sionistes aux dépenses de la mission envoyée Fi
 pour reconnaître le pays, et le 27 juillet 1905, un an, jour £ :
 pour jour, après la mort du docteur Herzl, le septième
@@ -1980,7 +1977,7 @@ le territoire Est-Africain. É-
 
 | De Russie des centaines de lettres arrivèrent pour
 supplier les chefs du mouvement d'accepter l'offre
-4 Les rues de Kieff sont pleines de lamentations ; les cosa-
+Les rues de Kieff sont pleines de lamentations ; les cosa-
 : ques, les hooligans abattent, égorgent nos frères et
 s personne n'est là pour nous défendre. Les organisations de
 : la Self-defence sont battues et ne peuvent résister aux
@@ -2002,7 +1999,7 @@ J mille signatures dans la région de Kieff, nous les aurions.
 Fe de Varsovie, d'Élizabethgrad... Nous avons été déclarés
 2 hors la loi ; tout homme a le droit de nous tuer... Il se peut
 î que celui qui vous écxit cette lettre soit tué demain...
-5 Présentez-vous vous-même au Gouvernement anglais et
+Présentez-vous vous-même au Gouvernement anglais et
 ‘ demandez-lui l'Ouganda... Il n'y a qu'un mot à dire et toute
 “= - Vémigration partira pour l'Est-Africain. Au nom de milliers
 É de familles.
@@ -2073,32 +2070,32 @@ pas indispensable; elle n'est qu'un moyen pour une fin
 (1) Cette année même a été tenu à New-York un congrès où
 5.000 fermiers juifs étaient représentés.
 
-qui est l'autonomie. Cette autonomie est absolument M.
+qui est l'autonomie. Cette autonomie est absolument
 nécessaire. À quoi bon se donner le mal de peupler un 8 ‘+ |
 pays neuf, si les colons n'ont pas le contrôle de leur
-administration ? Quelle garantie ont-ils que demain des M
+administration ? Quelle garantie ont-ils que demain des
 lois restrictives de leur liberté économique, politique “A
 ou religieuse ne leur seront pas imposées? : ES
-L'autonomie est seule possible. Les philanthropes ont A4
+L'autonomie est seule possible. Les philanthropes ont
 la prétention de porter les hommes sur leur dos pour
-leur faire passer la rivière. Les hommes ne se sentent 4
+leur faire passer la rivière. Les hommes ne se sentent
 pas très bien là-dessus et n'y montent que lorsqu'ils ne
-peuvent pas faire autrement. Les colonies philanthro- 14
-piques de la Jewish Colonisation Association (I. C. A.) 1e
+peuvent pas faire autrement. Les colonies philanthro-
+piques de la Jewish Colonisation Association (I. C. A.)
 qui administre les fondations Edmond de Rothschild et à
 de Hirsch, rendent de grands services; mais elles … à
 | n'offrent rien qui fasse concurrence à l'attrait malsain
 des grandes villes. Des 13.500 Juifs qui annuellement AU
 débarquent en Argentine, 500 à peine rejoignent les *
 -_ colonies de l'Ica; le reste demeure à Buenos-Ayres où ;
-il forme un ghetto corrompu. L'action de l'Ito au contraire est une action politique. Elle veut construire un ë
+il forme un ghetto corrompu. L'action de l'Ito au contraire est une action politique. Elle veut construire un
 pont pour des hommes libres qui traverseront avec leurs 3%
-propres pieds. Un pays autonome, avec toutes les pos- 42
+propres pieds. Un pays autonome, avec toutes les pos-
 sibilités d'une vie indépendante et fière, un État où des ‘
 citoyens responsables auront la joie de gérer eux-mêmes #
 leurs propres intérêts, exercera une puissante attraction. ne.
-L'autonomie fait peur aux Juifs émancipés. Ils redou- È
-tent que l'existence d'un État juif ne compromette leur È
+L'autonomie fait peur aux Juifs émancipés. Ils redou-
+tent que l'existence d'un État juif ne compromette leur
 propre statut dans les pays de liberté. Bien au contraire. ;
 D'abord le fait de continuer à résider dans leur pays si
 quand ils pourraient émigrer en terre juive prouvera #2
@@ -2198,7 +2195,7 @@ juifs, pouvant en cas de danger se grouper pour la
 Self defence, et disposant d'une certaine puissance électorale, auront une vie respectée. -
 
 Malgré toutes sortes de difficultés de la part du Gouvernement russe, et les railleries de la presse sioniste,
-l'Ito put faire partir un premier groupe d'émigrants le 3
+l'Ito put faire partir un premier groupe d'émigrants le
 premier juillet 1907, et de cette date au premier
 décembre 1907, en a transporté plus de mille. Elle a
 créé en Russie plus de cent cinquante centres d'information, de recrutement et de choix minutieux des émigrants. Elle a obtenu des Compagnies de navigation
@@ -2295,7 +2292,7 @@ venue d'entendre la réponse, que le ciel, depuis des siècles, |
 nous envoie au milieu du tonnerre et des éclairs : Pour VA
 combien de temps encore? Pour combien de temps? ?
 
-1 L'action n'a donc pas appauvri le talent de Zangwill.
+L'action n'a donc pas appauvri le talent de Zangwill.
 | Le plein jour ne l'aveugle pas, comme certains hommes
 ; de lettres que les grands cris du peuple ont attirés un
 | jour hors de leur bibliothèque, et qui, après avoir heurté
@@ -2332,7 +2329,7 @@ pleine de risques, mais fière, et la seule digne d'une
 grande race. « Car, de souffrir depuis deux mille ans
 pour une idée est le privilège qui a été accordé seulement à Israël, le soldat de Dieu. Cela n'est pas une
 tragédie, mais une épopée... La vraie tragédie, la
-tristesse des tristesses, consiste dans le martyre d'un f
+tristesse des tristesses, consiste dans le martyre d'un
 Israël indigne de ses propres souffrances. » (1)
 
 Dernière scène de l'acte II
@@ -2342,7 +2339,7 @@ Votre surprise ne m'étonne pas. Est-ce que vous croyez
 par hasard que je nai pas été surpris, moi ? C'est comme
 | si un ange s'était penché.
 (2) Selon l'habitude anglaise le texte original contient de nombreuses indications d'attitudes scéniques. Je n'ai traduit que les
-plus indispensables. — A. S.
+plus indispensables. — A.
 
 Est-ce bien vrai ? Ce n'est pas quelque stupide farce de
 Vrai el sacré comme le lever du soleil.
@@ -2357,7 +2354,7 @@ Ce n'est pas tant la Synagogue que l'appel de notre sang
 Vous dites ça, vous, vous qui êtes venu ici au cœur du
 Creuset où la fournaise de Dieu fond notre race avec toutes
 les autres.
-Non pas, notre race à nous; non pas ta race et la mienne. é
+Non pas, notre race à nous; non pas ta race et la mienne.
 Quelle immunité a notre race ? L'orgueil et les préjugés,
 les rêves et les sacrifices, les traditions et les superstitions,
 les jeûnes et les fêtes, les choses nobles et les choses
@@ -2370,7 +2367,7 @@ C'est ce que je vois.
 Raillez! Vous tombez à côté. L'amour qui m'a fondu,
 moi, n'est pas celui de Vera, mais l'amour que l'Amérique
 ; me montra le jour où elle me recueillit contre sa poitrine.
-Beaucoup de nations nous ont recueillis. La Hollande k
+Beaucoup de nations nous ont recueillis. La Hollande
 nous reçut quand l'Espagne nous chassa ; mais nous ne
 devinmes pas des Hollandais. La Turquie nous reçut quand
 4 l'Allemagne nous opprima, nous ne sommes pas devenus
@@ -2379,12 +2376,11 @@ devinmes pas des Hollandais. La Turquie nous reçut quand
 ï civilisations marquées du sceau d'une croyance. Ici, dans
 4 cette jeune République laïque, il faut regarder en avant.
 
-4 Il faut aussi regarder en arrière.
+Il faut aussi regarder en arrière.
 
 { Vers quoi, vers Kishineff ? comme si sa vision se dressait devant
 lui. Vers cette face de boucher dirigeant le massacre ; vers
 | - Chut ! calme-toi.
-| 81
 
 Oui, je veux me calmer; mais comment puis-je me
 calmer, sinon en oubliant tout ce cauchemar des religions

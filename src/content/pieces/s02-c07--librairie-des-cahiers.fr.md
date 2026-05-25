@@ -12,7 +12,7 @@ nous avons cessé d'envoyer nos cahiers à tous ceux de
 nos nouveaux abonnés éventuels qui n'avaient pas
 accepté nos reçus, André Bourgeois a fait depuis les
 
-Belgique et autres pays. 187 177 67
+Belgique et autres pays.
 
 La baisse brusque de la Belgique et autres pays pour
 le sixième cahier vient de ce que nos reçus ne nous
@@ -33,7 +33,7 @@ Nous supprimons rigoureusement l'envoi des cahiers
 accepté nos reçus de réabonnement, ne nous ont pas au il
 moins écrit pour nous manifester leurs intentions.
 Nos finances restent lourdes. Je ne puis en donner
-l'état aujourd'hui. Le mouvement des fonds, entrées et Ÿ
+l'état aujourd'hui. Le mouvement des fonds, entrées et
 sorties, est si considérable qu'un état de situation,
 où nous avons commencé la deuxième série, deux
 méthodes se présentaient : la méthode petite-bourgeoïse ,
@@ -60,7 +60,7 @@ répartis ainsi à peu près : LE
 cinq à six cents abonnés de propagande
 %. Dès à présent nos cahiers se suffiraïent à eaxmêmes Fe
 se suffisant à eux-mêmes, les abonnements de souserip-
-- propagande. Mais nous sommes décidés à épuiser nos Æ
+- propagande. Mais nous sommes décidés à épuiser nos
 ments gratuits. Les pauvres ont droit à l'enseignement
 
 - dela vérité. Sans commencer incidemment le cahier
@@ -81,7 +81,7 @@ par de sérieuses références. La plupart de nos abonnés
 gratuits nous assurent que nos cahiers sont beaucoup
 lus autour d'eux et voyagent en pays abandonnés.
 Sur demandes fortement motivées, nous avons gardé
-Décidés que nous sommes à garder toutes nos char- î
+Décidés que nous sommes à garder toutes nos char-
 ges, nous demandons que nos abonnés nous procurent
 les moyens d'équilibrer nos budgets.
 Plusieurs de nos abonnés gratuits ont d'eux-mêmes
@@ -158,7 +158,7 @@ me dirent : Mon cher Péguy nous refusons formellement de t'accorder aucuns subs
 mal administrer nos finances, et te servir de mauvaise
 amitié. — Aujourd'hui que nos cahiers non seulement
 durent mais sont de toutes les institutions socialistes,
-révolutionnaires, libertaires, libérales, républicaines, la ÿ
+révolutionnaires, libertaires, libérales, républicaines, la
 plus viable — avec Pages libres — je prie formellement
 ces quelques anciens amis de vouloir bien nous dire
 nettement s'ils entendent garder la même attitude.
@@ -182,8 +182,8 @@ sur des traitements de professeurs, de répétiteurs,
 d'étudiants, sur des bourses de licence ou d'agrégation,
 sur le produit deleçons particulières, on admettra qu'un
 
-septième cahier de la deuxième série n
-dévouement si parfaitement administré donne aux l.
+septième cahier de la deuxième série
+dévouement si parfaitement administré donne aux
 cahiers une force unique.
 Malheureusement ces dévouements ne sont pas assez
 nombreux. Nos amis immédiats finiraient par succomber
@@ -246,7 +246,7 @@ septième cahier de la deuxième série
 ral calculés de manière que nos abonnés de propagande
 paient leur abonnement en trois ou quatre mensualités
 de deux ou trois francs, et que nos abonnés ordinaires
-paient le leur en quatre mensualités de huit, quatre, 4
+paient le leur en quatre mensualités de huit, quatre,
 quatre et quatre francs. Nous ne faisons d'exceptions
 que pour ceux de nos abonnés que nous connaissons
 Enfin nous fondons La librairie des cahiers, c'est-à-dire

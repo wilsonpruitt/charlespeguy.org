@@ -98,7 +98,7 @@ nôtres, un grand serviteur du peuple, un défenseur du
 prolétariat, j'oserai dire, en prenant le mot dans une
 large acception, un socialiste.
 La victoire du prolétariat est certaine. Ce sont moins
-les efforts désordonnés de nos adversaires que nos pro- É:
+les efforts désordonnés de nos adversaires que nos pro-
 pres divisions et les indécisions de notre méthode qui
 pourraient la retarder. Elle est certaine parce que la ‘à
 nature même des choses et les conditions de la vie l'or-
@@ -151,15 +151,15 @@ pris l'esquisse des machines et des outils; on n'a rien
 omis de ce qui pouvait les montrer distinctement aux
 
 septième cahier de la deuxième série
-Mais ce travail, — celui de d'Alembert lui-même — 3
+Mais ce travail, — celui de d'Alembert lui-même
 tout considérable qu'il est, l'est beaucoup moins que
 celui de M. Diderot, mon collègue. Il est auteur de la
 partie de cette Encyclopédie la plus étendue, la plus
-importante, la plus désirée du public, et, j'ose le dire, 4
+importante, la plus désirée du public, et, j'ose le dire,
 la plus difficile à remplir; c'est la description des arts.
 M. Diderot l'a faite sur des mémoires qui lui ont été
 fournis par des ouvriers ou par des amateurs, dont on
-lira bientôt les noms, ou sur les connaissances qu'il a k
+lira bientôt les noms, ou sur les connaissances qu'il a
 été puiser lui-même chez les ouvriers, ou enfin sur des
 métiers qu'il s'est donné la peine de voir, et dont
 quelquefois il a fait construire des modèles pour les
@@ -213,7 +213,7 @@ M. Barrat, ouvrier excellent dans son genre, a monté
 
 septième cahier de la deuxième série
 et démonté plusieurs fois, en présence de M. Diderot,
-le métier à bas, machine admirable. | K.
+le métier à bas, machine admirable.
 
 des lumières sur la bonneterie.
 MM. Bonnet et Laurent, ouvriers en soie, ont monté
@@ -225,12 +225,12 @@ M. Papillon, célèbre graveur en bois, a fourni un
 mémoire sur l'histoire et la pratique de son art.
 M. Fournier, très habile fondeur de caractères d'imprimerie, en a fait autant pour la fonderie des caractères.
 
-M. Favre a donné des mémoires sur la serrurerie, 4
+M. Favre a donné des mémoires sur la serrurerie,
 taillanderie, fonte des canons, etc., dont il est bien
 désirer sur la connaissance de son art. : .
 
 M. Hill, Anglais de nation, a communiqué une verrerie
-anglaise exécutée en relief et tous ses instruments, i
+anglaise exécutée en relief et tous ses instruments,
 avec les explications nécessaires.
 
 de Puisieux, Charpentier, Mabile et de Vienne
@@ -249,20 +249,20 @@ Ce cahier a été composé par des ouvriers syndiqués
 écrire très lisiblement et d'un seul côté de la page.
 FÉ Quand leurs études sont d'ensemble et un peu longues,
 ils peuvent les rédiger. Mais toutes les fois qu'ils nous
-erwoient des renseignements pour ainsi dire instantanés, 3
+erwoient des renseignements pour ainsi dire instantanés,
 Res mieux vaut nous écrire privément et laisser au citoyen
 Æ rédacteur le soin d'exercer son métier.
 La rédaction. et l'administration des cahiers sont
 installées 16, rue de la Sorbonne, au second.
-a M. André Bourgeois, administrateur des cahiers, Ë
+a M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration tous les jours de la
 semaine, le dimanche excepté, — le matin de dix
 M. Charles Péguy, gérant des cahiers, reçoit pour
-la rédaction k
+la rédaction
 le jeudi soir de deux heures à cinq heures et de pa.
 huit heures à dix heures. - : kAdresser à M. André Bourgeois, administrateur des he
 cahiers, 16, rue de la Sorbonne, Paris, la correspon- pe
-dance d'administration : abonnements et réabonnements, È
+dance d'administration : abonnements et réabonnements,
 rectifications et changements d'adresse, cahiers man-
 quants, mandats, indication de nouveaux abonnes. .
 N'oublier pas d'indiquer dans la correspondance le .
@@ -272,7 +272,7 @@ Adresser à M. Charles Péguy, gérant des cahiers,
 rue de la Sorbonne, Paris, la correspondance de
 rédaction et d'institution. Toute correspondance d'admi-
 nistration adressée à M. Péguy peut entraîner pour
-la réponse un retard considérable. k
+la réponse un retard considérable.
 Nos collections de la première série sont toutes
 épuisées. Nous prions ceux de nos abonnés qui ont des
 exemplaires en double ou qui ne tiennent pas à garder.
@@ -287,7 +287,7 @@ Nous faisons dans nos bureaux les plus fortes réductions usuelles, c'est-à-dir
 
 exactement aux prix de l'Odéon.
 Nous envoyons franco à domicile à Paris aux mêmes
-Nous envoyons franco à domicile en province et à s
+Nous envoyons franco à domicile en province et à
 l'étranger aux prix marqués pour toute commande
 Nous envoyons franco à domicile en province et
 l'étranger avec les plus fortes réductions usuelles, Me

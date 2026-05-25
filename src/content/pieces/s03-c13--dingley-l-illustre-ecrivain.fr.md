@@ -558,7 +558,7 @@ Ainsi, je suis absolument sûr de mourir en France,
 en Beauce, dans mon lit.
 — Et moi en Angleterre, dans le comté
 — .… Et voyez, disait à l'autre bout de la table
-un jeune lieutenant, sir George Harvey, blessé à Û
+un jeune lieutenant, sir George Harvey, blessé à
 Colenso, et qui revenait prendre du service en
 Afrique, ces Boers sont si simples qu'ils sont incapables de se servir de la hausse de leurs mauser!
 
@@ -841,7 +841,7 @@ Le roi se leva violemment de son trône.
 
 — Qu'exigent-ils donc encore d'Elle ? interrogea
 — Sa vie. Ils veulent qu'au terme de sa route
-elle plonge au fond du lac où l'attend le prince des w
+elle plonge au fond du lac où l'attend le prince des
 * Les jours suivants le roi épia désespérément le
 Ciel, vers l'Ouest, pour voir si quelque nuage n'arrivait pas. Maïs le ciel restait d'un bleu impassible
 et la famine ravageait la ville. Le peuple contraignit Djehangir comme il avait contraint les Brahmanes. Il dut expliquer à sa fille ce que les Dragons voulaient d'elle. La belle Harribakti était
@@ -879,7 +879,7 @@ poser sur la mer.
 _— Bast! C'est vain de s'intéresser à ces vieillevies, dit en souriant Dingley, quand il y a dans notre
 monde de bien autrement tragiques histoires.
 
-Le temps était passé d'écrire des histoires bonnes é
+Le temps était passé d'écrire des histoires bonnes
 à amuser les enfants; il fallait écrire pour des
 hommes! Dingley avait hâte d'arriver au Cap, de
 
@@ -1114,7 +1114,7 @@ de la mortalité qui règne ici, parmi les enfants.
 Mais qu'y faire? Si le général en chef les avait
 laissés eux et leurs mères dans les fermes, ils y
 seraient morts de faim. Que la responsabilité du
-sang versé retombe sur ceux qui s'obstinent à con- l
+sang versé retombe sur ceux qui s'obstinent à con-
 tinuer la guerre avec un entêtement féroce et
 stupide... Dites à Archie que je lui rapporterai un
 grand fouet boer long de neuf pieds et des boîtes
@@ -1413,20 +1413,20 @@ son hôtel. Dingley commanda ses malles.
 I1 plaça dans une sacoche de cuir qu'il portait
 toujours avec lui les pages rédigées de son roman,
 ses notes, ses photographies ; il paya ses fournis- à
-seurs, fit quelques visites indifférentes. Quand il f
+seurs, fit quelques visites indifférentes. Quand il
 eut tout fini, il s'aperçut qu'il lui restait encore
 deux heures avant le dîner : il erra dans les rues de
 Bloemfontein. Lors de son premier voyage au Cap, À
 
-ilavait visité la ville. C'était alors une ville de E
+ilavait visité la ville. C'était alors une ville de
 
 paysans avec ses rues larges comme une piste de
 chars, bordées de petites maisons de briques à un
-étage. IL était arrivé un jour de marché. Il se sou- È
+étage. IL était arrivé un jour de marché. Il se sou-
 
 vint des longs chariots, avec leurs bâches, alignés À
 
-sur la grande place comme les tentes d'un camp... l
+sur la grande place comme les tentes d'un camp...
 
 Il erra dans les rues, pénétré d'un sentiment nouveau: l'ennui.
 
@@ -1471,11 +1471,11 @@ mortalité infantile était terrifiante. Maïs tant que À
 Archie avait été bien portant, il n'en avait pas eu
 Le Major avait bégayé à tous les officiers qu'il
 avait vus que Dingley dinait, ce soir-là, au mess. L'
-Aussi la salle était pleine quand le romancier entra. M
+Aussi la salle était pleine quand le romancier entra.
 Chacun s'attendait à lui entendre raconter deshis
-toires et des impressions de guerre. Mais Dingley M
+toires et des impressions de guerre. Mais Dingley
 n'était pas d'humeur à raconter des histoires. La
-tristesse de sa mine découragea les questionneurs. i
+tristesse de sa mine découragea les questionneurs.
 Le bruit se répandit vite, autour de la table, que
 son fils était malade. Il écoutait, l'esprit ailleurs,
 ce qu'on disait près de lui. La grimace de Mr. Colgrave l'avait épouvanté. Le vieux médecin était à
@@ -1517,10 +1517,10 @@ travers le verre plein Dingley aperçut son nez d'i- .
 vrogne démesurément grossi par la réfraction :
 — Messieurs, à la santé de l'illustre écrivain qui...
 Côte pour suivre les opérations de la guerre.
-— L'imbécile! murmura Harvey. On n'est pas L
+— L'imbécile! murmura Harvey. On n'est pas
 plus maladroit!
 Harvey monta près de Dingley dans le cabriolet
-qui attendait à la porte. Ils franchirent sans mot L
+qui attendait à la porte. Ils franchirent sans mot
 dire la distance qui les séparait de la gare. Le lieu- y LEUR
 
 tenant sentait que tout ce bruit de fête avait irrité
@@ -1579,7 +1579,7 @@ voie serait plus sûre. On avancerait plus vite... Il
 espérait trouver là-bas une dépêche de Jeanne : il
 fut déçu. Aucune dépêche ne l'attendait. Son
 
-1 Une nuit — il somnolait, étendu sur la chaise
+Une nuit — il somnolait, étendu sur la chaise
 longue — il fut éveillé par des jurons et des cris, et
 le piétinement d'une troupe d'hommes le long du train.
 
@@ -1611,7 +1611,7 @@ n'avait été touché qu'un cheval et le pauvre diable
 étendu là. Le blessé regardait de tous ses yeux,
 écoutait de toutes ses oreilles.
 Ses regards étaient épouvantés. Dingley lui
-Il ouvrit la bouche. Aucun son n'en put sortir. l
+Il ouvrit la bouche. Aucun son n'en put sortir.
 — Sir, répondit un cavalier, il comprend tout
 ce qu'on lui dit, mais il ne peut pas parler. La balle,
 qui lui a pourtant à peine effleuré le dos, lui a
@@ -1619,8 +1619,8 @@ coupé la parole. Il ne peut rien dire, ni faire aucun
 mouvement. C'est étrange, voyez sir, une blessure
 de rien. à
 Il releva doucement le blessé et par l'ouverture
-de la chemise déchirée Dingley vit au milieu du dos J
-une petite rainure sanglante, très peu profonde, et . l
+de la chemise déchirée Dingley vit au milieu du dos
+une petite rainure sanglante, très peu profonde, et
 large de quelques centimètres.
 — En route, cria le mécanicien, arrangez-vous
 comme vous voudrez. Il faut arriver à l'heure.
@@ -1666,11 +1666,11 @@ attachés aux planches noires du plafond, il était
 effrayant à voir. De temps en temps, un cahot du
 train lui arrachait un gémissement sourd ; les traits
 de son visage se convulsaient, et puis il reprenait
-sa rigidité cadavérique. J
+sa rigidité cadavérique.
 
 Dingley pensa que cethomme aurait volontiers
 donné, s'il les eût possédés, tous les trésors de cette
-terre, cette terre elle-même, pour seulement pou- ù
+terre, cette terre elle-même, pour seulement pou-
 voir remuer le bout de sa langue.
 
 Il ressemblait à Barr; il avait la taille, les yeux, À
@@ -1680,7 +1680,7 @@ l'écrivain fit une comparaison mélancolique :
 
 JIl aurait mieux fait de rester à Londres, de ne
 connaître pour décrire la guerre que les nouvelles
-- données par les journaux. Il y avait, décidément, . k.
+- données par les journaux. Il y avait, décidément,
 des choses capables de troubler la vision de l'artiste le mieux trempé. Ainsi, il avait souvent vu des gens mourir, sans. en ressentir le moindre effroi.
 Mais il n'avait pas encore vu de blessé pareil à ce
 singulier camarade de chambre — un mort vivant.
@@ -1726,7 +1726,7 @@ d'une chambre. |
 — Mort? cria Dingley d'une voix rauque.
 
 Elle tomba dans ses bras : étroitement enlacés ils
-L'Hindoue sortit de la chambre éclairée, au fond Ë
+L'Hindoue sortit de la chambre éclairée, au fond
 
 de laquelle luisait la tête pâle de Archie entre les
 bougies allumées. Elle prit la main de Dingley et la

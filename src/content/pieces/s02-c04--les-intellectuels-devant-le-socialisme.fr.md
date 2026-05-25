@@ -16,7 +16,7 @@ veuille, systématiquement ou par négligence, continuer d'en ignorer
 les tendances.
 Idéal moral, il doit rallier toutes les consciences qui, dans le
 désordre de la sociélé actuelle et en présence de la faillite de l'idéal “À
-chrétien et du libéralisme bourgeois, cherchent à donner un sens x
+chrétien et du libéralisme bourgeois, cherchent à donner un sens
 nouveau, plus profond et plus élevé à la vie
 Conception scientifique, il doit salisfaire tous les esprits anxieux ?
 de vérité, puisqu'il donne la clé du devenir moderne et qu'il consti-
@@ -176,7 +176,7 @@ nous le pouvons, les termes du problème.
 
 . Nous envisagerons d'abord, avant la situation
 particulière qui concerne la France, la position
-générale de la question. Je veux dire que nous Ÿ
+générale de la question. Je veux dire que nous
 essaierons de déterminer ce qu'il convient d'entendre par socialisme et par intellectuels, de suivre sé-
 parément l'évolution de ces deux facteurs sociaux,
 et de rechercher les causes et les résultats de leur
@@ -241,7 +241,7 @@ Voilà en quel sens le mouvement ouvrier est
 l'épine dorsale du mouvement socialiste. C'est à lui
 qu'il incombe historiquement de réaliser la fin poursuivie : il y a seul un intérêt majeuretil en est seul
 capable. Il est à la fois l'aboutissant de l'histoire et
-l'avenir de l'histoire. j
+l'avenir de l'histoire.
 
 J'ai tenu à rappeler que le socialisme moderne
 est avant tout un mouvement prolétarien, parce que
@@ -256,7 +256,7 @@ semble d'idées, de sentiments et d'institutions qui
 sont propres à la classe ouvrière et qui s'opposent
 à tout ce qui existe.
 Le mouvement socialiste est, au second degré,un
-mouvement humain. Le socialisme se justifie non i
+mouvement humain. Le socialisme se justifie non
 seulement par des nécessités historiques, mais en-
 core par des nécessités et par des obligations mo-
 rales. Avec et par la classe ouvrière il émancipera
@@ -306,7 +306,7 @@ quelque peu développée, qui ont, si vous voulez,
 reçu un enseignement secondaire ou supérieur, et
 avant tout ceux qui exercent les professions libé-
 écrivains, etc. — On y fait entrer ensuite les
-ouvriers d'art, les employés de bureau, etc., —en un j
+ouvriers d'art, les employés de bureau, etc., —en un
 mot tous ceux dont l'activité pratique. est d'ordre
 spécialement cérébral : c'est en ce sens que le terme
 d'intellectuel s'oppose au terme de manuel.
@@ -343,7 +343,7 @@ d'être semblables. La situation d'un pauvre journa-
 
 liste à 150 ou 200 franes par mois n'a rien de commun
 avec la situation d'un rédacteur en chef à 1000 ou
-francs d'appointements mensuels. Vous pouvez i
+francs d'appointements mensuels. Vous pouvez
 voir ainsi combien il est inexact de parler, au sens -
 strictement social du mot, d'une classe des intellectuels. Une classe est une catégorie d'individus unis
 par des intérêts économiques et moraux à peu près
@@ -1218,7 +1218,7 @@ Ce qui constitue aujourd'hui le danger fera la
 puissance du socialisme. Jamais notre mouvement
 n'a eu tant besoin des forces vives de la pensée; il
 va falloir, à mesure que s'étend le domaine de son
-action pratique, qu'il ait à sa disposition des spécia- î
+action pratique, qu'il ait à sa disposition des spécia-
 listes compétents, qui le renseigneront sur toutes les
 questions qui exigent des connaissances techniques.
 La classe intellectuelle peut lui fournir ces spécialistes, comme elle lui donne déjà ses savants. Pour

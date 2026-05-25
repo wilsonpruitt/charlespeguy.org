@@ -8,7 +8,7 @@ isAvertissement: false
 wordCount: 6900
 ocrSource: "Wikisource ws-export 2026-05-25"
 ---
-Et il arrivera, quand ton fils te questionnera, dans les temps à venir, disant : « Qu’est ceci ? » que tu lui répondras : « Par la force de sa main le Seigneur nous a tirés d’Égypte, de la maison d’esclavage ; et… le Seigneur frappa tous les premiers nés dans le pays d’Égypte… Mais tous les premiers nés de mes enfants, je les ai sauvés. » Exode, XIII, 14, 15.
+Et il arrivera, quand ton fils te questionnera, dans les temps à venir, disant : « Qu’est ceci ? » que tu lui répondras : « Par la force de sa main le Seigneur nous a tirés d’Égypte, de la maison d’esclavage ; et… le Seigneur frappa tous les premiers nés dans le pays d’Égypte… Mais tous les premiers nés de mes enfants, je les ai sauvés. » Exode, XIII,
 
 Chad Gadya ! Chad Gadya ! un seul chevreau de la chèvre !
 

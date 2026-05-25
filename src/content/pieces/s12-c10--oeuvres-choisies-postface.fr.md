@@ -174,7 +174,7 @@ employé dans les sens les plus divers. Ainsi dans la
 langue religieuse il signifie « honorer par des dons » :
 *augere aram donis.* On dit de même : *augere aliquem
 divitiis, auctus filio,* (1) *augere aliquem nominibus impe-
-ratoris. Augeo* signifie aussi « créer ». Lucrèce, v, 322.
+ratoris. Augeo* signifie aussi « créer ». Lucrèce,
 *Nam quodcunque alias ex se res auget alitque, Deminui
 debet.* — Ces différents sens se retrouvent dans *auctor.* Il
 signifie « fondateur, père ». Virgile, vii, 49. *Isque paren-

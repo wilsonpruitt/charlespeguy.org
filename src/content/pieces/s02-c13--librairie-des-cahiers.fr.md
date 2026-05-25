@@ -16,7 +16,7 @@ de nouvelles sections, et nous leur envoyons éventuellement nos cahiers. Nous a
 dans la Paix par le Droit les citoyens qui agissent
 contre la guerre et nous leur envoyons éventuellement
 nos cahiers. Nous prions tous ces abonnés éventuels de
-vouloir bien nous manifester sans retard leurs inten- ï
+vouloir bien nous manifester sans retard leurs inten-
 Nous avons dû supprimer nos abonnements gratuits
 (44 (1) Jean Coste ou l'instituteur de village.
 treisième cahier de la deuxième série
@@ -62,11 +62,11 @@ d'un abonnement ordinaire. Nous ne les vendons qu'à
 nos abonnés.
 Dans leur première série les Cahiers de la Quinzaine
 ont publié
-un dossier de l'affaire Liebknecht — attitude et intervention de Liebknecht dans l'affaire Dreyfus épuisé s
+un dossier de l'affaire Liebknecht — attitude et intervention de Liebknecht dans l'affaire Dreyfus épuisé
 un dossier de la préparation du premier congrès socialiste national, tenu à Paris en décembre 1899 épuisé
 discussion à la Chambre de la proposition de loi,
 adoptée par le Sénat, portant modification de la loi du
-novembre 1892 sur le travail des enfants, des filles k
+novembre 1892 sur le travail des enfants, des filles
 mineures et des femmes dans les établissements industriels, compte rendu sténographique officiel épuisé
 plusieurs articles, allocutions et discours d'Anatole
 consultation internationale ouverte à la Petite République sur l'affaire Dreyfus et le cas Millerand
@@ -97,7 +97,7 @@ tions complètes. Les cahiers qui peuvent aujourd'hui
 leur sembler oiseux entrent en série tout de même et
 ceux de nos abonnés qui dans dix ans auront la collec
 tion complète pourront alors s'apercevoir que les séries
-n'ont pas été composées au hasard. s
+n'ont pas été composées au hasard.
 Nous devons renoncer à publier en cette fin d'année
 un index des deux premières séries. Non qu'un index
 ne soit très utile. Mais nous n'avons pas le temps d'en
@@ -112,7 +112,7 @@ Dans leur deuxième série les Cahiers de la Quinzaine
 ont publié
 le programme de l'École des Hautes Études Sociales
 pour l'année scolaire 1900-1907 épuisé
-le discours lu par M. Boutroux et l'allocution prononcée par M. Duclaux le lundi 12 novembre 1900, i
+le discours lu par M. Boutroux et l'allocution prononcée par M. Duclaux le lundi 12 novembre 1900,
 pour l'inauguration de l'École des Hautes Études
 René Salomé, — vers l'action 2 francs
 le théâtre social, — conférence faite par Jaurès le dimanche 22 juillet 1900 au théâtre de la République,
@@ -126,7 +126,7 @@ MM. Paul Mantoux et Charles Guieysse au cahier de
 cahier d'annonces : les journaux pour tous
 la société des visiteurs
 le Mouvement Socialiste
-la Revue d'Art Dramatique ÿ
+la Revue d'Art Dramatique
 s société nouvelle de librairie et d'édition
 programme de l'école socialiste pour l'année scolaire 1900-1901 I franc
 ‘ quelques éléments d'un dossier du récent mouvement
@@ -134,7 +134,7 @@ pour la liberté en Russie I franc
 
 treizième cahier j de la deuxième série
 le programme du collège libre des sciences sociales
-pour l'année scolaire 1900-1901 > I franc k
+pour l'année scolaire 1900-1901 > I franc
 Dans la même série les Cahiers publieront
 un dossier complet du mouvement russe depuis
 l'excommunication de Tolstoi
@@ -177,7 +177,7 @@ les demande.
 Les cahiers épuisés de la deuxième série ne sont
 envoyés qu'aux nouveaux abonnés fermes à la
 Depuis le premier juin nous n'avons maintenu sur
-nos listes que s
+nos listes que
 a) les abonnés qui ont payé une somme égale ou
 supérieure à huit francs pour leur abonnement à la
 b) les abonnés qui paient régulièrement leur abonnement par mensualités ou fractions.
@@ -189,7 +189,7 @@ Marcel et Pierre Baudouin : Jeanne d'Arc, drame en
 Jérôme et Jean Tharaud : la lumière ; ! .
 
 Pierre Baudouin : Marcel, premier dialogue de la
-Envoyer un franc pour les frais d'envoi. Ÿ
+Envoyer un franc pour les frais d'envoi.
 
 La grosse importance industrielle et commerciale des
 cahiers qui achèvent la deuxième série nous empêche
@@ -308,7 +308,7 @@ tement aux prix de l''Odéon, pour toute commande
 égale ou supérieure à onze francs.
 Notre service de librairie est rigoureusement réservé
 à nos abonnés.
-N'ayant aucune avance, nous ne pouvons opérer qu'au e
+N'ayant aucune avance, nous ne pouvons opérer qu'au
 comptant ou sur provision déposée. '
 Nos abonnés de Paris, de la province ou de l'étranger
 qui veulent recevoir leurs livres franco à domicile n'ont
@@ -328,14 +328,14 @@ quantaine au plus que tout honnête homme et toute
 honnête société doit avoir dans sa bibliothèque. Nous
 annonçons ces honnêtes livres, non pas en les jugeant
 et en les absolvant, mais en disant en bref, du mieux
-que nous pouvons, toutes les fois que nous le pouvons, 4
+que nous pouvons, toutes les fois que nous le pouvons,
 
 ce qu'il y a dedans. C'est dire que nous procédons le
 plus souvent par voie de citations, tables et résumés.
 Nous attirons l'attention de nos abonnés sur ce qu'il
 y aurait de parasitaire à commander ailleurs que chez
 nous les livres qu'ils n'auraient connus que par nous.
-Comme les livres les meilleurs ne sont pas les plus i
+Comme les livres les meilleurs ne sont pas les plus
 connus, nous prions instamment ceux de nos abonnés
 qui découvriraient des livres de vouloir bien nous faire
 part de leurs découvertes.
@@ -346,11 +346,11 @@ Ceux de nos abonnés qui demeurent à Paris nous
 feront plaisir en venant acheter leurs livres dans nos
 bureaux. Notre situation est centrale, en ce sens que
 nous sommes à cinq minutes, et moins, de l'Odéon.
-Nous prions ceux de nos abonnés qui auraient l'intention de nous acheter des livres pour les vacances de 3 ï
+Nous prions ceux de nos abonnés qui auraient l'intention de nous acheter des livres pour les vacances de
 vouloir bien nous les commander avant la fin de juillet.
 Il est indispensable que le personnel des cahiers prenne
 un mois et demi de vacances, du lundi premier juillet
-Nous sommes heureux surtout de fournir aux biblio- k
+Nous sommes heureux surtout de fournir aux biblio-
 thèques. Nous ne saurions trop engager nos amis
 perdus des campagnes et des petites villes à fonder
 sans formalités des bibliothèques. Autant les groupes
@@ -407,7 +407,7 @@ n'en reste pas moins cette dette. J'en donnerai une
 idée en disant que le déficit n'existerait pas
 a) si nous n'avions jamais servi d'abonnements
 b) si nous avions fondé la librairie des cahiers en
-même temps que les cahiers; ÿ
+même temps que les cahiers;
 c) si nous n'avions pas eu à faire le lancement de la
 Je dirai ailleurs ou j'ai dit ?
 a) pourquoi nous avons servi des abonnements
@@ -415,7 +415,7 @@ b) pourquoi nous n'avons pas fondé la librairie des
 cahiers en même temps que les cahiers;
 c) pourquoi nous avons fait le lancement de la
 Provisoirement il suffit que l'on sache
-a) que nous ne servons plus d'abonnements gratuits ; É
+a) que nous ne servons plus d'abonnements gratuits
 b) que la librairie des cahiers marche bien
 c) que nous n'aurons plus jamais à faire un grand
 Il reste qu'il ya pour le présentun déficit, pourlequelje
@@ -440,12 +440,12 @@ simple probité demande que tous ceux qui nous lisent
 contribuent quelque peu à nous rémunérer. On ne peut
 demander que nos cahiers travaillent pour un salaire
 de famine. Toutes les fois que dans les campagnes et
-dans les villes de province nos cahiers sont lus en com-  : L
+dans les villes de province nos cahiers sont lus en com-
 -  mun, que nos lecteurs s'entendent pour s'abonner et
-pour souscrire en commun, sans aucunes formalités. Æ
+pour souscrire en commun, sans aucunes formalités.
 Outre qu'elle produit beaucoup plus, la souscription
 mensuelle régulière a cet avantage moral incomparable
-qu'elle demande au souscripteur une attention constante, une activité maintenue, un effort soutenu. L'ou- k
+qu'elle demande au souscripteur une attention constante, une activité maintenue, un effort soutenu. L'ou-
 vrier, l'employé, le professeur, le répétiteur, l'institu__ teur qui pense à nous au commencement de chaque
 mois nous console plus que tout des anciens lâchages
 Des amis nous demandent parfois pourquoi nous
@@ -465,8 +465,8 @@ notre connaissance et parmi les républicains il a été
 commis Cette année au moins quatre tentatives de
 la première contre les Cahiers de la Quinzaine;
 la deuxième contre la Coopération des idées;
-la troisième contre les Temps nouveaux; 4
-la quatrième contre le Mouvement Socialiste. ÿ
+la troisième contre les Temps nouveaux;
+la quatrième contre le Mouvement Socialiste.
 Je me permets de nommer ici boycottage l'affamement
 concerté de camarades faibles par des camarades forts. “E
 Pour des raisons que nous donnerons ailleurs, nous
@@ -477,7 +477,7 @@ le Mouvement Socialiste quand nous publierons un
 ou plusieurs comptes rendus que nous avons du congrès
 Nous publions aujourd'hui un dossier du boycottage
 exercé contre les Temps nouveaux et un dossier de la
-Coopération des idées. g.
+Coopération des idées.
 
 Nous lisons dans le Socialiste, organe central du
 Parti ouvrier français, numéro du 9-16 juin : Le
@@ -509,16 +509,16 @@ dhon de pet
 de le comprend .
 les lecteurs des
 aises de sa
-fargue, dit M.
-invité les filles d
+fargue, dit
+invité les filles
 sur son tombeau
-servateurs et r
+servateurs et
 Si Proudhon est
-En jetant les yeux s
+En jetant les yeux
 spécial pour le socialisme !
-fait bourgeois, d'aprés c
+fait bourgeois, d'aprés
 Nous avons reçu cette lettre : : Ÿ x .
-PARIS C'est moi qui ai rendu n.
+PARIS C'est moi qui ai rendu
 Téléphone 801-04 tration de la Société Nouvelle du
 roman de M. Lavergne. Je suis obligé
 d'opposer un démenti catégorique aux propos que vous

@@ -22,7 +22,7 @@ monochinomes et polycinomes, Sur chine, au prix net dm. ............. 400 fuanc$
 5 collections, $ux japon ancien, d'épreuves monochnomes et polychnomes, au prix de 425 Francs
 16 collections, $ur chine, d'épreuves monochromes et polychnomes, au prix netäe 400 francs
 
-120 i d'imprimer trois mille exemplaires de ce septième cahier 14
+120 i d'imprimer trois mille exemplaires de ce septième cahier
 
 Il est impossible de suivre honnêtement le mouvement litté- ue, /
 raire, le mouvement d'art, le mouvement politique et social si ne | H à
@@ -32,7 +32,7 @@ d'envoyer un mandat de trois francs cinquante à M. André ae |
 Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, 4 à
 rez-de-chaussée, Paris, cinquième arrondissement. On recevra en à: 2 |
 Pour savoir ce qui a paru dans les cinq premières séries des el <
-cahiers, 1900-1904, envoyer un mandat de cinq francs à M. André > 1
+cahiers, 1900-1904, envoyer un mandat de cinq francs à M. André >
 Bourgeois, même adresse ; on recevra en retour le catalogue analy- Be |?
 tique sommaire, 1900-190f, de nos cinq premières séries, premier 4 |
 | cahier de la sixième série, un très fort cahier de XII+408 pages |
@@ -40,13 +40,13 @@ k très denses, in-18, grand jésus, marqué cinq francs. E ||$
 Pour s'abonner à la sixième série des cahiers, qui est la ee ||
 | série en cours, envoyer un mandat de vingt francs à M. André EE |
 | Bourgeois, même adresse; on recevra en retour les cahiers déjà E |
-Û parus de cette sixième série; puis on recevra de quinzaine en -4
+Û parus de cette sixième série; puis on recevra de quinzaine en
 quinzaine, à leur date, les cahiers à paraître; toute personne qui D |
 s'abonne à la sixième série reçoit donc automatiquement le |
 premier cahier de cette série, qui est le catalogue analytique Re |
 : sommaire de nos cinq premières séries. 54 |
 l Nous mettons le présent cahier dans le commerce; septième Dee | £
-Le cahier de la sixième série; un cahier vert de 188 pages; in octavo | È
+Le cahier de la sixième série; un cahier vert de 188 pages; in octavo
 À grand jésus ; nous le vendons vingt francs. , ee |
 
 (Ma tragédie de Tristan et Iseut
@@ -55,25 +55,25 @@ ES | paraissant vingt fois par an
 
 Il est impossible de suivre honnêtement le mouvement litté-
 raire, le mouvement d'art, le mouvement politique et social si
-l'on n'est pas abonné aux Cahiers de la Quinzaine. à ; 38
+l'on n'est pas abonné aux Cahiers de la Quinzaine. à
 Pour savoir ce que sont les Cahiers de la Quinzaine, il suffit à à
 d'envoyer un mandat de trois francs cinquante à M. André +8)
 Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, nue
 rez-de-chaussée, Paris, cinquième arrondissement. On recevra en Bée
 Pour savoir ce qui a paru dans les cinq premières séries des Mo:
 cahiers, 1900-1904, envoyer un mandat de cinq francs à M. André ra
-Bourgeois, même adresse ; on recevra en retour le catalogue analy- 5e
+Bourgeois, même adresse ; on recevra en retour le catalogue analy-
 tique sommaire, 1900-1904, de nos cinq premières séries, premier ir
 cahier de la sixième série, un très fort cahier de XI+408 pages : ee
 très denses, in-18, grand jésus, marqué cinq francs. , ee
-Pour s'abonner à la sixième série des cahiers, qui est la 2
+Pour s'abonner à la sixième série des cahiers, qui est la
 série en cours, envoyer un mandat de vingt francs à M. André sn
 Bourgeois, même adresse; on recevra en retour les cahiers déjà FU
-parus de cette sixième série; puis on recevra de quinzaine en 6
+parus de cette sixième série; puis on recevra de quinzaine en
 quinzaine, à leur date, les cahiers à paraître; toute personne qui VE LA
-s'abonne à la sixième série reçoit donc automatiquement le 22
-premier cahier de cette série, qui est le catalogue analytique 5
-sommaire de nos cinq premières séries. 34
+s'abonne à la sixième série reçoit donc automatiquement le
+premier cahier de cette série, qui est le catalogue analytique
+sommaire de nos cinq premières séries.
 Nous mettons le présent cahier dans le commerce; septième …
 cahier de la sixième série; un cahier vert de 188 pages; in octavo Fe
 grand jésus ; nous le vendons vingt francs. , TE
@@ -129,7 +129,7 @@ pour que de même il soit le jour
 où ressuscitent les héros,
 ceux de la force, ceux du triomphe, ceux de la douleur,
 les joies, les désirs, les peines
-des simples chairs mortelles 1
+des simples chairs mortelles
 avec les amours
 des simples âmes humaines ;
 : nous offrons ce poème.
@@ -214,7 +214,7 @@ Morholt, le bon géant, travaillant mdompté
 A l'œuvre de justice et de salubrité ?
 Ah! Maintenant qu'il gît dans le cuir funéraire,
 . Nous appelons en vain après l'oncle et le frère,
-Dans cette terre ouverte à tous les ennemis, s
+Dans cette terre ouverte à tous les ennemis,
 L'ouvrier des labeurs auxquels rien n'est promis!
 Qu'il nous reste du moins cette triste vengeance
 De maudire en lui-même, en toute son engeance,
@@ -237,16 +237,16 @@ Troubler pour les chagrins dont leur deuil s'est accru!
 Ton âme, indifférente au deuil qui nous attriste,
 Pleure, en pleurant Morholt, ta douleur égoïste!
 Écoute ! Les rumeurs grandissent, dirait-on ;
-4 Et des sanglots traînants n'empruntent plus le ton
+Et des sanglots traînants n'empruntent plus le ton
 Ah! Que ne se peut-il que ma bouche déploie
-Pour nous et pour Iseut, un même cri de joie! 1
+Pour nous et pour Iseut, un même cri de joie!
 
 Le monstre a donc péri ?
 Tu ne dévoreras
 Plus jamais, noir griffon, les vierges aux beaux bras ! :
 O sourire du ciel, lumière, magnifie
 D'un grand éclat ce jour qui sauve et purifie !
-Tout le sang a coulé hors de l'horrible cou! è
+Tout le sang a coulé hors de l'horrible cou!
 | Et quel guerrier, Brangien, a su frapper ce coup?
 | J'ignore encor comment la bête haletante, &
 Et par qui, succomba dans la commune attente ;
@@ -255,7 +255,7 @@ Je n'ai vu que la peur publique s'envoler !
 ; Que ma virginité docile à l'hyménée
 Lui demande pourtant encore une journée !
 
-la tragédie de Tristan et Iseut ë
+la tragédie de Tristan et Iseut
 
 Faudra-t-il donc, princesse au teint des pâles fleurs,
 Sur ton jour nuptial que nous versions des pleurs ?
@@ -270,7 +270,7 @@ Pourra, chère Brangien, par ta main empressée
 
 : D'un sublime bonheur recevoir le trésor!
 
-Éclaircissez pour moi ce mystère du sort ? Ù
+Éclaircissez pour moi ce mystère du sort ?
 
 Au fond de nos forêts je sais l'herbe d'un philtre
 ë Par qui l'amour durable aux cœurs mortels s'infiltre
@@ -322,13 +322,13 @@ Diffère des liqueurs dont rien ne peut durer !
 
 ; Pendant l'éternité persévérant dans l'être,
 Du verbe de l'amour gravant en lui la lettre, €
-Son pouvoir à tel point saisit l'âme et l'étreint j
+Son pouvoir à tel point saisit l'âme et l'étreint
 Qu'il la suit dans la mort au pâle souterrain !
 Sitôt qu'un des amants cède au froid qui le navre,
 Le blème survivant tombe au blème cadavre
 Et couché près de lui, douloureux et vaincu, -
 à Il meurt de cet amour, dont il avait vécu!
-3 Reine! Reine ! Mon corps entier, — hélas! — frissonne
+Reine! Reine ! Mon corps entier, — hélas! — frissonne
 Tandis que ce discours prophétique résonne
 Aux voûtes du palais comme le glas d'airain,
 Sinistre et menaçant, du destin souverain!
@@ -355,7 +355,7 @@ Ah! la porte légère
 S'ouvre.. Quel est cet homme à l'armure étrangère ?
 Quelqu'un qui devant vous a pour tout bouclier
 Une seule prière, ardente à supplier !
-12 1
+12
 
 Et que demande-t-il ?
 
@@ -443,7 +443,7 @@ ts Frottez ses tempes de cette eau.
 Il parle! L'avez-vous entendu ?
 Bel oncle, le palais qui s'étend sur mon front,
 Est-ce le vôtre?
-17 2
+17
 
 la tragédie de Tristan et Iseut ‘
 
@@ -526,7 +526,7 @@ Celui par qui périt l'animal carnassier,
 Quel serait-il sinon un manieur de l'acier?
 Quand ma harpe sur mer berçait ma songerie
 Je sortais d'un combat, non d'une jonglerie,
-Vainqueur, blessé pourtant ! J'avais dù sur les flots j
+Vainqueur, blessé pourtant ! J'avais dù sur les flots
 Me hasarder en un esquif sans matelots,
 
 la tragédie de Tristan et Iseut
@@ -535,8 +535,8 @@ Car telle de mon corps était l'âpre gangrène
 Que tous, en approchant de moi dans le manoir,
 Pour leur chair saine encor risquaient le poison noir,
 Et telle de mes mains fébriles la faiblesse
-Que de mon gouvernail j'aurais lâché la laisse, é
-Laissé mes bois flotter aux ondes du champ mat é
+Que de mon gouvernail j'aurais lâché la laisse,
+Laissé mes bois flotter aux ondes du champ mat
 Et la voile s'aller plier le long du mât.
 Triste sort des héros que navre une blessure !
 Aux morsures du fer l'ennui joint sa morsure!
@@ -556,7 +556,7 @@ Oui! Peut-être devrais-je
 Encore prolonger le secret que j'abrège ;
 Pourtant je n'ose pas emporter sur ma nef
 Une femme ignorant le nom haï du chef!
-4 Ha! Vous portez ce nom dont chaque lettre est pleine,
+Ha! Vous portez ce nom dont chaque lettre est pleine,
 ‘ Quand nous le prononçons, de douloureuse haleine!
 L''ennemi de Morholt, c'est vous! et votre chair
 Reçut le dernier coup de son épieu si cher!
@@ -586,7 +586,7 @@ Ma force, de Morholt n'étant point une égale,
 Est-ce la trahison qui fut votre rivale ?
 N'avais-je point reçu le défi du géant,
 Ou devais-je incliner ma jeunesse au néant?
-Cependant appelez vos preux pour ma torture : 3
+Cependant appelez vos preux pour ma torture
 Je serai sans combat leur facile capture,
 Et j'aurai, sur votre ordre, oublié sans regret
 Tout mon triomphe heureux pour la mort qui s'offrait !
@@ -641,7 +641,7 @@ Suivant le chevalier vers le château de Marc,
 De son double portail avec lui franchir l'are ?
 x Seigneur, autour du roi s'assemblent avec pompe
 Les Irlandais mandés par le son de la trompe,
-Don les éclats joyeux, selon l'antique loi, È
+Don les éclats joyeux, selon l'antique loi,
 Vont à tous nos sujets annoncer votre exploit.
 Dans la salle où le trône ouvre son blane calice
 Le haillon miséreux se mêle à la pelisse,
@@ -718,7 +718,7 @@ Une tente sur le pont d'un navire.
 Danses et chants
 Bien, jeunes gens ! Fêtez, par vos ébats en chaines,
 Du roi Marc et d'Iseut les noces très prochaines !
-33 3
+33
 
 la tragédie de Tristan et Iseut
 Oui; car si les astres m'ont dit vrai,
@@ -860,7 +860,7 @@ Le philtre a déjà fait sa route en elle! Eh bien,
 Toi qui les as perdus qu'essairas-tu, Brangien ?
 Et pour ton imprudence et pour ta male garde
 Quelle expiation offriras-tu ? Regarde :
-L'inexorable vent pousse sur cette mer É
+L'inexorable vent pousse sur cette mer
 Tes victimes aux lieux de leur supplice amer,
 Mais à leur calme ancien ne pouvant pas les rendre,
 Ni les séparer sur ce vaisseau, qu'entreprendre
@@ -880,7 +880,7 @@ O princesse d'Irlande! O race de guerriers!
 Sans faire de mes bras mes propres meurtriers
 Ai-je bien pu laisser dans ma poitrine lâche
 L'inavouable mal creuser sa sourde tâche?
-Moi qui l'aime, que suis-je à Tristan? Un butin Ê
+Moi qui l'aime, que suis-je à Tristan? Un butin
 Cher sans doute, conquis dans l'exploit incertain,
 Mais pour lui négligeable et très bon pour un autre!
 Le généreux orgueil qui toujours fut le nôtre,
@@ -954,14 +954,14 @@ Brillait la royauté, princesse, et son orgueil:
 Dans le balancement du bâtiment de chêne,
 Droite, vous souriiez à voir lever la chaine! ;
 Tout a changé soudain et pour vous et pour moi.
-Mais le pays quitté cause seul votre émoi, i
+Mais le pays quitté cause seul votre émoi,
 Tandis que rougissant du chagrin qui m'accable
 Je sens frapper sur moi l'aviron implacable!
 Irrité par le calme et le mépris du grand,
 Souvent un juste sort punit l'indifférent ;
 Mais les infortunés dont l'âme saigne et crie
 Quelquefois, de leurs mains, vengent la raillerie !
-Elle descend dans le vaisseau. L
+Elle descend dans le vaisseau.
 ,128
 
 Princesse ! Qu'avez-vous compris? Malheur! Malheur !
@@ -980,7 +980,7 @@ Les observe-t-il pas tant que leur chanson dure?
 Voix pure et pure joie ! Ah ! sûrement celui
 Dont l'air suit le chemin où la foudre reluit
 
-la tragédie de Tristan et Iseut j
+la tragédie de Tristan et Iseut
 Et monte au ciel tout droit, dont la note enfantine
 Reste, d'un bout du chant jusqu'à l'autre, argentine,
 Celui-là n'a jamais vers un corps désiré
@@ -1175,7 +1175,7 @@ Que ne le souhaitait notre royal concile
 Quand, dans la grande salle, au tintement du gong,
 Te décernant le prix de la mort du dragon,
 
-3 Mon père m'ordonna, comme au captif qu'on livre,
+Mon père m'ordonna, comme au captif qu'on livre,
 
 Oui, tu sais tout! Eh bien, rayonne donc plutôt
 Que de cacher ton front d'un pan de ton manteau
@@ -1203,7 +1203,7 @@ Et Tristan a volé sa part des flots tentanits !
 ‘ Merci, Brangien, merci! Déjà sa mâle étreinte
 Avait chassé de moi le chagrin et la crainte,
 Mais tu me dis encor qu'il m'aime, et j'en bénis
-+ Ce philtre et toi, Brangien ! ï
++ Ce philtre et toi, Brangien !
 Plutôt ma négligence, Iseut, et que j'expie,
 Moi qui devais garder ce philtre et qui n'épie
 Que ses effets vainqueurs en vos êtres emplis!
@@ -1325,7 +1325,7 @@ Or, vous êtes jaloux et vous n'aimez point tant
 La reine Iseul que vous ne jalousez.. Tristan !
 Moi! Tristan! Ne crains-tu rien pour que tu bâtisses
 Le reproche à ton roi de telles injustices ?
-328 Sais-tu bien ce que m'est Tristan ? Sais-tu quels liens,
+Sais-tu bien ce que m'est Tristan ? Sais-tu quels liens,
 à Purs, sacrés, éternels, sont les miens et les siens ?
 | Tout me charme de lui : les arts de noble essence
 ù Que Gorvenal apprit à son adolescence,
@@ -1411,7 +1411,7 @@ Le secret abimant des divines planètes
 
 Courbait mon front au sol, vil d'humaines sornettes,
 
-65 5
+65
 
 la tragédie de Tristan et Iseut
 Mais je lai relevé vers l'azur parsemé,
@@ -1524,7 +1524,7 @@ Le philtre souverain fait jaillir ses dictames
 Et suscite, du sein des objets enchantés, : *
 Des amis bienveillants par leur souci hantés !
 Si l'ombre les cacha de la forte muraille
-A l'astre glacial qui trahit et qui raille, ÿ
+A l'astre glacial qui trahit et qui raille,
 Si le pin leur prêta ses rameaux chevelus, ?
 Le verger son enclos et la grappe son jus,
 N'est-ce pas qu'en effet une force divine,
@@ -1620,7 +1620,7 @@ En la coupe où l'or fin tordait une guirlande,
 L'un et l'autre, ignorant ses pouvoirs concentrés,
 Nous l'avons bu tremblants et déjà pénétrés !
 
-la tragédie de Tristan et Iseut ù
+la tragédie de Tristan et Iseut
 Mais déjà Dieu lui-même, en forgeant nos deux formes,
 Dans notre sang jumeau mit ses gouttes énormes à
 Et plaça notre chaïne au fond de ce creuset
@@ -1715,7 +1715,7 @@ Garde-toi, garde-toi de me le demander !
 Des mots dont un maudit s'est permis la licence,
 Quelques mots indécis mais clairs, puis ta présence
 Dans cette même nuit, sous ces arbres, ici,
-Et ton embarras, tout s'accorde et me saisit! F
+Et ton embarras, tout s'accorde et me saisit!
 Oui, mon esprit se perd. Un infernal génie
 Roule en moi! Je ne suis plus moi! Je me renie!
 Il m'emporte hagard, fiévreux, désemparé,
@@ -1723,7 +1723,7 @@ Dans une course folle en parage ignoré ! :
 Mais non ! Non! je ne crois pas encore et mes doutes
 Vont se fondre et c'est à tort que tu les redoutes!
 
-4 Seigneur, ne sachant pas de quoi vous m'accusez,
+Seigneur, ne sachant pas de quoi vous m'accusez,
 Je ne puis éclairer vos esprits abusés.
 
 < Cependant:! quels que soient mes fautes ou mon crime,
@@ -1735,7 +1735,7 @@ Ni contre vous, bel oncle, emporté d'aventure,
 Pour m'affranchir de vous désiré la rupture ;
 Mais qu'au fond de ce cœur vous chérissant encor,
 Cependant qu'entre nous se lève un désaccord,
-81 6
+81
 
 la tragédie de Tristan et Iseut
 Le moindre des soucis de mon âme inquiète
@@ -1803,8 +1803,8 @@ Avant que de partir il n'est pas superflu
 Que je lui dise, Marc, de ne vous croire plu!
 Ne pense pas encor rentrer dans ma demeure.
 
-FN 17 je te mène pas moi-même jusqu'à l'huis ! " Ÿ 14
-Va devant moi! 104
+FN 17 je te mène pas moi-même jusqu'à l'huis ! "
+Va devant moi!
 
 Une grotte dans la forêt.
 Voici le premier jour de l'été : la ramure
@@ -1835,7 +1835,7 @@ L'air que nous respirons tranquillise et dévaste
 Nos esprits pleins jadis du bruit du monde vaste.
 Plus de pompes, un lit de feuilles, les grands daims
 Jetés au bois flambant par des trépas soudains : }
-Autour de nous éclôt en folles plates-bandes ÿ
+Autour de nous éclôt en folles plates-bandes
 Une réalité subite de légendes !
 Nous avons perdu le monde et le monde nous,
 Mais quand auprès de nous seraient les mondes tous,
@@ -1897,11 +1897,11 @@ Et qu'alors ces odeurs dans nos chairs demeurées
 : Oui, les tilleuls sont doux et parfois, dans le soir,
 Lorsqu'au seuil de ces prés nous allions nous asseoir,
 Nous les sentions dans l'air moins pesant, où les ombres
-Glissaient du haut des cieux subtiles et sans nombres. k
+Glissaient du haut des cieux subtiles et sans nombres.
 | Ce n'était pas l'apprèt habile d'orient :
 Que l'amoureux pervers accueille en souriant,
 Ni l'appel odorant des sachets de basane
-Échappé du manteau vil d'une courtisane. É
+Échappé du manteau vil d'une courtisane.
 ; _ C'était une caresse et noble et tendre autant
 Qu'un baiser maternel exorcisant Satan :
 Et je croyais sentir l'âme sereine et haute
@@ -1913,7 +1913,7 @@ Contente de les voir dans l'enceinte jalouse
 
 la tragédie de Tristan et Iseut
 ë Où, rougissant jadis sur le seuil de l'hymen,
-6 Son aveu devança l'aveu de Rivalen.
+Son aveu devança l'aveu de Rivalen.
 - Allez, brins gracieux et que chacun voltige ;
 De la longue aile verte attachée à sa tige,
 O fleurs, et posez-voys, dociles papillons,
@@ -1954,10 +1954,10 @@ De votre impatience irascible le feu ;
 Ils ne vont pas tarder à vous revenir puisque
 Leur amour ne sait pas ce qu'en ces lieux il risque.
 Nous n'avons, en rampant, point été rencontrés
-4 Et, par ma foi! mes os en sont courbaturés.
+Et, par ma foi! mes os en sont courbaturés.
 Aussi bien tout est calme et, là-bas, leurs cavales,
 Qui paissent dans les prés, cascade, où tu dévales,
-Ne leur révèlent point par leur hennissement  * ù
+Ne leur révèlent point par leur hennissement
 L'approche d'un fatal et sanglant dénoùment.
 
 O cruelle beauté des choses! O nature
@@ -1984,7 +1984,7 @@ Car du savoir complet voulant gagner la palme
 J'exigeais près de moi non l'honneur mais du calme.
 Vous me demanderez dans quel but, à présent,
 Sans réclamer de vous ni bienfait ni présent,
-97 7
+97
 
 la tragédie de Tristan et Iseut
 Vers leur pur nid d'amour qu'enelôt la forêt vierge,
@@ -1997,7 +1997,7 @@ C'est là que les esprits qui hantent sa paroi
 É Légiféraient, dictant tout bas pour le vieux roi.
 Seul un amour puissant, en quête d'un asile
 Inabordable plus que dans les flots une île,
-Pouvait, au fond des bois, aller chercher ce puits x
+Pouvait, au fond des bois, aller chercher ce puits
 De repos, de silence, inhabité depuis.
 Eh bien, elle me plaît à moi, leur chère grotte!
 Et par mon front luisant, bon roi, le projet trotte
@@ -2021,7 +2021,7 @@ Cela, car c'est écrit : ce couple, dans ma sphère,
 Sans cesse portera quelque ombre ou quelque accroc.
 Mais vous n'en aurez pas le courage : c'est trop!
 ,
-Et vous serez toujours, ainsi je le remarque, é
+Et vous serez toujours, ainsi je le remarque,
 Des monarques trompés le plus trompé monarque.
 Je ne viens pas juger ; tout est examiné ;
 La sentence est rendue et le mal condamné !
@@ -2170,7 +2170,7 @@ Leurs cœurs s'ouvrent au bien comme le ciel des fables !
 Le magicien puissant qui fit pour nous si beaux
 L'humble lit forestier sur la mousse en lambeaux,
 
-A travers l'inconnu la fuite périlleuse, é
+A travers l'inconnu la fuite périlleuse,
 La halte peu certaine au creux de quelque yeuse,
 Un long hiver chargé de glace et de frimas,
 De l'âtre de gros bois le maladroit amas,
@@ -2179,7 +2179,7 @@ Nous excuse-t-il pas d'avoir, sous sa baguette,
 Laissé l'oubli de tout, dans nos membres tremblants,
 Monter comme une nuit pleine d'astres brülants ?
 Je dirai plus, seigneur : pour un désir frivole
-4 Croyez-vous que Tristan, à ses sens bénévole,
+Croyez-vous que Tristan, à ses sens bénévole,
 Ait trahi l'amitié qui lui fit si souvent
 Aventurer sa vie en un hasard mouvant,
 Cette douce amitié dont le charmant partage -
@@ -2192,7 +2192,7 @@ N'avait dans son esprit déchainé sa cohorte ?
 : Ils seraient innocents ceux qui les ont goûtés?
 Cela ne se peut pas! Je le sens! Je l'affirme
 ñ Sur le Dieu que le elou païen rendit infirme !
-3 Ha! Ha! Si je les crois si coupables, comment
+Ha! Ha! Si je les crois si coupables, comment
 s Ai-je permis qu'ils me parlent abondamment ?
 
 la tragédie de Tristan et Iseut
@@ -2227,18 +2227,18 @@ Car bouger serait vous jeter sur mon épée !
 Iseut! Iseut! Ne crains rien! Il ne frappera
 Pas! Il n'osera plus!
 
-15 Il nous séparera ! - Fe
-4 Il le peut trop. ë
+Il nous séparera ! - Fe
+Il le peut trop.
 D Nous pourrons choisir entre Fe
 #1 Que la mort plutôt entre é -
 ‘4 \ Dans la grotte d'amour ! <
 Le Iseut, je ne peux pas laisser aux flancs des troncs, Fi :
-110 Près desquels si souvent vibra notre caresse, a)
-ñ Couler le sang du corps qu'avec bonheur je presse ! 4 Ë
-1 La mort! La mort! Oui, oui! Notre premier baiser É
-: 4 Sous son aile, déjà qui venait nous loiser, 0
+Près desquels si souvent vibra notre caresse, a)
+ñ Couler le sang du corps qu'avec bonheur je presse !
+La mort! La mort! Oui, oui! Notre premier baiser
+: 4 Sous son aile, déjà qui venait nous loiser,
 Re: S'entrecoupa du cri dont l'homme la défie ; à
-408 Mais, certe, c'est moi seul que ce cri sacrifie, ci
+Mais, certe, c'est moi seul que ce cri sacrifie, ci
 
 la tragédie de Tristan et Iseut
 Et je demeure prêt à la laisser férir
@@ -2252,7 +2252,7 @@ D'un destin mérité recevoir les largesses,
 Et laisse longuement renaître, s'il revient,
 L'insoucieux sourire, Iseut, qui te convient !
 Pour moi je suis celui qu'une mère mourante,
-De sa lèvre blèmie et sa voix expirante, É
+De sa lèvre blèmie et sa voix expirante,
 Pressentant que bientôt elle m'aurait quitté,
 Nomma du triste nom que tous m'ont répété !
 J'imiterai l'exemple où ton grand cœur m'invite,
@@ -2265,7 +2265,7 @@ Et parfois accrochant l'hermine que je porte
 Aux glaçons hérissés sur la verdure morte ;
 Puis lorsque le temps clair fit pousser les bourgeons,
 Sous des branches en hutte ou sur un lit de jones,
-110 4
+110
 
 D'écouter près de toi, qui si bien les imites,
 Tous les petits oiseaux, advolés des limites
@@ -2299,11 +2299,11 @@ Crois-tu qu'Iseut consente à ne point partager
 La lointaine amertume où tu vas te plonger?
 Oui, lointaine ! Mais jure, en quelque lieu que j'aille,
 En quelque temps aussi que ce soit, sans délais,
-D'accourir près de moi si jamais j'appelais, 3
+D'accourir près de moi si jamais j'appelais,
 Comme je jure ici, si jamais tu pourvoies
 ; Un messager pour moi, de le suivre en ses voies !
 Tristan, qu'avons-nous dit? Se peut-il? Non! Non! C'est
-Un rêve, un rève, dont l'horreur nous pourchassait! 4
+Un rêve, un rève, dont l'horreur nous pourchassait!
 Tristan, prends-moi dans tes deux bras! Tristan enlève
 Iseut! Passons fuyant et vainqueurs sous son glaive!
 Emporte-moi très loin ! Partout où tu voudras !
@@ -2317,7 +2317,7 @@ Je vous suivrai, sur mon honneur. ;
 O roi Mare, tout ceci, certes, n'est pas un piège
 Qui conduit à la mort ?
 Pas qui me connaît bien.
-113 8
+113
 
 la tragédie de Tristan et Iseut
 Suis-moi,
@@ -2327,7 +2327,7 @@ Cette forêt retiént mon cœur dans sa lisière.
 ; / Je ne retournerai pas seul et veuf du moins
 Parmi mes preux, de ma douleur ces froids témoins,
 Tandis que vous seriez, dans votre humble caverne,
-3 Plus heureux que le roi, seul dans sa gloire terne !
+Plus heureux que le roi, seul dans sa gloire terne !
 Terre où les laboureurs n'ont pas poussé leurs socs!
 
 Brangien! je t'emmène !
@@ -2335,10 +2335,10 @@ Brangien paraît à l'entrée de la grotte.
 Brangien, dans sa prison suis cette forme humaine!
 j TRISTAN seul, puis GORVENAL
 Partie! Elle est partie, Iseut, à tout jamais!
-Ah! je ne savais pas à quel point je l'aimais ! ÿ
+Ah! je ne savais pas à quel point je l'aimais !
 Mon fils! Mon fils!
-Maître, à la voix pressante Ë
-4 De son époux, elle est partie, obéissante !
+Maître, à la voix pressante
+De son époux, elle est partie, obéissante !
 
 4 la tragédie de Tristan et Iseut
 
@@ -2364,7 +2364,7 @@ Que deviendrai-je, hélas ! sans Iseut, maintenant ?
 Où done aller ? Partout où j'irai, me trainant, à
 Vers mon bonheur perdu tendant un bras avide,
 Du monde indifférent je fouillerai le vide!
-Mon âme, qui jadis vit largement fleurir k
+Mon âme, qui jadis vit largement fleurir
 L'adorable souffrance avec l'âpre plaisir, $
 Désormais pour toujours aux regrets condamnée,
 A l'ennui sans espoir se sera résignée !
@@ -2409,10 +2409,10 @@ Un messager ! Cruel, pour que je te revoie,
 Quoi, n'as-tu rien tenté ? Ne savais-tu donc pas
 Que le danger avait pour moi de beaux appas
 Et que le demandait ma voix irréfléchie !
-124 Oui, parfois, sous la mort füt notre chair blanchie,
+Oui, parfois, sous la mort füt notre chair blanchie,
 Düût nous surprendre Marc, oui, parfois j'espérais
 Que du tronc des grands pins vers moi tu monterais
-M'appelant hors des tours où j'étais retenue, 4
+M'appelant hors des tours où j'étais retenue,
 À O voix du rossignol si chère et si connue!
 Ah ! le danger suave, en tendant son lacet,
 Aurait rompu l'ennui dont tout m'envahissait !
@@ -2478,7 +2478,7 @@ Tes yeux pour deviner!
 Puissiez-vous le revoir !
 
 Vous êtes prompte, Ô reine, à tout savoir!
-Brangien, il m'appelait… ê
+Brangien, il m'appelait…
 Reine, le temps nous presse,
 La nef qui m'amena demeure prête et dresse
 Sa voile sans répit !
@@ -2504,7 +2504,7 @@ Ne l'aide pour trainer ses lamentables reins ;
 Aucun ami peut-être, en un cœur magnanime,
 Ne daigne partager l'angoisse qui l'opprime!
 Le fils du roi breton, un enfant : Kaherdin,
-S'apprend à regarder mourir un paladin. 4
+S'apprend à regarder mourir un paladin.
 Jeune homme généreux, puissent les destinées,
 Meilleures que pour nous, abriter tes années !
 Je te suis Gorvenal ! Qu'on cherche Marc!
@@ -2537,7 +2537,7 @@ Oui! Oui! J'arriverai mes amis jusqu'à lui
 Avant que le dernier de ses matins ait lui!
 ‘ La mer me portera comme un enfant qu'on berce!
 Et Marc ordonnera qu'on abaisse la herse
-129 9
+129
 
 la tragédie de Tristan et Iseut
 ‘ Devant celle qui meurt et qui, sans repentir,
@@ -2600,10 +2600,10 @@ Mon douloureux amour a pu la mesurer!
 | Des heures de douleur sans cesse ramenées ;
 | ; Et plus âpres encor qu'aux temps où la forêt
 | Vous faisait à tous deux un asile discret.
-| Je te gardais mais sans que ton âme consente 6
+| Je te gardais mais sans que ton âme consente
 À A n'être pas d'ici, quoique présente, absente :
 Rêéveuse tout le jour, d'esprit désabusé,
-4 Et ton regard jamais sur ces choses posé,
+Et ton regard jamais sur ces choses posé,
 : Tu t'en allais au loin, malgré moi toujours libre,
 Sur la route où, dans l'air, le rayon du jour vibre!
 : Te l'avoürai-je, Iseut? Par toi je me jugeais
@@ -2637,7 +2637,7 @@ Le sort qui vous ravit le cœur de votre épouse,
 Je me tais et j'attends que le roi généreux
 
 Qu''entends-je ? Quel miracle en mon âme scintille ?
-Un sortilège ardent dans leurs êtres pétille ! É
+Un sortilège ardent dans leurs êtres pétille !
 Un sort irrésistible, une divine loi £
 Avaient creusé l'abime entre l'épouse et moi!
 Quoi que je fasse, à ciel! quoi que mon cœur invente,
@@ -2651,7 +2651,7 @@ Tu peux partir, Iseut, ton époux l'autorise !
 
 # Entrez, mes preux !
 Vous tous connaissez-la : Rejoignant mon neveu,
-La reine va partir et c'est moi qui le veu! É
+La reine va partir et c'est moi qui le veu!
 Heureux le cœur rempli d'un amour admirable
 Par l'abnégation et le renoncement
 Sait du moins affirmer son noble sentiment,
@@ -2712,7 +2712,7 @@ Plût à Dieu ! Mais Gorvenal tarde,
 Tu vois, à la convaincre et, seul, il ne hasarde
 Point de retour !
 Eh bien ?
-Apaise-toi! e
+Apaise-toi!
 (Car il ne faut jamais, même quand l'heure passe,
 Ne plus espérer des surprises de l'espace)
 Qu'un vaisseau par ce temps entre dans le chenal,
@@ -2722,9 +2722,9 @@ Regardez bien la voile, amis, que Gorvenal
 Et de qui la blancheur dira bonne fortune!
 ÿ Oui! Oui! mais l'océan est trompeur ;
 ; Je le connais : souvent, dans la molle vapeur
-4 Qui le caresse, j'ai cru voir la voile blanche,
+Qui le caresse, j'ai cru voir la voile blanche,
 Hélas! car dès longtemps le vaisseau, qui se penche
-210 Au repos, sur ces bords devrait être incliné!
+Au repos, sur ces bords devrait être incliné!
 | Ils ne pouvaient venir plus tôt.
 . Abandonné par ellè! Hélas! Ah! les étoiles
 À M'ont semblé le fanal que l'on attache aux voiles
@@ -2763,11 +2763,11 @@ Au temps de votre quête et lorsque je doutais
 
 : D'être jamais aimé! Chère, l'amour se prouve
 Par l'impossible et certe ! un homme se retrouve,
-142 3
+142
 
 Surtout quand il a nom Tristan. Or il fallait
 
-1 Me chercher en tous lieux ! Partout où l'on allait
+Me chercher en tous lieux ! Partout où l'on allait
 
 à On savait que j'avais passé ; toute la terre
 
@@ -2799,11 +2799,11 @@ De l'ouragan ! Ceci me paraît un mirage
 j Gigantesque ; j'entends la poignante clameur
 D'un univers entier qui palpite et qui meurt!
 
-178 Le monde räle, sous l'amour, en agonie!
+Le monde räle, sous l'amour, en agonie!
 
 | ! Par lui tout corps détruit, toute face ternie,
 
-, 143
+,
 
 la tragédie de Tristan et Iseut
 Non! Maudis les enfants
@@ -2818,9 +2818,9 @@ La douleur et la mort!
 Ah! Celui qu'un instant ce Dieu caresse ou mord
 Peut s'endormir! La joie immense il l'a goûtée!
 Les siècles ont tenu dans son heure enchantée!
-Et, sans en rien remettre aux douteux lendemains, k
+Et, sans en rien remettre aux douteux lendemains,
 Les désirs inquiets, les espoirs surhumains, :
-Lui versèrent à flots, de leurs urnes fécondes, Ê
+Lui versèrent à flots, de leurs urnes fécondes,
 L'éternel infini dans de brèves secondes!
 
 Il est peut-être vrai.
@@ -2840,7 +2840,7 @@ La face d'un ami tombé dans la mêlée! :
 Qu'on apprête un vaisseau !
 
 Pour la quérir !
-145 10
+145
 
 la tragédie de Tristan et Iseut
 ; N'importe ! Elle te peut guérir ;
@@ -2987,5 +2987,5 @@ M. André Bourgeois, administrateur des cahiers, reçoit pour
 l'administration et pour la librairie tous les jours de la semaine,
 le dimanche excepté, — de huit heures à onze heures et de une
 
-M. Charles Péguy, gérant des cahiers, reçoit pour la N
+M. Charles Péguy, gérant des cahiers, reçoit pour la
 rédaction le premier mercredi du mois de trois heures à quatre

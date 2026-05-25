@@ -188,7 +188,7 @@ Cela servira à deux fins : il sera possible d'appren- |
 dre moins, puisque la journée sera remplie de la |
 façon la plus utile et la plus naturelle, et les enfants
 s'habitueront ainsi à la simplicité, au travail, à se
-suflire à eux-mêmes. l
+suflire à eux-mêmes.
 S'il vous plaît, faites-le. Vous en serez satisfaite |
 dès le premier mois, et les enfants encore plus. |
 
@@ -228,7 +228,7 @@ possible de faire tout ce que j'ai indiqué, du moins |
 il faut habituer les enfants à faire les choses dont
 ils sentiraient la privation si elles n'étaient pas
 faites. Par exemple si les habits et les souliers pour
-sortir n'ont pas été nettoyés, on ne doit pas sortir ; 1
+sortir n'ont pas été nettoyés, on ne doit pas sortir
 sion n'a pas été chercher de l'eau et si on n'a pas
 lavé la vaisselle, on n'aura rien à boire. Surtout
 dans cette affaire, ne craignez pas le ridicule. Les
@@ -467,7 +467,7 @@ coquilles et votre gourde annoncent un pèlerin.
 — Et pèlerin suis en vérité, répondit bumblement
 le clerc.
 
-_— Pèlerin de quel saint, de quel tombeau D
+_— Pèlerin de quel saint, de quel tombeau
 
 __ Pèlerin suis du roi de gloire, du Saint Sépulcre
 en la cité de Jérusalem.
@@ -491,7 +491,7 @@ votre manteau une image de Notre Dame de Jéru-
 
 salem. Ma lasse d'âme, mon las de corps auraient
 grand joie, si dans mon oratoire était la face de la
-douce mère de Dieu. È
+douce mère de Dieu.
 
 — Ma dame, répondit le clerc, la mort seule
 pourra m'empêcher de repasser par ici et de me
@@ -685,7 +685,7 @@ fois, trois fois sa promenade autour de la chapelle. |
 Sous ses ongles la pierre grince. Il frappe du poing
 fortement la muraille qui ne répond pas. S'il était
 enterré vivant! il saute en avant, en arrière, à
-droite, à gauche. Partout il se heurte à la pierre. É
+droite, à gauche. Partout il se heurte à la pierre.
 Sa tête s'égare, il pousse un grand cri.
 Une grande lumière jaillit soudain de la porte
 ouverte ; la nonnaïin paraît sur le seuil effrayée :
@@ -869,7 +869,7 @@ contre la règle. Mais elle n'y songeait guère : elle |
 était retenue là devant sa fenêtre par une espérance |
 qu'elle n'avait pas l'audace de s'avouer. |
 Beowulfe, poussé par la passion et attiré par
-cette lumière, se dépouilla de ses vêtements, entra k
+cette lumière, se dépouilla de ses vêtements, entra
 dans l'eau et se mit à nager vers la haute muraille
 du couvent.
 
@@ -998,7 +998,7 @@ sa viole pendue à son épaule dans une gaine de
 cuir brun, le célèbre jongleur Pierre de Syglar,
 mais vers la Vierge de pierre noire qui tient
 l'enfant Jésus dans ses bras, au fond d'une chapelle
-souterraine de l'église. ë
+souterraine de l'église.
 
 Quand le ménestrel eut passé les deux portes
 fortifiées qui défendent l'entrée de l'unique rue de
@@ -1034,7 +1034,7 @@ sourire ses lèvres de bonté. |
 
 Le ménestrel sortit sa viole de la gaine de cuir,
 il se mit à vieller doucement, tandis qu'il chantait à
-mi-voix une chanson en l'honneur de Notre Dame. é
+mi-voix une chanson en l'honneur de Notre Dame.
 Si pure était la voix, si belle la chanson, si déli- |
 cieux le son de la viole, que des pèlerins qui déjà
 
@@ -1088,13 +1088,13 @@ Insensiblement, légère comme la respiration de |
 l'enfant qui sur son épaule s'était endormi, s'acheva |
 la chanson du jongleur. Les pèlerins ouvrirent les |
 yeux, étonnés d'être dans cette crypte, tous ayant
-eu, quelques minutes, l'éblouissement du Paradis. l
+eu, quelques minutes, l'éblouissement du Paradis.
 Pierre de Syglar, s'étant mis debout, montait les À
 degrés de l'autel, et s'inclinant humblement trois
 fois devant Notre Dame, il dit à haute voix :
 
 — Hé! mère du roi qui tout créa, si tu as
-témoignage de ta grâce, pour m'éclairer dans mon 4
+témoignage de ta grâce, pour m'éclairer dans mon
 
 auberge et faire la fête de mon souper, un des
 cierges qui environnent ton corps gracieux et béni,
@@ -1223,7 +1223,7 @@ des ruses que lui suggéraient ses expériences
 d'amour : tant qu'elle devint folle de lui et que
 tous les deux commencèrent de vivre, en secret,
 une vie criminelle : elle, abandonnée sans remords,
-sans regret à sa passion, lui impuissant à étoufler ù
+sans regret à sa passion, lui impuissant à étoufler
 la voix de son âme. Souvent il fut tenté de fuir,
 de mettre entre sa maîtresse et lui des fleuves et
 des montagnes : jamais il n'eut la force de passer
@@ -1325,10 +1325,10 @@ répandue au loin, plusieurs papes, dans des affaires ;
 difficiles, lui avaient envoyé des messagers pour
 lui demander conseil. Dans un temps où la discipline ecclésiastique se relâchait, il fut désigné par \
 le pape Pie II comme étant le plus digne d'être son
-successeur dans la chaire de saint Pierre. j
+successeur dans la chaire de saint Pierre.
 
 Césaire apprit avec tristesse la nouvelle que le ?
-conclave avait ratifié les vœux du pape défunt. S
+conclave avait ratifié les vœux du pape défunt.
 
 Quand il dut quitter son couvent, le cœur lui
 défaillit ; il avait été si heureux dans cette haute et
@@ -1336,7 +1336,7 @@ solitaire maison. Maintenant il lui fallait rentrer
 .. dans Rome, dans cette cité qu'il avait scandalisée
 par sa vie.
 
-Qu'était devenue Domitilla et son frère : il ne le ÿ
+Qu'était devenue Domitilla et son frère : il ne le
 savait pas. Jamais il ne s'était informé d'eux. Eux,
 ne s'étaient jamais informés de lui. A mesure qu'il
 approchaït de la ville éternelle, le souvenir de son
@@ -1386,7 +1386,7 @@ et Salomon, n'avait pas renoncé à damner son âme. |
 
 Le saint jour de l''Assomption, notre Seigneur le |
 pape Léon célébrait l'office divin ; il donnaït la |
-communion aux fidèles qui, penchés sür la Sainte 1
+communion aux fidèles qui, penchés sür la Sainte
 Table, ne relevaient la tête que pour recevoir l'hostie. Soudain le pape Léon se troubla : dans le visage qui se levait vers lui, il reconnut Domitille,
 dont les yeux brülaient d'une flamme pécheresse.
 
@@ -1454,7 +1454,7 @@ il trancha le poing. La main tomba. |
 
 Si ta main te scandalise, coupe-la.
 
-Le pape Léon, ayant fait oindre son bras de 1
+Le pape Léon, ayant fait oindre son bras de
 
 baume et de myrrhe, fit savoir par la ville qu'il ne
 pouvait se lever, étant malade. Les nobles romains
@@ -1486,7 +1486,7 @@ Le Pape tremblant la voit qui vient à lui. Elle
 s'approche de son oreille et lui dit :
 — Parce que tu n'as cessé de me servir et de
 m'honorer; parce que tu as ta chasteté bien gardée;
-parce que tu te fis couper le poing droit exécutant R
+parce que tu te fis couper le poing droit exécutant
 ainsi l'ordre de mon fils avec simplicité ; parce que
 tu as perdu ta main charnelle je te donnerai la
 main de ton corps céleste.
@@ -1497,12 +1497,12 @@ I se leva, étendit des deux doigts sur le Concile |
 un geste paisible de bénédiction ; et sans un mot
 se rendit à l'église de Latran célébrer l'office divin.
 
-Le poème suivant n'est que la traduction d'une 1
-gwerz en breton de Cornouaïilles ; ou plutôt, comme Ë
+Le poème suivant n'est que la traduction d'une
+gwerz en breton de Cornouaïilles ; ou plutôt, comme
 je ne sais pas le breton, c'en est une traduction en \
 prose que j'ai tournée en vers. Je l'ai fait aussi exacte- À
-ment que j'ai pu : j'ai observé le rythme ét le nombre R
-des strophes de mon texte, jusque là que j'ai respecté 1
+ment que j'ai pu : j'ai observé le rythme ét le nombre
+des strophes de mon texte, jusque là que j'ai respecté
 les deux dernières, que j'eusse retranchées sans doute :
 si j'avais écrit d'invention; j'en ai rendu de mon mieux
 le mouvement rude et sauvage, et conservé, de ses |
@@ -1511,9 +1511,9 @@ version française. Je ne me suis permis qu'un seul changement dars l'ordre des 
 dont voici la première sirophe : |
 « Qu'as-tu vu, marin, sur la mer?
 « — Une barque sans rames et sans voiles; et sur ;
-l'arrière, pour pilote, un ange debout les ailes È
+l'arrière, pour pilote, un ange debout les ailes
 J'ai cru mieux faire de réserver les vers 3 et 4 pour à
-le dernier trait. g
+le dernier trait.
 Quand j'écrivis cette pièce, dans le premier mois
 d'un leng séjour en Bretagne, je crus avoir affaire à
 une œuvre populaire. Je l'ai trouvée à la suite de la
@@ -1556,13 +1556,13 @@ D'envoyés du sang de Trégor.
 On voit des housses sur la croupe
 Des chevaux gris harnachés d'or.
 
-cahier de Noël 4
+cahier de Noël
 Descend l'homme de l'échauguette : es
 — Sire ils sont là de manteaux bleus à
 Une douzaine, dit la guette ;
 Faut-il ouvrir? — Ouvre parbleu !
 Faïs dresser dans ma salle haute
-Une table pour eux et moi. k
+Une table pour eux et moi.
 C'est de Dieu que viennent les hôtes :
 Quiconque est roi reçoive en roi! : VA
 — Seigneur notre roi nous envoie |
@@ -1571,7 +1571,7 @@ Pour son fils ravir votre joie,
 Votre fille dame Azénor.
 — Ab! Messieurs de tout mon cœur. Elle, à
 Elle est le regard de mes yeux. ;
-On le dit beau, ma fille est belle ; 4
+On le dit beau, ma fille est belle
 Un vrai couple de rois, messieurs | !
 La noce dura deux semaines, À
 Officiait l'évêque d'Ys ;
@@ -1598,9 +1598,9 @@ Si tu n'as pas d'yeux ? Casse-cou,
 Sot ! Le renard pille tes treilles,
 Et ton nid loge le coucou.
 
-cahier de Noël 10
-— Merci madame. Ah ! fini d'elle. 1
-La perfide ! Gueuse en prison ! È
+cahier de Noël
+— Merci madame. Ah ! fini d'elle.
+La perfide ! Gueuse en prison !
 Seules les mères sont fidèles.
 Dans trois jours au feu ce poison !
 Quand le vieux roi sut la nouvelle,
@@ -1639,29 +1639,29 @@ Soufllez, soufllez. Qu'a-t-il ce feu ?
 C'est du bois sec, monsieur, du frêne,
 Qu'est-ce qu'il a ce bois, bon Dieu?
 
-cahier de Noël 4
-— C'est vrai, pas même une étincelle, 4
-Fait le juge de Goello; 1
+cahier de Noël
+— C'est vrai, pas même une étincelle,
+Fait le juge de Goello;
 Ce bois, démon, tu l'ensorcelles :
 Ah ! tu ne brûles pas : à l'eau !
-— Un canot sur la mer, regarde : Ë
+— Un canot sur la mer, regarde
 Sans mât, sans rame, infortuné ! :
-IL porte sur la mer hagarde ë
-, Une femme et son nouveau-né. 5
+IL porte sur la mer hagarde
+, Une femme et son nouveau-né.
 Et la mère sur cette tombe à
 L'allaite, pauvre petit ver, : "0
 Suspendu, comme une colombe
 Au bord d'une conque de mer. |
 Écoutez! elle chante. Etrange
-Sur la mer sa voix retentit : É
-— Dors, mon amour! va dors, pauvre ange! 1
-Fais dodo, mon pauvre petit. 4
+Sur la mer sa voix retentit
+— Dors, mon amour! va dors, pauvre ange!
+Fais dodo, mon pauvre petit.
 Que ton père te vit si frêle !.… *
 Mais ton père est perdu, chétif. %
 Or son ange, droit derrière elle, de
-Pilotait des aïles l'esquif. Ë
+Pilotait des aïles l'esquif.
 
-6 Sur Armor plane une épouvante.
+Sur Armor plane une épouvante.
 Au pied des murs pleins de rumeur
 Les hêtres que l'ombre âpre évente
 Parlent ! La vieille reine meurt.
@@ -1682,27 +1682,27 @@ Rome, désir du pèlerin,
 Sousse, repaire du pirate,
 Parut le pilote chagrin.
 
-: cahier de Noël SRE 4
-Tant qu'il aborde à la grande île. C2
+: cahier de Noël SRE
+Tant qu'il aborde à la grande île.
 Un enfant gréait, doux minois, .
-Au bord d'une grève d'idylle, é 4
-D'un fil la coque d'une noix. 5
-Blond, les yeux bleus, — les yeux des vagues, — 1
-Les yeux d'Azénor, dirait-on : 1
+Au bord d'une grève d'idylle,
+D'un fil la coque d'une noix.
+Blond, les yeux bleus, — les yeux des vagues,
+Les yeux d'Azénor, dirait-on
 Et voilà que des larmes vagues
-Germent dans l'âme du Breton. 4
-— Ta maman, mignon, que fait-elle ? 4
+Germent dans l'âme du Breton.
+— Ta maman, mignon, que fait-elle ?
 — C'est laveuse, monsieur, qu'elle est.
 
 Voilà son battoir qui martèle À
-La lessive au bord du galet. 4
+La lessive au bord du galet.
 — Et ton père, enfant ? — Chut! mon père
 C'est Dieu. Voilà, c'est un secret : à
 L'autre est mort. Mais il faut se taire,
 Voyez-vous : maman pleurerait. À
-Et l'homme dont la gorge anhèle k
-Courait : et l'enfant caressant ; 4
-Avait pris la main paternelle, ÿ
+Et l'homme dont la gorge anhèle
+Courait : et l'enfant caressant
+Avait pris la main paternelle,
 Et dans leurs mains bouillaït leur sang.
 
 Maman ! maman ! c'est lui ! regarde,
@@ -1714,6 +1714,6 @@ Le père à son enfant rendu !
 
 Jusqu'en Armor leur fit cortège
 
-Une bande d'anges chanteurs. 4
+Une bande d'anges chanteurs.
 — Ainsi la Trinité protège
 La voile des navigateurs !

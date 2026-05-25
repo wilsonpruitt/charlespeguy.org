@@ -55,7 +55,7 @@ les ténèbres épaisses, ils nous ont montré la route,
 dans un éclair. Marchons-y à leur suite, à la suite
 de tous ceux qui luttèrent comme eux, isolés, dissé-
 minés dans tous les pays et dans tous les siècles. Supprimons les barrières du temps. Ressuscitons le peuple
-des héros. é
+des héros.
 
 Je n'appelle pas héros ceux qui ont triomphé par la
 pensée ou par la force. J'appelle héros, seuls ceux qui
@@ -77,7 +77,7 @@ et leur cœur déchiré par la vue des souffrances et des
 hontes sans nom dont leurs frères étaient torturés, ils
 ont mangé le pain quotidien de l'épreuve; et s'ils furent
 grands par l'énergie, c'est qu'ils le furent aussi par le
-malheur. Qu'ils ne se plaignent donc pas trop, ceux qui 3
+malheur. Qu'ils ne se plaignent donc pas trop, ceux qui
 
 sont malheureux : les meilleurs de l'humanité sont avec ;
 eux. Nourrissons-nous de leur vaillance; et, si nous
@@ -139,10 +139,10 @@ veston et d'un pantalon en poil de chèvre, crut rencontrer Robinson
 (3) « Ses beaux yeux parlants », dit le docteur W.-C. Mueller,
 « tantôt gracieux et tendres, tantôt égarés, menaçants et terribles ».
 
-broyer des noix. Une fossette profonde au menton, du 4
-côté droit, donnait une étrange dissymétrie à la face. 4
-« Il avait un bon sourire, dit Moscheles, et dans la 1
-conversation, un air souvent aimable et encourageant. 1
+broyer des noix. Une fossette profonde au menton, du
+côté droit, donnait une étrange dissymétrie à la face.
+« Il avait un bon sourire, dit Moscheles, et dans la
+conversation, un air souvent aimable et encourageant.
 En revanche, le rire était désagréable, violentet grima- |
 çant, du reste court », — le rire d'un homme qui n'est
 pas accoutumé à la joie. Son expressionhabituelle était
@@ -185,7 +185,7 @@ par les préoccupations matérielles, le souci de gagner
 son pain, les tâches trop précoces. À onze ans, il faisait
 .- partie de l'orchestre du théâtre; à treize, il était organiste. En 1787, il perdit sa mère, qu'il adoraït. « Elle
 m'était si bonne, si digne d'amour, ma meilleure amie !
-3 Oh! qui était plus heureux que moi, quand je pouvais
+Oh! qui était plus heureux que moi, quand je pouvais
 | prononcer le doux nom de mère, et qu'elle pouvait l'entendre ? » (2) Elle était morte phtisique; et Beethoven
 se croyait atteint de la même maladie ; il souffrait
 ! @) a or it Ludwig, l'homme le plus remarquable de la
@@ -196,7 +196,7 @@ ce fait, si l'on veut comprendre l'indépendance fougueuse de la
 £ nature de Beethoven, et tant de traits de son caractère qui ne sont
 pas proprement allemands.
 {Nohl : Lettres de Beethoven, Il)
-4 13
+4
 
 déjà constamment; et il se joignait à son mal une
 mélancolie, plus cruelle que le mal même. (1) A dix-sept
@@ -222,7 +222,7 @@ Si triste qü''ait pu être l'enfance de Beethoven, il |
 garda toujours pour elle, pour les lieux oùelle s'écoula,
 un tendre et mélancolique souvenir. Forcé de quitter *
 Bonn, et de passer presque toute sa vie à Vienne, dans |
-la grande ville frivole et ses tristes faubourgs, jamais il É
+la grande ville frivole et ses tristes faubourgs, jamais il
 () L disait plus tard, (en 1816) : « C'est un pauvre homme, celui à
 qui ne sait pas mourir! Quand je n'avais que quinze ans, je le
 savais déjà. » = SR
@@ -270,9 +270,9 @@ fièvre ambitieuse, est aux autres efligies de Napoléon.
 Beethoven semble plus jeune que son âge, maigre, droit, |
 raidi dans sa haute cravate, le regard défiant et tendu.
 sur son carnet : « Courage! Malgrétoutesles défaillances
-du corps, mon génie triomphera.… Vingt-cinq ans! les É.
+du corps, mon génie triomphera.… Vingt-cinq ans! les
 voici venus! je les ai... Il faut que cette année même, à
-l'homme se révèle tout entier. » Madame de Bernhard et j
+l'homme se révèle tout entier. » Madame de Bernhard et
 Gelinck disent qu'il est très fier, de manières rudes et
 maussades, et qu'il parle avec un très fort accent pro- |
 vincial. Mais ses intimes, seuls, connaissent l'exquise
@@ -316,9 +316,9 @@ que le mal a commencé, — soit, par conséquent, en 1796. — Remarquons en pa
 
 ! pour piano, paraissent en mars 179%. On peut donc dire que l'œuvre
 N entière de Beethoven est de Beethoven sourd. — (Sur la maladie
-de Beethoven, voir : Nohl : Eine stille Liebe zu Beethoven; — C. G.
+de Beethoven, voir : Nohl : Eine stille Liebe zu Beethoven;
 À Nagel : Die Musik, 15 mars 1902.) — On voit au musée Beethoven de
-1 Bonn les instruments acoustiques que fabriqua pour Beethoven,
+Bonn les instruments acoustiques que fabriqua pour Beethoven,
 vers 1814, le mécanicien Maelzel.
 
 Beethoven est profondément malheureux. Sache que la
@@ -326,7 +326,7 @@ plus noble partie de moi-même, mon ouïe, a beaucoup
 baissé. Déjà, à l'époque où nous étions ensemble,
 j'éprouvais des symptômes du mal, et je le cachais;
 mais cela a toujours empiré depuis... Guérirai-je? Je
-l'espère naturellement, mais bien peu; de telles mala- s
+l'espère naturellement, mais bien peu; de telles mala-
 dies sont les plus incurables. Comme je dois vivre
 tristement, éviter tout ce que j'aime et tout ce qui m'est
 cher, et cela dans un monde si misérable, si égoïste!
@@ -389,18 +389,18 @@ jamais Beethoven sans une passion portée au paroxysme.
 Ces amours semblent avoir toujours été d'une grande
 pureté. Il n'y a aucun rapport entre la passion et le
 
-plaisir. La confusion qu'on établit de notre temps entre 4
+plaisir. La confusion qu'on établit de notre temps entre
 l'une et l'autre ne prouve que l'ignorance où la plupart |
 des hommes sont de la passion, et son extrême rareté. À
 Beethoven avait quelque chose de puritain dans l'âme;
 les conversations et les pensées licencieuses lui faisaient
 horreur; il avait sur la sainteté de l'amour des idées
-intransigeantes. On dit qu'il ne pardonnait pas à z
+intransigeantes. On dit qu'il ne pardonnait pas à
 Mozart d'avoir profané son génie à écrire un Don Juan.
 Schindler, qui fut son ami intime, assure qu' « il traversa
 !: la vie avec une pudeur virginale, sans avoir jamais eu
 à se reprocher une faiblesse ». Un tel homme était fait
-pour être dupe et victime de l'amour. Il le fut. Sans k
+pour être dupe et victime de l'amour. Il le fut. Sans
 cesse il s'éprenait furieusement, sans cesse il rêvait de
 bonheurs, aussitôt déçus, et suivis de souffrances
 amères. C'est dans ces alternatives d'amour et de
@@ -472,11 +472,11 @@ rieures se retrouvent dans les grandes œuvresécrites en
 quasi una fantasia, et la Sonate dite du Clair de lune,
 op. 27, la Deuxième Sonate op. 31, avec ses récitatifs
 dramatiques, qui semblent un monologue grandiose |
-et désolé; la Sonate en ut mineur pour violon, op. 30, É
+et désolé; la Sonate en ut mineur pour violon, op.
 dédiée à l'empereur Alexandre; la Sonate à Kreutzer, |
 op. 47; les six héroïques et poignantes mélodies reli- ;
 gieuses sur des paroles de Gellert, op. 48. La Seconde |
-Symphonie, qui est de 1803, reflète davantage son É
+Symphonie, qui est de 1803, reflète davantage son
 
 juvénile amour; et l'on sent que sa_volonté prend
 # décidément le dessus. Une force irrésistible balaye
@@ -508,7 +508,7 @@ tous concourussent au gouvernement de l'État... Il vou-
 Titus, l'air fatal d'un héros byronien, mais avec cette tension de
 volonté napoléonienne, qui ne désarme jamais. ;
 
-| 2,
+|
 
 | verture de Coriolan (1807), où soufllent des tempêtes,
 | dans le Quatrième quatuor, op. 18, dont le premier
@@ -539,7 +539,6 @@ piano, le 30 octobre 1870, à Versailles. — Bismarck disait de la der
 nière phrase de l'œuvre Ce sont les luttes et les sanglots de
 toute une vi 11 préférait Beethoven à tout autre musicien, et
 | plus d'une fois, aflirma Beethoven convient le mieux à mes
-| 25
 
 lait pour la France le suffrage universel, et il espérait :
 que Bonaparte l'établirait, et jetterait ainsi les bases
@@ -563,21 +562,21 @@ naire ! » cria-t-il; et dans son indignation, il déchira la dédicace,
 et écrivit ce titre vengeur et touchant à la fois : « Symphonie
 héroïque... pour célébrer le souvenir d'un grand Homme. » {Sinfonia
 eroica... composta per festeggiare il sovvenire di un grand Uomo.) à
-Schindler raconte que dans la suite, il se départit un peu de son 4
-mépris pour Napoléon; il ne vit plus en lui qu'un malheureux ê
-digne de compassion, un Icare précipité du ciel. Quand il apprit la 4
-catastrophe de Sainte-Hélène, en 1821, il dit : « Il y a dix-sept ans 4
+Schindler raconte que dans la suite, il se départit un peu de son
+mépris pour Napoléon; il ne vit plus en lui qu'un malheureux
+digne de compassion, un Icare précipité du ciel. Quand il apprit la
+catastrophe de Sainte-Hélène, en 1821, il dit : « Il y a dix-sept ans
 : que j'ai écrit la musique qui convient à ce triste événement. » Il se À
 plaisait à reconnaître dans la Marche funèbre de sa Symphonie un
 pressentiment de la fin tragique du conquérant. — Il est donc bien
-probable que la Symphonie héroïque et surtout son premier mor- 4
+probable que la Symphonie héroïque et surtout son premier mor-
 ceau, était, dans la pensée de Beethoven, une sorte de portrait de .
-Bonaparte, très différent du modèle, sans doute, mais tel qu'il E.
-l'imaginait, et tel qu'il l'eût voulu : le génie de la Révolution. 4
+Bonaparte, très différent du modèle, sans doute, mais tel qu'il
+l'imaginait, et tel qu'il l'eût voulu : le génie de la Révolution.
 { Beethoven reprend d'ailleurs dans le finale de l'Héroïque une des
-| phrases principales de la partition qu'il avait déjà écrite pour le L
-! héros révolutionnaire par excellence, le dieu de la Liberté : Pro- 4
-24 4
+| phrases principales de la partition qu'il avait déjà écrite pour le
+! héros révolutionnaire par excellence, le dieu de la Liberté : Pro-
+24
 
 verture de Coriolan (1807), où soufflent des tempêtes,
 dans le Quatrième quatuor, op. 18, dont le premier
@@ -671,13 +670,13 @@ faiblesse de vue avait été causée par la petite vérole, et qu'elle l'obligea
 au caractère égaré de ses yeux. —- Voir, sur ce sujet, les articles de
 
 il rentre ses griffes. Mais on sent sous ses jeux, sous les |
-fantaisies et la tendresse même de la Symphonie en si 3
+fantaisies et la tendresse même de la Symphonie en si
 bémol, la redoutable force, l'humeur capricieuse, les |
 Cette paix profonde ne devait pas durer; mais linfluence bienfaisante de l'amour se prolongea jusqu'en
 1810. Beethoven lui dut sans doute la maîtrise de soi,
 qui fit alors produire à son génie ses fruits les plus parfaits : cette tragédie classique, la Symphonie en ut “4
 mineur, — et ce divin rêve d'un jour d'été : la Sym- ;
-phonie pastorale (1808). — L'Appassionata, inspirée de E
+phonie pastorale (1808). — L'Appassionata, inspirée de
 la Tempéte de Shakespeare, (1) et qu'il regardait lui- :
 même comme la plus puissante de ses sonates, paraît
 en 1807, et est dédiée au frère de Thérèse. A Thérèse
@@ -685,15 +684,15 @@ elle-même il dédie la rêveuse et fantasque sonate, op. 78 |
 (1809). Une lettre, sans date, et adressée à l'Immortelle
 Aimée, exprime, non moins que l'Appassionata, V'intensité de son amour : |
 « Mon ange, mon tout, mon moi, j'ai le cœur
-es aussi avec moi... Je pleure, quand je pense que tu F
+es aussi avec moi... Je pleure, quand je pense que tu
 ne recevras probablement pas avant dimanche les premières nouvelles de moi. — Je t'aime, comme tu .
-m'aimes, mais bien plus fort... Ah! Dieu! — Quelle vie E
+m'aimes, mais bien plus fort... Ah! Dieu! — Quelle vie
 ainsi! Sans toi ! — Si près, si loin ! — … Mes idées se ;
-pressent vers toi, mon immortelle aimée (meine unsterb- 1
+pressent vers toi, mon immortelle aimée (meine unsterb-
 liche Geliebte), parfois joyeuses, puis après tristes, |
 interrogeant le destin, lui demandant s'il nous exaucera.
 — Je ne puis vivre qu'avec toi, ou je ne vis pas... Jamais
-une autre n'aura mon cœur. Jamais! — Jamais! — È
+une autre n'aura mon cœur. Jamais! — Jamais!
 (1) Conversation avec Schindler.
 
 ê O Dieu! pourquoi faut-il s'éloigner quand on s'aime?
@@ -733,18 +732,18 @@ n'est pas là, près de moi! » — Thérèse avait donné son
 
 (1) Nohl : Lettres de Beethoven, XV.
 
-portrait à Beethoven, avec la dédicace : « Au rare 4
-génie, au grand artiste, à l'homme bon. T. B. ». (1) J
-Dans la dernière année de sa vie, un ami surprit 1
+portrait à Beethoven, avec la dédicace : « Au rare
+génie, au grand artiste, à l'homme bon. T. B. ». (1)
+Dans la dernière année de sa vie, un ami surprit
 Beethoven, seul, embrassant ce portrait en pleurant, et
-parlant tout haut suivant son habitude : « Tu étais si D
+parlant tout haut suivant son habitude : « Tu étais si
 belle, si grande, pareïlle aux anges ! » L'ami se retira, |
 revint un peu plus tard, le trouva au piano, et lui dit : à
-« Aujourd'hui, mon vieil ami, il n'y a rien de diabo- F
+« Aujourd'hui, mon vieil ami, il n'y a rien de diabo-
 lique sur votre visage. » Beethoven répondit : « C'est |
 1. que mon bon ange m'a visité. » — La blessure fut :
 _ profonde, « Pauvre Beethoven, dit-il lui-même, il n'est À
-point de bonheur pour toi dans ce monde. Dans les 1
+point de bonheur pour toi dans ce monde. Dans les
 régions de l'idéal seulement, tu peux trouver la paix et |
 le bonheur. »
 Il écrit dans ses notes : « Soumission, soumission
@@ -757,10 +756,10 @@ retrouve seul; mais la gloire est venue, et le sentiment |
 | de sa puissance. Il est dans la force de l'âge. Il se livre
 |à son humeur violente et sauvage, sans plus se soucier |
 | de rien, sans égards au monde, aux conventions, aux
-|| jugements des autres. Qu''a-t-il à craindre ou à ménager? L
+|| jugements des autres. Qu''a-t-il à craindre ou à ménager?
 () Ce portrait se trouve encore aujourd'hui dans la maison de
 Beethoven, à Bonn. Il est reproduit dans la Vie de Beethoven par . :
-Frimmel, page 29, et dans le Musical Times du 15 décembre 1892. î
+Frimmel, page 29, et dans le Musical Times du 15 décembre 1892.
 
 Plus d'amour et plus d'ambition. Sa force, voilà ce qui
 lui reste, la joie de sa force, et le besoin d'en user,
@@ -798,12 +797,12 @@ Jésus ont été mes modèles », a-t-il dit quelque part. (Conversations
 de Goethe, et pour ne pas le blesser. Il a raconté
 lui-même une promenade qu'ils firent ensemble, où |
 l'orgueilleux républicain qu'il était donna une leçon de
-dignité au conseiller aulique du grand-duc de Weimar, z
+dignité au conseiller aulique du grand-duc de Weimar,
 qui ne le lui pardonna point.
 « Les rois et les princes peuvent bien faire des professeurs et des conseillers secrets ; ils peuvent les combler
 de titres et de décorations ; mais ils ne peuvent pas
 faire des grands hommes, des esprits qui s'élèvent
-au-dessus de la fiente du monde; .… et quand deux 1
+au-dessus de la fiente du monde; .… et quand deux
 hommes sont ensemble, tels que moi et Goethe, ces |
 messieurs doivent sentir la distance qu'il y a d'eux à ;
 nous. — Hier; nous avons rencontré, sur lie chemin, en |
@@ -820,9 +819,9 @@ natk.r« — Les grands me connaissent. — Pour mon divertisse- ;
 1 3. ment, je vis la procession défiler devant Goethe. Il se
 tenait sur le bord de la route, profondément courbé, à
 son chapeau à la main. Je lui ai lavé la tête après, :
-je ne lui ai fait grâce de rien... » (1) Goethe n'oublia J
-pas non plus. (2) È
-(2) « Beethoven, disait Goethe à Zelter, est malheureusement une 4
+je ne lui ai fait grâce de rien... » (1) Goethe n'oublia
+pas non plus. (2)
+(2) « Beethoven, disait Goethe à Zelter, est malheureusement une
 personnalité tout à fait indomptée; il n'a sans doute pas tort de
 trouver le monde détestable ; mais ce n'est pas le moyen de le :
 
@@ -875,7 +874,7 @@ qui détonne superbement dans le pays de la discipline
 et de l'obéissance. Nulle part plus de franchise et de :
 Lux) [libre puissance que dans la Symphonie en la. C'est une |
 
-dépense folle d'énergies surhumaines, sans but, pour le d
+dépense folle d'énergies surhumaines, sans but, pour le
 plaisir, un plaisir de fleuve qui déborde et submerge. |
 Dans la Huitième Symphonie, la force est moins grandiose, mais plus étrange encore, et plus caractéristique
 de l'homme, mélant la tragédie à la farce, et une
@@ -888,8 +887,8 @@ princes lui rendaient hommage ; et il se laissait fièrement faire la cour par e
 
 Il s'était enflammé pour la guerre d'indépendance. |
 En 1813, il écrivit une symphonie de La Victoire
-{ (1) C'est, en tout cas, un sujet auquel Beethoven a pensé: car nous 4
-le trouvons dans ses notes, et, particulièrement, dans ses projets E
+{ (1) C'est, en tout cas, un sujet auquel Beethoven a pensé: car nous
+le trouvons dans ses notes, et, particulièrement, dans ses projets
 d'une Dixrième Symphonie. ;
 
 (2) Contemporaine, et peut-être inspiratrice, parfois, de ces œuvres
@@ -929,16 +928,16 @@ tous les royaumes temporels et spirituels ». /Mir ist das geistige
 
 Vienne n'avait jamais été sympathique à Beethoven.
 Un génie fier et libre, comme le sien, ne pouvait se
-plaire dans cette ville factice, d'esprit mondain et S
+plaire dans cette ville factice, d'esprit mondain et
 médiocre, que Wagner a si durement marquée de son :
 mépris. (1) Il ne perdait aucune occasion de s'en éloigner : et vers 1808, il avait songé sérieusement à quitter
 l'Autriche, pour venir à la cour de Jérôme Bonaparte,
 roi de Westphalie. (2) Mais Vienne était abondante en
 ressources musicales : et il faut lui rendre cette justice, .
 qu'il s'y trouva toujours de nobles dilettantes pour sen- |
-tir la grandeur de Beethoven et pour épargner à leur ÿ
-patrie la honte de le perdre. En 1809, trois des plus Ë
-riches seigneurs de Vienne : l'archiduc Rodolphe, élève * 24
+tir la grandeur de Beethoven et pour épargner à leur
+patrie la honte de le perdre. En 1809, trois des plus
+riches seigneurs de Vienne : l'archiduc Rodolphe, élève
 de Beethoven, le prince Lobkowitz, et le prince Kinsky, |
 s'étaient engagés à lui servir annuellement une pension |
 de 4.000 florins, sous la seule condition qu'il resterait .
@@ -946,21 +945,21 @@ en Autriche: « Comme il est démontré, disaient-ils,
 que l'homme ne peut entièrement se vouer à son art,
 qu'à la condition d'être libre de tout souci maté-
 riel, et que ce n'est qu'alors qu'il peut produire ces
-œuvres sublimes qui sont la gloire de l'art, les sous- Ë
-signés ont formé la résolution de mettre Ludwig van l
-(1) « Vienne, n'est-ce point tout dire ? — Toute trace du protes- É
+œuvres sublimes qui sont la gloire de l'art, les sous-
+signés ont formé la résolution de mettre Ludwig van
+(1) « Vienne, n'est-ce point tout dire ? — Toute trace du protes-
 tantisme allemand effacée; même l'accent national, perdu, italianisé. L'esprit allemand, les manières et les mœurs allemandes,
 expliquées par des manuels de provenance italienne et espagnole.
 Le pays d'une histoire falsifiée, d'une science falsifiée, d'une religion falsifiée.. Un scepticisme frivole, qui devait ruiner et ensevelir
 (2) Le roi Jérôme avait offert à Beethoven un traitement de six ;
 cents ducats d'or, sa vie durant, et une indemnité de voyage de
 cent cinquante ducats d'argent, contre l'unique engagement de À
-jouer quelquefois devant lui, et de diriger ses concerts de musique 4
-de chambre, qui ne devaient être ni longs, ni fréquents. {Nohl, XLIX} 4
-Beethoven fut tout près de partir. k
-36 4
+jouer quelquefois devant lui, et de diriger ses concerts de musique
+de chambre, qui ne devaient être ni longs, ni fréquents. {Nohl, XLIX}
+Beethoven fut tout près de partir.
+36
 
-Beethoven à l'abri du besoin, et d'écarter ainsi les j
+Beethoven à l'abri du besoin, et d'écarter ainsi les
 obstacles misérables qui pourraient s'opposer à l'essor
 de son génie. »
 
@@ -972,7 +971,7 @@ de 1814. La société était distraite de l'art par la politique, le goût music
 toute à Rossini, traitait Beethoven de pédant. (1)
 
 Les amis et les protecteurs de Beethoven se dispersèrent ou moururent: le prince Kinsky en 1812, Lichnowsky en 1814, Lobkowitz en 1816. Rasumowsky,
-pour qui il avait écrit ses admirables quatuors, op. 59,
+pour qui il avait écrit ses admirables quatuors, op.
 donna son dernier concert en février 1815. En 1815,
 Beethoven se brouille avec Stephan von Breuning, son
 ami d'enfance, le frère d'Éléonore. Il est désormais seul:
@@ -1014,15 +1013,15 @@ rieuse. Quand je fus près de lui, il me présenta son carnet et me fit signe d'
 vous supplie de ne pas continuer; je vous expliquerai
 à la maison pourquoi. » D'un bond, il sauta dans le
 parterre, me criant: « Sortons vite! » Il courut d'un
-trait jusqu'à sa maison; il entra, et se laissa tomber 0
-inerte .sur un divan, se couvrant le visage avec les 1
+trait jusqu'à sa maison; il entra, et se laissa tomber
+inerte .sur un divan, se couvrant le visage avec les
 deux mains; il resta ainsi jusqu'à l'heure du repas. A |
 table, il ne fut pas possible d'en tirer une parole; il con- {
 servait l'expression de l'abattement et dela douleurla
 | plus profonde. Après diner, quand je voulus le laisser,
-| il me retint, m'exprimant le désir de ne pas rester seul. l
+| il me retint, m'exprimant le désir de ne pas rester seul.
 Au moment de nous séparer, il me pria de l'accompa- À
-gner chez son médecin, qui avait une grande répu38 4
+gner chez son médecin, qui avait une grande répu38
 
 tation pour les maladies de loreille. Dans toute la
 suite de mes rapports avec Beethoven, je ne trouve pas
@@ -1064,9 +1063,9 @@ d'avoir l'air de ne pas manquer du nécessaire. » Et
 ailleurs : « La sonate op. 106 a été écrite dans des cir- à
 constances pressantes. C'est une dure chose detravailler
 Pour se procurer du pain. » — Spohr dit que souvent il ‘
-ne pouvait sortir, à cause de ses souliers troués. — IL 4
+ne pouvait sortir, à cause de ses souliers troués. — IL
 avait de fortes dettes envers ses éditeurs, et ses œuvres À
-ne lui rapportaient rien. La Messe en ré, mise en sou- 4
+ne lui rapportaient rien. La Messe en ré, mise en sou-
 scription, recueillit sept souscripteurs, (dont pas un « musicien). (1) Il recevait à peine trente ou quarante
 ducats pour ses admirables sonates, dont chacune lui
 coûtait trois mois de travail. Le prince ‘Galitzin lui
@@ -1075,10 +1074,10 @@ faisait composer ses quatuors, op. 127, 130, 132, ses
 écrites avec son sang; il ne les lui payaït pas. Beethoven se consumait dans des difficultés domestiques, dans
 des procès sans fin, afin d'obtenir les pensions qu'on
 lui devait, ou de conserver la tutelle d'un neveu, le fils
-de son frère Charles, mort de la phtisie en 1815. i
+de son frère Charles, mort de la phtisie en 1815.
 Il avait reporté sur cet enfant le besoin de dévouement dont son cœur débordait. Il se réservait là
 encore de cruelles souffrances. Il semble qu'une sorte À
-() Beethoven s'était adressé personnellement à Cherubini, qui 4
+() Beethoven s'était adressé personnellement à Cherubini, qui
 était « de ses contemporains celui qu'il estimait le plus ». (Nohl: « Lettres de Beethoven, CCL) Cherubini ne répondit pas. ;
 
 de grâce d'État ait pris soin de renouveler sans cesse
@@ -1118,9 +1117,9 @@ pouvais ; je puis paraître devant le Juge Suprême... »(1)
 « Gâté, comme tu es, cela ne te ferait pas de mal de
 
 tâcher enfin d'être simple et vrai; mon cœur a trop |
-souffert de ta conduite hypocrite à mon égard, et il 4
+souffert de ta conduite hypocrite à mon égard, et il
 m'est difficile d'oublier. Dieu m'est témoin, je ne rêve
-que d'être à mille lieues de toi, et de ce triste frère, et 4
+que d'être à mille lieues de toi, et de ce triste frère, et
 de cette abominable famille... — Je ne peux plus avoir
 ; confiance en toi. » Et il signe : « Malheureusement, ton
 père, — ou mieux, pas ton père ». (1)
@@ -1131,7 +1130,7 @@ Mais le pardon vient aussitôt :
 mes bras, tu n'entendras aucune dure parole. Je te recevrai avec le même amour. — Ce qu'il y a à faire pour |
 ton avenir, nous en parlerons amicalement. — Ma
 parole d'honneur, aucun reproche! Ils ne serviraient
-plus à rien. Tu n'as plus à attendre de moi que la solli- 6
+plus à rien. Tu n'as plus à attendre de moi que la solli-
 citude et l'aide la plus aimante. — Viens — viens surle
 cœur fidèle de ton père. — Beethoven. — Viens, aussitôt
 après le reçu de cette lettre, viens à la maison. (Et sur
@@ -1147,7 +1146,7 @@ le seul vrai chemin du bien et du juste. Ton fidèle bon (
 
 (3) Nohl, CCCLXII-LXVII. Une lettre, que vient de retrouver à !
 Berlin M. Kalischer, montre avec quelle passion Beethoven voulait à
-faire de son neveu « un citoyen utile à l'État ». (premier février 1819). s
+faire de son neveu « un citoyen utile à l'État ». (premier février 1819).
 
 Après avoir caressé toutes sortes de rêves pour l'avenir de ce neveu, qui ne manquait pas d'intelligence
 et qu'il voulait diriger vers la carrière universitaire,
@@ -1181,10 +1180,10 @@ un vieillard de soixante-dix ans, brisé, sans force, sans volonté.
 I serait mort, si Charles était mort. — Il mourut peu de mois
 
 .
-à Bonn. (1) Toute sa vie, il voulut chanter la Joie, et 4
-en faire le couronnement de l'une de ses grandes 4
+à Bonn. (1) Toute sa vie, il voulut chanter la Joie, et
+en faire le couronnement de l'une de ses grandes
 œuvres. Toute sa vie, il hésita à trouver la forme
-exacte de l'hymne, et l'œuvre où il pourrait lui donner 4
+exacte de l'hymne, et l'œuvre où il pourrait lui donner
 place. Même dans sa Neuvième Symphonie, il étaitlom
 ‘d'être décidé. Jusqu'au dernier instant, il fut sur le |
 point de remettre l'Ode à la Joie à une dixième ou
@@ -1209,13 +1208,13 @@ de Schiller avait été écrite en 1785. — Le thème actuel apparaît en
 À 1810, dans le Lied, sur des paroles de Goethe : Kleine Blumen, À
 Kkleine Blaetter. — J'ai vu dans un cahier de notes de 1812, appartenant aujourd'hui au docteur Erich Prieger, à Bonn, entre les {
 esquisses de la Septième Symphonie et un projet d'ouverture de ;
-Macbeth, un essai d'adaptation des paroles de Schiller au thème î
+Macbeth, un essai d'adaptation des paroles de Schiller au thème
 qu'il utilisa plus tard dans l'ouverture op. 115 /(Namensfeier). —
 Quelques-uns des motifs instrumentaux de la Neuvième Symphonie
-se montrent avant 1815. Enfin, le thème définitif de la Joie F
+se montrent avant 1815. Enfin, le thème définitif de la Joie
 est noté en 1822, ainsi que tous les autres airs de la Symphonie,
 sauf le frio, qui vient peu après, puis l''andante moderato, et enfin à
-l'adagio, qui paraît le dernier. } 1
+l'adagio, qui paraît le dernier. }
 
 deuxième mélodie de l'adagio, (1) il a écrit : « Peut-être
 le chœur entrerait-il convenablement ici. » Mais il ne
@@ -1239,8 +1238,8 @@ chant un caractère mystérieux et divin. Et cela est vrai :
 ce thème est proprement un dieu. La Joie descend du
 ciel, enveloppée d'un calme surnaturel : de son souffle
 léger elle caresse les souffrances ; et la première impression qu'elle fait est si tendre, quand elle se glisse dans
-le cœur convalescent, qu'ainsi que cet ami de Beetho- 3
-ven, « on a envie de pleurer, en voyant ses doux yeux ». e
+le cœur convalescent, qu'ainsi que cet ami de Beetho-
+ven, « on a envie de pleurer, en voyant ses doux yeux ».
 Lorsque le thème passe ensuite dans les voix, c'est à la
 (1) Bibliothèque de Berlin.
 4 (2) Also ganz so als staenden Worte darunter. (« Tout à fait comme
@@ -1248,7 +1247,7 @@ s'il y avait des paroles dessous. »)
 
 basse qu'il se présente d'abord, avec un caractère sé- |
 rieux et un peu oppressé. Mais peu à peu, la Joïe s'em- ;
-pare de l'être. C'est une conquête, une guerre @ontre k
+pare de l'être. C'est une conquête, une guerre @ontre
 la douleur. Et voici les rythmes de marche, les “4
 armées en mouvement, le chant ardent et haletant du |
 
@@ -1270,7 +1269,7 @@ quelques nobles amis lui portèrent une supplique, pour
 ils, que vous avez écrit une nouvelle composition
 de musique sacrée, (1) où vous avez exprimé les sentiments que vous inspire votre foi profonde. La
 lumière surnaturelle qui pénètre votre grande âme
-l'illumine. Nous savons d'autre part que la couronne de 14
+l'illumine. Nous savons d'autre part que la couronne de
 vos grandes symphonies s'est augmentée d'une fleur
 immortelle... Votre absence pendant ces dernières |
 
@@ -1302,34 +1301,34 @@ Lichnowski, comte Maurice de Friès, comte M. de Dietrichstein,
 / comte F. de Palfy, comte Czernin, Ignace Edler de Mosel, Charles
 Czerny, abbé Stadler, A. Diabelli, Artaria et C., Steiner et C., |
 
-dut mettre fin aux manifestations. La symphonie sou- 3
-leva un enthousiasme frénétique. Beaucoup pleuraient. 111
+dut mettre fin aux manifestations. La symphonie sou-
+leva un enthousiasme frénétique. Beaucoup pleuraient.
 Beethoven s'évanouit d'émotion après le concert; on
-le porta chez Schindler; il y resta assoupi, tout 4
+le porta chez Schindler; il y resta assoupi, tout
 habillé, sans manger ni boire, toute la nuit etle matin
-suivant. Le triomphe fut passager, et le résultat pratique en fut nul pour Beethoven. Le concert ne lui J
-rapporta rien. La gène matérielle de sa vie n'en fut k
+suivant. Le triomphe fut passager, et le résultat pratique en fut nul pour Beethoven. Le concert ne lui
+rapporta rien. La gène matérielle de sa vie n'en fut
 point changée. Il se retrouva pauvre, malade, solitaire, +4
 — mais vainqueur : (1) — vainqueur de la médiocrité ‘4
 des hommes — vainqueur de son propre destin, vain- À
-queur de sa souffrance. — « Sacrifie, sacrifie toujours D
+queur de sa souffrance. — « Sacrifie, sacrifie toujours
 les niaiseries de la vie à ton art! Dieu par dessus tout! » |
 Il s'est donc emparé de l'objet de toute sa vie. Il a
 saisi la Joie. — Saura-t-il rester à ce sommet de l'âme,
-| qui domine les tempêtes? — Certes, il dut retomber 5
+| qui domine les tempêtes? — Certes, il dut retomber
 bien des jours dans les anciennes angoisses. Certes, ses |
 derniers quatuors sont pleins d'ombres étranges. Pour- à
 tant il semble que la victoire de la Neuvième Symphonie _ |
 ait laissé en lui sa glorieuse marque. Les projets qu'il
 (1) La Neuvième Symphonie fut exécutée pour la première fois, en À
-Allemagne, à Francfort, le premier avril 1825; à Londres, dès le 1
+Allemagne, à Francfort, le premier avril 1825; à Londres, dès le
 25 mars 1835; à Paris, au Conservatoire, le 27 mars 1831. Mendelssohn, ;
-âgé de dix-sept ans, en donna une audition sur le piano, à la 4
+âgé de dix-sept ans, en donna une audition sur le piano, à la
 Jaegerhalle de Berlin, le 13 novembre 1826. Wagner, étudiant à “4
-Leipzig, la recopia tout entière de sa main; et, dans une lettre du F
+Leipzig, la recopia tout entière de sa main; et, dans une lettre du
 6 octobre 1830 à l'éditeur Schott, il lui offre une réduction de la
 symphonie, pour piano à deux mains. On peut dire que la Et
-Neuvième Symphonie décida de la vie de Wagner. Ÿ
+Neuvième Symphonie décida de la vie de Wagner.
 
 * a pour l'avenir : la Dixième Symphonie, (1) l'Ouverture
 sur le nom de Bach, la musique pour la Mélusine de
@@ -1354,7 +1353,7 @@ ou répéter en quelque sorte l'adagio, dans les derniers mouvements.
 Pour texte de l'adagio, un mythe grec, [ou] un cantique ecclésiastique.
 Dans l'allegro, fête à Bacchus. » (1818) Da
 à Comme on voit, la conclusion chorale était alors réservée pour la
-- Dixième et non pour la Neuvième Symphonie. É
+- Dixième et non pour la Neuvième Symphonie.
 Plus tard, il dit qu'il veut accomplir dans sa Dirième Symphonie
 « la réconciliation du monde moderne avec le monde antique, ce
 que Goethe avait tenté dans son Second Faust ».
@@ -1380,7 +1379,7 @@ gémit Grillparzer. Il faut partir pour l'Amérique du
 Nord, si l'on veut parler, penser librement. » Mais nul |
 pouvoir ne pouvait bâillonner la pensée de Beethoven. }
 « Les mots sont enchaînés; mais les sons par bonheur
-sont encore libres », lui écrit le poète Kuffner. Beethoven est la grande voix libre, la seule peut-être alors de Ë
+sont encore libres », lui écrit le poète Kuffner. Beethoven est la grande voix libre, la seule peut-être alors de
 la pensée allemande. Il le sentait. Souvent il parle du
 devoir qui lui était imposé d'agir, au moyen de son art,
 « pour la pauvre humanité », pour « l'humanité à venir »
@@ -1396,10 +1395,10 @@ ses critiques et ses satires comme des rêveries inoffensives; et elle laissait 
 avait un extraordinaire éclat ». (1)
 Ainsi rien n'était capable de plier cette force indomp- ;
 table. Elle semble se faire un jeu maintenant de la dou-
-! (1) Beethoven attaquait hardiment les préjugés et les vices de son J
+! (1) Beethoven attaquait hardiment les préjugés et les vices de son
 - gouvernement. Il lui reprochaït, entre autres choses : l'organisation de la justice, arbitraire et servile, entravée par une longue
 procédure ; — la police, qui tendait constamment à outrepasser (
-ses attributions ; — la bureaucratie baroque et inerte, qui tuait 1
+ses attributions ; — la bureaucratie baroque et inerte, qui tuait
 toute initiative individuelle et paralysait l'action ; — les privi- $
 
 leur. La musique écrite dans ces dernières années, malgré les circonstances pénibles où elle fut composée, (1)
@@ -1501,11 +1500,11 @@ attendant la quatrième, il écrit avec sérénité : « Je prends
 patience et je pense : Tout mal amène avec lui quelque à
 
 Le bien fut la délivrance, « la fin de la comédie », ,
-comme il dit en mourant, — disons : de la tragédie de C2
+comme il dit en mourant, — disons : de la tragédie de
 Il mourut pendant un orage, — une tempête de
 neige, — dans un éclat de tonnerre. Une main étrangère
 lui ferma les yeux (1) (26 mars 1825). à
-Cher Beethoven! Assez d'autres ont loué sa grandeur 4
+Cher Beethoven! Assez d'autres ont loué sa grandeur
 artistique. Mais il est bien davantage que le premier, ;
 des musiciens. Il est la force la plus héroïque de l'art
 moderne. Il est le plus grand et le meilleur ami de ceux |
@@ -1514,9 +1513,9 @@ qui souffrent et qui luttent. Quand nous sommes attris-
 {auprès de nous, comme il venait s'asseoir au piano |
 | d'une mère en deuil, et, sans une parole, consolaïit sa
 peine au chant de sa plainte résignée. Et quand la ;
-fatigue nous prend de l'éternel combat inutilement livré 4
+fatigue nous prend de l'éternel combat inutilement livré
 contre la médiocrité des vices et des”vertus, c'est un à
-bien indicible de se retremper dans cet océan de volonté 4
+bien indicible de se retremper dans cet océan de volonté
 et de foi. Il se dégage de lui une contagion de vaillance,
 un bonheur de la lutte, (2) l'ivresse d'une conscience |
 (1) Le jeune musicien Anselm Huettenbrenner. |
@@ -1524,10 +1523,10 @@ un bonheur de la lutte, (2) l'ivresse d'une conscience |
 à ce long et douloureux martyre. »
 (2) « Je suis heureux toutes les fois que je surmonte quelque
 chose. » (Lettre à l'Immortelle Aimée) — « Je voudrais vivre mille ;
-fois la vie. Je ne suis pas fait pour une vie tranquille. » (A Wegeler, 4
+fois la vie. Je ne suis pas fait pour une vie tranquille. » (A Wegeler,
 
 qui sent en elle un Dieu. Il semble que dans sa communion de tous les instants avec la nature, (x) il ait fini
-par s'en assimiler les énergies profondes. Grillparzer, 1
+par s'en assimiler les énergies profondes. Grillparzer,
 qui admirait Beethoven avec une sorte de crainte, dit
 de lui : « Il alla jusqu'au point redoutable, où l'art
 se fond avec les éléments sauvages et capricieux. »
@@ -1668,14 +1667,14 @@ chanter en lui. |
 
 je l'espère, doit être ma résolution de résister, jus- |
 qu'à ce qu'il plaise aux Parques inexorables de tran- À
-cher le fil de ma vie. Peut-être cela ira-t-il mieux, 1
-peut-être non : je suis prêt. — A vingt-huit ans, 1
-déjà, être forcé de devenir philosophe, ce n'est pas 0
+cher le fil de ma vie. Peut-être cela ira-t-il mieux,
+peut-être non : je suis prêt. — A vingt-huit ans,
+déjà, être forcé de devenir philosophe, ce n'est pas
 facile ; c'est plus dur encore pour l'artiste que pour |
 tout autre.
 Divinité, tu pénètres d'en haut le fond de mon |
-cœur, tu le connais, tu sais que l'amour des hommes 4
-et Le désir de faire le bien y habitent! O hommes, 3
+cœur, tu le connais, tu sais que l'amour des hommes
+et Le désir de faire le bien y habitent! O hommes,
 si vous lisez un jour ceci, pensez que vous avez été |
 injustes pour moi; et que le malheureux se console,
 en trouvant un malheureux comme lui qui, malgré )
@@ -1771,7 +1770,7 @@ si égoïstes !.. — Entre tous, je puis dire que l'ami |
 le plus éprouvé est pour moi Lichnowsky. Depuis
 l'année passée, il m'a donné 600 florins : cela et la
 vente fructueuse de mes œuvres me met en étatde
-vivre sans le souci du pain à gagner. Tout ce que 1
+vivre sans le souci du pain à gagner. Tout ce que
 j'écris maintenant, je puis le vendre aussitôt cinq .
 fois, et être bien payé. — J'ai écrit pas mal de
 choses, ces derniers temps ; et, puisque j'apprends
@@ -1816,7 +1815,7 @@ plaisir. Après, tu resteras éternellement auprès de
 
 moi. — J'ai reçu exactement toutes tes lettres ; si |
 
-peu que j'y aie répondu, tu m'as toujours été pré- 4
+peu que j'y aie répondu, tu m'as toujours été pré-
 
 sent, et mon cœur bat pour toi avec la mêmeten-
 
@@ -1868,31 +1867,31 @@ a bien eu de petites mésintelligences entre nous ;
 
 mais elles ont affermi notre amitié,) — Lichnowski
 m'a versé une pension de 600 florins, que je dois
-toucher, aussi longtemps que je ne trouverai pas de 3
+toucher, aussi longtemps que je ne trouverai pas de
 position qui me convienne. Mes compositions me |
 rapportent beaucoup, et je puis dire que j'ai plus de |
 commandes que je ne puis y satisfaire. Pour chaque
 chose, j'ai six, sept éditeurs, et encore plus, si je
 veux m'en donner la peine. On ne discute plus
 avec moi: je fixe un prix, et on le paie. Tu vois
-comme c'est charmant. Par exemple, je vois un 1
+comme c'est charmant. Par exemple, je vois un
 ami dans le besoin, et ma bourse ne me permet :
 pas de lui venir aussitôt en aide: je n'ai qu'à me
-mettre à ma table de travail; et, en peu de temps, Ë
-je l'ai tiré d'affaire. — Je suis aussi plus économe F
+mettre à ma table de travail; et, en peu de temps,
+je l'ai tiré d'affaire. — Je suis aussi plus économe
 Malheureusement, un démon jaloux, ma mauvaise |
-santé, est venu se jeter à la traverse. Depuis trois 1
-ans, mon ouie est toujours devenue plus faible. Cela 1
-doit avoir été causé par mon affection du ventre, 4
+santé, est venu se jeter à la traverse. Depuis trois
+ans, mon ouie est toujours devenue plus faible. Cela
+doit avoir été causé par mon affection du ventre,
 dont je souffrais déjà autrefois, comme tu sais, mais
-qui a beaucoup empiré ; car je suis continuellement 4
-affligé de diarrhée, et par suite d'une extraordinaire 4
+qui a beaucoup empiré ; car je suis continuellement
+affligé de diarrhée, et par suite d'une extraordinaire
 faiblesse. Frank voulait me tonifier avec des recon- }
 
 stituants, et traiter mon ouïe par l'huile d'amandes.
 
 Mais prosit! cela n'a servi à rien; mon ouïe a toujours été plus mal, et mon ventre est resté dans le
-même état. Cela a duré ainsi jusqu'à l'automne der- J
+même état. Cela a duré ainsi jusqu'à l'automne der-
 
 nier, où j'ai été souvent au désespoir. Un âne de
 médecin me conseilla des bains froids ; un autre,
@@ -1921,7 +1920,7 @@ de cela mes ennemis, dont le nombre n'est pas
 Pour te donner une idée de cette étrange surdité,
 
 je te dirai qu'au théâtre je dois me mettre tout près
-de l'orchestre pour comprendre les acteurs. Je n'entends pas les sons élevés des instruments et des J
+de l'orchestre pour comprendre les acteurs. Je n'entends pas les sons élevés des instruments et des
 voix, si je me place un peu loin. Dans la conversation, il est surprenant qu'il y ait des gens quine
 l'aient jamais remarqué. Comme j'ai beaucoup de
 distractions, on met tout sur leur compte. Quand on
@@ -1934,7 +1933,7 @@ tout à fait. — Bien souvent, j'ai maudit mon exis-
 résignation. Je veux, si toutefois cela est possible, :
 je veux braver mon destin ; mais il y a des moments ;
 de ma vie où je suis la plus misérable créature de |
-Dieu. — Je te supplie de ne rien dire de mon état E
+Dieu. — Je te supplie de ne rien dire de mon état
 à personne, même pas une fois à Lorchen; (2) je |
 te le confie sous le sceau du secret. Il me serait
 agréable que tu écrivisses à ce sujet à Vering. Si .
@@ -1969,27 +1968,27 @@ le temps de te répondre. Salue tout le monde de ma
 
 Adieu, bon, fidèle Wegeler! Sois assuré de l'affection et de l'amitié de ton Beethoven.
 
-Mon bon Wegeler ! je te remercie pour ta nou- D:
-velle marque de sollicitude, d'autant plus que je la 4
+Mon bon Wegeler ! je te remercie pour ta nou-
+velle marque de sollicitude, d'autant plus que je la
 mérite si peu. — Tu veux savoir comment je vais, tà
-et ce dont j'ai besoin. Si peu agréable qu'il me soit e
+et ce dont j'ai besoin. Si peu agréable qu'il me soit
 de m'entretenir de ce sujet, je le fais pourtant plus À
 volontiers avec toi. à
 Vering me pose toujours depuis des mois des %
 vésicatoires sur les deux bras... Ce traitement à
 m'est extrêmement désagréable ; sans parler des À
-douleurs, je suis constamment privé pour un ou 4
+douleurs, je suis constamment privé pour un ou
 deux jours de l'usage de mes bras... Je dois con- ;àù
-venir que le bruissement et le bourdonnement sont 4
+venir que le bruissement et le bourdonnement sont
 un peu plus faibles qu'autrefois, surtout à l'oreille #
 gauche, par laquelle justement ma surdité a com- }
-mencé; mais mon ouie ne s'est certainement amé- 5.
+mencé; mais mon ouie ne s'est certainement amé-
 liorée en rien jusqu'à présent ; je n'ose pas décider À
-si elle n'est pas devenue encore pire. — Mon ventre d
+si elle n'est pas devenue encore pire. — Mon ventre
 va mieux; surtout quand j'use pendant quelques
 jours des bains tièdes, je me trouve assez bien, huit "1
-ou dix jours. De loin en loin, je prends quelque 1
-: chose de fortifiant pour l'estomac; je commence 2.
+ou dix jours. De loin en loin, je prends quelque
+: chose de fortifiant pour l'estomac; je commence
 aussi, d'après ton conseil, des applications d'herbes
 
 sur le ventre. — Vering ne veut pas entendre parler
@@ -2020,17 +2019,17 @@ que je sens que le mariage pourrait donner le
 
 bonheur. Malheureusement, elle n'est pas de ma +
 condition ; —et maintenant,— à dire vrai, je ne pour- <
-rais pas encore me marier : il faut que je me remue i
+rais pas encore me marier : il faut que je me remue
 bravement encore. N'était mon ouïe, j'aurais depuis
 longtemps parcouru la moitié du monde; et cela, ; |
 _ je dois le faire. — Il n'y a pas de plus grand plaisir
-pour moi, que d'exercer mon art, et de le montrer. F
+pour moi, que d'exercer mon art, et de le montrer.
 — Ne crois pas que je serais heureux chez vous. ;
 Qui pourrait me rendre heureux encore ? Même
 votre sollicitude me serait à charge ; je lirais à
 chaque instant la compassion sur votre visage, et à
 je me trouverais encore plus misérable. — Ces « beaux pays de ma patrie, qu'est-ce qui m'attirait
-vers eux? Rien que l'espoir d'une meilleure situation; et j y serais parvenu sans ce mal! Oh ! si j'étais Ë
+vers eux? Rien que l'espoir d'une meilleure situation; et j y serais parvenu sans ce mal! Oh ! si j'étais
 libre de ce mal, je voudrais embrasser le monde !
 Ma jeunesse, oui, je le sens, ne fait que commencer;
 n''ai-je pas toujours été souffrant? Ma force physique
@@ -2042,7 +2041,7 @@ connais pas d'autre que le sommeil; et je suis assez
 malheureux de devoir lui accorder plus de temps
 qu'autrefois. Que je sois seulement à moitié délivré
 de mon mal, et alors, — comme un homme plus
-74 1
+74
 
 maître de lui, plus mûr, je viens à vous, et je resserre nos vieux liens d'amitié.
 
@@ -2072,10 +2071,10 @@ n'as pas reçu une longue lettre tous les deux mois,
 tu peux en accuser ton silence après les premières
 letires que je t'ai envoyées. Cela n'est pas bien, et
 maintenant surtout; car nous autres vieilles gens,
-nous vivons si volontiers dans le passé, et nous j
+nous vivons si volontiers dans le passé, et nous
 trouvons par dessus tout plaisir aux images de
 notre jeunesse. Pour moi du moins, ma connais- à
-sance et mon étroite amitié avec toi, grâce à ta k
+sance et mon étroite amitié avec toi, grâce à ta
 bonne mère que Dieu bénisse, est un point lumi- …
 neux de ma vie, vers lequel je me tourne avec
 plaisir... Je lève les yeux vers toi, comme vers un
@@ -2089,7 +2088,7 @@ de ma belle-mère était davantage ta maison, que ta
 propre maison, surtout après la mort de ta noble
 mère. Dis-nous seulement une fois encore : « Oui,
 je pense à vous, dans la joie, dans la tristesse. »
-L'homme, même quand il s'est élevé aussi haut que 3
+L'homme, même quand il s'est élevé aussi haut que
 toi, n'est heureux qu'une fois dans sa vie : c'est
 quand il était jeune. Aux pierres de Bonn, à
 Kreuzberg, à Godesberg, à la Pépinière, etc., tes
@@ -2147,7 +2146,7 @@ cordiales, ainsi que de moi. |
 
 Ton très vieux ami ;
 C'était mon désir que Wegeler vous écrivit de
-nouveau. — Maïntenant que ce désir est accompli, È
+nouveau. — Maïntenant que ce désir est accompli,
 je crois devoir ajouter encore deux mots, —nonpas
 seulement pour me rappeler davantage à votre
 souvenir, mais pour renouveler la demande pressante si vous n'avez donc plus aucun désir derevoir
@@ -2155,10 +2154,10 @@ le Rhin et votre lieu de naissance — et de faire à
 Wegeler et à moi la plus grande des joies. Notre
 Lenchen vous remercie de tant d'heures heureuses;
 — elle a tant de plaisir à entendre parler de vous;
-— elle sait toutes les petites aventures de notre É
+— elle sait toutes les petites aventures de notre
 joyeuse jeunesse à Bonn, — de la brouille et du
 raccommodement.. Comme elle serait heureuse de …
-vous voir ! — La petite n'a malheureusement aucun Ë
+vous voir ! — La petite n'a malheureusement aucun
 talent pour la musique ; mais elle a tant fait, avec
 tant d'application et de persévérance, qu'elle peut
 jouer vos sonates, variations, ete.; et comme la
@@ -2194,23 +2193,23 @@ Beethoven ne” :
 plus grand bonheur est que nous allons bien, etque De
 nous avons de bons et braves enfants. — Oui, ils
 ne nous ont fait encore aucune peine, et ils sont
-gais, et de bons petits. — Lenchen a eu seulement D.
-un gros chagrin: — c'est quand notre pauvre 2
-Burscheid est mort; — une perte que nous tous 4
+gais, et de bons petits. — Lenchen a eu seulement
+un gros chagrin: — c'est quand notre pauvre
+Burscheid est mort; — une perte que nous tous
 n'oublierons jamais. Adieu, cher Beethoven, et
 pensez à nous en toute loyale bonté. à
-Mon vieux ami aimé! Ë
+Mon vieux ami aimé!
 Quel plaisir m'a fait ta lettre et celle de ta
 Lorchen, je ne puis pas l'exprimer. Certainement
 j'aurais dû te répondre aussitôt; mais je suis un à
-peu négligent, surtout pour écrire, parce que je E
+peu négligent, surtout pour écrire, parce que je
 pense que les meilleures gens me connaissent hi.
 sans cela. Dans ma tête je fais souvent la réponse;
 mais quand je veux la mettre par écrit, le plus
 souvent je jette ma plume au loin, parce que je ne
-(1) On remarquera que les amis de ce temps, même quand ils 2
-s'aimaient le mieux, étaient d'une affection moins impatiente que 4
-nous. Beethoven répond à Wegeler dix mois après sa lettre. F:
+(1) On remarquera que les amis de ce temps, même quand ils
+s'aimaient le mieux, étaient d'une affection moins impatiente que
+nous. Beethoven répond à Wegeler dix mois après sa lettre.
 
 suis pas en état d'écrire comme je sens. Je me
 souviens de toute l'affection que tu m'as toujours
@@ -2224,7 +2223,7 @@ retenus toujours fermement unis ensemble. Malheureusement, je ne puis pas t'écr
 autant que je voudrais, parce que je suis alité.…
 dis) pour que tu voies comme tout ce qu'il y a eu de
 bon et de cher dans ma jeunesse m'est toujours
-.. On dit chez moi : Vulla dies sine linea, et je É
+.. On dit chez moi : Vulla dies sine linea, et je
 ” laisse pourtant la muse dormir; mais c'est pour
 qu'elle se réveille plus forte ensuite. J'espère encore
 mettre au monde quelques grandes œuvres ; et puis,
@@ -2236,26 +2235,26 @@ et qui, je le sais, te feront plaisir, je t'annonce que
 œuvre : le second finale de son quatuor op. 130. Il était chez son
 frère, à Gneixendorf, près de Krems, sur le Danube.
 
-j'ai reçu du roi de France défunt une médaille, avec 24
+j'ai reçu du roi de France défunt une médaille, avec
 l'inscription : Donnée par le Roi à monsieur Bee.
 thoven; elle était accompagnée d'un écrit très
 Mon ami bien cher, contente-toi de ceci pour #
-aujourd'hui. Le souvenir du passé me saisit, et ce 3
-n'est pas sans d'abondantes larmes que je t'envoie ë
-cette lettre. Ceci n'est qu'un commencement; 2
-bientôt tu recevras une nouvelle lettre ; et plus tu 2
+aujourd'hui. Le souvenir du passé me saisit, et ce
+n'est pas sans d'abondantes larmes que je t'envoie
+cette lettre. Ceci n'est qu'un commencement;
+bientôt tu recevras une nouvelle lettre ; et plus tu
 m'écriras, plus tu me feras plaisir. Cela n'a pas A
 besoin de se demander, quand on est amis comme ;
-nous le sommes. Adieu. Je te prie d'embrasser L
-tendrement en mon nom ta chère Lorchen et tes 4
+nous le sommes. Adieu. Je te prie d'embrasser
+tendrement en mon nom ta chère Lorchen et tes
 enfants, et de penser à moi. Dieu soit avec vous ;
-Comme toujours ton fidèle vrai ami qui t'estime, 3
+Comme toujours ton fidèle vrai ami qui t'estime,
 Mon vieux et digne ami!
-J'ai reçu heureusement de Breuning ta seconde E
-lettre. Je suis encore trop faible pour y répondre ; 4
+J'ai reçu heureusement de Breuning ta seconde
+lettre. Je suis encore trop faible pour y répondre
 
 mais tu peux penser que tout ce que tu dis m'est
-bienvenu, et que je le désire. Pour ma convalescence, si je peux la nommer ainsi, cela va bien lentement encore ; il est à présumer qu'il faut s'attendre ë
+bienvenu, et que je le désire. Pour ma convalescence, si je peux la nommer ainsi, cela va bien lentement encore ; il est à présumer qu'il faut s'attendre
 à une quatrième opération, bien que les médecins
 n'en disent rien. Je prends patience et je pense:
 tout mal apporte avec lui quelque bien... Combien
@@ -2278,19 +2277,19 @@ dois souffrir la mort en vie, je sois à l'abri du #
 
 besoin. (1) Cela me donnera la force de supporter
 mon lot, si dur et si terrible qu'il puisse être, avec
-résignation à la volonté du Très-Haut. 1
+résignation à la volonté du Très-Haut.
 
-() Beethoven, près de manquer d'argent, s'était adressé à la É
+() Beethoven, près de manquer d'argent, s'était adressé à la
 t Société philharmonique de Londres, et à Moscheles, alors en Angle- #
-terre, pour tâcher d'organiser un concert à son bénéfice. La Société : 28
+terre, pour tâcher d'organiser un concert à son bénéfice. La Société
 eut la générosité de lui envoyer aussitôt cent livres sterling comme CE
 acompte. Il en fut ému jusqu'au fond du cœur. « C'était un spec- à
 tacle déchirant, dit un ami, de le voir, au reçu de cette lettre, joi- ee.
 gnant les mains, et sanglotant de joie et de reconnaissance. » Dans À
 l'émotion, la blessure de sa plaie se rouvrit. IL voulut encore dic- “4
-‘ ter une lettre de remerciements aux « nobles Anglais, qui avaient 7
+‘ ter une lettre de remerciements aux « nobles Anglais, qui avaient
 , pris part à son triste sort »; il leur promeitait une œuvre : sa ne
-Dixième Symphonie, une Ouverture, tout ce qu'ils voudraient. 0
+Dixième Symphonie, une Ouverture, tout ce qu'ils voudraient.
 a « Jamais encore, disait-il, je n'ai entrepris une œuvre avec autant ER
 5 d'amour, que je le ferai pour celle-ci. » Cette lettre est du 18 mars.
 Le 26 il était mort. RE.
@@ -2309,30 +2308,30 @@ D'° CurisTiAN GOTTLIEB KALISCHER. — Neue Beethovenbriefe. 1902, Berlin et Lei
 [La plupart sont reproduites dans la grande biographie
 de Thayer (voir plus loin)].
 
-Il. — Pour la vie de Beethoven k
+Il. — Pour la vie de Beethoven
 pour l'enfance de Beethoven. — Fischer, mort à Bonn en #1
 1864, était propriétaire de la maison, où vécurent deux +
 générations de la famille Beethoven. Lui et sa sœur on.
 Caecilia connurent intimement Beethoven enfant, et no- à
-tèrent leurs souvenirs, qui sont précieux, à condition qu'on 4
-en use avec quelque critique). — Le manuscrit est à la 3
-Beethovenhaus de Bonn. DEITERs (voir plus loin) en a E
-publié des extraits. 2à
-Notizen ueber Ludwig van Beethoven (surtout précieux pour 4
+tèrent leurs souvenirs, qui sont précieux, à condition qu'on
+en use avec quelque critique). — Le manuscrit est à la
+Beethovenhaus de Bonn. DEITERs (voir plus loin) en a
+publié des extraits.
+Notizen ueber Ludwig van Beethoven (surtout précieux pour
 la première moitié de sa vie). 1838, Coblentz. Traduction a:
 duction française 1865 (épuisé) (pour la seconde moitié de #
 hause. 1874. (La Schwarzspanierhaus est la maison de É-
 Vienne où Beethoven est mort.)
-allemand, et continué par HERMANN DEITERS). — Ludwig i
+allemand, et continué par HERMANN DEITERS). — Ludwig
 Commencé en 1866; interrompu par la mort de l'auteur, #4
-en 1897, à Trieste, où il était consul des États-Unis ; l'ou- L
+en 1897, à Trieste, où il était consul des États-Unis ; l'ou-
 vrage s'arrête à l'année 1816. — Deiters a entrepris de le ;
-terminer, et de compléter les livres déjà parus ; mais seul, 5 É.
-le premier volume de sa traduction a encore été publié. 74
-— C'est de beaucoup l'œuvre la plus importante sur Bee- 3
-thoven, au point de vue de la documentation. É
+terminer, et de compléter les livres déjà parus ; mais seul,
+le premier volume de sa traduction a encore été publié.
+— C'est de beaucoup l'œuvre la plus importante sur Bee-
+thoven, au point de vue de la documentation.
 
-A.-B. Marx. — L. van Beethovens Leben und Schaffen. 74
+A.-B. Marx. — L. van Beethovens Leben und Schaffen.
 Vicror WiLpEr. — Beethoven, sa vie et son œuvre. 1883.
 Tuegopor von FRIMMEL. — Ludwig van Beethoven (dans la
 collection des Beruehmte Musiker). 1901, Berlin.
@@ -2345,27 +2344,27 @@ des sonates de piano) (épuisé). 1854.
 Ourmicuerr. — Beethoven, ses critiques et ses glossateurs. 1857. Fr:
 R. ScHumAnx. — Écrits sur la musique et les musiciens, ‘4
 première série, traduction H. de Curzon, 1894. #4
-IV. — Portraits de Beethoven 4
+IV. — Portraits de Beethoven
 É 1789. — Silhouette de Beethoven à dix-huit ans.[Maison de Ne.
-Beethoven, à Bonn; reproduit dans la biographie de Frim- 4
-1991-2. — Miniature de Beethoven, par GERHARD VON 4
-duit dans le Musical Times du 15 décembre 92, page 8] E.
+Beethoven, à Bonn; reproduit dans la biographie de Frim-
+1991-2. — Miniature de Beethoven, par GERHARD VON
+duit dans le Musical Times du 15 décembre 92, page 8]
 1801. — Dessin de G. Stainhauser, graŸé par JOHANN : +
 Nez. [Reproduit dans Félix Clément : Les Musiciens Le
-1802. — Gravure de Scheffner, d'après STAINHAUSER. [Mai- = É
-son de Beethoven, à Bonn; reproduit dans die Musik du 1
+1802. — Gravure de Scheffner, d'après STAINHAUSER. [Mai- =
+son de Beethoven, à Bonn; reproduit dans die Musik du
 (1) L'œuvre du grand musicien Friedrich Wilhelm Rust (1739- "34
-1796), de Dessau, récemment découvert, grâce aux publications É.
-qu'un de ses petits-fils a faites de quelques-unes de ses sonates, est ù s
+1796), de Dessau, récemment découvert, grâce aux publications
+qu'un de ses petits-fils a faites de quelques-unes de ses sonates, est
 devenue indispensable à connaître, pour qui veut étudier la for- ee.
 mation du génie musical de Beethoven. Rust et Charles-Philippe- ;
 Emmanuel Bach, comme l'a indiqué M. Vincent d'Indy, semblent
-avoir été les vrais précurseurs de Beethoven. — Il serait bon toute- 33
+avoir été les vrais précurseurs de Beethoven. — Il serait bon toute-
 fois de faire d'abord une étude critique minutieuse des manuscrits %
-de Rust, afin d'établir un texte rigoureusement exact. M
-L Il y a aussi quelque intérêt à connaître certaines des compositions religieuses et dramatiques de Cherubini, dont le style a parfois servi de modèle à Beethoven. 0
+de Rust, afin d'établir un texte rigoureusement exact.
+L Il y a aussi quelque intérêt à connaître certaines des compositions religieuses et dramatiques de Cherubini, dont le style a parfois servi de modèle à Beethoven.
 
-_ 1802. — Miniature de Beethoven, par CuristiAN HonxeMANN. [Appartient à madame de Breuning, à Vienne; ï
+_ 1802. — Miniature de Beethoven, par CuristiAN HonxeMANN. [Appartient à madame de Breuning, à Vienne;
 * reproduit dans Frimmel, page 31] |
 
 1805. — Portrait de Beethoven, par W.-J. MAEHLER. [Appartient à Robert Heimler, Vienne ; reproduit dans le Musical Times, page 7; Frimmel, page 34]
@@ -2384,7 +2383,7 @@ masque. [Appartient au fabricant de pianos E. Streicher,
 
 1814. — Dessin de L. Letronne, gravé par BLasius HogreL.
 
-[Le plus beau portrait de Beethoven ; la maison de Beetho- 3
+[Le plus beau portrait de Beethoven ; la maison de Beetho-
 ven, à Bonn, possède l'exemplaire qu'il offrit à Wegeler;
 reproduit dans Frimmel, page 51; — Musical Times, page 21]
 
@@ -2406,28 +2405,28 @@ von KLorger. [Reproduit dans le Musical Times, page 25]
 [Maison de Beethoven, à Bonn; reproduit dans die Musik,
 
 Bibliographie : ne
-1819. — Portrait de Beethoven, par K.-JosEPH STIELER. 4
-[Appartient à Alex. Meyer Cohn, Berlin; reproduit dans :46
-1821. — Buste de Beethoven, par ANTON DIETRICH. [Appar- E
+1819. — Portrait de Beethoven, par K.-JosEPH STIELER.
+[Appartient à Alex. Meyer Cohn, Berlin; reproduit dans
+1821. — Buste de Beethoven, par ANTON DIETRICH. [Appar-
 tient à Léopold Schroetter de Kristelli ; reproductien dans ‘4
-la maison de Beethoven, à Bonn] : x
-1824-6. — Dessins-caricatures de Beethoven se promenant, . J
-par J.-P. Lyser. [Originaux à la Gesellschaft der Musik- 4
-freunde, Vienne; reproduits dans Frimmel, page 67; — K
-1823. — Dessins-caricatures de Beethoven se promenant, 4
-par Jos. vAN Box. [Reproduits dans Frimmel, page 70] 14
+la maison de Beethoven, à Bonn]
+1824-6. — Dessins-caricatures de Beethoven se promenant,
+par J.-P. Lyser. [Originaux à la Gesellschaft der Musik-
+freunde, Vienne; reproduits dans Frimmel, page
+1823. — Dessins-caricatures de Beethoven se promenant,
+par Jos. vAN Box. [Reproduits dans Frimmel, page 70]
 1823. — Portrait de Beethoven, par WALDMUELLER.|Appar- à
-tient à Breitkopf und Haertel, Leipzig; reproduit dans 4
+tient à Breitkopf und Haertel, Leipzig; reproduit dans
 1825-6. — Dessin de Beethoven, par STEFAN DECKER. ‘4
-[Appartient à Georg Decker, Vienne; reproductions à la 4
+[Appartient à Georg Decker, Vienne; reproductions à la
 maison de Beethoven, à Bonn] .
 1826. — Dessin de A. Dietrich, lithographié par Jos. Ke
-KRIŒHUBER |Reproduit dans Frimmel, page 73] 4
+KRIŒHUBER |Reproduit dans Frimmel, page 73]
 1826. — Buste de Beethoven à l'antique, par Scxarzer. "
-[Appartient à la philharmonische Gesellschaft de Londres ; 4
+[Appartient à la philharmonische Gesellschaft de Londres
 copie à la maison de Beethoven, à Bonn; reproduit dans É ïé
 Frimmel, page 54, et le Musical Times] :
-1827. — Esquisse de Beethoven sur son lit de mort, par 1
+1827. — Esquisse de Beethoven sur son lit de mort, par
 duit dans l'Allgemeine Musik-Zeitung, du 19 avril 1901]
 1827. — Masque de Beethoven mort, moulé par Dax- à
 HAUSER. [Maison de Beethoven, à Bonn] +4
@@ -2457,22 +2456,22 @@ pour les trois mille exemplaires de cette deuxième
 
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-Romain Rolland, — Vies des hommes illustres. . . . 5
+Romain Rolland, — Vies des hommes illustres. . .
 Masque de Beethoven, moulé par Franz Klein en 1812,
 dans les quatre cents premiers exemplaires de
 cette seconde édition, que nous avons réservés
-pour nos collections complètes, avant la page. . 9
+pour nos collections complètes, avant la page.
 Beethoven. — testament d'Heiligenstadt, pour mes
-frères Carl et (Johann) Beethoven, Heiligenstadt, Ÿ
-Beethoven. — testament d'Heiligenstadt, pour mes 3
+frères Carl et (Johann) Beethoven, Heiligenstadt,
+Beethoven. — testament d'Heiligenstadt, pour mes
 frères Carl et (Johann). A lire et à exécuter après :
 ma mort, Heiligenstadt, le 10 octobre 1802. . .. 62 &
 
 lettre de Wegeler et d'Éléonore (von Breuning) à F1 È DNS
-| lettre de Wegeler, Coblents, 28 décembre 1825. ,.. m
-| lettre d'Éléonore Wegeler, Coblentz, 29 décembre 1825 78
-pourles lettres de Beethoven... "AUS 85 D
-pourda vie de Becthoyen:"19;1r.. 0" CRM ROREERE 86 4
+| lettre de Wegeler, Coblents, 28 décembre 1825. ,..
+| lettre d'Éléonore Wegeler, Coblentz, 29 décembre 1825
+pourles lettres de Beethoven... "AUS
+pourda vie de Becthoyen:"19;1r.. 0" CRM ROREERE
 pour l'œuvre de Beethovén. . : .. :.. VOUS
 s portraits de Beethoven. .-. ... . .... OURS
 
@@ -2482,36 +2481,36 @@ portent reproduite par la photographie la signature dd _
 Beethoven; ces exemplaires, collés sur feutre, se vendent : ne.
 
 pe deuxième édition le jeudi 24 septembre 1903
-ë à l'Imprimerie de Suresnes 3
+ë à l'Imprimerie de Suresnes
 \ = 9, rue du Pont ee:
 
 < Nos Cahiers sont édités par des souscriptions men
-suelles régulières et par des souscriptions extraordi- 14
+suelles régulières et par des souscriptions extraordi-
 naires; la souscription ne confère aucune autorité sur.
 la rédaction ni sur l'administration : ces fonctions
 des abonnements de souscription à cent francs ; a.
-des abonnements ordinaires à vingt francs ; > 4
-et des abonnements de propagande à douze francs. 4
+des abonnements ordinaires à vingt francs ; >
+et des abonnements de propagande à douze francs.
 Il va de soi qu'il n'y a pas une seule différence de
 service entre ces différents abonnements. Nous voulons
-seulement que nos cahiers soient accessibles à tout le M
-monde également. 5
+seulement que nos cahiers soient accessibles à tout le
+monde également.
 Le prix de nos abonnements ordinaires est à peu près à
-égal au prix de revient; le prix de nos abonnements de 4
+égal au prix de revient; le prix de nos abonnements de
 propagande est donc sensiblement inférieur au prix de
 revient. Nous ne consentons des abonnements de propæ
 gande que pour la France. Be:
-Nous acceptons que nos abonnés paient leur abonnement par mensualités de un ou deux francs. 4
+Nous acceptons que nos abonnés paient leur abonnement par mensualités de un ou deux francs.
 Pour tout changement d'adresse envoyer soixante
-centimes, quatre timbres de quinze centimes. E
-L'abonnement de propagande cesse de fonctionner H
+centimes, quatre timbres de quinze centimes.
+L'abonnement de propagande cesse de fonctionner
 pour chaque série à l'achèvément de cette série; la
-quatrième série normale ayant fini fin juin 1903, on \4 k
+quatrième série normale ayant fini fin juin 1903, on \4
 pouvait jusqu'au 30 juin 1903 avoir au prix de pro- 4 "
 pagande les vingt premiers cahiers de cette série. De
 L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit
-l'achèvement de cette série ; ainsi du premier juillet au 4
+l'achèvement de cette série ; ainsi du premier juillet au
 31 décembre 1903 on peut encore avoir pour vingt francs
 les vingt-deux cahiers de la quatrième série complète.
 

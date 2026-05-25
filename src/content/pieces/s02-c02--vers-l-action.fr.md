@@ -137,7 +137,7 @@ cœur comprimé, la gorge sèche, sans raison pour
 réagir contre cet élan de répulsion violente. Le
 voyage de retour s'est effectué dans un cauchemar.
 
-Ce n'est pas moi, c'est je ne sais quelle créature ÿ
+Ce n'est pas moi, c'est je ne sais quelle créature
 artificielle qui a consulté les Indicateurs, fait enre-
 gistrer les bagages, changé de train où et quand il
 fallait en changer. Je me suis retrouvée dans ma
@@ -433,11 +433,11 @@ sans queue ni tête.
 Et nous.avons cheminé jusqu'à l'endroit où le
 canal tourne vers les ruines du château, non loin
 
-pierre, vestige de l'ancien pare ducal. Comme mal- É
-gré moi ce vieux banc attirait mes regards, parce Ÿ
-que l'année dernière, en été, j'étais venue m'y as- è
+pierre, vestige de l'ancien pare ducal. Comme mal-
+gré moi ce vieux banc attirait mes regards, parce
+que l'année dernière, en été, j'étais venue m'y as-
 seoir avec Lui, et que, malgré tout ce qu'on a pu
-décider ensuite, ces souvenirs là sont vivaces, — ÿ
+décider ensuite, ces souvenirs là sont vivaces,
 Nicole remarqua mon trouble et se tut.
 En revenant, je lui parlai pour rompre le
 silence. Nous avions laissé chez elle en visite certain M. Valentin Latour, fils d'un usinier opulent
@@ -498,7 +498,7 @@ une créature anormale.
 Il n'est point ordinaire qu'une jeune fille de
 vingi-trois ans approfondisse la Politéia d'Aristote
 et songe à lire Karl Marx. Ce ne serait là que des
-sports inoffensifs, si vous étiez snob et capricieuse. ÿ
+sports inoffensifs, si vous étiez snob et capricieuse.
 Mais je sais votre âme sincère, peu flexible et'qui
 ne renonce jamais.
 Prenez garde qu'une intuition faite de secousses
@@ -812,10 +812,10 @@ J'ai reçu votre lettre, mon Aurélia aimée. Elle fait
 durer en moi les moments de cette promenadeà
 deux que nous avons faite au jardin, la veille de
 mon départ, sous un ciel laiteux. Le jet d'eau gré-
-sillait sur le bassin. Nos voix n'osaient pas troubler l
+sillait sur le bassin. Nos voix n'osaient pas troubler
 le demi-silence; nos idées se voilaient d'expressions
 Pourquoi me remercier des cahiers de Grieg que
-vous avez reçus de Paris? Cette musique de folie r
+vous avez reçus de Paris? Cette musique de folie
 gracieuse, de rêves mi-souriants, de nuances fugaces, quand elle vivra dans votre effort, me charmera
 tout l'être, — et ce ne sera pas vous qui me devrez
 des remerciements. Elle a de subits et délicats aban-
@@ -836,7 +836,7 @@ Extrait du journal
 
 Nicole ébat ses doigts agiles parmi des envolements d'étoffes. Une lumière lavée de pluie poudroie
 sur les soies et les gazes. M. Valentin Latour, hiératique, traite avec sérénité une question de métal-
-lurgie. Moi, je suis comme cet Anglais de l'Éve future, quand il converse avec une femme artificielle : F
+lurgie. Moi, je suis comme cet Anglais de l'Éve future, quand il converse avec une femme artificielle
 encore est-il troublé par les perfections de l'automate, et moi pas. Je ne m'émeus qu'à la longue en
 creusant et en rapprochant ces impressions d'automatisme : car les gens ne sont-ils pas tous des mé-
 canismes qui hantent notre rêve perpétuel ? Ils font
@@ -930,7 +930,7 @@ il est possible de parler des morts que l'on continue
 d'aimer, car souvent la vie qu'ils ont vécue en eux
 se perd sous la vie nouvelle qu'ils vivent en nous,
 dans nos tissus et nos fibres, dans nos sens, dans
-toutes les images quotidiennes. ÿ
+toutes les images quotidiennes.
 Ce matin, j'ai retrouvé une photographie de mon
 père jeune, faite à Paris, quand il apprenait son
 métier de musicien. Puis, je l'ai précisé dans ma
@@ -1012,7 +1012,7 @@ pour les dominer, quand la matière s'est assagie.
 
 Après un court silence, il ajouta : Je ne leur en
 veux pas : il n'est pas nécessaire que la matière
-vivante produise de la pensée. La pensée est un c
+vivante produise de la pensée. La pensée est un
 phénomène somme toute assez rare : peut-être est-ce
 une maladie. Ce qu'il y a de sûr, c'est que la plupart
 des hommes en sont dépourvus. On éviterait bien
@@ -1612,18 +1612,18 @@ berçait et faisait bruire. Sylvie m'a amené Jacques
 et Jacques m'a souri. Le pauvre enfant n'avait guère
 vu d'arbres qu'au Parc-Monceau : les choses du
 plein air l'ont stupéfié. Annette l'a promené au jardin et dans la maison, pendant que j'écoutais les
-doléances suprèmes de la bonne femme. Elle partie, w
+doléances suprèmes de la bonne femme. Elle partie,
 j'ai, du jardin, vu Jacques à la fenêtre de sa chambre : il s'extasiait devant la vallée du fleuve, large
 ouverte sous lui, cernée.à gauche d'une ligne raide
 et violette, embruinée au fond sur les mamelons
 par la colline que surmonte l'aqueduc.
 Jacques avait l'air d'un petit roi trop jeune pour !
 l'ampleur de son domaine, attristé soudain devant
-l''énormité de sa tâche. Je suis montée dans sa cham- k
+l''énormité de sa tâche. Je suis montée dans sa cham-
 bre et comme il restait toujours immobile, quelque
 peu hébété en face de la nuit tombante, doucement
 j'ai passé mon bras gauche autour de son cou. Il a
-levé la tête pour croiser ses regards avec les miens, j
+levé la tête pour croiser ses regards avec les miens,
 et tous deux nous avons été satisfaits l'un de l'autre.
 — Fermons la fenêtre, Jacques, sinon tu t'enrhumerais. Demain nous nous promènerons. — Jacques
 me dit : Je commençais à avoir peur, parce que c'est
@@ -1670,11 +1670,11 @@ ma rêverie : une pensée obscure me gâtait le charme
 de cette intimité commençante. Par hasard, je tour-
 nai les yeux vers mon portrait à la sanguine, que
 j'ai fixé à un petit chevalet, sur la table en formede
-trèfle. Mais à cette vue, un frisson m'efileura l'épiderme. Vraiment, j'étais là d'une énergie mauvaise l
+trèfle. Mais à cette vue, un frisson m'efileura l'épiderme. Vraiment, j'étais là d'une énergie mauvaise
 et vaine : aucune autre pensée n'y hantait mes yeux
-que celle de m'aflirmer dominatrice implacable. k
+que celle de m'aflirmer dominatrice implacable.
 Instinctivement, je pris la lampe et m'en fus devant
-une glace. Là, mon image m'apparut blanchtre, ÿ
+une glace. Là, mon image m'apparut blanchtre,
 avec une figure de fatigue et d'effarement. J'ai eu
 un sourire de reconnaissance pour la glace, et suis
 montée chez Jacques.
@@ -1719,7 +1719,7 @@ pauvres nerfs meurtris d'efforts, d'obstruer cette
 imagination qui s'entrebâäille à peine. Oui, j'étais
 peut-être bien alors la créature d'énergie aveugle et
 funeste que Delbove a tirée de moi. Pourtant,
-aujourd'hui, comme je me sens douce et fraternelle, s
+aujourd'hui, comme je me sens douce et fraternelle,
 auprès de Jacques, fiévreux et courbaturé.
 Il gît sur un divan du petit hall que j'ai installé
 pour la musique et les graves travaux de l'esprit.
@@ -1750,12 +1750,12 @@ bouffées humides du soir. Jacques bientôt somnola,
 et je restai à genoux sur le linoléum, accoudée au
 bord du divan, parce que je me sentais là tuté- À
 laire et protégée.
-S'il pouvait comprendre, je lui demanderais par- È
+S'il pouvait comprendre, je lui demanderais par-
 don d'avoir brisé ses membres, alourdi sa cervelle
 menue ; Car je me suis précipitée sur cette œuvre
 pédagogique avec une sorte de voracité. Ne sais-je
 pas qu'un principe doit demander aux faits son
-passeport, son outillage et sa feuille de route? — j
+passeport, son outillage et sa feuille de route?
 
 Quelle humiliation pour moi de me retrouver
 aveugle et téméraire, après d'aussi dures leçons !
@@ -1793,7 +1793,7 @@ d'arranger à votre gré une parcelle du monde, et
 peut-être même n'étlait-ce là pour vous qu'un moyen
 d'écarter des souvenirs toujours cruels.
 Le malheur me tient à présent. L'homme que je
-devrais aimer, chaque jour je le déteste un peu l
+devrais aimer, chaque jour je le déteste un peu
 plus que la veille. Il a fallu auprès de moi tant
 toyable, pour me rendre, moi, la toquée d'hier,
 curieuse des choses morales : observer et réfléchir,
@@ -1824,7 +1824,7 @@ morte. Je crains bien que nos dissentiments conjugaux n'aient hâté sa déchéa
 Il ne s'occupe plus de rien. Mon mari mène tout
 
 avec un ingénieur. Nos dépenses m'autorisent
-croire que les affaires vont bon train. Mais il y a des k
+croire que les affaires vont bon train. Mais il y a des
 bruits de grève qui circulent. On parle de salaires
 rognés, d'heures supplémentaires, de renvois inhu-
 
@@ -1839,9 +1839,9 @@ Cela est sinistre. Voyez un peu le bout de votre
 rêve : deux enfers, l'un dans l'autre. Si je n'avais
 point gardé un peu de ma folie, je ne serais qu'une
 loque humaine. Mais j'ai par instants de subites
-ivresses, où je me retrouve désireuse de vivre. Ma e
+ivresses, où je me retrouve désireuse de vivre. Ma
 pensée s'envole et il me passe des besoins violents
-de m'envoler comme elle. Je ne réponds pas de ce i
+de m'envoler comme elle. Je ne réponds pas de ce
 que je ferai demain.
 Extrait du journal
 

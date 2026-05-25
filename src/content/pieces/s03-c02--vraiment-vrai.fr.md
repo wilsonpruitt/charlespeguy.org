@@ -8,7 +8,7 @@ isAvertissement: false
 wordCount: 800
 ---
 où Mon cher Péguy,
-44 J'ai le plaisir de vous annoncer la naissance des Cahiers
+J'ai le plaisir de vous annoncer la naissance des Cahiers
 La politique est une belle chose. IL est noble et beau
 - d'être radical socialiste, d'organiser des réunions éleetorales, de rédiger des programmes, de fonder des comités
 pour soutenir une candidature. De bonnes polémiques
@@ -39,7 +39,7 @@ th vue, et d'essayer d'agir ensemble.
 ‘(ah Pendant une marche-manœuvre dans laquelle je remplissais avec honneur et fidélité les importantes fonctions
 ee d'homme de communication, l'idée me vint de fonder ici
 
-1 Deux amis qui à l'école de section se trouvaient être file
+Deux amis qui à l'école de section se trouvaient être file
 de base réfléchirent à l'idée, l'approuvèrent, et ce fut placés
 en grand garde que l'idée définitivement adoptée, nous passämes à l'exécution.
 
@@ -68,7 +68,7 @@ rue de Paris, à Nevers, secrétaire de la rédaction.
 È M. Emmanuel Defert, 45, boulevard des Batignolles, va
 se mettre en relations avec le Groupe des Nivernais de
 
-5 Nous souhaitons que les cahiers nivernais naissent et se vivent justes, vrais, utiles, prospères, libres, qu'ils travaillent solidairement avec nous, mais qu'ils soient libres de nous aussi.
+Nous souhaitons que les cahiers nivernais naissent et se vivent justes, vrais, utiles, prospères, libres, qu'ils travaillent solidairement avec nous, mais qu'ils soient libres de nous aussi.
 
 À Ce cahier a élé composé et tiré au tarif des ouvriers syndiquës
 
@@ -83,7 +83,7 @@ _ Nous acceptons que nos abonnés paient leur abonne- ee.
 —_ mentpar mensualités de un ou deux francs. À
 Fat M. André Bourgeois, administrateur des cahiers,
 FE reçoit pour l'administration et pour la librairie tous
-5 les jours de la semaine, le dimanche excepté, — de ù
+5 les jours de la semaine, le dimanche excepté, — de
 ÉE huit heures à onze heures et de une heure à sept À
 M. Charles Péguy, gérant des cahiers, reçoit pour
 … La rédaction le jeudi soir de deux heures à cinq heures. à

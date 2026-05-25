@@ -7,21 +7,21 @@ author: rene-salome
 isAvertissement: false
 wordCount: 10745
 ---
-Qu'il avait mis là pour-le ménager, sans doute, ; " 4
+Qu'il avait mis là pour-le ménager, sans doute, ; "
 Etpour avoir le front plus léger sur la route. ere à
 : À notre table, il abondaïit en fins propos; en
-€ Du moins je l'en soupçonnais fort, car, sur sa peau 4
+€ Du moins je l'en soupçonnais fort, car, sur sa peau
 Corroyée par les ans, les froids, les vents acides, La
-; Le soleil, se creusaient et se croisaient des rides, d } À È
+; Le soleil, se creusaient et se croisaient des rides, d } À
 Des rides qui ressemblaient à des lèvres fendues us
 Par les éclats de la gaîté bien entendue; ;
 î Et tout alors, sur son épiderme, était rire. SEA de
 
 On causait. On lui rappelait des souvenirs, 3e #
-Le temps jadis où, n'étant pas encore un Faune, re 456
-Il marchait vaillamment de Paris à Épône j 1
+Le temps jadis où, n'étant pas encore un Faune, re
+Il marchait vaillamment de Paris à Épône
 . Pour fleurir de jasmins l'enfant chère à son cœur; Fe 1e :
-Du temps jadis où il était restaurateur A NOR 4
+Du temps jadis où il était restaurateur A NOR
 Sur la place Saint-Georges ourlée de vieux hôtels NUE x Le
 Et préparait les escargots sacramentels Se eu
 | Avec l'art minutieux et lent des cuisinières, Dao +
@@ -53,13 +53,13 @@ RL 7 de Agnès et vous, Sylvie, sœurs d'autrefois,
 | Vos ombres m'ont accompagné au promenoir,
 
 Et dans le vieux jardin où vous veniez le soir pee
-À Entendre le jet d'eau qui gloussait en sourdine. 2e
+À Entendre le jet d'eau qui gloussait en sourdine.
 Monique, Agnès et vous, Sylvie, sœurs libertines ; à
 ; Que n'effarouchaient pas les chansons de Vadé, PL.
 Et qui cachiez dans vos tiroirs de quoi farder k :
 Vos jolis dessous d'yeux et vos lèvres hautaines, ”
 Avec des almanachs grivois et des mitaines Fe
-En fils de soie que prohibaïent les règlements, ù
+En fils de soie que prohibaïent les règlements,
 Vous vous glissez encore sous les arceaux romans k Le
 Du dortoir à piliers que vous disiez gothique. Fe
 
@@ -67,16 +67,16 @@ Vos voix d'argent sont fort expertes aux cantiques. ÿÈ
 
 Et Madame l'abbesse avec son clavecin Les
 
-Vous accompagne en levant aux nues ses yeux saints R
-Que n'empourpra jamais le feu des convoitises, 54 ï
+Vous accompagne en levant aux nues ses yeux saints
+Que n'empourpra jamais le feu des convoitises,
 
 Bien qu'en son art d'accommoder les friandises, - AA
 
-Nulle autre ne la vainque et peu lui soient rivales. î 4
+Nulle autre ne la vainque et peu lui soient rivales.
 Aussi la flattez-vous d'un caquet virginal NES
 Qui ravit l'innocente et pieuse créature, : ‘1
 
-Et parfois vous pouvez goûter les confitures He 4
+Et parfois vous pouvez goûter les confitures He
 
 Et les pâtes de fruits et les fins caramels Re:
 
@@ -86,7 +86,7 @@ Qui sont fort estimés de Messieurs les chanoïnes. Do
 TMC Monique, Agnès et vous, Sylvie, plus rien ne voile |
 “5 _ À mon cœur le passé qui fut vôtre au couvent. .
 
-1 Sœur Marthe, qu'on voyait larmoyer si souvent :
+Sœur Marthe, qu'on voyait larmoyer si souvent :
 (Car elle avait quitté le vain siècle et ses pompes
 È En son chagrin d'avoir perdu certain vicomte)
 A A haussé vos maintiens, vos gestes, votre organe
@@ -97,14 +97,14 @@ Er A Et lui, fixant vos yeux de mauve ou de glycine
 we Qui se baissaient modestement sous son grand nez,
 LT Il vous a fait des compliments fort bien tournés ; ‘
 __  Puisila dit qu'à la grand gloire de son diocèse,
-4 Il était membre de l'Académie française,
+Il était membre de l'Académie française,
 ë Pour avoir fait de petits vers, étant abbé.
 
 RS. _ Monique, Agnès et vous, Sylvie, les scarabées |
 _  Aïlés, les sphinx, les bourdons passent el repassent :
 ÉS Le long des avenues où vous jouiez aux grâces
 Fe. Et qu'envahit le flot des plantains et des ronces
-are Entre les treillis verts qui ferment les quinconces. 4
+are Entre les treillis verts qui ferment les quinconces.
 É Et la cloche a cessé de mêler ses complaintes, |
 + Qui marquaient les moments de folie ou de crainte,
 ; - Au doux grésillement du feuillage et des eaux.
@@ -122,20 +122,20 @@ Suivant l'art délicat de Properce et d'Ovide.
 
 Monique, Agnès et vous, Sylvie, le temps dévide |
 Sans cesse, el jamais plus, dans les jours, dans les mois,
-Les fils qu'il a tirés ne rencontrent ses doigts. k
+Les fils qu'il a tirés ne rencontrent ses doigts.
 Voici votre vieux banc de pierre où, le Dimanche, Ce
-Élancées, le front haut et montrant vos dents blanches, F
+Élancées, le front haut et montrant vos dents blanches,
 Vous receviez parfois de nobles visiteurs :
 Qui vous disaient : ma belle, ou mon âme, ou mon cœur, LE.
 Et vous trouvaient l'air sage et la taille assez fine;
 Et déclaraient qu'un certain soir, chez la Dauphine
 On s'était avec sollicitude et bonté | |
 Fort enquis de votre âge et de votre santé;
-Vous étiez en faveur, selon les apparences î
-Et toutes trois alors faisiez la révérence, ê
-Et vous jugiez décent de rougir quelque peu. j
+Vous étiez en faveur, selon les apparences
+Et toutes trois alors faisiez la révérence,
+Et vous jugiez décent de rougir quelque peu.
 Sylvie, Monique, Agnès, le moment des adieux pi
-Vint par un noir matin de boue et de bruine. F
+Vint par un noir matin de boue et de bruine.
 On chargea vos coffrets légers sur la berline, ; %
 
 Et vos cartons bourrés de chapeaux et d'écharpes,
@@ -171,8 +171,8 @@ Mais eux, les fils, gènés de leur force nouvelle, |
 Ne trouvant rien, et moins que rien, dans leur cervelle,
 Qui servit de passé, de croyance et de foi, $
 Donc, incurablement bourgeois, fils de bourgeois,
-Affectaient d'éprouver l'effroi des destinées j
-Qui les poussaient vers les tâches insoupçonnées Ô
+Affectaient d'éprouver l'effroi des destinées
+Qui les poussaient vers les tâches insoupçonnées
 D'un Hamlet qui n'a point rencontré de fantôme. We:
 Ils cachaïent leurs mentons sous de hauts foulards jaunes,
 Ils portaient des gilets en forme de pourpoints, :
@@ -180,15 +180,15 @@ Autour d'un jonc à pommeau d'or crispaient leur poing
 Ganté, se corsetaient pour être plus étiques —— :
 Vous m'avez fait songer aux dandys romantiques.
 
-5 F = Lei, le ciel est transparent 22
+F = Lei, le ciel est transparent
 
 on, le ciel est transparent. Tout s'y profile, CAPES RES
- polecilesttr Tout fil F
-Dr Ï Tout s'y étale et tout s'y meut d'un air facile. de E.
+ polecilesttr Tout fil
+Dr Ï Tout s'y étale et tout s'y meut d'un air facile. de
 bon coteaux sont tracés d'un crayon ferme et sûr ; ;
 Qui sait bien où il va et qui craint les fissures CE A
 _ Ou les crochets dont d'autres lieux sont coutumiers ; DES
-Dr Leurs beaux flanes sont piqués de bouquets de pommiers 2.
+Dr Leurs beaux flanes sont piqués de bouquets de pommiers
 _ Dont les ombres bleuies s'arrondissent en dômes MT
 se Sur les labours cuivrés, les prairies et les chaumes. A
 #4 Et la plaine, à leurs pieds s'étend, puis se redresse Pr à
@@ -196,27 +196,27 @@ se Sur les labours cuivrés, les prairies et les chaumes. A
 par le chemin |
 Avec des ondoîments de Nymphe ou de Faunesse
 Qui se réveille après un long sommeil égal.
-Ici, le ciel est transparent. Tout s'y régale ÿ È
-De la lumière qui tombe en finesse et candeur, 4
-Sans trop roussir les châtaigniers de ses ardeurs, 1
+Ici, le ciel est transparent. Tout s'y régale
+De la lumière qui tombe en finesse et candeur,
+Sans trop roussir les châtaigniers de ses ardeurs,
 Et sans troubler au bois joli, dessous les hêtres, ÉsEOs
 Les fleurs qui cherchent l'ombre et la palpent des lèvres. \
 Et c'est au bois joli que s'appuient les maisons .
 Dont les longs toits aux correctes inclinaisons
-Se découpent en rouille et velours dans les feuilles 3
-Des vieux noyers, gardiens de la fraîcheur des seuils. 2
+Se découpent en rouille et velours dans les feuilles
+Des vieux noyers, gardiens de la fraîcheur des seuils.
 Or, c'est dans ce pays si pur qu'est mon église
 Je ne sais pas du tout si je vous scandalise,
 Charmante amie, qui dès l'enfance avez goûté
 L'eau, le sel et le pain de la laïcité.
 Mais le passé qui règne en mon pauvre village
-Ne m'a pas enseigné les leçons de vos sages, 4 4
+Ne m'a pas enseigné les leçons de vos sages,
 Et ma petite église, entourée de tilleuls, <i
 Est demeurée pour moi la nourrice et l'aïeule, à
 Même après que ma foi d'enfant se fut dissoute. SN
 
 C'est que dans ses arceaux, ses piliers et ses voûtes;
-Dans la montée de ses fenêtres ogivales; È
+Dans la montée de ses fenêtres ogivales;
 Dans son toit mince et long qui lestement dévale,
 Mais sans rien accuser d'abrupt ou de soudain ;
 Dans son clocher carré où chante un chant d'airain;
@@ -245,10 +245,10 @@ Et les rinceaux qui sont des lauriers et des lierres
 
 ù Et les rosiers miraculeux sur les verrières < RER
 Me montrent le secret des courbes végétales. he
-Partout, des animaux de pierre ou de métal i g 1
-Sont occupés à quelque tàche utile et pieuse : mur 1
+Partout, des animaux de pierre ou de métal
+Sont occupés à quelque tàche utile et pieuse : mur
 La colombe en volant supporte la veilleuse; !
-L'aigle doré soutient le livre en parchemin 14e
+L'aigle doré soutient le livre en parchemin
 Où le vieux chantre myope et sourd trouve un chemin ce
 Pour sa voix menacée de durables erreurs; #: VE
 Le cheval du soldat Martin s'arrête et pleure : de
@@ -256,11 +256,11 @@ En voyant grelotter un pauvre dénudé; à BE. Ft
 Un mouton de la crèche a l'air intimidé Er
 Devant les grands manteaux emperlés des trois rois. à
 Voici un bœuf __ Notre Seigneur taillé en bois il
-Qu'on a verni et peint de couleurs qui s'effritent, É
+Qu'on a verni et peint de couleurs qui s'effritent,
 Va sur l'ânesse, et cette ànesse est bien contrite, “4
 Bien douce et bien modeste et bien sage et bien probe; ee:
 
-On lui a peint des raies de zèbre sur sa robe, 5 4
+On lui a peint des raies de zèbre sur sa robe,
 De sorte qu'on fit d'elle un animal étrange. ;:4
 La nef a les parfums des forêts et des granges, | RTE 0 ;
 
@@ -269,16 +269,16 @@ Et s'immobiliser dans la torpeur divine ‘10
 Des ceps de vigne aux beaux et longs alignements. LEE
 Le vieux curé qui tend ses bras au firmament, FEES
 Le vieux curé noueux, ridé, solide et torse ue ;
-Semble un tronc revêtu de rameaux et d'écorce 50
+Semble un tronc revêtu de rameaux et d'écorce
 Et tout ainsi végète et fleurit et verdoie - LEO
 
 - Et s'enracine au sol vénérable où il doit
 + Rejoindre les aïeux qui ont fait cette église. -
 _ L'enfant sort. Le pays s'éclaire et se précise;
-3 Les arbres, les bosquets, les maisons, les jardins,
+Les arbres, les bosquets, les maisons, les jardins,
 . Le profil des coteaux qui, sans écart soudain,
 
-_ Sans pointer, sans céder, sans creux et sans bavures, F
+_ Sans pointer, sans céder, sans creux et sans bavures,
 Doucement infléchis, vont de la noble allure
 
 . D'un grand voilier qui fend la mer, le vent en poupe,
@@ -292,19 +292,19 @@ Et l'âme illuminée y trouve, sans analyse, :
 
 ° ANT montions les rues dans le crépuscule
 
-| Parmi la pluie fine et les vents bourrus, x
+| Parmi la pluie fine et les vents bourrus,
 
 p Parmi les brouillards de laine ou de tulle.
 
 Nos coudes frôlaient dans les rues étroites :
 Les murs des logis posés de guingois,
 
-Les murs écaillés, fendillés et moites. x
+Les murs écaillés, fendillés et moites.
 
-ro Révél es bâillaient sur notre passage, | Au on 4
+ro Révél es bâillaient sur notre passage, | Au on
 SE : réunis des époux bien sa ERA) CAE
 NAT Q avez montré un vieux cimetière be ut
-CAEN les murs géants des maisons nouvelles RTE DA ÿ
+CAEN les murs géants des maisons nouvelles RTE DA
 BR On l'utilisai gens y viennent. MR
 
 FER 1 ; matin; j'étais très petite; ne
@@ -330,12 +330,12 @@ Et vous me disiez : « Peut-on vivre là ? »
 Un frisson passait dans quelque vieil arbre;
 Votre bras s'était blotti sous mon bras.
 
-an Vous disiez : « Voilà, il faut qu'on se quitte. Ra k:
+an Vous disiez : « Voilà, il faut qu'on se quitte. Ra
 re : Regardez là-bas ces feux dans la nuit. 2 ARE LR
 Pi Ne m'embrassez plus, je rentre bien vite. » AY: PR:
 me Nous faisions durer longtemps nos adieux. 2: RES
 F Sous le réverbère un chien doux et vieux à pe
-LE Nous examinait de ses tristes yeux. N'ES 3
+LE Nous examinait de ses tristes yeux. N'ES
 
 Le vieux Monsieur revient
 per . & vieux Monsieur revient du fin fond des années
@@ -343,7 +343,7 @@ e L Quand nos contemporains falots, ratatinés,
 Tout en prenant des airs brutaux de gens d'affaires,
 Me font fuir au passé toujours viril et vert
 __ Qui retourne vers nous ses petits yeux narquois.
-_ Le vieux Monsieur vivait aux champs pour être coi 1
+_ Le vieux Monsieur vivait aux champs pour être coi
 
 & Et grignoter en paix sa pension deretraite. ROC
 I revient ___ Ce sont bien sa canne et ses lunettes,
@@ -351,7 +351,7 @@ I revient ___ Ce sont bien sa canne et ses lunettes,
 SN Son haut chapeau de soie, ses guêtres de coutil RS TAEES
 : DR Et, bien qu'il soit rhumatisant, son pas égal "LL
 ER De vieux soldat pour qui c'est un point capital Per
-g Ceci est très ancien, de sorte que je doute MR L
+g Ceci est très ancien, de sorte que je doute MR
 SE Si vraiment je l'ai vu passer, causer et vivre, "7
 s k Ou si c'est quelque image échappée d'un vieux livre
 : Illustré avec des personnages d'autrefois. 2 Fe
@@ -361,7 +361,7 @@ de Qui tout comme lui ont l'air d'un autre âge, et il cause
 HS Avec des mots choisis et bien articulés, Es #52
 2e EE Et chacun prend plaisir à son charmant parler. FUsESS
 SRE Sur la pendule on voit parader Annibal, ti
-Un Annibal ressemblant à lord Palmerston < 5e
+Un Annibal ressemblant à lord Palmerston <
 
 É Ÿ nan an coffret que des lauriers festonnent, ie ke
 AR: ar lui-même est mondain, courtois, complimenteur, | eiel
@@ -372,7 +372,7 @@ xs Tout exprès à Paris, au Fidèle Berger; ST SEX
 EE a pour les offrir des paroles exquises, ; KA
 HER “Des baïse-mains, des saluts qu'on faisait aux marquises Hi
 _ Dont les falbalas blanes neigeaient à Trianon. Re +R
-ve ape il fut à la cour et porte un noble nom. ” *< cé 4
+ve ape il fut à la cour et porte un noble nom. ” *< cé
 RS revient, Je le trouve amusant et brave homme. = F %
 ‘it quittant le logis, il emporte l'album LES £
 Sn Du salon pour y déposer un madrigal. RSA EE
@@ -396,20 +396,20 @@ Elle avait appris l'art vieillot des révérences
 Et faisait concevoir aux siens des espérances,
 Car elle avait beaucoup d'orthographe et de style.
 
-Et ce jour-là, de façon modeste et civile, D
-Elle sourit aux regards que sur elle on braquait 3
+Et ce jour-là, de façon modeste et civile,
+Elle sourit aux regards que sur elle on braquait
 Et récita sans peur la mort du perroquet
 Avec sa voix câline et ses gestes carrés :
 Qui paraissaient décents à Monsieur le curé
-(Prêtre ridé, noueux, branchu comme un vieux hêtre). 3
-Et chacun fut ému sans vouloir le paraître hi 1
-Mais on se moucha fort dans les grands mouchoirs bleus. … F
+(Prêtre ridé, noueux, branchu comme un vieux hêtre).
+Et chacun fut ému sans vouloir le paraître hi
+Mais on se moucha fort dans les grands mouchoirs bleus. …
 Il n'est plus. Le chat blanc, le chien couleur de feu er
 Dont il ne manquait guère à prendre des nouvelles,
 Bien qu'il n'ait point tenté de les rendre immortels
 
 Dans quelque fin poème imité de Parny,
-Ont aussi glissé hors de mon rêve infini; É
+Ont aussi glissé hors de mon rêve infini;
 __ Etmes pieds les cherchaient vainement sous la table,
 Le soir Cétaient lous deux des gens bien respectables,
 ARTE Et je comprends la sympathie du vieux Monsieur. à
@@ -419,7 +419,7 @@ _ Tu étais un musée charmant d'êtres antiques.
  -
 
 SR Notre pendule n'est pas frivole. Eat D pr à
-14 N°" pendule n'est pas frivole ou lunatique. REZ
+N°" pendule n'est pas frivole ou lunatique. REZ
 (Se # LN Je parle ici de celle qu'on voit dans la grand salle
 Et qui connaît la théorie et la pratique FR
 Fi Var De son mélier qu'elle exerce en être moral, pu
@@ -436,7 +436,7 @@ D'un mouvement facile à comprendre et à suivre
 Comme le souffle du chat quand on l'entend dormir.
 La pendule est en marbre noir veiné de gris. _
 Son socle est bien d'aplomb sur le poële en faïence
-Qui s'obstine à ronfler sans souflle ni cadence f
+Qui s'obstine à ronfler sans souflle ni cadence
 Quand l'automne est maussade et qu'il vente à la nuit.
 Ce poële est bien borné. Il n'a jamais compris "
 Les égaux va-et-vient du balancier fidèle.
@@ -446,7 +446,7 @@ Tricoter, ravauder, causer, lire un journal,
 Tous les actes des gens qui se tiennent dans la saiïle,
 Observent les avis constants de la pendule.
 On a toujours de la mesure et des scrupules.
-Quand on s'échauffe un peu en parlant du présent, 4
+Quand on s'échauffe un peu en parlant du présent,
 
 : On fait scandale. On se rattrape en devisant
 | _ Avec lenteur de ce qui s'est passé naguère, ©
@@ -468,7 +468,7 @@ LORS E Dévotement des deux côtés de Notre Dame,
 ue … Pour leur salut au ciel ou leur négoce aux Halles, »: _ Sont des seigneurs de vie opulente et béate.
 Re Le père, un peu ventru dans sa robe écarlate,
 
-4 74
+4
 
 2,40
 
@@ -488,8 +488,8 @@ Des tas d'or sent cachés dans son logis pointu,
 Et des joyaux, des peaux de renards et d'hermines,
 Des Passions taillées dans l'ivoire et des statues
 De saints flamands dont le bon conseil illumine.
-Sa guilde le consulte et confie à ses mains E
-La bannière où l'on voit, tout en or, la patronne 214
+Sa guilde le consulte et confie à ses mains
+La bannière où l'on voit, tout en or, la patronne
 Des marchands qui sourit dans le ciel et pardonne
 (La débonnaire !) au possesseur d'un mauvais gain.
 Il la porte bien haut quand luit Noël ou Pâques.
@@ -543,11 +543,11 @@ Puis les petites qui sourient, et dont on ne voit ;
 : Que la tête, émergeant par dessus les doyennes.
 Et l'on dirait un troupeau de poussins qui viennent |
 De s'arrêter devant des bœufs à l'abreuvoir,
-S'étouffant presque et levant au ciel, pour mieux voir, F:
-Leur bec inquisiteur et leurs yeux qui clignotent. 3
+S'étouffant presque et levant au ciel, pour mieux voir,
+Leur bec inquisiteur et leurs yeux qui clignotent.
 Or la plus jeune, au lieu de joindre ses menottes, ‘
-Tend vers le haut du cadre un rose œillet gantois, 1 É
-Pour attirer les yeux du petit Enfant-Roi, 4
+Tend vers le haut du cadre un rose œillet gantois,
+Pour attirer les yeux du petit Enfant-Roi,
 
 Tout nu, blondin, frisé, joufflu, le nez en l'air, é NP
 _ Montrant d'un doigt le ciel à ces humains fragiles AS NDS
@@ -583,12 +583,12 @@ Et des petits cadeaux qu'on dépose à ses pieds.
 Le donateur est son ami particulier.
 1906-1907
 
-| Ila été tiré de ce cahier douse exemplaires sur ù
+| Ila été tiré de ce cahier douse exemplaires sur
 _ whatman ainsi distribués :
 : premier exemplaire de souche, exemplaire du gérant;
 deuxième exemplaire de souche, exemplaire de l'ad_ ministrateur;
 troisième exemplaire de souche, exemplaire de l'im-
-neuf exemplaires d'abonnement, numérotés de I à 9
+neuf exemplaires d'abonnement, numérotés de I à
 Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur ; nos
 _ tirages d'exemplaires sur whatman sont rigoureusement limités au. nombre d'abonnements à chaque instant souscrits: nous ne vendons point d'exemplaires
@@ -619,7 +619,7 @@ recevra en retour les seize cahiers parus de cette hui-
 de Pour s'abonner à la neuvième série des cahiers, qui
 re Bourgeois, même adresse, le prix de l'abonnement; on
 ‘1 _ recevra les cahiers parus, et de quinsaine en quinsaine,
-_ à leur date, les cahiers à paraître de cette neuvième 1
+_ à leur date, les cahiers à paraître de cette neuvième
 
 rez-de-chaussée, Paris, cinquième arrondissement.
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
@@ -651,8 +651,8 @@ _ naturellement aux premières inscriptions; c'est ce nu_ méro d'inscription qu
 . l'édition sur whatman est strictement limitée au
 
 Pour tout changement d'adresse envoyer soixante
-1 PE 06 ntimes, six timbres de dix centimes. :
-7 Nous engageons nos abonnés de certains pays à nous
+PE 06 ntimes, six timbres de dix centimes. :
+Nous engageons nos abonnés de certains pays à nous
 demander un abonnement recommandé ; tous les cahiers
 _ de l'abonnement recommandé sont empaquetés à part et
 recommandés à la poste ; la recommandation postale,

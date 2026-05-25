@@ -23,13 +23,13 @@ fice ne vient que des sous-produits, ainsi qu'il arrive pour
 En journalisme, le sous-produit, c'est la publicité.
 .… Contrairement à l'opinion courante, ce ne sont pas les
 journaux à bon marché qui ont le plus besoin des annonces
-pour équilibrer leur budget. Le Petit Journal, le Petit \ J
-Parisien, journaux à un sou, gagnent sur leur papier. Par \ e
+pour équilibrer leur budget. Le Petit Journal, le Petit \
+Parisien, journaux à un sou, gagnent sur leur papier. Par \
 
 troisième cahier de la deuxième série
 contre, voici le compte d'exploitation du Figaro pour l'exercice 1896
-Total des recettes. Irma 4.543.468 56
-Fabrication du journal : rédaction, papier, impression, affranchissement, ete. : + . : 2.503.526 29
+Total des recettes. Irma 4.543.468
+Fabrication du journal : rédaction, papier, impression, affranchissement, ete. : + . : 2.503.526
 Ainsi, Le Figaro, journal à trois sous, ne réalise même
 pas, sur la vente et l'abonnement, de quoi subvenir à la
 moitié de ses frais généraux. Le surplus, et la totalité du
@@ -44,11 +44,11 @@ pages de grand format dont chacune contient autant de
 matières que: les quatre pages d'un journal parisien!
 
 trois journaux en pleine prospérité, ne vivant que de la
-publicité. IL n'y à pas là, comme on le croit, un mal résultant du bas prix des journaux: j
+publicité. IL n'y à pas là, comme on le croit, un mal résultant du bas prix des journaux:
 
 Nous sommes forcés de constater qu'ici levraisonnement de M. Lucien Marc n'est pas juste: car si
 un journal donné perd sur son papier, S'il vend son
-papier à perte, c'est évidemment qu'il vend ce pa2
+papier à perte, c'est évidemment qu'il vend ce
 pier à un prix trop bas; peu importe que ce prix
 
 soit plus élevé que le prix des autres journaux. Le

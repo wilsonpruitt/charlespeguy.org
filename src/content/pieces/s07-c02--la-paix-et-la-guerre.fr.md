@@ -9,36 +9,36 @@ wordCount: 19878
 ---
 la paix et la guerre
 ASCRTARE paraissant vingt fois par an 7 5e)
-8, rue de la Sorbonne, au rez-de-chaussée F
+8, rue de la Sorbonne, au rez-de-chaussée
 
 % Nous avons publié dans nos éditions antérieures et |
 3 dans nos cinq premières séries, 1900-1904, un Si à
 grand nombre de documents, de textes formant dos- +4
 siers, de renseignements et de commentaires; — un :
-Fe si grand nombre de cahiers de lettres, — nouvelles, k
-#4 romans, drames, dialogues, poèmes et contes; — un 4
+Fe si grand nombre de cahiers de lettres, — nouvelles,
+#4 romans, drames, dialogues, poèmes et contes; — un
 : si grand nombre de cahiers d'histoire et de philoso- à
-phie ; et ces documents, renseignements, textes, dos- F
+phie ; et ces documents, renseignements, textes, dos-
 siers et commentaires, ces cahiers de lettres, d'histoire ;
 | et de philosophie étaient si considérables que nous ne ,
 pouvons pas songer à en donner ici l'énoncé même le
-plus succinct; pour savoir ce qui a paru dans les cinq 4
+plus succinct; pour savoir ce qui a paru dans les cinq
 premières séries des cahiers, il suffit d'envoyer un mante dat de cinq francs à M. André Bourgeois, administra-
-É teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, É
-| Paris, cinquième arrondissement ; on recevra en retour 4
+É teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée,
+| Paris, cinquième arrondissement ; on recevra en retour
 é le catalogue analytique sommaire, 1900-1904, de nos à
 Ce catalogue a été justement établi pour donner, {
 l autant qu'il se pouvait, une image en bref, un raccourci, :
 une idée, abrégée, mais complète, de nos éditions anté- ;
 rieures et de nos cinq premières séries ; tout y est classé
-dans l'ordre ; il suffit de le lire pour trouver, à leur 4
-place, les références demandées. 0
+dans l'ordre ; il suffit de le lire pour trouver, à leur
+place, les références demandées.
 Ce catalogue, in-18 grand jésus, forme un cahier $
-très épais de XII+408 pages très denses, marqué cinq k
+très épais de XII+408 pages très denses, marqué cinq
 
-francs ; ce cahier comptait comme premier cahier de la j
+francs ; ce cahier comptait comme premier cahier de la
 sixième série et nos abonnés l'ont reçu à sa date, le
-2 octobre 1904, comme premier cahier de la sixième k
+2 octobre 1904, comme premier cahier de la sixième
 série; toute personne qui jusqu'au 31 décembre 1905 ;
 s'abonne rétrospectivement à la sixième série le reçoit,
 par le fait même de son abonnement, en tête de la série;
@@ -65,25 +65,25 @@ analytique très sommaire que nous avons publiée en fin
 de ce cahier index.
 
 L'étude que l'on va lire a été publiée pour la première {
-à fois dans la Revue philosophique, trentième année, fl 1
+à fois dans la Revue philosophique, trentième année, fl
 | Revue philosophique de la France et de l'étranger,
 paraissant tous les mois, dirigée par M. Th. Ribot;
-1° Plusieurs articles de fond: Æ
+1° Plusieurs articles de fond:
 2° Des analyses et comptes rendus des nouveaux de
-ouvrages philosophiques français et étrangers : D
+ouvrages philosophiques français et étrangers
 3° Un compte rendu aussi complet que possible des
 publications périodiques de l'étranger pour tout ce qui
-concerne la philosophie ; 4
+concerne la philosophie
 Des notes, documents, observations pouvant servir de #7
-matériaux ou donner lieu à des vues nouvelles ; E
-Prix de l'abonnement : un an: 30 francs; départe- M
+matériaux ou donner lieu à des vues nouvelles
+Prix de l'abonnement : un an: 30 francs; départe-
 ments et étranger, 33 francs ; la livraison : 3 francs. ‘à
 S'adresser pour la rédaction et l'administration: au
 bureau de la Revue, 108, boulevard Saint-Germain, » \
 
 On peut s'abonner à la librairie des cahiers. ;
 
-La paix et la guerre ; 50
+La paix et la guerre
 
 Nous devons remercier M. Th. Ribot, directeur de la
 Revue philosophique ; je tiens à remercier personnelle- …
@@ -91,13 +91,13 @@ ment M. Félix Alcan, éditeur de cette Revue, pour la
 
 ; parfaite bonne grâce avec laquelle il nous a autorisés à ‘4
 
-| prendre cet article pour en faire un cahier. 7
+| prendre cet article pour en faire un cahier.
 
 Sans rien modifier du tout à la teneur de son article, à ;
 
-| article de philosophie et d'histoire antérieur à des polé- M
+| article de philosophie et d'histoire antérieur à des polé-
 
-miques récentes, notre collaborateur M. Charles Richet e
+miques récentes, notre collaborateur M. Charles Richet
 a bien voulu relire cet article sur nos épreuves, de
 manière à faire de ce cahier une édition définitive.
 
@@ -127,7 +127,7 @@ de force qu'il apparaît comme le plus grave des pro-
 blèmes sociaux, il convient d'examiner quelles sont les 4 |
 bases scientifiques sur lesquelles se peut établir une
 
-\ On ne s'attendra pas ici à ce que nous traitions la 1
+\ On ne s'attendra pas ici à ce que nous traitions la
 question sans partialité. Depuis longtemps notre con- Le,
 viction est faite. À maintes reprises et un peu partout,
 nous avons défendu la cause de la paix. Cependant ici À
@@ -137,19 +137,19 @@ simplement de savoir si la paix perpétuelle est pos- *
 
 sible, si elle est désirable, d'après la constitution psychologique de l'homme et des sociétés humaines. ‘+
 f Quelle que soit la théorie de morale qu'on adopte, il ‘1
-est certain qu'on ne peut concevoir un système qui ne 4
+est certain qu'on ne peut concevoir un système qui ne
 tienne pas compte du bonheur du plus grand nombre. £
-Une morale d'après laquelle les hommes seraient, en 4
+Une morale d'après laquelle les hommes seraient, en
 majorité, malheureux, constitue une absurdité si évidente À
 que toute démonstration de la proposition inverse ER:
-Quant au progrès, plus ou moins parallèle à la mo- É:
-rale, on peut le définir : l'amélioration des conditions 4
-matérielles parmi les hommes; autrement dit, moins de N. l
+Quant au progrès, plus ou moins parallèle à la mo-
+rale, on peut le définir : l'amélioration des conditions
+matérielles parmi les hommes; autrement dit, moins de
 misères, moins de maladies, moins de larmes. Or, (
 comme les vices, — ce que nous appelons communément 4 <
 les vices, le jeu, la débauche, l'ivresse, le vol, le men-
 | songe, la paresse, — entraînent misères, maladies et Fo
-larmes, il s'ensuit que l'amélioration des conditions 6
+larmes, il s'ensuit que l'amélioration des conditions
 matérielles est corrélative du progrès moral individuel. À à
 
 Donc une société est en progrès, quand le sort de
@@ -184,31 +184,31 @@ Massacres du champ de bataille, avec des milliers
 d'existences humaines fauchées dans leur fleur, douleurs
 atroces des mourants, amputations, désarticulations,
 mutilations. Deuils dans les familles, irréparables : les
-pères pleurant leurs fils; les femmes, leurs époux. k
-Épidémies féroces accompagnant les armées : typhus, j
+pères pleurant leurs fils; les femmes, leurs époux.
+Épidémies féroces accompagnant les armées : typhus,
 peste, choléra, dysenterie, qui font plus de victimes que Le
 les mitraïlles et les bombardements. Villes prises #
-d''ässaut, ou subissant de longs sièges, prisonniers 4
+d''ässaut, ou subissant de longs sièges, prisonniers
 traînés sur les routes, ou languissant dans des case- ;
 
 ponts détruits ; gaspillage en quelques heures de forces \
 à grands frais accumulées, pillage, maraude, vols et sl
 viols; souffrances indicibles par la faim, le froid, la Es
-chaleur, la fatigue. Angoisses des combattants, râles 4
+chaleur, la fatigue. Angoisses des combattants, râles
 des agonisants, gémissements des blessés, anxiétés de
 
 ; deux nations dont tous les fils sont à chaque minute
 exposés à une mort affreuse; en un mot, un immense
 cri de désespoir, montant vers le ciel. Voilà le bilan des
-douleurs de la guerre pendant la guerre. Ë
+douleurs de la guerre pendant la guerre.
 
 Le mal n'est pas moindre pendant la paix. Les impôts
 
 chaque jour plus pesants; le régime protectionniste, %
 conséquence immédiate de la guerre, rendant la vie
 plus coûteuse, partant plus misérable; la banqueroute
-menaçante; des populations entières, comme l'Alsace- j
-Lorraine, comme la Finlande, comme la Pologne, comme k
+menaçante; des populations entières, comme l'Alsace-
+Lorraine, comme la Finlande, comme la Pologne, comme
 l'Arménie, subissant la loi d'un vainqueur détesté; le
 service militaire obligatoire, la plus cruelle peut-être de Es
 toutes les douleurs de la guerre, enlevant à la charrue,
@@ -218,7 +218,7 @@ forces intellectuelles et matérielles d'un grand peuple
 
 détournées de la conquête de la vérité. Voilà le bilan
 de la guerre pendant la paix. Il n'est pas moins
-Mais on peut prétendre que c'est là un jugement 1
+Mais on peut prétendre que c'est là un jugement
 superficiel, de sorte que, pour n'être pas injuste, il faudrait mettre en face de tous ces maux de la guerre, que
 personne ne songe à nier, les biens qui peuvent en
 | A côté de la douleur du vaincu il faut mettre la joie
@@ -246,40 +246,40 @@ Austerlitz, où la victoire, éclatante, fut presque facile,
 
 ; nous prenions d'autres batailles, incertaines, où les
 pertes furent égales de part et d'autre, comme Eylauet
-Leipzig; et d'autres encore, où, malgré la certitude de 4
+Leipzig; et d'autres encore, où, malgré la certitude de
 \ la victoire, le vainqueur a subi des pertes épouvan- ‘
 à tables, comme Waterloo et Sedan? ou encore ces petits L |
 ! combats meurtriers, sans gloire, incessants, prolongés L.: |
 | pendant des semaines, des années (guerre d'Espagne, ,
-À guerre de Trente Ans par exemple); ou ces longues É
-dt guerres, comme la guerre de Crimée, où la maladie a 4
-ù fait vingt fois plus de victimes que le feu de l'ennemi. L.
-[ * Alors décidément la joie des vainqueurs et des survi- 4
-vants apparaîtra comme un très misérable profit, au 1
+À guerre de Trente Ans par exemple); ou ces longues
+dt guerres, comme la guerre de Crimée, où la maladie a
+ù fait vingt fois plus de victimes que le feu de l'ennemi.
+[ * Alors décidément la joie des vainqueurs et des survi-
+vants apparaîtra comme un très misérable profit, au
 s point de vue du bonheur général, en face de l'immense Er
 { Et quant aux compensations matérielles que la victoire :
 apporte, elles sont bienfaits de faible prix, à côté des ?
 souffrances que subissent les vaincus. La France a dû
 5 payer en 1871 cinq milliards à l'Allemagne. La joie que |
-| les Allemands ont eue à la récolte de ce butin com- L.
-pense-t-elle la somme de travail, de misères, de souf- j
+| les Allemands ont eue à la récolte de ce butin com-
+pense-t-elle la somme de travail, de misères, de souf-
 frances que la France a dû s'imposer, — pour de longues fe
-générations, — afin de payer cette dette de guerre ? I1ne 1
-| serait pas difficile de prouver que la charge des contribuables allemands n'a pas été diminuée d'un demi- M
-pfennig à la suite de cette trompeuse pluie d'or. Et nous è
-savons combien ce sacrifice a pesé et pèse encore sur la k
-4 Donc, — point de doute à cet égard, — au point devue
+générations, — afin de payer cette dette de guerre ? I1ne
+| serait pas difficile de prouver que la charge des contribuables allemands n'a pas été diminuée d'un demi-
+pfennig à la suite de cette trompeuse pluie d'or. Et nous
+savons combien ce sacrifice a pesé et pèse encore sur la
+Donc, — point de doute à cet égard, — au point devue
 | du bonheur individuel, la guerre apporte plus de maux # ‘À
-k que de biens, et la disproportion est effrayante. 4
-1 On peut comparer la guerre à une épidémie. Que la M
-peste sévisse dans une ville, et fasse d'innombrables 4
+k que de biens, et la disproportion est effrayante.
+On peut comparer la guerre à une épidémie. Que la
+peste sévisse dans une ville, et fasse d'innombrables
 
-victimes, il se trouvera peut-être des gens d'esprit pour l
-soutenir que, somme toute, ç'a été favorable. Il y a eu 1
+victimes, il se trouvera peut-être des gens d'esprit pour
+soutenir que, somme toute, ç'a été favorable. Il y a eu
 des héritages importants; des places sont devenues À
 vacantes, ce qui a comblé de joie les nouveaux titulaires. À
 Certaines industries ont prospéré (marbriers et mar- ‘4
-chands de fleurs). Des médecins qui se sont signalés k
+chands de fleurs). Des médecins qui se sont signalés
 par leur dévouement ont reçu de flatteuses récompenses;
 quelques mauvais drôles ont péri, j'ignore ce qu'on
 pourrait trouver encore; mais il ne semble pas que ce Re
@@ -287,7 +287,7 @@ soient là des arguments sérieux, et les bienfaits d'une
 épidémie, comme les joies de la guerre, ne sont que
 passe-temps d'humoriste.
 
-Laissons cela. Il est des objections moins ridicules, 2
+Laissons cela. Il est des objections moins ridicules,
 auxquelles il convient de répondre.
 
 La guerre, dit-on parfois, comporte assurément un
@@ -306,31 +306,31 @@ plus nobles vertus.
 corruption et l'avilissement de tous les citoyens d'une
 
 j Qu'il existe des vertus militaires, personne ne songe À
-À à le nier. Le sacrifice de sa vie pour le salut de tous est D.
-le plus noble peut-être des sentiments humains ; et une :1
+À à le nier. Le sacrifice de sa vie pour le salut de tous est
+le plus noble peut-être des sentiments humains ; et une
 chose d'analogue; au moins le courage, le mépris du :
 danger et des fatigues. Oui, cela est évident. ‘à
 Remarquons pourtant que l'héroïsme militaire s'exerce eS
 dans la guerre, mais non dans la paix. En temps de #
-paix la vie au régiment, pour le soldat comme pour æ
-l'officier, ne comporte aucune immolation héroïque de Æ
-soi-même. Ou plutôt cette immolation s'exerce tout E:
-autrement que par des assauts, des marches sous la 4
-mitraille,; ou des charges de cavalerie. Rien de tel. Il 4
+paix la vie au régiment, pour le soldat comme pour
+l'officier, ne comporte aucune immolation héroïque de
+soi-même. Ou plutôt cette immolation s'exerce tout
+autrement que par des assauts, des marches sous la
+mitraille,; ou des charges de cavalerie. Rien de tel. Il
 faut faire obscurément métier d'instructeur, de comp- .
-table, d'administrateur ; obéir à des chefs, commander 4
+table, d'administrateur ; obéir à des chefs, commander
 : à des inférieurs, pour des besognes fastidieuses dans
-lesquelles le souci de la tenue, le respect de la hiérar- 4
+lesquelles le souci de la tenue, le respect de la hiérar-
 | : chie, l'observance des règlements (même les plus ridi- "4
 ; cules), tiennent toute la place, au grand détriment de |
 l'énergie et de l'initiative individuelles. | ÿ |
 Je ne prétends pas que dans ces mesquines occupa- ||
 tions il n'y ait matière à de très hautes et solides vertus. À |
 | Un officier qui en temps de paix fait bien son devoir de -
-professeur est assurément un type assez élevé de l'in- É:
+professeur est assurément un type assez élevé de l'in-
 telligence et de la moralité humaines. À
 S'il prend au sérieux son rôle d'éducateur, s'il s'efforce “4
-de faire de son régiment une vraie et saine famille, de É
+de faire de son régiment une vraie et saine famille, de
 | tempérer la sévérité des règlements par des conseils ‘4
 
 paternels, d'exercer sur la conduite morale de ses
@@ -362,7 +362,7 @@ rien à faire avec le régime militaire actuel. |
 Car il ne faut pas se faire d'illusions. Ce régiment
 moralisateur, avec ses soldats-élèves et son officierprofesseur, paternel et juste, c'est un tableau de fantaisie, plus théorique que réel. De fait, les hommes qui
 
-; vont au régiment ne s'améliorent pas au point de vue l
+; vont au régiment ne s'améliorent pas au point de vue
 de la moralité individuelle.
 
 Le régiment n'est pas une école de chasteté, de
@@ -373,16 +373,16 @@ sobriété, de vérité et de désintéressement. J'en appelle
 | On ne peut donc pas défendre le principe du milita-
 
 risme, en alléguant la nécessité d'une grande école de
-moralité et de discipline ; car dans la pratique le régi- f
+moralité et de discipline ; car dans la pratique le régi-
 ment est tout autre chose : et en fait, qu'il s'agisse de À
 l'Italie, du vingtième siècle ou des siècles précédents, "
 
-. l'armée est plus près d'être une école de dégradation 7
+. l'armée est plus près d'être une école de dégradation
 que de perfectionnement moral.
 Nous en concluons qu'en temps de paix l'armée est
 une institution qui déforme la moralité d'un pays ; et
 que, pour la rendre autre, il faudrait la modifier si profondément que cette institution nouvelle serait absolu- :
-ment différente de l'armée actuelle. é
+ment différente de l'armée actuelle.
 Et puis ne serait-il pas passablement absurde de sou- ii
 tenir le principe d'une armée exclusivement pacifique ? à
 Une armée est une machine organisée pour la guerre.
@@ -392,9 +392,9 @@ Reste alors la période de guerre. Est-il vrai que la É ;
 guerre exalte les plus hautes vertus de l'homme? #
 Très résolument je ne le crois pas. En ce moment Gil
 même, nous assistons au douloureux et terrifiant spec- ts
-tacle de deux armées qui se ruent l'une sur l'autre, avec s
-une égale bravoure. Russes et Japonais se précipitent j
-avec furie au-devant de la mort, donnant des exemples D.
+tacle de deux armées qui se ruent l'une sur l'autre, avec
+une égale bravoure. Russes et Japonais se précipitent
+avec furie au-devant de la mort, donnant des exemples
 d'un courage indomptable. Rarement le mépris de la ;
 mort a été poussé aussi loin. Mais, quel que soit mon
 respect pour ces pauvres diables, je ne peux m'imaginer que cette furie et cette ténacité soient l'apogée :
@@ -428,37 +428,37 @@ pas de mérite. Il n'en acquiert que pour la cause qui
 l'évoque. Les brigands de grande route, les criminels,
 les escarpes, les assassins, risquent leur vie à chaque
 instant; mais ce courage, qui est réel, ne me sufit pas
-pour que je les déclare des héros. L'héroïsme suppose 4
+pour que je les déclare des héros. L'héroïsme suppose
 un courage employé à une noble cause. Quand Xerxès
 
 ou Alexandre, ou César, ou Napoléon, mènent à la mort À
 des milliers d'hommes, ces braves gens, qui font au )
 maître le sacrifice de leur existence, m'inspirent plus de
-pitié que d'admiration. Je trouve leur vaillance fort 4.
+pitié que d'admiration. Je trouve leur vaillance fort
 belle; mais je ne peux oublier qu'elle sert au despotisme, et je regrette que ces vaillants ne se retournent
 pas contre un tyran qui se moque d'eux, au lieu de se
 faire immoler pour lui.
 Par conséquent le courage en soi est une vertu, mais
-une vertu qui peut être bien ou mal employée. Elle est L
+une vertu qui peut être bien ou mal employée. Elle est
 d'ailleurs des plus communes. Il est rare que des soldats
 soient lâches ; et le courage professionnel des mineurs,
 des pêcheurs, des médecins, des infirmiers, des pompiers, des agents de police, des magistrats, des ingé-
 nieurs est assez banal pour ne pas mériter de surabondants éloges. Vraiment non! je ne me confondrai pas en /
 félicitations et en applaudissements pour le médecin
 qui, en temps d'épidémie, n'aura pas déserté son poste,
-ou pour le pompier qui n'aura pas eu peur d'aller au feu, L
+ou pour le pompier qui n'aura pas eu peur d'aller au feu,
 au risque de se brüler la figure. Il s'agit là cependant
 non d'un héroïsme servant une méchante cause, mais
 d'un héroïsme utile, sauvant des existences humaines.
 La guerre développe le courage. C'est entendu. Mais,
-à côté de cette vertu qu'elle engendre, que d'instincts é
+à côté de cette vertu qu'elle engendre, que d'instincts
 mauvais ne déchaïîne-t-elle pas ! Joseph de Maistre, un
-des apologistes de la guerre, a dit que le jeune héros f
+des apologistes de la guerre, a dit que le jeune héros
 reste humain au milieu du carnage de la bataille. Belle à
-phrase, qui n'est qu'une phrase. De fait, quand il expose k
+phrase, qui n'est qu'une phrase. De fait, quand il expose
 sa vie sans compter, le jeune héros ne compte guère |
-avec la vie de son ennemi. Si l'on voulait faire le 4
-récit de toutes les cruautés militaires que l'histoire i
+avec la vie de son ennemi. Si l'on voulait faire le
+récit de toutes les cruautés militaires que l'histoire
 a recueillies depuis les temps anciens jusqu'à aujour14
 
 d'hui, on amasserait une monotone série d'horreurs sans
@@ -487,7 +487,7 @@ d'armée qui ne pille plus ou moins. En pays ami,
 
 Fa n'est-il pas juste que les combattants soient récompen-
 
-Û sés de leurs peines et de leurs dangers? En pays ennemi, moins de scrupule encore. U
+Û sés de leurs peines et de leurs dangers? En pays ennemi, moins de scrupule encore.
 
 La mentalité du soldat en campagne est à ce point de
 vue toute spéciale. Il est courageux, et il expose sa vie:
@@ -500,30 +500,30 @@ d'en citer. L'homme armé devient une vraie bête féroce.
 
 Malheur aux vaincus! disait déjà le vieux Brennus, $
 
-| notre ancêtre, aux sénateurs romains terrifiés. Malheur s
+| notre ancêtre, aux sénateurs romains terrifiés. Malheur
 à aux vaincus ! C'est la véritable loi de la guerre, et ce (
-| sentiment inhumain passe en frémissant dans les rangs L
+| sentiment inhumain passe en frémissant dans les rangs
 de toute l'armée, avec l'orgueil de la victoire. ce,
 Il y a des exceptions. On en pourrait citer qui sont '
-sublimes. Mais ces exceptions confirment, au lieu de É
+sublimes. Mais ces exceptions confirment, au lieu de
 contredire, ce fait évident, que le soldat en campagne %
 est devenu insensible à la douleur et au malheur des %
 À On cite souvent aussi l'esprit de solidarité qui réunit jf
-les combattants; et je n'ignore pas qu'on pourrait citer É
+les combattants; et je n'ignore pas qu'on pourrait citer
 des anecdotes touchantes, maints beaux et nobles exem- à
-| ples. Mais que de faits de monstrueux égoïsme pour- P
+| ples. Mais que de faits de monstrueux égoïsme pour-
 rait-on apporter! Que d'indifférence, d'insouciance, ie
 devant la douleur et la mort auxquelles on assiste sans $
-émotion, sans compassion, ne pensant qu'à soi. On au- F
+émotion, sans compassion, ne pensant qu'à soi. On au-
 
 rait trop à faire s'il fallait plaindre tous ceux qui tom- #
 
-bent. Tout compte fait, la somme de l'égoïsme impla- k
-| cable l'emporte terriblement sur l'abnégation et le dé- 4
-vouement. On en sera bien vite persuadé quand on aura d 4
+bent. Tout compte fait, la somme de l'égoïsme impla-
+| cable l'emporte terriblement sur l'abnégation et le dé-
+vouement. On en sera bien vite persuadé quand on aura
 vu comment vivent et pensent les hommes en temps de Li
 
-pour soi : voilà la première règle; et si, çà et là, quel- L
+pour soi : voilà la première règle; et si, çà et là, quel-
 
 ques faits de solidarité apparaissent, ils sont noyés L à
 
@@ -534,11 +534,11 @@ En temps de guerre toute discipline a disparu. C'est *
 
 là un fait indéniable. On devine ce que font des hommes ‘Al
 
-armés, victorieux ou vaincus, que la discipline ne con- p
+armés, victorieux ou vaincus, que la discipline ne con-
 
-tient plus qu'à peine : tous les instincts sanguinaires de 4
+tient plus qu'à peine : tous les instincts sanguinaires de
 
-l'animalité se déchaïnent; tout le vieil héritage de 4
+l'animalité se déchaïnent; tout le vieil héritage de
 
 barbarie légué par nos ancêtres reparaît en toute sa
 
@@ -573,35 +573,35 @@ Pourtant être pacifique ne veut pas dire manquer
 de courage. Voilà une vérité qu'il suflit d'énoncer,
 sans qu'il soit nécessaire d'en faire la preuve. Une
 
-nation agressive et belliqueuse, toute armée pour la 3
-guerre, n'est pas plus brave qu'une nation pacifique. è
-Le paisible peuple boer, fait de rudes et incultes Û
+nation agressive et belliqueuse, toute armée pour la
+guerre, n'est pas plus brave qu'une nation pacifique.
+Le paisible peuple boer, fait de rudes et incultes
 paysans, a montré, dans la guerre cruelle où il a ”
 perdu son indépendance, les plus hautes vertus militaires.
 Et on pourrait multiplier les exemples de peuples qui
 sont tout ensemble très pacifiques et très braves. dl
 Le courage n'est pas toujours militaire. Est-ce que les
-civils n'ont pas, eux aussi, dû montrer qu'ils sont capables d'héroïsme”? Croit-on que, pour n'avoir ni sabre, 1
+civils n'ont pas, eux aussi, dû montrer qu'ils sont capables d'héroïsme”? Croit-on que, pour n'avoir ni sabre,
 ni uniforme, ni fusil, on n'ait pas à exercer son courage? Dans une société toute civile, la source de {
 l'énergie individuelle ne sera pas tarie, Le marin sur
 son navire de commerce, le mineur dans son puits, l'aé- <
-ronaute dans sa nacelle, le médecin et l'infirmier dans ù
+ronaute dans sa nacelle, le médecin et l'infirmier dans
 leur hôpital, le savant dans son laboratoire, le pompier !
 au milieu de l'incendie, auront toute occasion de prou- À
-ver leur vaillance. 7
-Si la seule raison d'être de la guerre était de déve- 4
-lopper le courage individuel, je ne vois vraiment pas 4
-pourquoi on ne s'amuserait pas à déchaîner des épidé- e
+ver leur vaillance.
+Si la seule raison d'être de la guerre était de déve-
+lopper le courage individuel, je ne vois vraiment pas
+pourquoi on ne s'amuserait pas à déchaîner des épidé-
 mies ou des incendies, afin de donner aux médecins ou y
-aux pompiers l'occasion d'un beau geste. Ce serait une F
+aux pompiers l'occasion d'un beau geste. Ce serait une
 école de courage assurément qu'une ville où chaque A
 jour on allumerait un grand feu, en exposant aux be
-flammes des femmes et des enfants, pour exercer les ÿ
+flammes des femmes et des enfants, pour exercer les
 pompiers à la vaillance. La proposition fera peut-être À
-sourire. Mais qu'on y réfléchisse : elle est absolument 4
-la même que celle des amis de la guerré quand ils Ë
-donnent pour défendre la guerre ce motif étonnant, que k
-c'est une école de courage. : ÿ
+sourire. Mais qu'on y réfléchisse : elle est absolument
+la même que celle des amis de la guerré quand ils
+donnent pour défendre la guerre ce motif étonnant, que
+c'est une école de courage.
 
 * On s'est adressé aussi à l'histoire, et on a cru
 trouver ainsi la condamnation des peuples pacifiques. ?
@@ -627,7 +627,7 @@ pour le génie romain. Ensuite d'autres vertus que les
 < vertus militaires, (administration, justice), ont contribué
 à la suprématie romaine. Il semble qu'il y ait un anachronisme moral à vouloir nous faire revenir aux temps
 
-d''Horatius Coclès, ou même du vieux Caton. Depuis 4
+d''Horatius Coclès, ou même du vieux Caton. Depuis
 cette époque les sociétés humaines ont évolué, et nous |
 avons mieux à faire qu'à ressusciter le sanguinaire, dur |
 et avide esprit du citoyen de la vieille Rome. La conquête du monde, l'asservissement de l'univers à nos
@@ -650,23 +650,23 @@ plus compliquées, plus tolérantes, plus humaines. Les -
 nations qui nous entourent ne sont pas des nations À
 barbares, comme les Daces, les Germains, les Parthes ;
 mais des nations sœurs, nos égales, concourant, ainsi
-que nous, à la civilisation commune de l'humanité. Qui ù
-sait jusqu'à quel point ces exercices de déclamation F
+que nous, à la civilisation commune de l'humanité. Qui
+sait jusqu'à quel point ces exercices de déclamation
 n'ont pas été funestes aux hommes de la Révolution
 française et de l'Empire, en leur faisant entrevoir
-l'espérance d'une sorte d'empire universel : Regere î
+l'espérance d'une sorte d'empire universel : Regere
 
 Si l'on voulait chercher une comparaison entre des &
-peuples pacifiques et des peuples guerriers, il faudrait 4
-mettre en parallèle des nations de civilisation compa- ï
-rable. Voici la Suisse, par exemple, dont les habitants 4
+peuples pacifiques et des peuples guerriers, il faudrait
+mettre en parallèle des nations de civilisation compa-
+rable. Voici la Suisse, par exemple, dont les habitants
 
 mont l'esprit ni guerrier, ni agressif. Ils n'ont pas, ou
 presque pas, d'armée permanente; et la menace perpé-
 | tuelle d'une guerre épouvantable ne pèse pas sur leur
 destinée. Cependant leur corruption n'est pas plus
 | : grande que celle de leurs deux voisins, Français et
-+ Allemands, lesquels ont, les uns et les autres, le service É
++ Allemands, lesquels ont, les uns et les autres, le service
 militaire obligatoire, très lourd, des impôts écrasants
 pour entretenir une armée puissante, et la perspective
 | d'une grande guerre, prochaine et terrible. Il ne semble
@@ -692,37 +692,37 @@ vérité, le culte de l'art, l'adoration du beau, et la pratique de l'abnégatio
 t du Paradis terrestre, les fils d'Adam ont dû subir la
 _ dure nécessité de gagner leur pain à la sueur de leur
 front. Or, entre les peuples guerriers et les peuples
-21 2
+21
 
 pacifiques, il y a cette différence, qu'un peuple guerrier, À
 
-au lieu de travailler, se bat pour piller le travail des 2
+au lieu de travailler, se bat pour piller le travail des
 
 autres. Les uns font le commerce des denrées coloniales, .
-cultivent leurs champs, construisent des métiers, È
-exploitent des mines; les autres s'organisent en 4
+cultivent leurs champs, construisent des métiers,
+exploitent des mines; les autres s'organisent en
 puissantes armées pour piller les denrées coloniales, #
-les champs, les métiers, les mines de ceux qui ont k.
+les champs, les métiers, les mines de ceux qui ont
 travaillé. Le villageois, qui a ensemencé son labour et }
 espère faire une récolte, laquelle le nourrira, lui et ses à
 enfants, ne représente évidemment pas un être supé- ñ|
 rieur, de moralité presque divine, C'est un simple “à
-paysan, âpre au gain et borné dans ses vues; mais 2
-laborieux et honnête à sa façon. Son esprit est étroit, È
-5 et son horizon limité. Mais, à tout prendre, il est de 1
+paysan, âpre au gain et borné dans ses vues; mais
+laborieux et honnête à sa façon. Son esprit est étroit,
+5 et son horizon limité. Mais, à tout prendre, il est de
 moralité plus haute que le brigand de grande route. £
-Celui-là dédaigne le travail, métier servile, et préfère k
-faire le coup de feu contre les voyageurs etles gendarmes. 4
+Celui-là dédaigne le travail, métier servile, et préfère
+faire le coup de feu contre les voyageurs etles gendarmes.
 
 C'est un progrès social que de supprimer ce genre de :
 
-| travail, et de remplacer le métier, très militaire, de 6
+| travail, et de remplacer le métier, très militaire, de
 
 bandit, par le métier, beaucoup moins dangereux, de
 paysan et de laboureur. Plus tard, peut-être, il sera :
-permis de chercher à donner aux hommes de plus nobles D:
+permis de chercher à donner aux hommes de plus nobles
 
-visées que l'entassement d'un petit pécule, ou l'achat k
+visées que l'entassement d'un petit pécule, ou l'achat
 
 d'un lopin de terre. Mais en tout cas cette préoccupation ‘4
 
@@ -730,14 +730,14 @@ du gain par le travail est moins immorale que celle du #
 
 gain par le pillage ou la guerre. “4
 
-Je dois même dire, n'en déplaise à M. Brunetière, que 4
+Je dois même dire, n'en déplaise à M. Brunetière, que
 
 le travail ne me paraît ni immoral, ni même vil. Un Ét
 
-j grand seigneur de la littérature peut railler le pauvre 4
+j grand seigneur de la littérature peut railler le pauvre
 hère qui sue et trime pour gagner son pain quotidien, . #
 
-et lui représenter qu'il serait plus noble de courir, armé 4
+et lui représenter qu'il serait plus noble de courir, armé
 
 « d'une brillante cuirasse et d'un grand sabre, à la suite Vi
 
@@ -777,11 +777,11 @@ démesuré boursouflement du moi, qu'ils préconisent, a
 
 mépris contre lequel les tribunaux ont mission de pro- \
 téger autrui. Il est facile de voir que ces énergiques À
-sont tout simplement des anarchistes; car reconnaître Ÿ
+sont tout simplement des anarchistes; car reconnaître
 sa volonté comme seule loi, c'est en d'autres termes À
 l'anarchie. Napoléon a été le plus grand des anarchistes, |
 puisqu'il n'admettait d'autre guide que sa seule volonté,
-| son seul caprice. Les déracinés de M. Barrès, lorsqu'ils 1
+| son seul caprice. Les déracinés de M. Barrès, lorsqu'ils
 $ jurent, sur le tombeau du grand Empereur, de conquérir .
 Paris, sont des anarchistes en redingote; et dans les
 bas-fonds des grandes villes grouille toute une population rebelle qui met en pratique cette étrange théorie
@@ -797,12 +797,12 @@ publics, ou appuyée par toute une nation asservie, "
 comme la fantaisie de Rhamsès ou de Napoléon. #
 Il serait désolant qu'on n'eût pas d'autre idéal à pro- &
 poser à nos jeunes enfants. L'initiative individuelle doit Fr
-être développée; il faut leur enseigner le courage et la k
+être développée; il faut leur enseigner le courage et la
 fermeté ; mais à condition que cette énergie et ce cou- #
 | rage respectent les droits d'autrui : car autrement on rs
 tiendrait école de brigandage et de criminalité. Si l'on $
 veut chercher des exemples de haute force morale et
-d'énergie dans les enseignements d'un empereur, c'est s
+d'énergie dans les enseignements d'un empereur, c'est
 Marc-Aurèle et non Napoléon qu'il faut choisir. Ils ne |
 sont efféminés ni l'un ni l'autre; tous deux sont également apôtres d'énergie, mais chez l'un l'énergie tend
 
@@ -836,8 +836,8 @@ et de feu, où l'institution de grandes armées permanentes
 idées de pillage, de haïne, de sang, qui vivent chez tout
 
 Cet esprit de pillage, de haïne et de sang, développé :
-par notre organisation militaire, ne s'applique point aux J
-pauvres gars qu'on envoie au régiment. La mentalité de 3
+par notre organisation militaire, ne s'applique point aux
+pauvres gars qu'on envoie au régiment. La mentalité de
 ces braves garçons est tout autre. Ils sont là comme à ‘
 une corvée, dure, prolongée, dont on n'a pas pu leur :
 démontrer l'utilité. Le régiment est pour presque tous
@@ -852,16 +852,16 @@ conversations; c'est le pôle vers lequel s'orientent toutes
 les pensées des douze cent mille soldats européens qui
 sont en ce moment sous les armes. Mais les vieilles :
 filles sans enfants, les femmes désœuvrées, les journa- )
-listes, les avocats, les boutiquiers enrichis, les auber- j
-gistes repus, les rentiers paisibles, tous ceux qui ont 16
-fini leur service ou qui ont trouvé moyen de ne pas le S
+listes, les avocats, les boutiquiers enrichis, les auber-
+gistes repus, les rentiers paisibles, tous ceux qui ont
+fini leur service ou qui ont trouvé moyen de ne pas le
 faire, sont entretenus dans leurs passions belliqueuses À
-par la contemplation, qui est pour eux sans aucun x
-danger, de cette armée même, dont l'âme est si peu 4
+par la contemplation, qui est pour eux sans aucun
+danger, de cette armée même, dont l'âme est si peu
 Assurément les plus entêtés soutiens du régime mili- Ée
 taire' n'osent pas ouvertement prôner l'esprit de conquête; à
 ils prétendent que toute notre organisation guerrière ne &
-doit avoir qu'un seul but; la défense du territoire. ï
+doit avoir qu'un seul but; la défense du territoire.
 Mais il y a là, je m'imagine, une singulière faute de \
 En effet, de toute nécessité, quand il y a une guerre, à
 
@@ -905,22 +905,22 @@ ridicule : « Toutes les grandes choses de l'histoire se
 sont faites par la guerre. » |
 Hegel soutient le principe de la fatalité des événe- $
 ments historiques; en y ajoutant cette affirmation que ]
-la guerre consacre le triomphe du meilleur. Deux 4
+la guerre consacre le triomphe du meilleur. Deux
 peuples sont en conflit. C'est le plus vertueux, le plus <
-civilisé, le plus courageux, le mieux préparé qui est i
+civilisé, le plus courageux, le mieux préparé qui est
 vainqueur. Donc la guerre assure la victoire à celui qui ds
-est en progrès, et, par cela même, elle est un instru- È
-ment de progrès. Û
-Il y a là deux affirmations qu'il faut distinguer. j
-Si les événements avaient une fatalité historique, ë
-toute discussion serait inutile, et notre impuissance, 4
-proclamée d'avance, rendrait ridicule toute argumenta- 1
+est en progrès, et, par cela même, elle est un instru-
+ment de progrès.
+Il y a là deux affirmations qu'il faut distinguer.
+Si les événements avaient une fatalité historique,
+toute discussion serait inutile, et notre impuissance,
+proclamée d'avance, rendrait ridicule toute argumenta-
 tion. Mais ce débat nous mènerait trop loin, et il vaut :
 mieux supposer, comme cela est vraisemblable, que À
 { chaque individu peut quelque chose dans l'État, que :
 l'opinion publique n'est pas livrée aveuglément à la À
-fatalité d'événements qui se succèdent, qu'elle peut être 1
-dirigée, modifiée, éclairée, que l'éducation d'une nation 1
+fatalité d'événements qui se succèdent, qu'elle peut être
+dirigée, modifiée, éclairée, que l'éducation d'une nation
 
 par les discours, les livres, l'école, n'est pas impossible,
 partant que les nations peuvent, dans une certaine
@@ -940,7 +940,7 @@ contraire que nous ne sommes pas seulement spectateurs des événements qui se p
 des choses.
 
 Quant à la seconde objection de Hegel : le triomphe
-du meilleur, très analogue à la théorie de Darwin sur j
+du meilleur, très analogue à la théorie de Darwin sur
 la puissance du plus apte, elle n'est guère applicable
 aux luttes guerrières entre nations civilisées.
 
@@ -962,9 +962,9 @@ cela est bien différent.
 
 Dans un duel, le plus fort n'est pas celui qui a raison ;
 
-ce n'est même pas le plus habile, ou le plus courageux, 1
+ce n'est même pas le plus habile, ou le plus courageux,
 qui est assuré de vaincre. Le hasard a un grand rôle. IL
-a un plus grand rôle encore, effrayant, dans les batailles. 4
+a un plus grand rôle encore, effrayant, dans les batailles.
 Que d'imprévues circonstances pour déranger les plans
 les mieux concertés !
 Admettons même que le hasard ne compte pas.
@@ -972,18 +972,18 @@ Admettons même que le hasard ne compte pas.
 à Voici deux armées en présence, inégales, parce qu'elles
 représentent une nation militaire et une nation pacifique. Ces deux armées en présence sont de puissance
 militaire très différente; mais je ne vois pas pourquoi
-la nation la moins militaire devra être déclarée infé- 1
+la nation la moins militaire devra être déclarée infé-
 rieure à l'autre. Imaginons un instant que, pour une raï-
 son ou une autre, la France ait tellement développé sa
 puissance militaire que tout le reste a été par elle
-effacé, négligé, oublié, tandis qu'en retour l'Allemagne, j
+effacé, négligé, oublié, tandis qu'en retour l'Allemagne,
 confiante dans l'accroissement de sa population, aura re
 
 tourné toute son énergie vers le commerce, l'industrie,
 
 la science et les arts de la paix : en quoi la victoire des
 armées françaises aflirmerait-elle l'infériorité morale des « |
-Conclure de la supériorité militaire, sur un ou plu- ï
+Conclure de la supériorité militaire, sur un ou plu-
 sieurs champs de bataille, à la supériorité d'une nation +4
 sur une autre, ce serait tout aussi absurde que de \
 me regarder comme inférieur à un duelliste qui m'au- |
@@ -991,12 +991,12 @@ rait blessé; parce que je m'entends mal au maniement À
 des armes. #
 Le soi-disant triomphe du meilleur est une excuse que
 le vainqueur donne à sa brutalité. pe
-Et puis ce mot de meilleur et de plus moral, appliqué 4
+Et puis ce mot de meilleur et de plus moral, appliqué
 à l'état général d'une nation, me paraît vide de sens. “
-: On peut dire que partout la civilisation et la moralité w
+: On peut dire que partout la civilisation et la moralité
 sont aujourd'hui à peu près les mêmes : Angleterre, 4 *
 
-30 1
+30
 
 _ France, Allemagne, Autriche-Hongrie, Italie, ÉtatsUnis, ces six grandes nations sont, à quelques nuances
 | près, égales. (Je ne parle pas de la Russie, puissance » presque asiatique, dont la civilisation, dans la grande
@@ -1036,19 +1036,19 @@ de sens. La guerre consacre le triomphe du plus fort ;
 ce qui est évident par soi; mais le plus fort à la
 guerre, ce n'est pas le meilleur; c'est le plus nombreux, ;
 le mieux armé, le mieux préparé, le mieux favorisé par À
-le hasard. F
+le hasard.
 A un autre point de vue la discussion de la théorie dé
 de Darwin, la survivance du plus apte, est intéres- \
 Dans la nature, quand deux animaux luttent entre =
 eux, c'est le plus vaillant qui survit. La maladie frappe
 les faibles ; ce sont les plus courageux, les plus vigou- £
-reux qui persistent pour perpétuer la race des courageux et des vigoureux. Mais l'état de guerre entre les è
-hommes, au lieu de faire survivre les braves, fait sur- È
+reux qui persistent pour perpétuer la race des courageux et des vigoureux. Mais l'état de guerre entre les
+hommes, au lieu de faire survivre les braves, fait sur-
 vivre les poltrons ; il produit donc de la sélection
 D'abord les malades et les débiles sont exemptés de |
-service. Ceux qui ont une infirmité, les sourds-muets, M
+service. Ceux qui ont une infirmité, les sourds-muets,
 les borgnes, les aveugles, les manchots, les culs-de- « jatte, les becs-de-lièvres, les rachitiques, les scrofuleux,
-32 1
+32
 
 . les déments, les aliénés, les idiots; tout ce peuple
 maladif et impotent est bien protégé par les lois militaires ; et nul de ces infortunés ne risque de périr sur
@@ -1082,38 +1082,38 @@ débiles, les infirmes et les poltrons pour perfectionner
 la race.
 C'est là un des plus graves maux de la guerre parmi
 les maux innombrables qu'elle entraîne. ‘
-33 3
+33
 
 10e Dirai-je enfin qu'en temps de paix, dans cette sinistre a
-‘a paix qui est la préparation à la guerre, la syphilis, 4
-| l'alcoolisme et la tuberculose, conséquences inévitables 4
+‘a paix qui est la préparation à la guerre, la syphilis,
+| l'alcoolisme et la tuberculose, conséquences inévitables
 Dre de toute agglomération humaine et de toute institution (4
-militaire, n'ont pas de précieux avantages au point de k
+militaire, n'ont pas de précieux avantages au point de
 vue des générations à venir. AU
 Examinons maintenant si toutes les grandes choses pe
-| de l'histoire se sont faites par la guerre, et si la guerre 1
-a été nécessaire au progrès de l'humanité. É
+| de l'histoire se sont faites par la guerre, et si la guerre
+a été nécessaire au progrès de l'humanité.
 Jusqu'à présent les guerres ont été incessantes, &
 civiles ou autres, de sorte qu'on est réduit à des conjec- <l
 tures, pour savoir comment eût évolué une humanité Ha
 non belliqueuse. Car l'humanité a toujours été belli- ‘4
-Pourtant il paraît absolument évident que, si l'huma- 4 ï
-nité a progressé, ee n'est pas par la guerre, mais malgré 10
+Pourtant il paraît absolument évident que, si l'huma-
+nité a progressé, ee n'est pas par la guerre, mais malgré
 Les progrès humains sont ceux que les sciences, les sa
 industries, les lettres et les arts ont apportés. Les
-principales conquêtes intellectuelles du monde moderne, 44
-la découverte de l'Amérique, l'invention de Imprimerie, 4
-la Réforme, la chimie, l'électricité, les chemins de fer, 14
+principales conquêtes intellectuelles du monde moderne,
+la découverte de l'Amérique, l'invention de Imprimerie,
+la Réforme, la chimie, l'électricité, les chemins de fer,
 la puissance de la vapeur, la théorie des microbes, etc.,
 ne sont pas des conquêtes guerrières ; Colomb, Guten- %
 berg, Galilée, Luther, Lavoisier, Volta, Stephenson et |
-Pasteur ont fécondé le monde par des œuvres de paix 4
+Pasteur ont fécondé le monde par des œuvres de paix
 et non par des œuvres de guerre. ‘4
-34 4
+34
 
 ‘4 Les conquêtes sociales mêmes ne sont pas des faits
 11 de guerre. La guerre a eu comme conséquences directes
-# le partage de la Pologne, l'asservissement de la Fin4 lande et de l'Alsace-Lorraine, et d'autres infamies. PenUN dant cent ans les Anglais ont ravagé le sol de France : Û
+# le partage de la Pologne, l'asservissement de la Fin4 lande et de l'Alsace-Lorraine, et d'autres infamies. PenUN dant cent ans les Anglais ont ravagé le sol de France
 | Mn ils en ont été finalement chassés ; mais la civilisation en
 A a été retardée pour cent ans. Les longues guerres entre
 pa la maison d'Autricheet la maison de Bourbon ont accuL 4 mulé quantité de misères, mais sans aucun profit pour
@@ -1122,7 +1122,7 @@ pa la maison d'Autricheet la maison de Bourbon ont accuL 4 mulé quantité de mi
 14 pu accomplir l'immense énergie de nos pères, si elle
 (3 n'avait été détournée au profit d'une insatiable person-
 (1 nalité. On croit pouvoir citer la guerre civile d'Amé-
-LU rique qui a eu pour conséquence l'abolition de l'escla- Ÿ
+LU rique qui a eu pour conséquence l'abolition de l'escla-
 i vage; mais cette guerre civile n'a été en réalité qu'un
 l. accident. Elle n'était rien moins que nécessaire, et, si
 1 les Etats du Sud avaient cédé tout de suite, il n'y aurait
@@ -1140,32 +1140,32 @@ A grand progrès intellectuel l'influence de la guerre,
 | des œuvres essentiellement pacifiques, comme les
 6e guerres emploient l'activité humaine à la destruction et
 
-non à la création, il paraît bien évident que la marche 2
-en avant du monde a été retardée par les guerres. è
+non à la création, il paraît bien évident que la marche
+en avant du monde a été retardée par les guerres.
 
 On ne veut pas dire par là qu'une victoire ne puisse %
-être heureuse par ses conséquences. Mais cette victoire 2
+être heureuse par ses conséquences. Mais cette victoire
 est la condamnation même de la guerre, puisqu'il a |
 fallu verser le sang pour défendre une cause sainte, in- |
 
-Les destinées de l'humanité eussent été bien diffé- U
+Les destinées de l'humanité eussent été bien diffé-
 rentes si les hordes de Xerxès n'avaient été arrêtées à
 Marathon et à Salamine. Ces deux nobles batailles, —
 les plus belles de l'histoire, — ont sauvé le monde. Mais,
 au lieu de me faire aimer la guerre, elles me la font dé-
 tester davantage encore, puisque le monde grec et la |
 
-! civilisation naissante ont failli périr sous le poids d'une d
+! civilisation naissante ont failli périr sous le poids d'une
 guerre maudite. Valmy et Jemmapes ont sauvé la
 France et la Révolution; mais le danger que la France |
-a couru me fait plus encore maudire la guerre, et no- b
+a couru me fait plus encore maudire la guerre, et no-
 tamment cette guerre infâme que la coalition monarchique a en 1792 déchaînée contre la France.
 
-On a dit que les conquérants, Alexandre, César et F4
-Napoléon ont apporté la civilisation avec la guerre. 4
+On a dit que les conquérants, Alexandre, César et
+Napoléon ont apporté la civilisation avec la guerre.
 Voyons un peu ce qu'il faut en penser. à
 
-Alexandre conduit son armée jusqu'à l'Indus, rava- 4
+Alexandre conduit son armée jusqu'à l'Indus, rava-
 geant tout, détruisant tout sur son passage. Pareil aux ;
 Rhamsès et aux Sésostris, il parcourt l'Asie en semant
 la dévastation, et en se faisant adorer comme un dieu. À
@@ -1173,10 +1173,10 @@ Il meurt, et toute cette grande machine se disloque, et
 ses lieutenants, devenus rois, finissent dans les pires \
 abjections, sans que rien ne subsiste de toute cette folle $
 
-César soumet les Espagnes et les Gaules. Dans quels 4
+César soumet les Espagnes et les Gaules. Dans quels
 flots de sang, ses froids Commentaires nous le disent.
 
-Il a civilisé la Gaule, comme les conquêtes des Espa- Ù
+Il a civilisé la Gaule, comme les conquêtes des Espa-
 gnols ont civilisé l'Amérique, par des trahisons et des
 + massacres. La civilisation romaine a pénétré dans toute
 la Gaule ; mais il en eût été de même sans cette orgie
@@ -1206,11 +1206,11 @@ crois bien que c'est une apparence; mais la discussion
 nous conduirait trop loin s'il fallait étudier à fond cette
 grave question de savoir si le fait d'appartenir à une
 
-civilisation supérieure crée des droits à l'iniquité. Sous L
+civilisation supérieure crée des droits à l'iniquité. Sous
 À prétexte qu'une nation n'a ni le téléphone, ni la géomé- ,
 trie analytique, ni la vaccination obligatoire, est-il légi- #
-time de lui inculquer ces bienfaits à coups de canon? 3
-Cela vaudrait la peine d'être approfondi. En tout cas, 1
+time de lui inculquer ces bienfaits à coups de canon?
+Cela vaudrait la peine d'être approfondi. En tout cas,
 on ne peut appliquer ce raisonnement aux guerres entre
 Européens, quand la civilisation est la même, et que le
 résultat de ces grandes tueries est de déplacer des frontières.
@@ -1220,28 +1220,28 @@ Personne n'a jamais pensé à dire que les progrès |
 n'ont pas eu de lutte armée à soutenir. Maïs dans ce |
 cas la guerre est défensive, car on dirige contre un pro- |
 grès des armées chargées de soutenir les errements $
-anciens, et d'arrêter les vérités naïssantes, de sorte que, P
+anciens, et d'arrêter les vérités naïssantes, de sorte que,
 sous peine d'être écrasée, l'idée nouvelle doit, elle aussi, {
 s'armer et se défendre. Mais est-ce là la justification de
 la guerre? N'est-ce pas plutôt sa condamnation ? Le %
 progrès ne résulte pas de la guerre; maïs il lui a fallu En
-guerre elle-même. D
+guerre elle-même.
 Du reste le plus souvent il ne s'est pas agi, dans ces y
-guerres, de savoir qui triompherait, la vérité ou l'erreur, k
+guerres, de savoir qui triompherait, la vérité ou l'erreur,
 le progrès ou la réaction. Toujours, ou presque toujours,
 les causes des massacres guerriers ont été ridiculement $
-mesquines. La fantaisie d'un empereur, le caprice d'une ë
-favorite, l'acquisition de quelques kilomètres carrés de 1
+mesquines. La fantaisie d'un empereur, le caprice d'une
+favorite, l'acquisition de quelques kilomètres carrés de
 territoire, surtout cette abstraction pleine de néant que kr
-les diplomates appellent l'équilibre européen, voilà L:
+les diplomates appellent l'équilibre européen, voilà
 quelles furent les causes des grandes guerres. Combien .
 
-‘4 de pauvres diables ont pourri sur les champs de car- k
+‘4 de pauvres diables ont pourri sur les champs de car-
 di nage, pour que la suprématie soit à un Plantagenet ou à
 À un Capet, à un Habsbourg ou à un Bourbon? pour per-
 | mettre à Joseph d'être roi d'Espagne et à Louis roi de
 l Hollande ?
-2 Telles sont les grandes choses de l'histoire qu'a faites
+Telles sont les grandes choses de l'histoire qu'a faites
 j la guerre. Le progrès a évolué sans elle, et c'est miracle
 î que les armées des dévastateurs et des conquérants né
 4 l'aient pas davantage entravé.
@@ -1261,13 +1261,13 @@ ne En réalité, dans tout pays où sévit une armée permad nente, l'armée (av
 
 moitié des ressources financières du pays. On peut
 schématiser notre budget actuel en le chiffrant à 3 mil- ;
-liards, dont la dette représente 1.200 millions; l'entretien de l'armée et de la marine 1.200 millions; d
-600 millions restent pour les autres dépenses. Or les j
+liards, dont la dette représente 1.200 millions; l'entretien de l'armée et de la marine 1.200 millions;
+600 millions restent pour les autres dépenses. Or les
 
 ë 1.200 millions de la dette ne signifient pas autre chose |
 que les dépenses militaires précédentes; c'est l'héritage |
 guerrier que nous ont transmis nos ancêtres, et qui se
-chiffre par une dette de 35 milliards. Par conséquent E
+chiffre par une dette de 35 milliards. Par conséquent
 les quatre cinquièmes de l'impôt servent aux dépenses
 militaires, aux guerres anciennes ou aux guerres à
 venir. Dans les autres pays, quoique la disproportion .
@@ -1280,13 +1280,13 @@ chiffres ronds 5 milliards pour le paiement de la dette;
 Mais cette dépense nécessitée par la guerre est trop
 faiblement évaluée; car il ne faut pas oublier que,
 dans l'Europe, il y a 1.500.000 hommes sous les armes.
-Leur travail, qui représente annuellement bien près de Ù
-Voilà donc à quels résultats notre civilisation actuelle ù
-a abouti : dépenser tous les ans 15 milliards pour empê- E
-cher 1.500.000 jeunes gens de travailler, et leur faire 21
-perdre le goût du travail. Î
+Leur travail, qui représente annuellement bien près de
+Voilà donc à quels résultats notre civilisation actuelle
+a abouti : dépenser tous les ans 15 milliards pour empê-
+cher 1.500.000 jeunes gens de travailler, et leur faire
+perdre le goût du travail.
 Les défenseurs de ce stupéfiant état de choses nous
-disent, pour nous consoler, que, si nous payons de tels 1
+disent, pour nous consoler, que, si nous payons de tels
 impôts pour la guerre, c'est comme si nous payions |
 
 à une assurance contre un désastre militaire. Ils préten-
@@ -1316,7 +1316,7 @@ faire ici l''énumération ; la fantaisie de chacun pourra
 se donner libre carrière. Pour les progrès de la science
 seulement, de la science qui est le grand instrument de
 
-lémancipation humaine, que ne ferait-on pas avec « 15 milliards ? 74
+lémancipation humaine, que ne ferait-on pas avec « 15 milliards ?
 Et ce trésor est consacré à une œuvre essentiellement KA
 stérile, puisque les nations, en effaçant de leur pro- €
 gramme toute pensée de conquête ou d'entreprise belliqueuse, pourraient supprimer le régime militaire qui les |
@@ -1326,25 +1326,25 @@ laquelle continuent à vivre les sociétés humaines, |
 oublions un moment tous les mots de haïnes, de ven- |
 geances, de conquêtes nationales dont on nous a bercés
 dès notre enfance. Supposons que nous assistions à pi
-ceci, qui est la réalité même : des hommes, de mêmes 5
+ceci, qui est la réalité même : des hommes, de mêmes
 races, de mêmes conditions, séparés seulement par des ls |
 rivières ou des montagnes, et qui emploient tout leur À
 argent, toute leur énergie, tout leur talent, à s'associer a
 Ë en grandes agglomérations pour s'entre-détruire. Et, à
 comme la destruction irait trop vite, si les hommes sy
-livraient perpétuellement, alors ils laissent, entre les 3
-époques de destruction, des intervalles de temps, géné- 14
+livraient perpétuellement, alors ils laissent, entre les
+époques de destruction, des intervalles de temps, géné-
 ralement assez courts, qu'ils nomment la paix, pendant #4
-lesquels ils ne songent qu'à se bien préparer à la F
+lesquels ils ne songent qu'à se bien préparer à la
 période de destruction. Le témoin de ce spectacle À
 étrange n'aurait-il pas le droit d'appeler absurde une |
-société ainsi constituée ? 4
+société ainsi constituée ?
 - Cette absurdité ne nous choque pas trop, parce que À
 nous avons vécu dedans depuis notre âge le plus tendre; À
-mais le philosophe a le droit de juger cette tradition. 4
-C'est la suite des barbaries d'autrefois. Les anthropo- ÿ
+mais le philosophe a le droit de juger cette tradition.
+C'est la suite des barbaries d'autrefois. Les anthropo-
 phages, les sauvages ont vécu ainsi, et nous n'avons A
-pas su nous dégager de ce sinistre passé, tant nous 4
+pas su nous dégager de ce sinistre passé, tant nous
 
 ‘4 sommes enveloppés dans l'illusion. De même les malF} heureux dont un énorme et sanglant ulcère dévore le
 j visage, vont dans les rues, promenant cette fétidité et
@@ -1376,7 +1376,7 @@ L tuberculose, l'alcoolisme, la prostitution, la syphilis, le
 à choléra. La tâche se trouve ainsi simplifiée. En prou-
 
 vant qu'il vaudrait mieux rayer la guerre et le militarisme de l'avenir humain, on reconnaît que tous: nos
-efforts doivent converger vers ce noble but. Or est-il 3
+efforts doivent converger vers ce noble but. Or est-il
 possible à l'humanité de réaliser la suppression de la
 La seule raison qu'on puisse donner pour soutenir la À
 négative, c'est que jusqu'ici il y a toujours eu des |
@@ -1384,14 +1384,14 @@ Raisonnement très ingénu, qui est à la portée des |
 plus simples esprits. On a toujours fait la guerre; %
 donc on la fera toujours.
 De même au dix-septième siècle on disait : Il y a toujours eu 20 o/o de mortalité par la variole; donc il y |
-aura toujours 20 0/0 de mortalité par la variole. 1
+aura toujours 20 0/0 de mortalité par la variole.
 Certains même ont prétendu que la guerre était |
 inhérente à notre constitution humaine. On a cité à |
-l'appui les lois de Darwin. « La guerre, me disait Maurice Spronck dans une argumentation publique contra- k
+l'appui les lois de Darwin. « La guerre, me disait Maurice Spronck dans une argumentation publique contra-
 dictoire que nous eûmes sur le sujet, est un phénomène
 biologique contre lequel nos volontés et nos efforts ne
-pourront rien. Il y a lutte perpétuelle entre tous les K
-êtres vivants; de même il doit y avoir lutte entre les 4
+pourront rien. Il y a lutte perpétuelle entre tous les
+êtres vivants; de même il doit y avoir lutte entre les
 hommes. La théorie de la guerre nécessaire est une {
 théorie scientifique ; car la guerre est la loi même de
 Il n'est pas difficile de montrer qu'il s'agit là d'un
@@ -1432,9 +1432,9 @@ anarchie. Chaque individu n'obéirait qu'à son caprice ;
 écrasant les autres, s'il est le plus fort; écrasé par les
 autres, s'il est le plus faible. Or cet état d'anarchie,
 
-que la civilisation a fait disparaître entre les individus 14
-par l'institution d'une police et de tribunaux, persiste 1
-encore entre les nations. 0
+que la civilisation a fait disparaître entre les individus
+par l'institution d'une police et de tribunaux, persiste
+encore entre les nations.
 C'est la force brutale qui décide, et non le droit; etle À
 fait est d'une si éclatante évidence qu'on s'étonne de le %
 voir contesté. Autant nous avons fait de progrès quant ;
@@ -1451,19 +1451,19 @@ Et on veut que nous retournions à cette bestialité ! Nous ei
 n'avons pas le droit international : voilà tout le mal. A
 Pourtant cette lacune terrible, dont souffrent les sociétés LA
 humaines, pourrait être facilement comblée, car la ji
-constitution d'un droit international est mille fois plus É
-facile à établir que ne l'a été l'organisation d'une 2
+constitution d'un droit international est mille fois plus
+facile à établir que ne l'a été l'organisation d'une
 société hiérarchique et policée, où la famille, la pro- :
 priété et la personne humaine ont été protégées par tant 1]
 de garanties. à
 Si même, — ce que je tiens pour inepte, — nous %
 devions imiter les sociétés animales dans l'orga- à
-nisation des sociétés humaines, nous ne verrions nulle ÿ
+nisation des sociétés humaines, nous ne verrions nulle
 part ces luttes collectives qu'on s'amuse à nous présen- "
-ter comme conformes au véritable état de nature. La 4
+ter comme conformes au véritable état de nature. La
 Bruyère, dans un passage célèbre, parle des milliers ki
-de chats qui se réunissent en une grande plaine pour 4
-46 4
+de chats qui se réunissent en une grande plaine pour
+46
 
 VA se déchirer à coups de griffe et à coups de dent.
 fe Mais c'est une fiction (admirable d'ailleurs, et dont
@@ -1500,7 +1500,7 @@ l'Italie, n'a aucun rapport avec ce qui est l'état naturel.
 ne peut-on parler d'état de nature, puisque rien n'est
 plus contraire à la nature de l'homme que l'organisation
 de ces immenses machines policées, qui n'ont rien
-d'analogue dans les sociétés animales. 1
+d'analogue dans les sociétés animales.
 
 Je ne réfuterai pas par le détail cette étonnante aflir- .
 mation que, puisque toujours il y a eu des guerres, il y
@@ -1510,7 +1510,7 @@ qui se réfutent d'elles-mêmes, quoiqu'elles soient accueillies avec faveur par
 S'il fallait se contenter d'un raisonnement, je ferais
 plutôt le raisonnement contraire, et je dirais : il y a toujours eu des guerres : donc un moment viendra où il n'y |
 aura plus de guerres. En effet, l'histoire nous montre |
-que ce n'est pas l'immobilité, mais le changement qui s
+que ce n'est pas l'immobilité, mais le changement qui
 est la loi des sociétés.
 
 Nous vivons en évolution perpétuelle, et il n'est aucun
@@ -1520,11 +1520,11 @@ teront, alors que tout aura changé autour de nous.
 Admettre que la guerre, qu'on reconnaît être barbare, ne pourra pas prendre fin, c'est nier toute possibilité du progrès, c'est se condamner à assister, specta- ,
 teur désintéressé, au déchaînement d'un fléau. :|
 
-D'ailleurs nous savons bien ce qu'il faut faire en pré- K
+D'ailleurs nous savons bien ce qu'il faut faire en pré-
 sence d'un fléau, tuberculose, prostitution, syphilis, |
-alcoolisme. Il faut le combattre. Nous avons en effet È
+alcoolisme. Il faut le combattre. Nous avons en effet
 le légitime espoir que nous allons pouvoir diminuer ou !
-arrêter ses ravages. Eh bien! nous devons penser de 5
+arrêter ses ravages. Eh bien! nous devons penser de
 
 f même pour la guerre, fléau que l'homme crée, fléau qui
 1 est absolument volontaire, fléau qui n'est pas dû à la
@@ -1540,7 +1540,7 @@ L que nous avons par conséquent devoir et pouvoir de
 F hommes de 1950 auront les mêmes idées générales que
 #4 nous, et que les sociétés seront constituées sur les
 À mêmes bases. Ils ne peuvent pas se figurer qu'en 1950
-k et en 2000 tout sera absolument différent. 6
+k et en 2000 tout sera absolument différent.
 | La plupart des hommes sont d'ailleurs tout aussi
 incapables de s'imaginer le passé que l'avenir. Ils ne se
 \ représentent pas que la guerre existait, il y a deux ou
@@ -1562,27 +1562,27 @@ tion va continuer, et que des nations actuellement dis-- Lo
 jointes se réuniront pour former une fédération pacifique. De même que, depuis trois cents ans, les pro-
 ù vinces françaises, qui avaient leur autonomie, leur indé- ;
 pendance, leurs guerres propres, ont fini par se réunir hs
-en l'agglomération française, dans laquelle il n'y a plus ñ
+en l'agglomération française, dans laquelle il n'y a plus
 de lutte entre province et province. ss
 Mais l'impuissance à se figurer soit le passé, soit #
 l'avenir, est telle, chez le commun des hommes, qu'ils si
 subissent la domination tyrannique de l'état présent, et %
 ne conçoivent pas autre chose que ce qui est, persuadés À
 dans leur naïveté que les choses ont été et seront tou- | … |
-; jours telles qu'ils les voient, à l'heure actuelle. l
-D'ailleurs même les plus timorés et les plus routiniers É
-sont prêts à reconnaître qu'un jour viendra où la folie 4
+; jours telles qu'ils les voient, à l'heure actuelle.
+D'ailleurs même les plus timorés et les plus routiniers
+sont prêts à reconnaître qu'un jour viendra où la folie
 de la guerre aura disparu de terre. Mais ils rejettent ce “#
 jour de délivrance à une époque très lointaine ; dans ne
 cinq cents ans, dans mille ans, peut-être ! En tout cas, à
-ÿ nous ne le verrons pas, ajoutent-ils. j
-Pour ma part, je suis convaincu au contraire que ce 4
+ÿ nous ne le verrons pas, ajoutent-ils.
+Pour ma part, je suis convaincu au contraire que ce
 moment est assez prochain. Que les hommes de mon 3%
 vieil âge n'assistent pas à cette pacification européenne, “4
-c'est probable; mais elle sera entrevue sans doute par x
-les très jeunes gens d'aujourd'hui; c'est-à-dire que, dans 3
+c'est probable; mais elle sera entrevue sans doute par
+les très jeunes gens d'aujourd'hui; c'est-à-dire que, dans
 une cinquantaine d'années, et peut-être même plus tôt, %
-il n'y aura plus, pesant sur tous les citoyens d'un pays, L
+il n'y aura plus, pesant sur tous les citoyens d'un pays,
 
 14 la menace d'une grande guerre internationale, abpe surde. (1)
 We La raison qui me fait croire au rapide avènement
@@ -1602,15 +1602,15 @@ _  franco-italiennes, franco-américaines, ne répondent pas
 _ et générale institution amphictyonique qui établira le |
 #1 régime du droit entre les nations, comme il existe déjà
 4 entre les individus.
-k Je ne peux faire ici l'histoire diplomatique de ce grand ë
+k Je ne peux faire ici l'histoire diplomatique de ce grand
 ; mouvement pacifique dont la conférence de la paix, à la rs
 | Haye, a été le point de départ. Il me suflira d'indiquer
 fl ici qu'il a été tellement rapide, tellement inespéré, que
-N nous avons le droit de concevoir pour un avenir très 4
+N nous avons le droit de concevoir pour un avenir très
 ; approché de plus grands progrès encore.
-| a) La première objection théorique, — car il ne s'agit R
+| a) La première objection théorique, — car il ne s'agit
 L ici que de la théorie, et non de la pratique de l'arbitrage à
-g. international obligatoire, — c'est que les décisions d'un j
+g. international obligatoire, — c'est que les décisions d'un
 X (1) Aux amis des grandes armées qui nous disent : l'armée nous
 permet de vivre en sécurité, je répondrais, avec Novikoff, que
 | cest la sécurité de Damoclès.
@@ -1631,18 +1631,18 @@ alors la guerre deviendrait impossible, puisque aucun |
 pays ne serait alors organisé pour la guerre.
 2° L'histoire nous apprend que jusqu'à présent aucune |
 rébellion contre une décision arbitrale n'a jamais osé se |
-produire. Et cependant il y a eu déjà grand nombre J
- d'arbitrages, plus de quatre cents. Si la plupart d'entre 1
+produire. Et cependant il y a eu déjà grand nombre
+ d'arbitrages, plus de quatre cents. Si la plupart d'entre
 eux portent sur des points de peu d'importance, à
 quelques-uns au contraire étaient vraiment d'un intérêt
-considérable, et avaient de part et d'autre excité la k
-violence des passions populaires. Cependant la déci- 4
+considérable, et avaient de part et d'autre excité la
+violence des passions populaires. Cependant la déci-
 sion du tribunal a toujours été respectée; car refuser
 lobéissance à l'arrêt rendu par un tribunal dont
 limpartialité est certaine, c'est avouer d'une manière ‘4
-éclatante qu'on fait bon marché de la justice; c'est 4
+éclatante qu'on fait bon marché de la justice; c'est
 reconnaître qu'on est dans son tort. L'opinion, aussi ;
-bien celle des peuples que celle des gouvernements, est, f
+bien celle des peuples que celle des gouvernements, est,
 par ce refus d'adhésion à la justice, directement offen- à
 sée. On ne peut plus prétendre qu'on soutient une cause À
 
@@ -1679,11 +1679,11 @@ disaït Bismark), même quand ces possessions consacrent à
 de flagrantes violations du droit ? ou bien faudrait-il “24
 remanier la carte de l'Europe en se conformant aux a
 vœux, bien légitimes d'ailleurs, des populations injuste- ;
-Assurément c'est là un problème de difficile solution, ÿ
-et je comprends qu'on hésite entre l'une et l'autre alter- | ñ
-native. Mais pourquoi ne pas s'en rapporter au tribunal ÿ
+Assurément c'est là un problème de difficile solution,
+et je comprends qu'on hésite entre l'une et l'autre alter-
+native. Mais pourquoi ne pas s'en rapporter au tribunal
 lui-même, et ne pas admettre qu'il aura toute autorité À
-pour décider ? 3
+pour décider ?
 Et puis nous ne prétendons pas qu'il ne surgira pas |
 de difficultés. Les choses des sociétés humaïnes, avec pi
 tant d'intérêts puissants, rivaux; tant de passions À
@@ -1692,22 +1692,22 @@ serons pas assez naïfs ‘pour prétendre que le tribunal “à
 international va résoudre tout de suite tous les litiges, fl
 sans dissentiments, sans périls, sans longues et labo- #
 rieuses négociations. Mais, une fois le principe du droit ei
-admis, les moyens d'adaptation et d'exécution sont ac- ÿ
+admis, les moyens d'adaptation et d'exécution sont ac-
 cessoires. Fata viam invenient. L'essentiel est que ce ."
-4 procédé barbare, sanguinaire, ruineux, absurde, qui est 4
+4 procédé barbare, sanguinaire, ruineux, absurde, qui est
 la guerre, soit décidément aboli et condamné; car il est À
 la honte de notre civilisation. à
 Je n'ai fait ici qu'indiquer à grands traits les principes à
 
-fondamentaux, n'ayant pas voulu me laisser entraîner 4
+fondamentaux, n'ayant pas voulu me laisser entraîner
 plus loin que la brève étude philosophique du grand à
-problème historique et social de la guerre. Maïs je crois 4
+problème historique et social de la guerre. Maïs je crois
 
 avoir pu établir que la paix est bonne, qu'elle est méces- À
 
 ‘4 saire, que son institution est possible, et relativement
 M facile, que par conséquent le devoir de tout bon citoyen \
-N est d'en hâter l'avènement. Û
+N est d'en hâter l'avènement.
 À Par quelles voies agir? À mon sens, il n'en est qu'une
 “ seule qui soit vraiment efficace, c'est l'éducation paci-
 ] Admettons que tous les citoyens des divers pays
@@ -1726,19 +1726,19 @@ Fi Donc il faut élever les enfants et les jeunes gens dans
 D ceux de l'enseignement primaire surtout, — répètent des
 … lieux communs, très nobles et très usés, sur l'amour de |
 _ la patrie, en identifiant l'amour de la patrie avec le
-… sentiment belliqueux, de sorte que peu à peu cette idée ï
+… sentiment belliqueux, de sorte que peu à peu cette idée
 …._ s'introduit dans l'esprit des jeunes gens que l'onne peut :
 k aimer sa patrie sinon les armes à la main; que le guer-
-È rier, le soldat, le conquérant, le porte-drapeau incarnent » l'amour du pays, et qu'en dehors du régiment la patrie 5
+È rier, le soldat, le conquérant, le porte-drapeau incarnent » l'amour du pays, et qu'en dehors du régiment la patrie
 n'est qu'un vain mot. Lamentable erreur! qui se com-
 …  plique d'une autre, plus grave encore, à savoir que, pour :
 : aimer sa patrie, il faut haïr les autres patries. \
-| Aussi, dans ces livres soi-disant patriotiques, est-il à e
+| Aussi, dans ces livres soi-disant patriotiques, est-il à
 peine fait mention des misères de la guerre et du mili- |
 
 tarisme. On célèbre les hauts faits des rois guerriers,
 des empereurs conquérants, et on ne montre pas tout le
-mal qu'ils ont fait, les ruines, les massacres, les 1
+mal qu'ils ont fait, les ruines, les massacres, les
 annexions iniques, toute cette sinistre histoire des luttes
 internationales. S'il est parlé des amis de la paix, c'est |
 pour les traiter de sans-patrie, pour les accuser de ;
@@ -1756,15 +1756,15 @@ l'enseignement secondaire, perpétuent cette tradition ;
 pour la France d'aujourd'hui.
 
 Il faut résolument combattre cette erreur. Déjà Schopenhauer faisait remarquer que la plus sotte vanité qui
-se puisse trouver, c'est celle des gens qui sont fiers L
+se puisse trouver, c'est celle des gens qui sont fiers
 d'appartenir à telle ou telle nationalité. Il n'y a ni
-gloire, ni mérite à être Français, ou Anglais, ou Italien, ù
+gloire, ni mérite à être Français, ou Anglais, ou Italien,
 ou Allemand; pas plus que, dans une armée, il n'est de
 gloire ou de mérite à être hussard, ou artilleur, ou vok
 tigeur, ou zouave. Napoléon, quand il voulait obtenir ss
-de ses soldats quelque redoutable sacrifice d'eux- 4
-mêmes, leur disait : « Souvenez-vous que vous êtes du è
-4° régiment de ligne », ou du 5°, ou du 6°, selon les cas. x
+de ses soldats quelque redoutable sacrifice d'eux-
+mêmes, leur disait : « Souvenez-vous que vous êtes du
+4° régiment de ligne », ou du 5°, ou du 6°, selon les cas.
 De même, lorsqu'on veut pousser les peuples à se ruer {
 les uns contre les autres, on leur dit, de l'un et de :
 l'autre côté du Rhin, tantôt : « Souvenez-vous que vous à
@@ -1776,10 +1776,10 @@ prééminence entre elles; et l'humanité civilisée forme
 
 une grande masse compacte qu'on ne pourrait diviser
 que pour son plus grand malheur. Supprimez les bienfaits que les Anglais ont répandus dans le monde, avec
-Shakespeare, et Newton, et Stephenson, et l'humanité j
+Shakespeare, et Newton, et Stephenson, et l'humanité
 6 serait amoindrie, comme elle le serait si elle n'avait pas
 À eu Leibniz, Kant, Beethoven et Gœthe; ou encore
-Dante, Galilée, Volta; ou encore Pascal, Descartes, 4
+Dante, Galilée, Volta; ou encore Pascal, Descartes,
 Lavoisier, Pasteur. Ces grands hommes, quoiqu'ils
 _ appartiennent à telle ou telle nation bien délimitée, en
 k réalité ont été les bienfaiteurs de l'humanité entière, les
@@ -1814,25 +1814,25 @@ On enseigne l'histoire en attisant les haïnes, en
 surexcitant les imaginations enfantines. En Allemagne, ;
 on raconte encore la dévastation du Palatinat par ‘4
 
-i Turenne, et on dit aux pauvres-petits écoliers : « Voilà d
-votre ennemi héréditaire. » Sur l'autre rive du Rhin, 0
-on raconte les exactions et les crimes que les.armées F
-allemandes ont commis ; on parle du bombardement 4
-de Paris, de Sedan, de Metz, pour entretenir l'esprit de 4
+i Turenne, et on dit aux pauvres-petits écoliers : « Voilà
+votre ennemi héréditaire. » Sur l'autre rive du Rhin,
+on raconte les exactions et les crimes que les.armées
+allemandes ont commis ; on parle du bombardement
+de Paris, de Sedan, de Metz, pour entretenir l'esprit de
 
 Tout semble converger dans notre éducation et nos
 mœurs à ce sinistre résultat : la haine internationale. IL
 y a à Paris des avenues d'Iéna, de Wagram, de Solfé- :
 rino, de Sébastopol; comme des Trafalgar square à À
 Londres; des rues de Sedan et de Metz à Berlin : des « anniversaires de Sedan en Allemagne, des fêtes du « 2 mai en Espagne. Dans les théâtres, dans les chansons
-de café-concert, dans les romans, dans les journaux de E
+de café-concert, dans les romans, dans les journaux de
 haut et bas étage, dans les conférences, les discours, À
 
 partout est entretenu soigneusement le souvenir des
-guerres passées et des crimes commis par l'étranger. ï
-Hélas oui! il y a eu des crimes, et tous les peuples en M
+guerres passées et des crimes commis par l'étranger.
+Hélas oui! il y a eu des crimes, et tous les peuples en
 ont commis, qui devraient peser sur leur conscience.
-Mais ils ont tous une singulière facilité pour oublier les … 4
+Mais ils ont tous une singulière facilité pour oublier les …
 maux qu'ils ont déchaïînés et s'indigner seulement de
 ceux qu'ils ont subis. En réalité, l'histoire militaire des
 nations, — la seule qui soit cultivée dans les livres pri
@@ -1845,7 +1845,7 @@ nu de caprices : et, quand on néglige celles dont on est
 | Toute cette néfaste éducation procède d'une. idée
 È radicalement fausse, c'est que la prospérité d'un peuple
 À est liée au malheur des peuples voisins. L'Allemagne
-_ s'enrichit; donc la France est plus misérable. Un Fran- È
+_ s'enrichit; donc la France est plus misérable. Un Fran-
 “ çais découvre la photographie ; donc les nations voisines
 vont en pâtir. Un Italien imagine la télégraphie sans
 fil; c'est un malheur pour les autres pays. Que Pasteur
@@ -1871,7 +1871,7 @@ L… d'autrui fût réjouissant, si les biens à partager étaient
 
 limités. S'il n'y avait, par exemple, que cent rations À
 alimentaires pour cent individus, alors que cinquante à
-hommes jouiraient d'une ration surabondante, ce serait F
+hommes jouiraient d'une ration surabondante, ce serait
 au détriment des cinquante autres, réduits à la portion À
 congrue, et le patriotisme serait excusable de vouloir ;
 les réserver à ses nationaux. Mais en réalité le cas est
@@ -1880,26 +1880,26 @@ bétail, le riz, le café, les fruits, le vin, le charbon, les
 tissus. Il y a bien plutôt superproduction générale, de |
 sorte que le plus grand bien-être de certains ne portera |
 aucune atteinte au plus grand bien-être des autres. Que
-les Allemands et les Anglais vivent dans le luxe, et les 4
+les Allemands et les Anglais vivent dans le luxe, et les
 Français en profiteront. Nul calcul intéressé n'est néces- À
 1 saire; car l'altruisme et l'égoïsme se confondent. !
 Il en est des patries comme des familles. L'aisance |
 des familles voisines, loin de nuire à la mienne, lui 4)
-sert, et j'ai tout profit à voir prospérer ceux qui 4
+sert, et j'ai tout profit à voir prospérer ceux qui
 m'entourent; car, si je suis commerçant et s'ils sont À
-riches, ils feront commerce avec moi, et augmenteront ù
+riches, ils feront commerce avec moi, et augmenteront
 ma richesse. De même pour les nations. Plus l'Angleterre
 sera riche, plus elle sera tentée d'acheter sur le conti- [
-nent, et par conséquent d'enrichir les peuples du con- J
+nent, et par conséquent d'enrichir les peuples du con-
 C'est là un raisonnement tellement simple qu'on
 s'étonne de le voir constamment méconnu. Au fond, '
 c'est l'envie, mauvaise conseillère, qui excite le dépit des ?
 peuples au spectacle des prospérités d'autres peuples.
 Non que l'on ait le droit de supposer un âge d'or, où
-il n'existera plus de conflit d'intérêts entre les groupe- ë
+il n'existera plus de conflit d'intérêts entre les groupe-
 ments humains, entre les classes sociales, et peut-être
 les races humaines. Hélas non! les luttes sociales et
-ethniques ne seront pas bénignes et inoffensives. Mais Î
+ethniques ne seront pas bénignes et inoffensives. Mais
 
 À qu'au moins elles ne se décident pas par la guerre; car
 
@@ -1944,7 +1944,7 @@ je cette bataille aura-t-elle sur les batailles actuelles la
 ë j prises des hommes qui se battent volontairement et pour
 
 a une cause qu'ils estiment juste, au lieu de combattants
-qu'un despote force à se battre, et qui ignorent pour- Û
+qu'un despote force à se battre, et qui ignorent pour-
 quoi.
 
 \. Mais le moment n'est pas venu de chercher à éviter
@@ -1957,36 +1957,36 @@ travail est source de richesse et de moralité, ce n'est pas
 
 ,
 
-là une doctrine difficile à défendre. Et nous avons le 2
+là une doctrine difficile à défendre. Et nous avons le
 droit d'espérer que dans l'enseignement primaire, #
 comme dans l'enseignement secondaire, il se trouvera
-des maîtres capables d'inculquer ces notions élémen- 7
-taires à nos enfants. Qu'ils leur parlent de patrie, car ÿ
+des maîtres capables d'inculquer ces notions élémen-
+taires à nos enfants. Qu'ils leur parlent de patrie, car
 - l'idée de patrie est sainte, comme l'idée de famille; ‘+4
 mais que ce soit d'une patrie pacifique, comme d'une A « famille pacifique. De l'humanité à la patrie, de la patrie ;
-à la famille, la solidarité va en grandissant, devenant 3
-de plus en plus étroite. Mais toujours qu'on enseigne le R;
-respect de la justice et du droit, sans faire intervenir la 1h
+à la famille, la solidarité va en grandissant, devenant
+de plus en plus étroite. Mais toujours qu'on enseigne le
+respect de la justice et du droit, sans faire intervenir la
 force et la violence pour le règlement des conflits. (1) ;
-En définitive, la guerre et l'organisation militaire de : 8
-nos sociétés représentent une ancienne et peu respec- 1
+En définitive, la guerre et l'organisation militaire de
+nos sociétés représentent une ancienne et peu respec-
 table tradition. Elles font partie de ces résidus de bar- #
-(à) Le grand Tolstoi, dans divers écrits, prétend que le N
-seul moyen d'arrêter le crime de la guerre, cest que les conscrits 4
+(à) Le grand Tolstoi, dans divers écrits, prétend que le
+seul moyen d'arrêter le crime de la guerre, cest que les conscrits
 des divers pays se refusent au service militaire. « L'Evangile et à
-VPhumanité défendent à Fhomme de chercher la mort de son frère. 7
-Donc le jeune conscrit doit repousser l'arme qu'on lui met en M
-main. Si, dans chaque nation, toutes les recrues prenaient ce 1
+VPhumanité défendent à Fhomme de chercher la mort de son frère.
+Donc le jeune conscrit doit repousser l'arme qu'on lui met en
+main. Si, dans chaque nation, toutes les recrues prenaient ce
 parti, c'en serait fait de la guerre. » À
-Assurément. Mais, même en supposant possible cette universelle 0
+Assurément. Mais, même en supposant possible cette universelle
 résistance au service militaire, on peut se demander si elle est à
 légitime. Quelle que soit mon opinion sur la guerre, je ne sais si #
 mon devoir est de me révolter contre une loi, loi formelle que la |
 majorité de mes concitoyens édicte, en m'imposant un devoir. ‘al
-À La question est complexe, et mériterait d'être discutée à fond : 4
+À La question est complexe, et mériterait d'être discutée à fond
 car l'une et l'autre opinion se peuvent soutenir. Il est bien entendu ‘à
-d'ailleurs qu'elle n'a, au moins actuellement, qu'un intérêt théo- ? 4
-rique ; car en fait le nombre de ces jeunes gens, réfractaires au 4
+d'ailleurs qu'elle n'a, au moins actuellement, qu'un intérêt théo- ?
+rique ; car en fait le nombre de ces jeunes gens, réfractaires au
 service par scrupule de conscience, est assez faible. :
 Peut-être quelque jour aurons-nous l'occasion de traiter ce redoutable problème de morale sociale. ‘* 1402
 
@@ -2009,24 +2009,24 @@ pas continuer, pendant des siècles et des siècles, à en-
 Re C'est là une très noble tâche, et il me semble que le
 __ moraliste et le philosophe ne puissent guère s'en propoDh ser de plus belle.
 
-4 Notre catalogue analytique sommaire, notre pelil
+Notre catalogue analytique sommaire, notre pelil
 DE. index alphabétique provisoire du catalogue anaby1 tique sommaire; notre petite table analytique provi-
 | : soire três sommaire de notre sixième série......... il
 Hi L'étude que l'on va lire; la Revue philosophique. ...... IV
-WU Nous degons remercier... 4220600. 2
+WU Nous degons remercier... 4220600.
 
 (A Nous avons donné le bon à tirer après corrections
 \'A pour trois mille exemplaires de ce deuxième cahier le
 
 ji Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-‘ rez-de-chaussée, Paris, cinquième arrondissement. k
-1 Nos Cahiers sont édités par des souscriptions men-
+‘ rez-de-chaussée, Paris, cinquième arrondissement.
+Nos Cahiers sont édités par des souscriptions men-
 ÿ suelles régulières et par des souscriptions extraordi-
 Ô naires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions
 
-4 Nos Cahiers paraissent par séries; une série paraît
+Nos Cahiers paraissent par séries; une série paraît
 hi dans le temps d'une année scolaire, d'une année
 À ouvrière, d''octobre-novembre à juin-juillet ; l'abonnene ment se prend pour une série.
 
@@ -2038,7 +2038,7 @@ ji: pendant le cours de cette série :
 
 ‘À PEN ON SARSMENER | Autres pays de l'Union postale uni-.
 v Abonnement sur whatman... cent francs pour tous pays
-7 Les exemplaires sur whatman, tirage non réimposé,
+Les exemplaires sur whatman, tirage non réimposé,
 ‘4 sont numérotés à la presse et imprimés au nom du
 “  souscripteur; le tirage à part sur whatman commenu cera de fonctionner au premier janvier 1906; les
 9 inscriptions pour cet abonnement particulier sont reçues
@@ -2055,7 +2055,7 @@ centimes, quatre timbres de quinze centimes.
 
 Nous engageons nos abonnés de certains pays à nous |
 demander un abonnement recommandé ; tous les cahiers |
-de l'abonnement recommandé sont empaquetés à part et j
+de l'abonnement recommandé sont empaquetés à part et
 recommandés à la poste ; la recommandation postale, :
 comportant une transmission de signature, garantit le
 destinataire contre certains abus; pour cette recom- $
@@ -2074,6 +2074,6 @@ cahiers de cette sixième série complète.
 
 A partir du premier janvier qui suit l'achèvement EE.
 d'une série, le prix de cette série est porté au moins à
-au total des prix marqués; ainsi à dater du premier k
+au total des prix marqués; ainsi à dater du premier
 janvier 1906 la sixième série complète, s'il en reste à
 encore à cette date, se vendra soixante-treize francs. /

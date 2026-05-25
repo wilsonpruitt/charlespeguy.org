@@ -15,20 +15,20 @@ dans nos cinq premières séries, I900-I904, un si
 grand nombre .de documents, de textes formant dossiers, de renseignements et de commentaires; — un À
 si grand nombre de cahiers de lettres, — nouvelles,
 romans, drames, dialogues, poèmes et contes; — un
-si grand nombre de cahiers d'histoire et de philosophie; et ces documents, renseignements, textes, dos M
-siers et commentaires, ces cahiers de lettres, d'histoire 1
-et de philosophie étaient si considérables que nous ne i
+si grand nombre de cahiers d'histoire et de philosophie; et ces documents, renseignements, textes, dos
+siers et commentaires, ces cahiers de lettres, d'histoire
+et de philosophie étaient si considérables que nous ne
 pouvons pas songer à en donner ici l'énoncé même le
 plus succinct; pour savoir ce qui a paru dans les cinq « premières séries des cahiers, il suffit d'envoyer un man- "
 dat de cinq francs à M. André Bourgeois, administra-.
 teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée,
 Paris, cinquième arrondissement ; on recevra en retour.
 le catalogue analytique sommaire, 1900-1904, de nos :
-Ce catalogue a été justement établi pour donner, 4
-autant qu'il se pouvait, une image en bref, un raccourci, D
-une idée, abrégée, mais complète, de nos éditions anté- d
+Ce catalogue a été justement établi pour donner,
+autant qu'il se pouvait, une image en bref, un raccourci,
+une idée, abrégée, mais complète, de nos éditions anté-
 rieures et de nos cinq premières séries ; tout y est classé |
-dans l'ordre ; il suffit de le lire pour trouver, à leur. « place, les références demandées. r
+dans l'ordre ; il suffit de le lire pour trouver, à leur. « place, les références demandées.
 Ce catalogue, in-18 grand jésus, forme un cahier"
 très épais de XI1+408 pages très denses, marqué cinq
 -
@@ -41,8 +41,6 @@ w 2 octobre 1904, comme premier cahier de la sixième
 " par le fait même de son abonnement, en tête de la série;
 nous l'envoyons contre un mandat de cinq francs à toute
 3% personne qui nous en fait la demande.
-
-| 14
 
 à Pour amorcer tout travail que l'on aurait à commencer
 “ dans notre premier catalogue analytique sommaire, conF  sulter le petit index alphabétique provisoire que nous
@@ -68,11 +66,11 @@ n. cahier pour le voyage
 a de visite
 “14 du président de la République \
 ie (et en Portugal)
-‘1 Alors dans Besançon, vieille ville espagnole. ? ñ
+‘1 Alors dans Besançon, vieille ville espagnole. ?
 
 4 notre patrie |
 
-, 4
+,
 
 Ce fut une révélation, et je ne ferai pas pour cette fois
 le cahier que je me réservais, que je m'étais promis
@@ -94,35 +92,35 @@ faut s'attendre à son métier, et aux obligations de son
 métier, aux obligations périodiques. Nuls métiers n'impliquent des obligations périodiques, le mot le dit,
 comme la fabrication des périodiques. On doit s'y attendre. On s'y fait. On s'en tire par des assolements, et
 
-l'on en vient très bien, comme les terres modernes, à M
-se passer de jachères. D
-A mon corps défendant, par le ministère de ces cahiers, je suis devenu tout de même un petit peu un M
+l'on en vient très bien, comme les terres modernes, à
+se passer de jachères.
+A mon corps défendant, par le ministère de ces cahiers, je suis devenu tout de même un petit peu un
 journaliste; c'est-à-dire un homme qui suit les événements ; je ne m'en défends pas; je ne dois en avoir ni
-honte ni remords; journaliste de quinzaine, si l'on peut È
+honte ni remords; journaliste de quinzaine, si l'on peut
 dire, je ne renierai pas le métier que je fais; journaliste :
 de mois ou de semestre, journaliste enfin, ma misère est
 la misère commune: il faut que je suive les événements,
-excellent exercice pour achever de se convaincre que k
-vraiment les événements ne nous suivent pas. 3
+excellent exercice pour achever de se convaincre que
+vraiment les événements ne nous suivent pas.
 Ils ont sans doute autre chose à faire; mieux ou plus
-mal; journaliste, quinzenier ou de semestre, je ne pou- 4
+mal; journaliste, quinzenier ou de semestre, je ne pou-
 k vais laisser tomber cette législature et se préparerles
 prochaines élections sans essayer de jeter en arrière un
 regard d'historien sur les événements de ces quatre
 dernières années; un assez grand nombre de ces évé-
 qu'ils se produisaient ils m'avaient semblé importants;
-je n'étais pas bien sûr qu'ils me le parussent autant M
+je n'étais pas bien sûr qu'ils me le parussent autant
 aujourd'hui; mais, dans notre misérable métier, nous +
 devons faire semblant de le croire; d'eux-mêmes ils « s'organisaient, s'échelonnaient, dessinaient le plan du
 cahier que j'avais à faire; vraiment ce cahier était tout
 fait, comme ces cahiers que certains auteurs m'ap-
 
-. portent ; il n'y avait plus qu'à l'écrire ; c'est-à-dire qu'il u ê
+. portent ; il n'y avait plus qu'à l'écrire ; c'est-à-dire qu'il
 n'y avait plus qu'à le faire; la démission du waldeckisme et le commencement du combisme ; comment
-le combisme se prétendait la droite filiation du wal- 4
-deckisme; sincèrement peut-être, au moins pour Certains hommes, et pour certaines circonstances, et pour 4
+le combisme se prétendait la droite filiation du wal-
+deckisme; sincèrement peut-être, au moins pour Certains hommes, et pour certaines circonstances, et pour
 
-10 4
+10
 
 1e certaine partie, et pour certaines idées; mensongèreJi ment certes, pour presque toutes les per$onnes, en
 k4 presque toutes les circonstances, pour la plus grande -
@@ -151,36 +149,36 @@ et de combien cette forme non encore éprouvée, justes ment, en partie, parce q
 
 encore, était profondément plus dangereuse que toutes À
 les formes jusqu'ici connues et classées; comment elle {
-se manifestait; comment elle était organisée ; comment i
+se manifestait; comment elle était organisée ; comment
 elle agissait; par quels.procédés ; ou même par quelles |
 méthodes ; comment elle culminaït et redescendait en à
 rayonnant; en quoi elle ressemblait aux formes con- |
-nues ; en quoi elle était nouvelle ; que le gouvernement é.
-de la République et les véritables, anciens, tradition- Î
+nues ; en quoi elle était nouvelle ; que le gouvernement
+de la République et les véritables, anciens, tradition-
 nels et religieux républicains, je veux dire les hommes |
 qui avaient cette religion véritable de la République, à
 force d'avoir les regards fixés sur les anciennes réali- ;
-tés, sur les menaces récentes, sur les intentions pré- î
-sentes, sur les apparences nouvelles du césarisme mili- 1
-devaient immanquablement tomber, et tout innocem-. 4
+tés, sur les menaces récentes, sur les intentions pré-
+sentes, sur les apparences nouvelles du césarisme mili-
+devaient immanquablement tomber, et tout innocem-.
 ment, dans les réalités du césarisme civil; qui est le à
-plus dangereux, du césarisme militaire ou du césarisme i
+plus dangereux, du césarisme militaire ou du césarisme
 civil; que c'est peut-être le césarisme civil; justement ia
 parce que jusqu'ici on s'en est méfié beaucoup moins ; à
 de l'innocence morale des vieux républicains ; et aussi [is
 de leur innocence mentale, que nous nommons commu- ä
-nément de l'ignorance ; que par peur et par fascination ÿ
+nément de l'ignorance ; que par peur et par fascination
 du césarisme militaire cette ignorance devait infailli- {
-blement tomber dans le césarisme civil ; que par peur È
+blement tomber dans le césarisme civil ; que par peur
 et par fascination du césarisme en épauleites, elle de- bi:
 vait infailliblement tomber dans le césarisme en ves- n]
 ton ; qu'il est aujourd'hui démontré qu'un homme peut :
-impunément exercer un césarisme impitoyable dans la 1
+impunément exercer un césarisme impitoyable dans la
 République, pourvu qu'il ne soit pas bel homme, qu'il
 ne soit pas militaire, qu'il porte mal même les tenues |
 civiles, surtout qu'il ne sache pas monter à cheval ; enfin, |
-qu'on puisse le nommer le petit père Untel; qu'au è
-12 4
+qu'on puisse le nommer le petit père Untel; qu'au
+12
 
 besoin s'il était populairement laid, cela n'en vaudrait
 | que mieux; de l'importance capitale de la désignation
@@ -210,42 +208,42 @@ conséquent son application fut une opéralion de dé-
 loyauté publique; non seulement que cette application
 fut un acte de déloyauté publique, mais qu'elle fut une
 
-application nouvelle du principe de la raison d'État: 1
+application nouvelle du principe de la raison d'État:
 que la raison d'État, qui avait triomphé dans la corrup
 tion du dreyfusisme, ne fut jamais aussi puissante que
 dans le triomphe du combisme ; l'abdication, la grande
 abdication de M. Waldeck-Rousseau ; la grandeur et la |
 tristesse unique de ce départ, qui parut dès le principe
-un départ éternel ; comment, dans sa retraite même, et 4
-dans la préparation de sa mort, il essaya, une deuxième, L:
-‘et une dernière fois, de sauver la République ; dela ré R
-sistance qui peu à peu se reconnaissait parmi les véri- x
-tables républicains; de cette résistance qui s'organisait; F
-quels admirables efforts, vite réprimés par la maladie 4
-et par les avancées de la mort, M. Waldeck-Rousseau 4
-s'imposa pour donner, d'un dernier coup de barre, la K
+un départ éternel ; comment, dans sa retraite même, et
+dans la préparation de sa mort, il essaya, une deuxième,
+‘et une dernière fois, de sauver la République ; dela ré
+sistance qui peu à peu se reconnaissait parmi les véri-
+tables républicains; de cette résistance qui s'organisait;
+quels admirables efforts, vite réprimés par la maladie
+et par les avancées de la mort, M. Waldeck-Rousseau
+s'imposa pour donner, d'un dernier coup de barre, la
 droite ligne; et l'accueil honteux qu'il reçut ; de la part
-d'hommes qui lui devaient tout; qui sans lui n'eussent 1
-été rien, condamnés à ou condamnés par la démagogie 4
+d'hommes qui lui devaient tout; qui sans lui n'eussent
+été rien, condamnés à ou condamnés par la démagogie
 nationaliste réactionnaire; dans quel esprit fut pré-
-parée la séparation des Églises et de l'État; mais dans L
+parée la séparation des Églises et de l'État; mais dans
 quel esprit elle devait être opérée; conçue dans un
-esprit combiste; mais opérée dans un esprit beaucoup 4
-plus républicain ; que la loi en cours de vote sur la F
-Séparation des Églises et de l'État paraît être la conti- 4
+esprit combiste; mais opérée dans un esprit beaucoup
+plus républicain ; que la loi en cours de vote sur la
+Séparation des Églises et de l'État paraît être la conti-
 nuation de la loi sur les Congrégations; mais que ce Ne.
 qui arrive à la loi sur la Séparation est le contraire de à
 ce qui advint à la loi sur les Congrégations; que la loi À
-sur les Congrégations, préparée, faite, et votée wald- J
+sur les Congrégations, préparée, faite, et votée wald-
 eckiste, fut exécutée, appliquée combiste; et que la “1
-loi portant séparation des Églises et de l'État au con- 4
+loi portant séparation des Églises et de l'État au con-
 traire, préparée combiste, fut amendée juridique, sera À
-votée assez juridique, c'est-à-dire, en un certain sens, i
-un peu waldeckiste; quélle fut la politique du Gouver- ù
+votée assez juridique, c'est-à-dire, en un certain sens,
+un peu waldeckiste; quélle fut la politique du Gouver-
 
-14 24
+14
 
-10 4
+10
 il nement envers le Saint-Siège; et quelle avait été la polik tique du Saint-Siège envers le gouvernement français ;
 À comment les anticléricaux se conduisirent ; comment les
 F :  anticatholiques se conduisirent ; comment les cléricaux
@@ -269,18 +267,17 @@ l'ancien socialisme ; que le dreyfusisme, devenant gouvernemental, politique, pa
 véritable dreyfusisme ; que le socialisme, devenant gou-
 ; vernemental, politique, parlementaire, devenait étatisme et cessait d'être un socialisme véritable ; comment l'esprit révolutionnaire était atteint dans ses
 sources les plus profondes ; comment la tradition révo-
-| 15
 
 lutionnaire française était lésée dans ses plus anciennes
 ressources ; comment un jaurésisme universel pendant ?
 près de quatre ans sévit; car ce n'est pas assez de
-dire qu'il régna; c'est-à-dire un opportunisme politique et social sans la grandeur et sans la compétence ë
-des anciens opportunistes; comment l'anarchisme lui- 3
-même ne resta pas indemne ; ayant reçu beaucoup f
-d'atieintes, ayant admis beaucoup de contaminations 4
+dire qu'il régna; c'est-à-dire un opportunisme politique et social sans la grandeur et sans la compétence
+des anciens opportunistes; comment l'anarchisme lui-
+même ne resta pas indemne ; ayant reçu beaucoup
+d'atieintes, ayant admis beaucoup de contaminations
 politiques et littéraires; comment un petit bonhomme po- ä
 pulaire et plaisantin peut devenir un grand tyran sans #
-que l'on s'en aperçoive ; comment la popularité du césa- i
+que l'on s'en aperçoive ; comment la popularité du césa-
 risme fait le plus dangereux aboutissement des démo- à
 craties ; combien il est aisé d'établir une autocratie en 4]
 France, pourvu que l'on respecte certaines formes, A
@@ -288,7 +285,7 @@ quitte à ne respecter aucune réalité, aucune liberté; <
 comment la République, à force de se garder contre les ,
 invasions des césarismes extérieurs, d'une manière |
 pour ainsi dire professionnelle, était condamnée à :
-ne pas voir monter les intravasions du beaucoup plus 2
+ne pas voir monter les intravasions du beaucoup plus
 dangereux césarisme intérieur ; mais comment il restait Da
 encore quelques citoyens libres; comment la délation, à
 qui avait toujours été dans la pratique des gouverne- à
@@ -299,7 +296,7 @@ en des temps héroïques avait rendu tant et de véritables !
 services à la République, à la liberté, à la libre pensée,
 d'un seul coup, ayant trahi la liberté, la libre-pensée,
 faillit faire perdre à la République tout l'avantage
-qu'elle avait jadis contribué à lui faire obtenir ; et à la Ê
+qu'elle avait jadis contribué à lui faire obtenir ; et à la
 libre-pensée tous les avantages qu'elle avait jadis con- à À
 tribué à faire obtenir à la pensée libre ; comment dès le |
 
@@ -328,36 +325,36 @@ non apparentes ; qu'il y eut à l'effondrement du combisme,
 outre un dégoût général croissant, outre une sorte
 
 d'impossibilité de continuer presque officiellement con- À
-statée en dûlangage parlementaire, des causes politiques, 1
-peut-être singulières, et un peu mystérieuses; des 1
-bonnes et des mauvaises, comme toujours ; peut-être, - 4
+statée en dûlangage parlementaire, des causes politiques,
+peut-être singulières, et un peu mystérieuses; des
+bonnes et des mauvaises, comme toujours ; peut-être,
 cette fois-ci, et par exception, autant de bonnes que
-de mauvaises; qu'il y avait toujours eu pendant la 1
-domination combiste antagonisme entre la présidence 4
-du conseil et la présidence de la République; mais que 3
-cet antagonisme, commencé en lutte sourde, continué 54
-presque ouverte et sentimentale, n'explique pas tout; 4
-que ces sortes de campagnes extérieures n'expliquent f
-sans doute jamais tout dans un effondrement, dans un 4
-tel effondrement; comment l'effondrement de la domination combiste fut peut-être surtout un effondrement 4
+de mauvaises; qu'il y avait toujours eu pendant la
+domination combiste antagonisme entre la présidence
+du conseil et la présidence de la République; mais que
+cet antagonisme, commencé en lutte sourde, continué
+presque ouverte et sentimentale, n'explique pas tout;
+que ces sortes de campagnes extérieures n'expliquent
+sans doute jamais tout dans un effondrement, dans un
+tel effondrement; comment l'effondrement de la domination combiste fut peut-être surtout un effondrement
 intérieur, où la principale complicité fut sans doute la
-complicité du gouvernement qui disparaissait; de cer- 1
+complicité du gouvernement qui disparaissait; de cer-
 tains membres au moins de ce gouvernement ; non pas
 tant peut-être de ce groupe très important et uni de -
 membres du gouvernement qui à l'intérieur du ministère y
-formaient depuis l'origine un contre-gouvernement per- L.
-manent, parfaitement constitué, en opposition avec le k
+formaient depuis l'origine un contre-gouvernement per-
+manent, parfaitement constitué, en opposition avec le
 président du conseil, mais au contraire du président du |
-conseil même et des quelques membres de son cabinet J
+conseil même et des quelques membres de son cabinet
 qui accompagnaient sa fortune ; grêle compagnie, mal- ‘@
-gré certaines apparences de force et de domination; 4
+gré certaines apparences de force et de domination;
 comment peut-être, au fond, le rusé bonhomme ne fut ‘4
 pas fâché de disparaître à ce moment-là; comment son À
 départ fut singulier, précipité, apparemment volontaire, À
-sans doute volontaire en un autre sens et plus automa- 4
+sans doute volontaire en un autre sens et plus automa-
 tique, plus voulu qu'on ne l'a généralement pensé; qu'il +À
-ne l'a montré lui-même ; ou laissé voir; que le rusé petit 4
-18 4
+ne l'a montré lui-même ; ou laissé voir; que le rusé petit
+18
 
 populaire sentait approcher les difficultés, venir les
 il _impossibilités ; qu'étant tout de même chef du gouverl nement il avait des raisons, que nous ignorions, de
@@ -391,7 +388,7 @@ beaucoup plus d'importance réelle, que l'attribution,
 
 demi spontanée, demi calculée, demi négligée, du porte- -
 sénateur ancien ministre de l'instruction publique, À
-vague, de piètre souvenir, M. Justin-Louis-Émile Combes ; É
+vague, de piètre souvenir, M. Justin-Louis-Émile Combes
 j'aurais examiné, plus généralement, et plus durablement, si la politique financière de M. Rouvier n'a point
 commandé tout le gouvernement de la République |
 depuis la constitution même du ministère Combes,
@@ -400,24 +397,24 @@ pendant longtemps, seule elle n'a pas fait la limitation à
 inférieure du combisme; si, plus généralement encore, et
 plus durablement, toute notre politique n'était pas com- :
 mandée, depuis plusieurs années déjà, par les plus {
-grosses difficultés financières, par les menaces budgé- 4
+grosses difficultés financières, par les menaces budgé-
 taires les plus graves ; aggravées encore par tant de %
 promesses de tant de réformes onéreuses ; les vertus
-démocratiques surchargeant les vices financiers, et les f
-vices démocratiques surchargeant les vertus financières, ÿ
-de telle sorte qu'en dernière analyse vertus et vices, démo- ñ
+démocratiques surchargeant les vices financiers, et les
+vices démocratiques surchargeant les vertus financières,
+de telle sorte qu'en dernière analyse vertus et vices, démo-
 cratie et finance, tout retombe en alourdissement sur le (
 dos du contribuable ; d'où je serais revenu sur les dis- ;
 sensions intérieures du cabinet si singulièrement con- À
-‘ stitué par M. Combes, et si singulièrement commandé ; É
-sant, et, en même temps, si obéissant ; j'aurais examiné 4
+‘ stitué par M. Combes, et si singulièrement commandé
+sant, et, en même temps, si obéissant ; j'aurais examiné
 particulièrement l'opposition systématique de M. Rou- À
-vier au combisme; enfin passant au ministère de 4
-M. Rouvier, un peu fatigué, j'aurais marqué la détente, 4
+vier au combisme; enfin passant au ministère de
+M. Rouvier, un peu fatigué, j'aurais marqué la détente,
 le relâchement, peut-être un peu trompeur, qui suivit à
-le départ de M. Combes; je m'y serais reposé comme 4
+le départ de M. Combes; je m'y serais reposé comme
 tout le monde, à tort, peut-être ; à tort sans doute, car !
-un orage montait, que nul de nous ne voyait venir ; et 1
+un orage montait, que nul de nous ne voyait venir ; et
 
 pendant l'année qui nous restait avant la fin de la
 législature j'aurais comme tout le monde fait ma séparation des Églises et de l'État; j'aurais comme tout le
@@ -437,7 +434,7 @@ plus républicaine.
 
 Après la séparation que faire, sinon, comme tout le
 monde parlementaire politique, aller en vacances;
-ainsi dans la torpeur que ne manquent jamais de pro- ÿ
+ainsi dans la torpeur que ne manquent jamais de pro-
 voquer les événements officiellement importants, et
 
 3 pendant ce que nous nommons agréablement les loisirs
@@ -449,37 +446,37 @@ les événements, j'aurais déclaré, de cette voix, que
 c'étaient les événements qui avaient tort; les dociles
 événements, présents, absents, tous également sérieux,
 
-tous également importants, tous également organisés, 4
-tous également expliqués, eussent fait une ou plusieurs J
+tous également importants, tous également organisés,
+tous également expliqués, eussent fait une ou plusieurs
 files indiennes que j'eusse déroulées, enroulées savam- ;
 ment; de tous ces événements laïques, j'aurais fait des
 chapelets; préalablement je les eusse alignés; longue- ;
-ment, comme on faisait dans l'ancienne armée militaire ; F
-l'événement numéro trois, Sortez; événement numéro L
+ment, comme on faisait dans l'ancienne armée militaire
+l'événement numéro trois, Sortez; événement numéro
 vingt-cinq, rentrez, vous sortez trop; j'eusse engraissé
-les événements maigres, maigri les faits trop gras; par 54
-de telles observations individuelles on obtenait jadis les 4
+les événements maigres, maigri les faits trop gras; par
+de telles observations individuelles on obtenait jadis les
 beaux alignements ; par de tels redressements j'eusse :
 régularisé les faits ; et mes faits étant tous remis sur le ;
-même plan, comme il est juste, nul ne dépassant l'autre, L
+même plan, comme il est juste, nul ne dépassant l'autre,
 nul ne dépassant son voisin de gauche ou son voisin
-de droite, énumérés dans cette égalité parfaitement 1
-démocratique, nous aussi nous eussions formé des 4
+de droite, énumérés dans cette égalité parfaitement
+démocratique, nous aussi nous eussions formé des
 chaînes, etles chapelets des événements formaient lenchaînement de mon discours, et j'étais tranquille, et je
 devenais un historien sérieux, et mon vieux camarade À
-Ischarioth, — je mets deux h pour que son nom soit . 4
-plus un nom savant, — mon vieux camarade Ischarioth 4
+Ischarioth, — je mets deux h pour que son nom soit
+plus un nom savant, — mon vieux camarade Ischarioth
 ne me disait plus aimablement que, moi, au moins, “4
-j'avais coutume de parler de sujets dont je ne connais- k
-sais pas le premier mot. 4
-Ce fut un saisissement; j'aurais fait mon cahier bien 4
+j'avais coutume de parler de sujets dont je ne connais-
+sais pas le premier mot.
+Ce fut un saisissement; j'aurais fait mon cahier bien
 tranquille au coin de mon feu, au moins du côté du À
 travail; nous aurions tous fait nos métiers bien tran- ‘4
 quilles ; surtout ceux qui n'en ont pas, et qui sont les plus: De
-rassérénés des hommes; et même il n'y aurait eu qu'à 4
+rassérénés des hommes; et même il n'y aurait eu qu'à
 l'écrire, ce cahier; écrire n'est rien, tous nos jeunes ci
 gens le savent; il était fait d'avance ; il n'y avait quà
-22 1
+22
 
 rédiger ; un devoir de vacances, enfin ; naturellement,
 et comme tout bon Français, j'aurais tout ignoré de la
@@ -512,36 +509,36 @@ fin d'une année, fin achevée, fin finie, constatée, correcte,
 
 année qui encore n'était pas tout à fait finie et qui à
 pourtantse creusait de l'intérieur; d'une année qui encore
-pouvait nous apporter quelles surprises, encore, et 5
+pouvait nous apporter quelles surprises, encore, et
 quelles peines ; travail, sommeil, et loisir, les trois huit ;
 ensemble et non plus bout à bout; non plus juxtaposés, :
-jointurés, mais fondus, fonctionnant simultanément, 4
+jointurés, mais fondus, fonctionnant simultanément,
 pour la plus grande confusion de l'esprit même et des
 images, pour le plus grand repos et le délassement ?
-maximum; fondus comme ce temps fondu de vapeur et 4
-. de soleil; de demi-soleil ensemble; ou enfin on s'ar- 4
+maximum; fondus comme ce temps fondu de vapeur et
+. de soleil; de demi-soleil ensemble; ou enfin on s'ar-
 rangeait, comme par hasard, pour se trouver sur le :
 chemin de certains itinéraires que l'on connaissait à
 vaguement pour être les itinéraires des cortèges, et que !
 d'aucuns faisaient semblant de ne pas connaître, mais de
 ils s'y trouvaient tout de même, et que les journaux %
-. donnaient tous les matins; on ne lisait jamais les jour- È
+. donnaient tous les matins; on ne lisait jamais les jour-
 naux; mais On connaissait tout de même les itinéraires, GE
 on ne sait pas comment ; et puis le roi semblait faire , &
 exprès, ce matin-là, de ne point quitter le quartier; |
 c'était de sa faute; à lui; et non point à nous, qui ne @
-sommes ni royalistes ni paresseux; il ne s'en allait L.
+sommes ni royalistes ni paresseux; il ne s'en allait
 jamais; le Panthéon, Notre-Dame, l'Hôtel-de-Ville, des ‘i
 circuits à tenir toute une matinée, des lenteurs, des #
 arrêts, des attentions, des retenues, des stages qui ne ?
-finiraient certainement point à midi sonné, toutes les 4
+finiraient certainement point à midi sonné, toutes les
 maisons de cérémonies; les places, les parvis, les Er
 ponts; éreinté d'une série énorme, qui fut la sixième, à
-à peine sorti du Gobineau, qui fut considérable entre E
-tous, la tête lourde de soucis, détraqué de tracas, il 4
-était amusant de prendre le bras d'un véritable ami, — 1
-nous nous en connaissons, — et d'aller un quart d'heure 4
-se mêler en badauds au vieux et bon peuple de Paris; 4
+à peine sorti du Gobineau, qui fut considérable entre
+tous, la tête lourde de soucis, détraqué de tracas, il
+était amusant de prendre le bras d'un véritable ami,
+nous nous en connaissons, — et d'aller un quart d'heure
+se mêler en badauds au vieux et bon peuple de Paris;
 
 le quart d'heure devenait demi-heure, trois quarts
 d'heure; infailliblement on rencontrait quelque ami,
@@ -549,7 +546,7 @@ qui sournois en faisait autant, et qui sans plus vous
 reprochait d'être un affreux militariste.
 Maisons, vieilles maisons de cérémonies ; maisons des
 cérémonies anciennes et ensemble mêmes perpétuelles
-, maisons des jeunes cérémonies; maisons des anciens ; L
+, maisons des jeunes cérémonies; maisons des anciens
 maisons des morts glorieux ; monuments impérissables,
 ‘ qui fatalement périront; les quatre points cardinaux
 ; de la gloire de Paris; et par cette perpétuelle représentation capitale de Paris, par cette représentation éternellement éminente, en même temps et inséparablement
@@ -566,37 +563,37 @@ et qui ne périront point, comme tant de monuments
 modernes précaires, longtemps avant le jour de leur
 . toujours pleins d'un éternel sens intérieur, éternellement
 manifesté par la valeur de la pierre, éternellement dessiné par l'extérieure éternité de la ligne; monuments
-25 2
+25
 
 gieux, monuments de l'ancien régime et de tout régime |
 nouveau, monument impérial, partout et toujours non
-pas seulement monuments populaires, mais monuments 4
+pas seulement monuments populaires, mais monuments
 peuple; les quatre grands dieux Termes de la gloire de ,
 Paris; l'Arc de Triomphe, — un peu plus familièrement
-l'Étoile pour les conducteurs des Thomson, compagnie 4
+l'Étoile pour les conducteurs des Thomson, compagnie
 française, — le monument le plus considérable qu'on
 ait construit en ce genre, dit le petit Larousse, l'Arc de
 Triomphe de l'Étoile, ce monument parfait de la gloire ?
 impériale française; bâti sous Louis-Philippe, approxi- il
-mativement, ou sous la Restauration, plus vieux pour-. 4
-tant que le monde romain; les Invalides, ce pur chef- 4
-d'œuvre, ce monument parfait de l'ancienne France p
+mativement, ou sous la Restauration, plus vieux pour-.
+tant que le monde romain; les Invalides, ce pur chef-
+d'œuvre, ce monument parfait de l'ancienne France
 
-: royale; le Panthéon, beaucoup plus républicain, ayant 4
-été construit sous Louis XV, le Panthéon républicain d
-dynastique, le Panthéon désaffecté, qui n'avait jamais, 4
+: royale; le Panthéon, beaucoup plus républicain, ayant
+été construit sous Louis XV, le Panthéon républicain
+dynastique, le Panthéon désaffecté, qui n'avait jamais,
 par ses plans même, été affecté sérieusement, le Pan- L |
 théon, qu'il est très élégant de blaguer, mais qu'il vau-*
 drait mieux apprendre à savoir un peu regarder comme "
-ce monument le demande. Notre-Dame, enfin, dont le F
-nom dit tout. Monuments neufs. s k
+ce monument le demande. Notre-Dame, enfin, dont le
+nom dit tout. Monuments neufs.
 
 [ Pour savoir à quel point les Invalides sont un mo- ha
 nument parfait parfaitement, il faut les regarder, par ]
-exemple, des fenêtres du salon de l'appartement situé 3
+exemple, des fenêtres du salon de l'appartement situé
 au cinquième du numéro 2 de l'avenue de Villars. ]
 
-Il est vrai que l'on regardait passer les militaires; 4
+Il est vrai que l'on regardait passer les militaires;
 depuis que l'État-Major dreyfusiste parlementaire politique a tout fait pour nous réconcilier avec l'État-Major ‘4
 militaire, nous avons refusé de nous réconcilier avec
 
@@ -633,28 +630,28 @@ invétérée de cette forme et de ce niveau d'existence, et
 qui n'y soit point insolent, inconvenant, grossier, par- #
 venu; le seul peuple qui ne glisse point sur les parquets à
 cirés de la gloire; le seul peuple qui soit révolution- #
-naire, et quand les événements se présentent, qui lui É
-introduisent des rois, non seulement il sait les recevoir, ñ
-mais il se trouve avoir sous la main, pour les y rece- Ë
+naire, et quand les événements se présentent, qui lui
+introduisent des rois, non seulement il sait les recevoir,
+mais il se trouve avoir sous la main, pour les y rece-
 voir, des monuments royaux comme aucun roi du #
 monde en aucun pays du monde n'en pourrait sortir |
 dans le même temps, n'en pourra jamais sortir dans
 aucun temps de son pays.
 
-Rien n'est bon pour le repos comme ces promenades ë
+Rien n'est bon pour le repos comme ces promenades
 apparemment fatigantes au milieu du peuple de Paris ; |
 l'esprit est occupé juste assez pour que le repos y :]
 pénètre et y règne, souverain lui-même, sans aucune À
-contestation ; la pleine vacuité fatiguerait, en de tels mo- 4
-ments; mais ce demi-plein demi-vide est ce qu'il y a de 1
+contestation ; la pleine vacuité fatiguerait, en de tels mo-
+ments; mais ce demi-plein demi-vide est ce qu'il y a de
 plus reposant; et il y a dans ce peuple, tout gâté qu'il à
-soit par un demi-siècle de démagogie, tant de courage, 7
-tant de bonne humeur, tant d'endurance, tant de joie: f
+soit par un demi-siècle de démagogie, tant de courage,
+tant de bonne humeur, tant d'endurance, tant de joie:
 sortis pour voir le roi, on regardait le peuple, le vieux fl
 et déjà nommé peuple roi; c'était surtout lui, le peuple,
 qui passait et défilait, que l'on regardait passer et défi- |
-ler, qui lui-même se regardait passer et défiler; en ce 4
-temps de mutualité à outrance, le défilé mutuel dans la Ï
+ler, qui lui-même se regardait passer et défiler; en ce
+temps de mutualité à outrance, le défilé mutuel dans la
 simple rue, le spectacle mutuel en font une application,
 de la mutualité, la plus ancienne et la plus durable des "À
 applications ; et c'est un théâtre populaire qui enfonce À
@@ -679,7 +676,7 @@ laissé abruti, à ce qu'il me semblaït, pour le restant de
 (14 tous les matins. Les vieux {rois huit enfin réalisés.
 } Le seul peuple qui apparaisse dignement comme un
 it roi dans les anciens monuments de ses grandes céré-
-1 Nous aussi nous recommencerons perpétuellementtous
+Nous aussi nous recommencerons perpétuellementtous
 M les matins; tous les matins de tous les rapides jours ;
 . et toutes les rentrées, qui sont les matins assombris
 | des plus longues années ; singulier jeu des climats, ré-
@@ -689,9 +686,9 @@ aubes et sur les grandissantes aurores, et que les ren-
 À trées, au contraire, qui sont pourtant les matins des anj nées, faux matins, fausses matinées de journées fausses,
 au contraire se lèvent sur les diminutions, sur les
 pluies, sur les obscurcissements des automnes.
-29 2,
+29
 
-Comment ne pas imiter ce peuple, dont nous sommes, 4
+Comment ne pas imiter ce peuple, dont nous sommes,
 que nous sommes; c'est-à-dire comment ne pas nous ‘1
 imiter nous-mêmes, comment ne pas être de notre “4
 propre race; comment ne pas nous préparer nous- ‘à
@@ -700,27 +697,27 @@ notre peuple, puisque aussi bien ces amusements sont 1 à
 le secret de sa force, lui donnant les temps de halte et
 les points de rejaillissement ; indispensables; regardons {l
 passer le peuple qui regarde passer le roi ; nous-mêmes fi
-regardons passer le roi; voici le cortège; brouhaha, È
+regardons passer le roi; voici le cortège; brouhaha,
 rumeurs, et presque immédiatement l'impression que $
-tout le cortège a ceci de commun, qu'il marche d'un î
+tout le cortège a ceci de commun, qu'il marche d'un
 même trot allongé, parfaitement cadencé, comme un très À
-grand jouet mécanique ; des voitures qu'on devine; au- ñ
-tant et plus qu'on ne les voit; au cœur du cortège, on ne ; Î
+grand jouet mécanique ; des voitures qu'on devine; au-
+tant et plus qu'on ne les voit; au cœur du cortège, on ne
 voit plus rien : c'est le roi, et le président de la Répu- #4
 blique ; ici deux haies mouvantes, de tous les deux côtés, ki
 comme deux gros troupeaux se confondant presque en #
-un mouvant troupeau énorme ; d'énormes croupes de û
+un mouvant troupeau énorme ; d'énormes croupes de
 chevaux; ce ne sont plus que ces croupes de chevaux À
 qui défilent et passent; on ne voit pas les cuirassiers À
-qui montent ces chevaux, parce qu'ils sont plus haut F
-que le regard; c'étaient des hommes géants sur des F
-chevaux colosses; on était au premier rang; c'est fini; 14
+qui montent ces chevaux, parce qu'ils sont plus haut
+que le regard; c'étaient des hommes géants sur des
+chevaux colosses; on était au premier rang; c'est fini;
 mais l'impression générale et dominante qui seule reste
-est d'un immense rythme automatique, d'un trot allongé, f
+est d'un immense rythme automatique, d'un trot allongé,
 aisé, bien articulé, enlevé pourtant, commun à tout le '
 cortège, qui enlevait tout le cortège au long du sol et
 faisait qu'il était déjà passé ; ce mouvement commun, $
-ce rythme premier commandait tout le spectacle ; tous 4
+ce rythme premier commandait tout le spectacle ; tous
 ces gens qui défilaient pour nos amusements et qui for- à
 
 4 .  maïient un cortège ne laissaient dans la mémoire que le
@@ -754,13 +751,13 @@ hi Quand on lui fait des belles petites Universités PopuW laires bien sages, bi
 sur le pas de sa porte. Comme si trois misérables che- %
 vaux, qui passent, en-tapant du pied, les sots, formaient à
 un spectacle plus intéressant que celui que nous donnent À
-gratuitement tant d'honorables professeurs, qui parlent, F
+gratuitement tant d'honorables professeurs, qui parlent,
 assis, derrière un petit bureau tapis vert, quelques-uns ;
 debout, quelques-uns marchant même et gesticulant sur ‘
 l'estrade avec leurs grands bras maigres, leurs man- ,
 chettes, et leurs faux-cols. Un esprit un peu affiné, ri
 comme est le nôtre, se refuse à concevoir même la pen- pe
-sée d'établir, entre trois chevaux, qui passent, et tant N
+sée d'établir, entre trois chevaux, qui passent, et tant
 de docteurs doctes, qui enseignent, une aussi grossière €
 Peuple antithétique, déjà prêt pour Hugo. à]
 Rien n'est propice au travail comme ces amusements
@@ -768,16 +765,16 @@ apparemment frivoles ; au moins de loin en loin; rien je
 : ne chasse aussi rapidement, au moins pour un temps, À
 les soucis, les tracas, les fatigues laborieuses, tous ces à
 ennuis, toutes ces peines, toutes ces misères dont sont |
-tissés les fils de nos ordinaires vies; vraiment le souvenir de ce rythme restait seul dans la mémoire ; l'huma- u
+tissés les fils de nos ordinaires vies; vraiment le souvenir de ce rythme restait seul dans la mémoire ; l'huma-
 nité connue était partagée en deux; et dans chacune "A
-des deux parties régnait une égalité parfaite; une « È
+des deux parties régnait une égalité parfaite; une «
 entre elle-même, étant toute immobile conformément à
-la même verticale; une humanité passante se laissait 4
-regarder passer, parfaitement égale aussi, égale entre i
+la même verticale; une humanité passante se laissait
+regarder passer, parfaitement égale aussi, égale entre
 elle, toute égalisée entre elle-même, étant toute mobile \
 conformément au même rythme horizontal, toute rou- à
-lante et passante d'un même rythme sacré; le roi ï
-n'était plus un roi, ni les soldats des soldats, mais ÿ
+lante et passante d'un même rythme sacré; le roi
+n'était plus un roi, ni les soldats des soldats, mais
 
 ensemble ils étaient des mobiles, comme le disent nos
 mécaniciens, des mobiles en mouvement, ensemble ils
@@ -810,7 +807,7 @@ présage et imitation anticipée de sa grande mort, mort
 politique avant la mort naturelle, mort de la situation
 
 avant la mort du corps, mort de l'homme d'État avant 4 |
-la mort de l'homme, me faisait un excellent départ; 4 Ù
+la mort de l'homme, me faisait un excellent départ;
 auquel je voyais le moyen de me faire une aussi excel M}
 lente suite ; j'avais trouvé comment j'obtiendrais une n |!
 excellente continuité; sans rompre du tout l'enchaîne- KI |
@@ -821,11 +818,11 @@ car nos maîtres nous demandent à la fois de n'avoir "}
 point d'idée, mais d'avoir une idée maîtresse, qui fasse à
 Vunité; — j'examinerais si depuis plusieurs années la Mel |
 politique politique ne recouvrait pas, ne masquait pas #
-toute une politique financière, et je me demanderais si M
+toute une politique financière, et je me demanderais si
 cette politique financière ne présentait pas les diff. M}
 cultés, les dangers les plus graves ; Paris vraiment est 3 ;
 unique pour les cérémonies de ce genre; et comme * |
-toutes ces pompes royales de manifestations républcaines rappelaient curieusement Hugo; par elles comme 4
+toutes ces pompes royales de manifestations républcaines rappelaient curieusement Hugo; par elles comme
 on obtenait la véritable résonance et la véritable pro- no |
 fondeur et la véritable unité de Hugo, sa véritable in- M}
 spiration ; une inspiration, un goût, un sens, une idée de M}
@@ -833,13 +830,13 @@ pompe, extérieure, et de cérémonie traditionnelle; par  #
 là se joignaient et se joignent encore en lui, comme elles ""}}
 se joignent dans les programmes des fêtes, Notre-Dame Fi
 et ce Panthéon, dont il n'a jamais dit de mal que %
-par coquetterie, parce que dès lors il avait larrière- Ê
+par coquetterie, parce que dès lors il avait larrière-
 certitude que, mort, il y serait enterré; un Hugo céré-
 moniel et cérémonieux, le véritable Hugo enfin; oublié
-aujourd'hui, parce qu'il fut démocrate sur la fin de ses M
-; jours ; mais, dans la démocratie même, sénateur et pro- É
+aujourd'hui, parce qu'il fut démocrate sur la fin de ses
+; jours ; mais, dans la démocratie même, sénateur et pro-
 cessionnel ; manifestant de manifestations et manifestant de cérémonies; comme le peuple, avec le peuple,
-34 4
+34
 
 : dans le peuple, un Hugo se dérangeant pour aller voir
 ({ passer des chevaux, fussent-ils militaires, de préférence
@@ -862,7 +859,7 @@ même de l'histoire de Paris, tout un tout autre Hugo;
 1 clergé, commandés au besoin, commandés de préférence
 | par Son Éminence Mer. le cardinal-archevêque de Paris,
 … de défilés passant sur les ponts de la Seine, ecclésiastiques, laïques, militaires, civils, sur les ponts de la
-1 Seine eux-mêmes encadrés quadrilatéralement par les
+Seine eux-mêmes encadrés quadrilatéralement par les
 . lignes droites et parfaites des quais vides, vides aujour-
 * d'hui et réservés comme ils étaient vides et réservés
 … pour les fêtes, pour les défilés dn siècle dernier, le
@@ -870,7 +867,7 @@ même de l'histoire de Paris, tout un tout autre Hugo;
 
 | qui ne demandait qu'à devenir le Dieu des cérémonies
 
-tout à fait poète, un Hugo Louis-Philippe et alliance È
+tout à fait poète, un Hugo Louis-Philippe et alliance
 anglaise, enfin le Hugo du retour des cendres; qu'est-ce
 que ça fait, pourvu qu'il y ait des alignements et qu'il à
 y ait des masses; et qu'il pût toujours demeurer fidèle :
@@ -881,31 +878,31 @@ retrouvait lui-même, fidèle aux souvenirs; même foule, HS
 mêmes cérémonies, mêmes monuments; étant même à
 peuple; même vieux Panthéon, même antique Notre à
 Dame; même Seine, surtout, et mêmes quais, quand Ni
-même ce ne seraient pas les mêmes; et quand même h;
+même ce ne seraient pas les mêmes; et quand même
 il n'y en aurait pas eu autrefois; mêmes ponis, quand à
-même on les aurait refaits depuis; et quand même É.
+même on les aurait refaits depuis; et quand même
 autrefois ils n'auraient pas existé du tout; même parvis, ne
 quand même on l'aurait ouvert, créé, exhaussé, quand
 même on aurait un jour enseveli les pieds de Notre- il
-Dame sous cette horizontale égalité de terre plane; et 1
+Dame sous cette horizontale égalité de terre plane; et
 quelle joie, tout à coup, joie du sentiment et de l'in- -.
 telligence, de la mémoire et de l'histoire, ensemble y
 et inséparablement de l'esprit et des sens, et ravissement F)
-de surprise de l'âme historienne, que de comprendre h
+de surprise de l'âme historienne, que de comprendre
 tout-à-coup, de saisir, de ressaisir, de voir, de savoir, |
-de ressavoir, brusquement, d'un seul regard, — et ê
+de ressavoir, brusquement, d'un seul regard, — et
 n'est-ce pas plutôt d'un regard intérieur, — de retrou- « ver soudainement en soi-même et de comprendre “
-enfin tout un poète oublié, toute une période que l'on M
+enfin tout un poète oublié, toute une période que l'on
 croyait abolie, toute une ville, tout un passé de toute &
 une ville; et quelle ville, Paris, ville de pierre, peuple À
-de monuments, peuple de mémoires, peuple d'anciennes 4
-actions, Paris, capitale du monde, ville capitale, tout M
+de monuments, peuple de mémoires, peuple d'anciennes
+actions, Paris, capitale du monde, ville capitale, tout
 un âge que l'on croyait révolu.
 
 j A Paris, capitale des Peuples, comme le dit ce Hugo
 en sa dédicace de l'Année terrible.
 
-11 Lui-même singulier Hugo, roi des fêtes royales popub laires, prince des cortèges, duc des grands enterrements,
+Lui-même singulier Hugo, roi des fêtes royales popub laires, prince des cortèges, duc des grands enterrements,
 A . introducteur des ambassadeurs, et grand organisateur
 ÿ des funérailles nationales, à commencer par les siennes,
 | ami des pompes, même funèbres, ami des pompes,
@@ -936,18 +933,18 @@ plus grands, plus aimés, un Lamartine, un Vigny même,
 sigrand et peut-être unique au monde, même un Racine; *
 | le seul Corneille, peut-être, le plus grand de tous, le seul #
 Corneille aurait pu soutenir la comparaison, peut-être, $
-s'il avait voulu; mais quand il avait Polyeucte dans le Û
+s'il avait voulu; mais quand il avait Polyeucte dans le
 ventre, il aurait eu du temps de reste, que de s'amuser
 à faire des musiques militaires ; et quand il n'eut plus À
-Polyeucte dans le ventre, il était devenu bien incapable 1
-de faire même des musiques militaires. q
+Polyeucte dans le ventre, il était devenu bien incapable
+de faire même des musiques militaires.
 Impérieux Hugo; non pas des vers qui chantent dans ;
 la mémoire, mais des vers qui impérieusement, impé-
 dés, d'un tel rythme et d'un tel tambour qu'ils com- À
 mandent le pas dont on marche, qu'ils entrent dans les À
 jarrets, et qu'une fois qu'ils sont entrés dans la mé-
 moire, lus une fois, entendus une fois, non seulement :
-ils ne sortiront plus de la mémoire, jamais, mais que le 3
+ils ne sortiront plus de la mémoire, jamais, mais que le
 moment venu, ils chasseront, brutes impériales, insou |
 tenables régiments, tous les autres vers de tous les
 autres poètes, et vous forceront à marcher au pas, du il
@@ -994,31 +991,31 @@ n ceux-ci, dans des œuvres où elles n'étaient point indi-
 
 les Châtiments, livre III, x, l'Empereur s'amuse, une
 chanson; le refrain de cette chanson :
-À Sonne aujourd'hui le glas, bourdon de Notre-Dame, N
-: Et demain le tocsin! È
+À Sonne aujourd'hui le glas, bourdon de Notre-Dame,
+: Et demain le tocsin!
 O deuil! par un bandit féroce À
-L'avenir est mort poignardé ! : 14
-C'est aujourd'hui la grande noce, 4
+L'avenir est mort poignardé !
+C'est aujourd'hui la grande noce,
 Le fiancé monte en carrosse ; A
 C'est lui! César le bien gardé ! À
-Peuples, chantez l'épithalame ! 4
+Peuples, chantez l'épithalame !
 La France épouse l'assassin. — |
 Sonne aujourd'hui le glas, bourdon de Notre-Dame, À
 Et demain le tocsin!
-de rythme; quel refrain de bourdon ; et encore cette 1
+de rythme; quel refrain de bourdon ; et encore cette
 apparition des clochers dans cette nuit-là, mêmes Châ
 timents, livre I, v; et ce sens et cette vision de Paris,
 de tout le Paris ancien et nouveau, ramassé, de toute
-l'histoire de Paris : 4
+l'histoire de Paris
 Comme ils sortaient tous trois de la maison Bancal, ä
-Morny, Maupas le grec, Saint-Arnaud le chacal, 4 É
-Voyant passer ce groupe oblique et taciturne, h
+Morny, Maupas le grec, Saint-Arnaud le chacal,
+Voyant passer ce groupe oblique et taciturne,
 Les clochers de Paris, sonnant l'heure nocturne, |
-S'efforçaient vainement d'imiter le tocsin ; k
-Les pavés de Juillet criaient : A l'assassin ! k.
-À Tous les spectres sanglants des antiques carnages, 4
-Réveillés, se montraient du doigt ces personnages ; 4
-La Marseillaise, archange aux chants aériens, , k
+S'efforçaient vainement d'imiter le tocsin
+Les pavés de Juillet criaient : A l'assassin !
+À Tous les spectres sanglants des antiques carnages,
+Réveillés, se montraient du doigt ces personnages
+La Marseillaise, archange aux chants aériens,
 Murmurait dans les cieux : Aux armes, citoyens! à
 
 dé Paris dormait, hélas ! et bientôt, sur les places,
@@ -1053,24 +1050,24 @@ nous remontaient à la mémoire en ce commencement de
 juin, je proclamerai qu'il est, comme on nous le fait dire,
 le Hugo de cette génération. ‘4
 Plus présent encore le bourdon, et plus retentissant 4 |
-dans les poèmes où il n'est pas nommé, dans les poèmes 3
-de rythme, quand c'est le rythme même et le rythme M
+dans les poèmes où il n'est pas nommé, dans les poèmes
+de rythme, quand c'est le rythme même et le rythme
 seul qui sonne aujourd'hui le glas, et demain le tocsin ; *
 puissantes et singulières inventions de rythmes;
 maisons de résonances, bâtiments de musiques, monuments de sons, puissantes et singulières bâtisses,
 constructions qu'il aimait entre toutes; mêmes Châti- À
-ments ; livre Il, 1; au peuple : 4
-: Pourquoi dors-tu dans les ténèbres? Ë
+ments ; livre Il, 1; au peuple
+: Pourquoi dors-tu dans les ténèbres?
 | Je ne veux pas que tu sois mort. À
-Pourquoi dors-tu dans les ténèbres ? k
+Pourquoi dors-tu dans les ténèbres ?
 Ce n'est pas l'instant où l'on dort. ;
 La pâle Liberté gît sanglante à ta porte. : Re
-é Tu le sais, toi mort, elle est morte. F.
-Voici le chacal sur ton seuil, 4
+é Tu le sais, toi mort, elle est morte.
+Voici le chacal sur ton seuil,
 Voici les rats et les belettes, -
 Pourquoi t'es-tu laissé lier de bandelettes ? }
-Ils te mordent dans ton cercueil ! 1
-De tous les peuples on prépare 3
+Ils te mordent dans ton cercueil !
+De tous les peuples on prépare
 Lève-toi ! à ;
 Quelle exacte reconstitution de cloches, du bourdon,
 par le rythme, par la rime, par les assonances et par « les consonances, par tout le mouvement, par toute la
@@ -1083,7 +1080,7 @@ de le savait bien, lui le premier, le grand poète, l'habile
 d homme. Et quand il réussissait, celui-là, on peut être
 
 bu assuré que lui-même, lui le premier, il n'ignorait rien du |
-à comment ni du pourquoi de sa réussite. Passons toutes ‘ J
+à comment ni du pourquoi de sa réussite. Passons toutes ‘
 3 ces strophes ou tous ces couplets, tous également forts,
 
 | tous également faits, tous également beaux. Finissons
@@ -1104,9 +1101,9 @@ Les Césars, oubliant qu'il est des gémonies,
 
 d S'endorment dans les symphonies,
 
-9 Du lac Baltique au mont Etna ;
+Du lac Baltique au mont Etna ;
 
-4 Les peuples sont dans la nuit noire; L
+Les peuples sont dans la nuit noire;
 “4 Dormez, rois; le clairon dit aux tyrans : Victoire !
 f 3 Et l'orgue leur chante : Hosanna !
 ii N Qui répond à cette fanfare ? '
@@ -1128,31 +1125,31 @@ KL et des sonneries de beffroi. Ce sont toujours les tours,
 
 et, si l'on veut, le clocher de Notre-Dame. C'est bien
 cela qu'il nous représentait, qu'il nous donnait à
-entendre, qu'il nous forçait à écouter, que son rythme 1
+entendre, qu'il nous forçait à écouter, que son rythme
 nous représentait. Nous n'avions pas besoïn de cetaveu
-explicite pour savoir ce que son rythme nous voulait, et M
-quelle était son image de derrière la tête. 4
-qu'il était un grand poète, non dessoudées, image vi M
+explicite pour savoir ce que son rythme nous voulait, et
+quelle était son image de derrière la tête.
+qu'il était un grand poète, non dessoudées, image vi
 suelle et image auditive. Ensemble images de beffrois
 d'Hôtels-de-Ville et de tours de cathédrale. de
-Il savait son métier, celui-là; et rien de son métier ne F
-lui demeurait étranger. Il savait faire un tocsin rien M
-qu'avec des mots, une fanfare, avec des rimes, unbour- M
+Il savait son métier, celui-là; et rien de son métier ne
+lui demeurait étranger. Il savait faire un tocsin rien
+qu'avec des mots, une fanfare, avec des rimes, unbour-
 don, rien qu'avec des rythmes. Il n'ignorait pas. On
-a pu lui faire beaucoup de reproches, fondés : on ne 4
-lui reprochera pas d'avoir ignoré. Les sons parlés et M
+a pu lui faire beaucoup de reproches, fondés : on ne
+lui reprochera pas d'avoir ignoré. Les sons parlés et
 déclamés, les paroles poétiques lui donnaient autant À
-que les sons chantés et que les paroles instrumentales È
-donnèrent jamais à personne. Il n'ignorait pas l'effet 4
-d'immense allongement, de grandeur démesurée, absolue, que donne un alexandrin isolé, lancé dans une 4
+que les sons chantés et que les paroles instrumentales
+donnèrent jamais à personne. Il n'ignorait pas l'effet
+d'immense allongement, de grandeur démesurée, absolue, que donne un alexandrin isolé, lancé dans une
 strophe de simples vers. Et puisqu'il s'agit d'entendre ‘à
-des bourdons, d'écouter des tocsins, il n'ignorait pas M
-le branle énorme que rend cet alexandrin tout seul M
-sonné dans une batterie de moindres vers. Et il savait, M
+des bourdons, d'écouter des tocsins, il n'ignorait pas
+le branle énorme que rend cet alexandrin tout seul
+sonné dans une batterie de moindres vers. Et il savait,
 réciproquement il savait Feffet que donne, en fin de
 strophe, en fin des mêmes strophes, un tout petit vers #
-expirant; et le redoublement de ce petit vers, le redou- L.
-blement de cette expiration; et la succession immé- M
+expirant; et le redoublement de ce petit vers, le redou-
+blement de cette expiration; et la succession immé-
 diate de ce petit vers à des vers majeurs, ou à un vers A
 
 à Il avait raison de savoir son métier. Tant d'autres
@@ -1191,32 +1188,32 @@ Quel tocsin de guerre civile ou de guerre étrangère; À
 . quel tocsin de guerre sociale ou religieuse; comme aux à
 
 temps anciens; quel tocsin de guerre plus que civile; quel
-tocsin d'invasion; sonnera-t-il jamais le glas de tout ce 4
+tocsin d'invasion; sonnera-t-il jamais le glas de tout ce
 
-Quel tocsin d'émeute et de soulèvement social; quel N
+Quel tocsin d'émeute et de soulèvement social; quel
 tocsin de levée en masse et de soulèvement national? LR
 
-Pair du royaume. Pair de France. Vieux malin. Comme 7
-ce peuple, dans ce peuple, dont il est en ce sens un 1
+Pair du royaume. Pair de France. Vieux malin. Comme
+ce peuple, dans ce peuple, dont il est en ce sens un
 représentant des plus éminent, il truque, il ruse avec la
 
-guerre. Quand vieux il voit que décidément c'est le È
+guerre. Quand vieux il voit que décidément c'est le
 pacifisme qui réussira, au moins officiellement et dans À
-les déclarations verbales, quand il voit que c'est le paci- : M
+les déclarations verbales, quand il voit que c'est le paci-
 fisme qui fera les gloires et les universelles popularités, À
-les internationales circulations, quand il voit que dans 4
-paix qui, formellement au moins et officiellement, a fait 1
+les internationales circulations, quand il voit que dans
+paix qui, formellement au moins et officiellement, a fait
 à la guerre une guerre victorieuse, quand la victoire de ‘M
 la paix est assurée officiellement, il n'hésite plus : il se |
 fait le roi, il devient le dieu du pacifisme; au moins dans à {
 les congrès, dans les cérémonies, dans les discours, dans $
-tout ce que l'on peut nommer les origines et les com- 1
-mencements de nos modernes et de nos contemporains 4
+tout ce que l'on peut nommer les origines et les com-
+mencements de nos modernes et de nos contemporains
 meetings ; il assoit, il consolide ainsi cette formidable à
-popularité où il mourut, cette gloire indiscutée où il 4
-triompha, il prépare cette apothéose inouïe où il se 24
-survécut plusieurs semaines. Les militaires en firent k
-les frais. Ce sont des braves gens, tout de même, ces 4
+popularité où il mourut, cette gloire indiscutée où il
+triompha, il prépare cette apothéose inouïe où il se
+survécut plusieurs semaines. Les militaires en firent
+les frais. Ce sont des braves gens, tout de même, ces
 
 ï militaires, et bien utiles pour ces sortes de cérémonies.
 
@@ -1274,38 +1271,36 @@ lui avaient déjà servi un nombre incalculable de fois.
 ‘4 D'une part ils avaient servi à lui faire des antithèses;
 de l'autre part ils servaient à lui faire des défilés.
 
-| 47
-
 Et tous ces objets de malédiction lui avaient surtout ‘4
 servi à faire de beaux vers. Vieux malin, roué comme
 le peuple, dans le peuple, et double comme lui, comme
 ce peuple qu'il représentait si éminemment, quand il
 voulait faire de mauvais poèmes, ou quand ilne vou
 lait pas faire de poèmes du tout, il prenait le soin de
-les faire pacifistes; et quand au contraire il voulait M
-' faire de beaux poèmes, le malin, comme par hasard il M
+les faire pacifistes; et quand au contraire il voulait
+' faire de beaux poèmes, le malin, comme par hasard il
 courait en redemander à ses amis ennemis messieurs È À
-les militaires. -f
+les militaires.
 On peut prendre absolument au hasard. Les mêmes
 Châtiments, livre VI, la stabilité est assurée, 1, Napo- ‘4
-léon III. Et au hasard parmi les vers : 4
-C'est pour toi qu'on a fait toute cette Iliade ! 4
+léon III. Et au hasard parmi les vers
+C'est pour toi qu'on a fait toute cette Iliade !
 C'est pour toi qu'on livra ces combats inouïs! À
 C'est pour toi que Murat, aux Russes éblouis,
-Terrible, apparaissait, cravachant leur armée ! d
+Terrible, apparaissait, cravachant leur armée !
 C'est pour toi qu'à travers la flamme et la fumée |
-Les grenadiers pensifs s'avançaient à pas lents! 4
+Les grenadiers pensifs s'avançaient à pas lents!
 Nous n'avons ici qu'une ébauche, .ou, si l'on veut, à
 une première leçon. Et encore, même poème, un peu ‘4
-plus loin; toujours au hasard : 4
+plus loin; toujours au hasard
 C'est pour monsieur Fialin et pour monsieur Mocquart, hs
-Que Lannes d'un boulet eut la cuisse coupée, 4
+Que Lannes d'un boulet eut la cuisse coupée,
 Que le front des soldats, entr'ouvert par l'épée, ‘à
-| Saigna sous le shako, le casque et le colback, n
+| Saigna sous le shako, le casque et le colback,
 Que Lasalle à Wagram, Duroc à Reichenbach, A
-Expirèrent frappés au milieu de leur route, 4
+Expirèrent frappés au milieu de leur route,
 Que Caulaincourt tomba dans la grande redoute,
-Et que la vieille garde est morte à Waterloo! 4
+Et que la vieille garde est morte à Waterloo!
 
 | Ici encore nous n'avons qu'une première leçon; et À
 déjà l'on ne peut pas dire que ces vers soient précisé-
@@ -1343,29 +1338,29 @@ Sous les sombres canons crachant des jets de soufre,
 k Fondre ces régiments de granit et d'acier,
 ÿ Comme fond une cire au soufle d'un brasier.
 
-Ils allaient, l'arme au bras, front haut, graves, stoïques, 14
-Pas un ne recula. Dormez, morts héroïques ! k
-Le reste de l'armée hésitait sur leurs corps s
-Et regardait mourir la garde. — C'est alors. M
+Ils allaient, l'arme au bras, front haut, graves, stoïques,
+Pas un ne recula. Dormez, morts héroïques !
+Le reste de l'armée hésitait sur leurs corps
+Et regardait mourir la garde. — C'est alors.
 O Waterloo ! je pleure et je m'arrête, hélas! *
 Car ces derniers soldats de la dernière guerre À
-Furent grands ; ils avaient vaincu toute la terre, 1
+Furent grands ; ils avaient vaincu toute la terre,
 Chassé vingt rois, passé les Alpes et le Rhin, ‘110
-Et leur âme chantait dans les clairons d'airain ! 4
-é Ces vers sont tellement faits, s'impriment dans la 4
+Et leur âme chantait dans les clairons d'airain !
+é Ces vers sont tellement faits, s'impriment dans la
 mémoire si souverainement, qu'ensuite ils se repré- hs.
-sentent tous ensemble, sur un seul et vaste plan de M
+sentent tous ensemble, sur un seul et vaste plan de
 représentation, et qu'il n'importe plus par quel bout À
-En un clin d'œil, L
-Comme s'envole au vent une paille enflammée, É
+En un clin d'œil,
+Comme s'envole au vent une paille enflammée,
 S'évanouit ce bruit qui fut la grande armée, À
-Et cette plaine, hélas! où l'on rêve aujourd'hui, 418
+Et cette plaine, hélas! où l'on rêve aujourd'hui,
 Vit fuir ceux devant qui l'univers avait fui! Pr.
 Quarante ans sont passés, et ce coin de la terre, ‘4
 Waterloo, ce plateau funèbre et solitaire, à
-Ce champ sinistre où Dieu mêla tant de néants, 53
+Ce champ sinistre où Dieu mêla tant de néants,
 Tremble encor d'avoir vu la fuite des géants! à
-Napoléon les vit s'écouler comme un fleuve; 1
+Napoléon les vit s'écouler comme un fleuve;
 [Singuliers effets d'optique dans nos singulières mé-
 moires : quarante ans sont passés, moins de quaranteans, fi
 trente-sept ans et quelques mois, de Waterloo à ces
@@ -1376,7 +1371,7 @@ mémoires, il nous semble qu'il y a un espace énorme,un
 |  traire, que nous touchons aux Châtiments. Et pourtant
 _ ily a plus de cinquante ans, aujourd'hui presque cin-
 |  quante-trois ans, de ces Châtiments à nous. Les quatrevingt-dix ans, presque le siècle, qu'il y a entre Waterloo » et nous, nous les voyons entre Waterloo et les Chäti-
-…_ ments, autant, pour ainsi dire, vraiment autant qu'entre É
+…_ ments, autant, pour ainsi dire, vraiment autant qu'entre
 Waterloo et nous; et entre Les Chétiments et nous, nous
 fl ne voyons rien; cela tient peut-être en partie à l'étonnante longévité de Hugo : nous avons vu sa mort; nous
 voyons pour ainsi dire sur le même plan, j'entends sur
@@ -1396,22 +1391,22 @@ notre première enfance, où nous avons commencé à
 + poème de paix réussi qu'il y ait dans toute l'œuvre de
 Victor Hugo, mais on peut dire qu'il soit réussi, celui-là,
 il est un poème de paix biblique, patriarcale, nocturne,
-k puisque c'est Booz endormi. AN u
+k puisque c'est Booz endormi. AN
 ) Demander à la guerre, aux militaires, premièrement
-“ des cortèges comme ils peuvent seuls en donner, deurte 51
+“ des cortèges comme ils peuvent seuls en donner, deurte
 
 xièmement des objets de malédiction comme ils peuvent
 seuls en fournir, troisièmement et surtout des sujets
 5 d'inspiration comme il n'en pouvait pas demander àla
 paix : il y a là une indéniable, une insupportable duplicité, une particulière triplicité. C'est vraiment les faire
-servir à trois fins, par trop contradictoires. Ces soldats 4
-) font l'escorte; ils font la réprobation; et ils font l'inspi- 4
+servir à trois fins, par trop contradictoires. Ces soldats
+) font l'escorte; ils font la réprobation; et ils font l'inspi-
 ration. Vraiment c'est trop, à la fois. à
-On peut être pour ou contre la guerre, pour ou contre M
+On peut être pour ou contre la guerre, pour ou contre
 les militaires; Hugo, comme le peuple, dans le peuple,
 à est ensemble et à la fois pour et contre la guerre, pour ‘4
-et contre les militaires; il en tire ainsi une triple utilisa- 1
-tion, une utilisation maxima. ï.
+et contre les militaires; il en tire ainsi une triple utilisa-
+tion, une utilisation maxima.
 C'est exactement ce que fait aussi le peuple, dont
 Hugo est en ceci, comme à beaucoup d'autres égards, le
 représentant éminent ; comme Hugo, son maître et son
@@ -1425,9 +1420,9 @@ un exercice de malédiction, de réprobation morale, sentimentale, publique, ora
 il demande à la guerre et aux militaires un sujet d'inspiration, un exercice d'imagination quand, remontant :
 dans le passé, quand, interprétant le présent, quand,
 anticipant l'avenir, il veut se faire croire qu'il n'a point …
-perdu le goût des aventures; quand, enfin, il est las M
-de s'embêter dans des images de paix, 1
-52 44
+perdu le goût des aventures; quand, enfin, il est las
+de s'embêter dans des images de paix,
+52
 
 Il y a là, envers la guerre et les soldats, une duplicité
 insupportable, presque universellement répandue. Elle
@@ -1441,7 +1436,7 @@ envers la guerre et les militaires. Il faut être pour ou
 contre la guerre. Loyalement. Toute situation double
 est une situation fausse. Toute situation double est une
 
-Il faut être pour ou contre la guerre, pour ou contre U
+Il faut être pour ou contre la guerre, pour ou contre
 les militaires. Notre collaborateur M. Charles Richet est
 contre la guerre, contre les militaires. Au moins, avec
 lui, on sait à quoi s'en tenir.
@@ -1460,20 +1455,20 @@ plus noble, étant plus contemporain, l'introduction ;
 sans abuser d'un mot qui a été galvaudé irrémédiablement depuis trente années, je tenais expressément à ce
 
 que la thèse du pacifisme intégral fût intégralement "3
-aussi la thèse qui apparaîtrait ici au commencement de 4
+aussi la thèse qui apparaîtrait ici au commencement de
 cette nouvelle année de travail. J'ai donc été particu- ‘à
-lièrement heureux de trouver, pour présenter ici la 4
-thèse du pacifisme pur, un pacifiste pur, pour présenter 4
-la thèse du pacifisme intégral, un pacifiste intégral. 1
+lièrement heureux de trouver, pour présenter ici la
+thèse du pacifisme pur, un pacifiste pur, pour présenter
+la thèse du pacifisme intégral, un pacifiste intégral.
 Tout autre est la situation du peuple, situation fausse, ‘
-double, triple, comme la plupart des situations popu- 14
-laires modernes ; le peuple veut : s'amuser de l'armée; D.
-We insulter, injurier l'armée, ce qui est bien encore, si l'on 4
-veut, un moyen de s'en amuser; rêver de guerres. Ê 4
+double, triple, comme la plupart des situations popu-
+laires modernes ; le peuple veut : s'amuser de l'armée;
+We insulter, injurier l'armée, ce qui est bien encore, si l'on
+veut, un moyen de s'en amuser; rêver de guerres.
 | Le peuple veut insulter, injurier l'armée, parce que À
-cela aujourd'hui se porte très bien; cela fait extrême- 4
+cela aujourd'hui se porte très bien; cela fait extrême-
 ment bien dans les meetings et toutes autres glorieuses %
-oraisons publiques. Cela est devenu indispensable dans 4
+oraisons publiques. Cela est devenu indispensable dans
 toutes les manifestations et opérations politiques. ,
 Autrement, vous n'avez pas l'air assez avancé. ‘4
 On ne saura jamais tout ce que la peur de ne pas à
@@ -1481,18 +1476,18 @@ x paraître assez avancé aura fait commettre de lâchetés à À
 nos Français. à
 Il y a une coquetterie populaire, une mondanité du À
 peuple, aussi impérieuse que la mondanité du monde, “4
-aussi indiscutée ; d'ailleurs faite à l'image et à la ressem- 4
+aussi indiscutée ; d'ailleurs faite à l'image et à la ressem-
 blance de la mondanité du monde; pour le moment et À
 pour longtemps, cette mondanité du peuple exige que %
 Pair du royaume. Pair de France. Vieux malin. Sénateur de la République. Sénateur du département de la À
-Seine. Sénateur de Paris. Le peuple aussi est sénateur 1
+Seine. Sénateur de Paris. Le peuple aussi est sénateur
 de Paris, parce que tout le monde ne peut pas être :
 
 En même temps le peuple veut rêver de guerres; il
 | se délecte autant que jamais aux narrations des guerres :
 | passées; il aime autant que jamais les guerres, pourvu
 | qu'elles soient faites par d'autres, par d'autres peuples ;
-rappelez-vous seulement comme, ily aseulementquelques 7
+rappelez-vous seulement comme, ily aseulementquelques
 semaines, le peuple dévorait dans les journaux les récits
 de la guerre asiatique. Le peuple est beaucoup plus
 lâche qu'autrefois, pour faire la guerre. Mais il est ‘
@@ -1504,11 +1499,11 @@ fassent pour son amusement de chaque jour. Et tout ce
 qu'il a retenu de la lutte de classe, à lui infatigablement ss
 enseignée par les intellectuels du socialisme, c'est que
 - c'était, ou que ce serait une guerre, plus précisément
-une guerre militaire. E
+une guerre militaire.
 Pour qui veut se représenter les récentes aventures
 du socialisme réellement, sans illusion, il est évident À
 que tout ce que le peuple a retenu de l'ancienne lutte |
-. de classe intellectuelle, c'est que ce serait une guerre, É
+. de classe intellectuelle, c'est que ce serait une guerre,
 De ce qu'ils n'aiment point, ou de ce qu'ils n'aiment
 plus, à faire la guerre, de ce qu'ils ne veulent plus faire
 la guerre, il ne faut point se hâter de conclure qu'ils
@@ -1522,33 +1517,33 @@ portable. On maudit la guerre ouvertement, formellement, officiellement, pour se
 vertu, pour acquérir. de la renommée pacifiste, condui- ‘4
 sant à de la gloire humanitaire. Et secrètement, sour- à
 noisement, disons le mot honteux, clandestinement, on fl
-demande à la guerre, aux militaires, premièrement les L
-apparats des pompes extérieures, deuxièmement les 4
+demande à la guerre, aux militaires, premièrement les
+apparats des pompes extérieures, deuxièmement les
 jouissances, les excitations des imaginations intérieures. À
-Toute cette hypocrisie pacifiste, si éminemment 1
-représentée en Hugo, pour des raisons cet pour î
+Toute cette hypocrisie pacifiste, si éminemment
+représentée en Hugo, pour des raisons cet pour
 des causes dont nous n'avons pu qu''indiquer beau- À
 sur le nom de Napoléon, que l'on considère, sans se
 doute avec beaucoup de raison, comme le génie *
-même de la guerre moderne, peut-être même comme le ÿ
+même de la guerre moderne, peut-être même comme le
 génie de la guerre de tous les temps. Rien n'est donc *
 aussi intéressant, rien n'est aussi représentatif, signi- |
 ficatif, que l'attitude prise par les peuples modernes, en |
 particulier par le peuple français, envers la mémoire de pa
-Napoléon. Nulle mémoire, officiellement, ne fut jamais 4
+Napoléon. Nulle mémoire, officiellement, ne fut jamais
 aussi proscrite, aussi maudite, aussi solennellement, À
-que ne l'a été la mémoire de Napoléon depuis le ÿ
+que ne l'a été la mémoire de Napoléon depuis le
 commencement de la domination pacifiste. Et les |
 Français l'ont maudit plus que personne, par une sorte À
 d'exagération nationale, par une vantardise, et, au fond, |
-un orgueil national, parce qu'il était à nous, on ÿ
-pourrait presque dire par une sorte de coquetterie é
+un orgueil national, parce qu'il était à nous, on
+pourrait presque dire par une sorte de coquetterie
 nationaliste pacifiste. Mais dans le fond des cœurs, et À
 peut-être surtout des imaginations, il recevait des cultes. À
 Admirations occultes, qui aisément devenaient des ]
-adorations. Et durant ces cinq longues semaines du j
-mois de juin dernier passé, aujourd'hui nous savons, k
-par des infiltrations ultérieures, qu'un certain nombre 1
+adorations. Et durant ces cinq longues semaines du
+mois de juin dernier passé, aujourd'hui nous savons,
+par des infiltrations ultérieures, qu'un certain nombre
 
 h. de Français se dirent que si enfin le fait imminent
 D devait se faire, il aurait tout de même été plus agréable
@@ -1580,24 +1575,24 @@ le non pas même Hugo même. Admirable, unique fournis-
 à ments ; c'est-à-dire, les lisant dans le livre ou dans votre
 l mémoire, sur le texte, luttez un peu, si vous le pouvez,
 
-contre l'entraînement formidable de l'image et du L
+contre l'entraînement formidable de l'image et du
 rythme : et alors, sous la farieuse colère apparente et À
 réelle, sincère, contre Napoléon III et contre le #
 deuxième ou le Second Empire, ainsi que les nomme vi
 simultanément l'arithmétique officielle, aisément vous À
 sentirez une plénitude secrète, l'intime satisfaction du #
-fabricant, le contentement du poète, que ce vieux Napo- É
+fabricant, le contentement du poète, que ce vieux Napo-
 léon premier permit à cet unique Victor Hugo de sortir “
-de tels vers. ÿ
+de tels vers.
 
 Officiellement donc il fallait, comme tout bon popu- à
 laire, proscrire, exterminer, maudire Napoléon. Mais $,
-dans le dedans du poète, on en profitait pour faire des î
+dans le dedans du poète, on en profitait pour faire des
 
-‘: vers comme pas un. En réalité Victor Hugo poète, — et F
-qu'est-ce que Victor Hugo en dehors de Victor Hugo ï
+‘: vers comme pas un. En réalité Victor Hugo poète, — et
+qu'est-ce que Victor Hugo en dehors de Victor Hugo
 poète, — Victor Hugo poète ne sortit jamais du culte À
-napoléonien. Le véritable Napoléon, c'est le Napoléon É
+napoléonien. Le véritable Napoléon, c'est le Napoléon
 où l'on rythme. Et dans Les Châtiments même, dans Les %
 Châtiments autant et plus que nulle part, on sent courir à
 une veine de contentement intérieur, d'avoir tant et si À
@@ -1610,13 +1605,13 @@ vantait de ne jamais servir. Et qui avait passé sa vie !
 Non seulement, comme son peuple, naïvemerit natio- #
 naliste et prétentieusement internationaliste, maïs plus !
 
-, particulièrement militariste prétentieux et pacifiste égale- 4
-ment prétentieux : mais cela s'accorde fort bien ensemble. 3
+, particulièrement militariste prétentieux et pacifiste égale-
+ment prétentieux : mais cela s'accorde fort bien ensemble.
 
 Non seulement dans les œuvres où c'était pour ainsi :
 dire son métier de s'en servir, dans les œuvres pu- à
 
-58 4
+58
 
 ‘0 lémiques, mais dans les œuvres privées, dans les
 D œuvres où on ne l'attendait pas, dans les œuvres où il
@@ -1633,9 +1628,9 @@ D œuvres où on ne l'attendait pas, dans les œuvres où il
 f pas les monuments figurés de la commémoration de ce
 É peuple. Il ne sort point de l'Arc-de-Triomphe. Il ne
 1 descend de la colonne que pour défiler sous ledit Arc1 de-Triomphe. Ceci est dans les Chants du Crépuscule ;
-10 II, à la colonne. Plusieurs pétitionnaires avaient
+II, à la colonne. Plusieurs pétitionnaires avaient
 k demandé que la Chambre intervint pour faire transporter les cendres de Napoléon sous la colonne de la
-4 Après une courte délibération, la Chambre était
+Après une courte délibération, la Chambre était
 4 passée à l'ordre du jour.
 ‘1 (Chambre des députés, séance du 7 octobre 1830)
 ue Je passe les odes et rythmes lyriques des six pre1% mières parties de ce poème. Ici aussi, il faut en venir
@@ -1659,13 +1654,13 @@ Nous y convierons tout, Europe, Afrique, Asie !
 Et nous t'amènerons la jeune Poésie
 Chantant la jeune Liberté ! |
 Quelque répugnance que j'aie à souligner des mots
-dans un texte, comme le font les barbares Allemands, î
+dans un texte, comme le font les barbares Allemands,
 qui de leur affreux espacement typographique finissent
 par souligner tant de mots dans leurs textes qu'il finit
 par y avoir plus de mots soulignés que de mots non |
 soulignés, ce qui attire naturellement l'attention sur les
 mots non soulignés, ce qui ne serait très spirituel que
-si c'était fait exprès, je n'ai pu m'empêcher de souligner ce vers que je ne lui ai pas fait dire : k
+si c'était fait exprès, je n'ai pu m'empêcher de souligner ce vers que je ne lui ai pas fait dire
 Oh! va, nous te ferons de belles funérailles ! |
 Nous aurons bien aussi peut-être nos batailles ; |
 
@@ -1680,7 +1675,7 @@ qd es Siècles; dans cette nuée d'anciens poèmes, privés,
 “plus ou moins intimes, ignorés aujourd'hui, oubliés,
 “perdus, quelques-uns à tort, il n'y a qu'à feuilleter son
 | œuvre; les Rayons et les Ombres ; IN ; regard jeté dans
-4 L'angle de la cellule abrite un lit paisible.
+L'angle de la cellule abrite un lit paisible.
 D Sur la table est ce livre où Dieu se fait visible,
 La légende des saints, seul et vrai panthéon.
 Et dans un coin obscur, près de la cheminée,
@@ -1695,38 +1690,38 @@ k ‘4 Où tant de paix, de grâce et de joie est versée,
 Fi Et près de l'empereur devant qui tout s'incline,
 ._— 0 légitime orgueil de la pauvre orpheline! —
 ii Brille une croix d'honneur, signe humble et triomphant, |
-11 Croix d'un soldat tombé comme tout héros tombe,
-4 Et qui, père endormi, fait du fond de sa tombe ï
+Croix d'un soldat tombé comme tout héros tombe,
+Et qui, père endormi, fait du fond de sa tombe
 HR Veiller un peu de gloire auprès de son enfant.
 
-Croix de Napoléon! joyau guerrier! pensée! Ê
+Croix de Napoléon! joyau guerrier! pensée!
 Couronne de laurier de rayons traversée! |
-Quand il menait ses preux aux combats acharnés, j
+Quand il menait ses preux aux combats acharnés,
 11 la laissait, afin de conquérir la terre, {
-Pendre sur tous les fronts durant toute la guerre, ÿ
+Pendre sur tous les fronts durant toute la guerre,
 Puis, la grande œuvre faite, il leur disait : Venez! |
 Puis il donnait sa croix à ces hommes stoïques, *
-Et des larmes coulaient de leurs yeux héroïques, ÿ
-Muets, ils adoraient leur demi-dieu vainqueur. 4
+Et des larmes coulaient de leurs yeux héroïques,
+Muets, ils adoraient leur demi-dieu vainqueur.
 On eût dit qu'allumant leur âme avec son âme,
 Et touchant leur poitrine avec son doigt de flamme,
 Il leur faisait jaïllir cette étoile du cœur!
-Oh! la croix de ton père est là qui te regarde! - 04
+Oh! la croix de ton père est là qui te regarde!
 La croix du vieux soldat mort dans la vieille garde!
 Laisse-toi conseiller par elle, ange tenté,
-Laisse-toi conseiller. 4
-[ Il s'agit de la défendre de Voltaire; 1 1
+Laisse-toi conseiller.
+[ Il s'agit de la défendre de Voltaire;
 Voltaire, le serpent, le doute, l'ironie, El
 Voltaire est dans un coin de ta chambre bénie! à
 Avec son œil de flamme il t'espionne et rit. n |
 
-4 Oh! tremble! ce sophiste a sondé bien des fanges!
+Oh! tremble! ce sophiste a sondé bien des fanges!
 …. Oh! tremble! ce faux sage a perdu bien des anges!
 n. Ce démon, noir milan, fond sur les cœurs pieux,
 … Et les brise, et souvent, sous ses griffes cruelles,
 … Plume à plume j'ai vu tomber ces blanches ailes
 —…. Qui font qu'une âme vole et s'enfuit dans les cieux!
-k. Il compte de ton sein les battements sans nombre. ù
+k. Il compte de ton sein les battements sans nombre.
 … Le moindre mouvement de ton esprit dans l'ombre,
 … S'il penche un peu vers lui, fait resplendir son œil.
 FE Et, comme un loup rôdant, comme un tigre qui guette,
@@ -1748,36 +1743,36 @@ cel te impudence tranquille. Plus que cette impudence
 de sérénité, cette impudeur. Faire de mauvais vers lui « était parfaitement égal, pourvu que tous les matins il "
 fit, il eût son compte de vers. Il pensait qu'il valait “
 mieux faire des mauvais vers que de ne pas en faire du
-tout. Il était comme un grand fleuve. Il pensait qu'avant M
-tout, il faut assurer, entretenir le courant. Il était comme « un grand fleuve, qui ne refuse point, qui ne se refuse k
-point de rouler des eaux sales et jaunes, à certains M
-jours, parce qu'avant tout il faut rouler des eaux, et 4
-qu'il faut rouler des eaux sales et jaunes, certains M
+tout. Il était comme un grand fleuve. Il pensait qu'avant
+tout, il faut assurer, entretenir le courant. Il était comme « un grand fleuve, qui ne refuse point, qui ne se refuse
+point de rouler des eaux sales et jaunes, à certains
+jours, parce qu'avant tout il faut rouler des eaux, et
+qu'il faut rouler des eaux sales et jaunes, certains
 jours, pour que viennent, certains autres jours, les eaux %
 lucides, les eaux transparentes, les eaux claires et à
 bleues. Toutes les faiblesses lui paraissaient meilleures À
-que l'odieuse stérilité. Et qui sait d'ailleurs si ces eaux M
-que du rivage nous jugeons jaunâtres, saumâtres, sales, M
-lui-même, le père fleuve, il ne les aimait pas autant. D
+que l'odieuse stérilité. Et qui sait d'ailleurs si ces eaux
+que du rivage nous jugeons jaunâtres, saumâtres, sales,
+lui-même, le père fleuve, il ne les aimait pas autant.
 
-Et dans ces coulées de faiblesses, quels réveils imprévus. Quel beau vers, soudain, quelle annonce, quelle M
+Et dans ces coulées de faiblesses, quels réveils imprévus. Quel beau vers, soudain, quelle annonce, quelle
 
-Le bruit des lourds canons roulant vers Austerlitz, 4
+Le bruit des lourds canons roulant vers Austerlitz,
 
-ou quel ressouvenir des beaux poèmes à venir; quelle M
-remontée, du futur; ouvrier avant tout, en ce sens, M
+ou quel ressouvenir des beaux poèmes à venir; quelle
+remontée, du futur; ouvrier avant tout, en ce sens,
 ouvrier de l'écriture en vers, il a eu sa récompense
-enfin, et cette récompense était littéralement un salaire; ñ
-ouvrier de tous les matins, on oublie trop aujourd'hui d
+enfin, et cette récompense était littéralement un salaire;
+ouvrier de tous les matins, on oublie trop aujourd'hui
 
 { combien de fois il avait essayé, fait les poèmes qu'il a.
 définitivement réussis. La mémoire impérieuse que
 
-nous avons gardée de ces poèmes définitifs, et qui s'est” K
+nous avons gardée de ces poèmes définitifs, et qui s'est”
 
 imposée, qui s'impose à nous aujourd'hui, qui nous .
 
-4 64 1
+4
 
 : commande aujourd'hui, qui nous commandera toujours,
 
@@ -1800,7 +1795,7 @@ nt seul aujourd'hui connu, seul commémoré, où enfin cette
 
 ‘4 montée, officiellement, devint une ascension.
 
-4 Tout au long de cette montée, la pensée de Napoléon
+Tout au long de cette montée, la pensée de Napoléon
 
 fs le poursuivit; et elle ne le quitta point pendant son
 
@@ -1810,13 +1805,13 @@ fs le poursuivit; et elle ne le quitta point pendant son
 
 be n'a que faire, est pour moi l'indice d'une incontestable
 
-1 Juin 1839. — Il y avait déjà une ode à la colonne de
+Juin 1839. — Il y avait déjà une ode à la colonne de
 
 Ni la place Vendôme, parva magnis. livre III, ode septième,
 
 F dans les Odes et Ballades ; février 1827 :
 
-4 Prenez garde, étrangers : — nous ne savons que faire!
+Prenez garde, étrangers : — nous ne savons que faire!
 
 ‘ La paix nous berce en vain dans son oisive sphère,
 
@@ -1824,7 +1819,7 @@ F dans les Odes et Ballades ; février 1827 :
 
 ai Nous froissons dans nos mains, hélas! inoccupées,
 
-4 Des lyres à défaut d'épées!
+Des lyres à défaut d'épées!
 
 È Nous chantons comme on combattrait !
 
@@ -1832,34 +1827,34 @@ ai Nous froissons dans nos mains, hélas! inoccupées,
 
 ; tout cela est passé... mon enfance n'est plus; elle est
 
-| 65 4.
+|
 
 morte, pour ainsi dire, quoique je vive encore. SAINT
 
-J'ai des rêves de guerre en mon âme inquiète; 4
+J'ai des rêves de guerre en mon âme inquiète;
 J'aurais été soldat, si je n'étais poète. .
 Ne vous étonnez point que j'aime les guerriers !
 Souvent, pleurant sur eux, dans ma douleur muette, !
 J'ai trouvé leur cyprès plus beau que nos lauriers. É-
 Enfant, sur un tambour ma crèche fut posée. LE
-Dans un casque pour moi l'eau sainte fut puisée. 1
-Un soldat, m''ombrageant d'un belliqueux faisceau, 1
-| De quelque vieux lambeau d'une bannière usée j
-Fit les langes de mon berceau. ; É:
-Parmi les chars poudreux, les armes éclatantes, F
-Une muse des camps m'emporta sous les tentes; F
+Dans un casque pour moi l'eau sainte fut puisée.
+Un soldat, m''ombrageant d'un belliqueux faisceau,
+| De quelque vieux lambeau d'une bannière usée
+Fit les langes de mon berceau.
+Parmi les chars poudreux, les armes éclatantes,
+Une muse des camps m'emporta sous les tentes;
 Je dormis sur l'affût des canons meurtriers; .
 J'aimai les fiers coursiers, aux crinières flottantes,
-Et l'éperon froissant les rauques étriers. k
-J'aimai les forts tonnants, aux abords difficiles; 1
-Le glaive nu des chefs guidant les rangs dociles, ù:
-La vedette perdue en un bois isolé, : 4
+Et l'éperon froissant les rauques étriers.
+J'aimai les forts tonnants, aux abords difficiles;
+Le glaive nu des chefs guidant les rangs dociles,
+La vedette perdue en un bois isolé,
 Et les vieux bataillons qui passaient dans les villes, Fe
-Avec an drapeau mutilé. ñ
-Mon envie admirait et le hussard rapide, 2
+Avec an drapeau mutilé.
+Mon envie admirait et le hussard rapide,
 Parant de gerbes d'or sa poitrine intrépide, }
 Et le panache blanc des agiles lanciers, ;
-Et les dragons, mêlant sur leur casque gépide 40
+Et les dragons, mêlant sur leur casque gépide
 Le poil taché du tigre aux crins noirs des coursiers. }
 
 À Et j'accusais mon âge : — « Ah! dans une ombre obscure,
@@ -1867,17 +1862,17 @@ Le poil taché du tigre aux crins noirs des coursiers. }
 % « Tout ce sang jeune et pur, bouillant chez mes pareils,
 É « Qui dans un noir combat, sur l'acier d'une armure,
 J À Et j'nvoquais la guerre, aux scènes effrayantes;
-4 Je voyais, en espoir, dans les plaines bruyantes,
+Je voyais, en espoir, dans les plaines bruyantes,
 ‘à Avec mille rumeurs d'hommes et de chevaux,
-4 Secouant à la fois leurs ailes foudroyantes,
+Secouant à la fois leurs ailes foudroyantes,
 if L'un sur l'autre à grands cris fondre deux camps rivaux.
-4 J'entendais le son clair des tremblantes cymbales,
+J'entendais le son clair des tremblantes cymbales,
 È Le roulement des chars, le sifflement des balles,
 Et, de monceaux de morts semant leurs pas sanglants,
 à Je voyais se heurter, au loin, par intervalles,
 h Avec nos camps vainqueurs, dans l'Europe asservie
-4 J'errai, je parcourus la terre avant la vie;
-4 Et, tout enfant encor,.…
+J'errai, je parcourus la terre avant la vie;
+Et, tout enfant encor,.…
 D! Là, je voyais les feux des haltes militaires
 \ Noircir les murs croulants des villes solitaires;
 à La tente, de l'église envahissait le seuil;
@@ -1885,36 +1880,36 @@ D Les rires des soldats, dans les saints monastères,
 ! Par l'écho répétés, semblaient des cris de deuil.
 { grincements de lime; quelle recherche des mots, qui ne
 
-viennent pas, de tous les mots, des épithètes, qui man- 4
-quent, qui ratent immanquablement. Sacristie et méta- 1
+viennent pas, de tous les mots, des épithètes, qui man-
+quent, qui ratent immanquablement. Sacristie et méta-
 phore. Comme tout cela était moisi, pourri de littérature. 1823, il avait vingt-et-un ans. Il a gagné, depuis. À
-Il n'a pas volé sa gloire, celui-là. 3 L
-Mais débarbouillons-nous. Tout a une fin. Avant de 4
+Il n'a pas volé sa gloire, celui-là.
+Mais débarbouillons-nous. Tout a une fin. Avant de
 remonter, parmi ce peuple qui se disperse, avant de pu
 remonter par les ponts boulevard Saint-Michel et jusqu'à ‘4
-la rue de la Sorbonne, où le travail négligé nous attend, 2
-débarbouillons-nous de tous ces essais, lavons-nous la 1
+la rue de la Sorbonne, où le travail négligé nous attend,
+débarbouillons-nous de tous ces essais, lavons-nous la
 mémoire de tous ces mauvais vers. Avant de rompre, :
 récitons-nous de ces vers définitifs, définitivement À
-réussis. Prenons-les parmi les poèmes réussis correspon- b
+réussis. Prenons-les parmi les poèmes réussis correspon-
 dants. Je veux dire correspondant aux poèmes d'essai À
-que nous avons essuyés. ï
-Napoléon le tenait si bien. Il était si hanté de ce nom 4
-et de cette image de Napoléon que Napoléon lui sert 4
-de calendrier. Et quel calendrier. Pour' quelle date. 3
-Pour la date la plus importante de l'histoire universelle, 1
-qui est la date de la naissance de Victor Hugo: Les É
+que nous avons essuyés.
+Napoléon le tenait si bien. Il était si hanté de ce nom
+et de cette image de Napoléon que Napoléon lui sert
+de calendrier. Et quel calendrier. Pour' quelle date.
+Pour la date la plus importante de l'histoire universelle,
+qui est la date de la naissance de Victor Hugo: Les
 Feuilles d'automne, I, Data fata secutus, devise des
-Saint-John, [qu'est-ce que c'est que les Saint-John ?] 4
+Saint-John, [qu'est-ce que c'est que les Saint-John ?]
 Ce siècle avait deux ans! Rome remplaçait Sparte, :
 Déjà Napoléon perçait sous Bonaparte, %
 Et du premier consul déjà, par maint endroit, À
 Le front de l'empereur brisait le masque étroit. À
-Alors dans Besancon... 4
-Juin 1830.Et Chants du Crépuscule, V, Napoléon II, x: n,
+Alors dans Besancon...
+Juin 1830.Et Chants du Crépuscule, V, Napoléon II,
 
 Mil huit cent onze! —Otempsoù des peuplessansnombre
-68 1
+68
 
 . Ce que son œil cherchait dans le passé profond,
 ke Ce n'était pas Madrid, le Kremlin et le Phare,
@@ -1922,10 +1917,10 @@ ke Ce n'était pas Madrid, le Kremlin et le Phare,
 D Le bivac sommeillant dans les feux étoilés,
 1 - Les dragons chevelus, les grenadiers épiques,
 
-4 Et les rouges lanciers fourmillant dans les piques,
+Et les rouges lanciers fourmillant dans les piques,
 il Comme des fleurs de pourpre en l'épaisseur des blés; »
 
-1 Août 1832. — Ce poème réussi, ce poëme sal dans
+Août 1832. — Ce poème réussi, ce poëme sal dans
 #4 cette strophe, et sous un revêtement de tristesse, sontRe ce là des vers pacifiques. Et ce poème où lui-même il a
 à { ramassé, dès les Orientales, dès 1828, tout son ensemble
 4 de Napoléon; Lui.
@@ -1936,7 +1931,7 @@ il Comme des fleurs de pourpre en l'épaisseur des blés; »
 
 À Toujours lui ! lui partout! — Ou brûlante ou glacée,
 1: Son image sans cesse ébranle ma pensée.
-154 Il verse à mon esprit le souflle créateur.
+Il verse à mon esprit le souflle créateur.
 [he Je tremble, et dans ma bouche abondent les paroles
 
 11 uand son nom gigantesque, entouré d'auréoles,
@@ -1947,8 +1942,8 @@ LA Là, massacrant le peuple au nom des régicides ;
 
 Là, consul jeune et fier, amaigri par des veilles
 Que des rêves d'empire emplissaient de merveilles,
-Pâle sous ses longs cheveux noirs. j
-Puis, empereur puissant dont la tête s'incline, b
+Pâle sous ses longs cheveux noirs.
+Puis, empereur puissant dont la tête s'incline,
 Gouvernant un combat du haut de la colline, '
 Promettant une étoile à ses soldats joyeux,
 Faisant signe aux canons qui vomissent les flammes, |
@@ -1956,16 +1951,16 @@ De son âme à la guerre armant six cent mille âmes,
 Grave et serein, avec un éclair dans les yeux.
 Puis, pauvre prisonnier, qu'onraille et qu'on tourmente,
 Croisant ses bras oisifs sur son sein qui fermente,
-En proie aux geôliers vils comme un vil criminel, ñ
+En proie aux geôliers vils comme un vil criminel,
 Vaincu, chauve, courbant son front noir de nuages,
-Promenant sur un roc où passent les orages k:
+Promenant sur un roc où passent les orages
 Sa pensée, orage éternel.
-| Qu'il est grand, là surtout! quand, puissance brisée, J
-Des porte-clefs anglais misérable risée, É
+| Qu'il est grand, là surtout! quand, puissance brisée,
+Des porte-clefs anglais misérable risée,
 Au sacre du malheur il retrempe ses droits, ;
-Tient au bruit de ses pas deux mondes en haleine, 4
+Tient au bruit de ses pas deux mondes en haleine,
 Et mourant de l'exil, gêné dans Sainte-Hélène, ;
-Manque d'air dans la cage où l'exposent les rois ! É
+Manque d'air dans la cage où l'exposent les rois !
 Qu'il est grand à cette heure où, prêt à voir Dieu même, ]
 Son œil qui s'éteint roule une larme suprême! ;
 Il évoque à sa mort sa vieille armée en deuil, à
@@ -1973,30 +1968,30 @@ Se plaint à ses guerriers d'expirer solitaire,
 Et, prenant pour linceul son manteau militaire, à
 Du lit de camp passe au cercueil ! °
 
-4 A Rome, où du sénat hérite le conclave, :
-4 A l'Elbe, aux monts blanchis de neige ou noirs delave,
+A Rome, où du sénat hérite le conclave, :
+A l'Elbe, aux monts blanchis de neige ou noirs delave,
 | Au menaçant Kremlin, à l'Alhambra riant,
 # Il est pariout! — Au Nil je le retrouve encore.
 Ë L'Egypte resplendit des feux de son aurore;
 , Son astre impérial se lève à lorient.
-1 Vainqueur, enthousiaste, éclatant de prestiges,
+Vainqueur, enthousiaste, éclatant de prestiges,
 À Prodige, il étonna la terre des prodiges.
 * Les vieux scheïiks vénéraient l'émir jeune et prudent;
-3 Le peuple redoutait ses armes inouïes ;
+Le peuple redoutait ses armes inouïes ;
 \ Sublime, il apparut aux tribus éblouies
 À Comme un Mahomet d'Occident.
-1 Leur féerie a déjà réclamé son histoire.
+Leur féerie a déjà réclamé son histoire.
 É La tente de Arabe est pieine de sa gloire.
-4 Tout Bédouin libre était son hardi compagnon; È
-1 Les petits enfants, l'œil tourné vers nos rivages,
+Tout Bédouin libre était son hardi compagnon;
+Les petits enfants, l'œil tourné vers nos rivages,
 ‘4 Sur un tambour français règlent leurs pas sauvages,
-1 Et les ardents chevaux hennissent à son nom.
+Et les ardents chevaux hennissent à son nom.
 ‘1 Il est difficile de vérifier ces renseignements de géo-
 à graphie et dhistoire. Et d'histoire naturelle. Mais il y a
 À là, cette fois, son Napoléon tout entier.
-1 Parfois ii vient, porté sur l'ouragan numide,
-1 Prenant pour piédestal la grande pyramide,
-44 Contempler les déserts, sablonneux océans;
+Parfois ii vient, porté sur l'ouragan numide,
+Prenant pour piédestal la grande pyramide,
+Contempler les déserts, sablonneux océans;
 hi: Lè, son ombre, éveillant le sépulcre sonore,
 He: Comme pour la bataille y ressuscite encore
 À Les quarante siècles géants. :
@@ -2005,27 +2000,27 @@ Il dit : « Debout ! » Soudain chaque siècle se lève, À
 Ceux-ci portant le sceptre et ceux-là ceints du glaïive, )
 Immobiles, poudreux, muets, sa voix les compte; |
 Tous semblent, adorant son front qui les surmonte,
-Faire à ce roi des temps une cour du passé. î
-Ainsi tout, sous les pas de l'homme ineffaçable, 4
+Faire à ce roi des temps une cour du passé.
+Ainsi tout, sous les pas de l'homme ineffaçable,
 Tout devient monument; il passe sur le sable; }
-Mais qu'importe qu'Assur de ses flots soit couvert, î
-Que l'Aquilon sans cesse y fatigue son aile ? Ë
+Mais qu'importe qu'Assur de ses flots soit couvert,
+Que l'Aquilon sans cesse y fatigue son aile ?
 Soz pied colossal laisse une trace éternelle ;
-Sur le front mouvant du désert. ï
-Histoire, poésie, il joint du pied vos cimes. ÿ
+Sur le front mouvant du désert.
+Histoire, poésie, il joint du pied vos cimes.
 Éperdu, je ne puis dans ces mondes sublimes ;
 Remuer rien de grand sans toucher à son nom; À
 Oui, quand tu m'apparais, pour le culte ou le blâme, À
 Les chants volent pressés sur mes lèvres de flamme, :
 Napoléon ! soleil dont je suis le Memnon !
-Tu domines notre âge ; ange ou démon, qu'importe ? 6
-Ton aigle, dans son vol, haletants, nous emporte. ë
+Tu domines notre âge ; ange ou démon, qu'importe ?
+Ton aigle, dans son vol, haletants, nous emporte.
 L'œil même qui te fuit te retrouve partout. ‘
 Toujours dans nos tableaux tu jettes ta grande ombre; }
 Toujours Napoléon, éblouissant et sombre, |
 Sur le seuil du siècle est debout.
 Ainsi quand du Vésuve explorant le domaine, :
-De Naple à Portici l'étranger se promène, 1
+De Naple à Portici l'étranger se promène,
 
 Lorsqu'il trouble, rêveur, de ses pas importuns,
 Ischia, de ses fleurs embaumant l'onde heureuse,
@@ -2034,7 +2029,7 @@ Semble une voix qui vole au milieu des parfums ; ;
 Qu'il hante de Pæstum l'auguste colonnade,
 Qu'il écoute à Pouzzol la vive sérénade
 Chantant la tarentelle au pied d'un mur toscan ;
-3 Qu'il éveille en passant cette cité momie,
+Qu'il éveille en passant cette cité momie,
 Pompéi, corps gisant d'une ville endormie,
 d Saisie un jour par le volcan;
 Ë Qu'il erre au Pausilippe avec la barque agile
@@ -2048,7 +2043,7 @@ Du haut des caps, du bord des presqu'îles fleuries,
 Écoutons la prière du jeune Arabe Hugo. Ce Lui, Orien-
 …. tales XL, succède naturellement à une Orientale XXXIX,
 + et cette Orientale XXXIX n'est autre que Bounaberdi. ;
-4 Ce Bounaberdi ne vous dit rien. Mais un sociologue
+Ce Bounaberdi ne vous dit rien. Mais un sociologue
 - avisé découvrirait aisément dans ce mot une altération
 du mot Bonaparte, surtout si vous l'écrivez Buonaparte et si vous le prononcez Bouonaparté. Un Filolog
 + découvrirait certainement les lois de cette altération.
@@ -2069,21 +2064,21 @@ D'un nuage de poudre importune ses yeux :
 Élève jusqu'à lui sa voix profonde et haute,
 Comme aux pieds de son maître aboïe un chien joyeux. |
 Et le vieil Empereur, que tour à tour réveille
-Ce nuage à ses yeux, ce bruit à son oreille, j
+Ce nuage à ses yeux, ce bruit à son oreille,
 Rêve, et, comme à l'amante on voit songer l'amant,
-Croit que c'est une armée, invisible et sans nombre, 3
+Croit que c'est une armée, invisible et sans nombre,
 Qui fait ceite poussière et ce bruit pour son ombre, |
 Et sous l'horizon gris passe éternellement!
 
-Oh ! quand tu reviendras rêver sur la montagne, 4
-Bounaberdi! regarde un peu dans la campagne 4
+Oh ! quand tu reviendras rêver sur la montagne,
+Bounaberdi! regarde un peu dans la campagne
 Ma tente qui blanchit dans les sables grondants ;
 Car je suis libre et pauvre, un Arabe du Caire,
-Et quand j'ai dit : Allah! mon bon cheval de guerre 4
-Vole, et sous sa paupière a deux charbons ardents! L
+Et quand j'ai dit : Allah! mon bon cheval de guerre
+Vole, et sous sa paupière a deux charbons ardents!
 
 Novembre 1828.— Décidément mon cahier serait un
-cahier très sage, qui ferait plaisir à tout le monde, k
+cahier très sage, qui ferait plaisir à tout le monde,
 même à mes amis, et qui me vaudrait les compliments
 de mes camarades; un bon cahier de récapitulation;
 sans aucune idée maîtresse: des faits, rien que des
@@ -2107,38 +2102,37 @@ le voyage du roi d'Espagne avait lui aussi duré une se-
 … maine exactement, qu'il avait fait une semaine, arrêtée,
 …_ que cette semaine avait été la semaine du roi d'Es-
 … pagne, qu'elle était finie, qu'il ne s'agissait plus d'en
-| 75
 
 parler, qu'on avait autre chose à faire ; cette semaine
 elle-même avait fini mal ; un attentat, le plus stupide et %
 le plus criminel des attentats, rompant la sécurité uni- :
-verselle, avait rompu la joie, ayant rompu le charme; 4
+verselle, avait rompu la joie, ayant rompu le charme;
 dès avant l'arrivée du souverain, des gens bien infor- :
 més avaient bien dit que la police était extrêmement #4
 inquiète, que l'on savait qu'il y avait un complot quise
-préparait; que l'on redoutait un attentat; nul n'en vou- 4
-lait rien croire; d'abord parce que ces pronostics ve- 4
+préparait; que l'on redoutait un attentat; nul n'en vou-
+lait rien croire; d'abord parce que ces pronostics ve-
 naient des perpétuels gens bien informés ; ensuite parce “3
 
 = que ces sinistres renseignements dérangeaient l'idée
 que l'on s'était faite, l'idée que l'on voulait avoir; un £
 matin, on sut par les journaux que l'attentat s'était produit ; ce fut comme un premier assombrissement, etun
 premier détraquement; une irruption de réalité rebelle;
-mais quelqu'un troubla la fête ; on eut l'impression que 4
+mais quelqu'un troubla la fête ; on eut l'impression que
 des gens qui n'étaient pas invités entraient dans le cours
-des événements ; les arrangements si bien pris tom- 3
+des événements ; les arrangements si bien pris tom-
 baïent; non seulement cet attentat était criminel et ;
 odieux, mais et surtout il n'était pas de jeu ; il rompait :
-une sécurité contractuelle communément consentie; 3
-avec lui et par lui revenaient pour tout le monde les k
+une sécurité contractuelle communément consentie;
+avec lui et par lui revenaient pour tout le monde les
 j communs soucis, les tracas, les embarras, les embête- .
-ments de nos vies ordinaires. 4
+ments de nos vies ordinaires.
 Il y a je ne sais quoi de singulièrement féroce dans ‘
-l'immuabilité des programmes officiels ; un soir la mort, 4
-qui n'était pas prévue, paraissant elle-même. s'inscrit L
+l'immuabilité des programmes officiels ; un soir la mort,
+qui n'était pas prévue, paraissant elle-même. s'inscrit
 au programme ; et tout le monde est officiellement forcé *
 de faire comme si elle ne s'y était pas inscrite; ces
-äeux premières bombes pouvaient en introduire d'autres ; on savait qu'il y en avait d'autres on ne savait où; 3h
+äeux premières bombes pouvaient en introduire d'autres ; on savait qu'il y en avait d'autres on ne savait où;
 et pourtant il fallait continuer les fêtes, suivre le pro- :
 
 gramme exactement comme si de rien n'était; sous
@@ -2173,14 +2167,14 @@ e _ grave, il avait rompu la trêve; il faut redire le mot, il
 ' avait rompu le charme; on eut immédiatement l'impres_ sion que cette intervention brusque avait rompu tout un
 4 enchantement, que c'était lui, l'attentat, qui était réel, et
 
-que c'étaient les fêtes qui étaient imaginaires, feintes, que É
+que c'étaient les fêtes qui étaient imaginaires, feintes, que
 l'enchaînement de cette année pénible n'avait point été ;
 brisé, que la semaine qui allait recommencer ressemble- ;
 rait aux semaines précédentes de la même vie, qu'ilfaudrait reprendre le collier, que rien de nouveau n'était |
-venu, que ces promenades n'avaient eu aucun sens, que 3
+venu, que ces promenades n'avaient eu aucun sens, que
 ces dissipations avaient été vaines, que la vie/était tou- ;
 jours la même; cet attentat n'était pas un attentat seulement; c'était la réapparition des ennuis journaliers que
-l'on avait omis d'inviter. 3
+l'on avait omis d'inviter.
 C'était surtout la réapparition brusque de la réalité
 même; les joies et les délassements avaient été imagi- |
 naïres; l'attentat seul était réel, non factice, non bienveillant et bénévole; comme on attendait anxieux, la
@@ -2189,10 +2183,10 @@ oppressé, que le roi fût parti, nous déchargeant enfin du
 soin de sa garde et de l'honneur de sa sécurité ; comme
 on attendait qu'il fût parti enfin, et qu'il fût arrivé
 quelque part qui ne fût point chez nous; qui ne fût |
-point de notre domaine, car aussitôt, immédiatement, 3
-tout le monde avait senti que nous avions un domaine, k
+point de notre domaine, car aussitôt, immédiatement,
+tout le monde avait senti que nous avions un domaine,
 où nous étions responsables ; comme on attendait que
-‘tout fût éloigné, le roi, la menace, le malheur, le perpé- 4
+‘tout fût éloigné, le roi, la menace, le malheur, le perpé-
 Il fallut revenir à Paris afin de recommencer la semaine; une ancienne chanson française, que nul aujour- |
 d'hui ne sait plus, qui ferait le désespoir de nos modernes |
 antialcoolistes, elle-même commence par les enseignements suivants : à
@@ -2244,23 +2238,23 @@ plus qu'un monde connu, le monde exploré des soucis
 quotidiens, le moride ennemi et parent des soucis fami- |
 
 Comment en l'espace d'un matin tout le monde,
-j'entends tout le monde ainsi dénombré, sut que la 3
-France était sous le coup d'une invasion allemande l
+j'entends tout le monde ainsi dénombré, sut que la
+France était sous le coup d'une invasion allemande
 imminente, c'est ce que je veux d'abord noter.
 
 Nous étions arrivés pensant à tout autre chose; on a £
 tant à faire en un commencement de semaine, surtout :
-après une légère interruption; la vie est si chargée; 4
+après une légère interruption; la vie est si chargée;
 nous ne sommes pas de ces grands génies qui avaient .
-toujours un œil sur le tsar et l'autre sur le mikado; les 4
+toujours un œil sur le tsar et l'autre sur le mikado; les
 destins des empires nous intéressent énormément ; mais de
-nous sommes tenus de gagner notre pauvre vie; nous 1
+nous sommes tenus de gagner notre pauvre vie; nous
 travaillons du matin au soir; nous faisons des journées té
 de beaucoup plus de huit heures; nous avons, comme ?
 tous les honnêtes gens et les-simples citoyens, beaucoup $
-de soucis personnels; on ne peut pas penser toujours J
+de soucis personnels; on ne peut pas penser toujours
 aux révolutions de Babylone: il faut vivre honnêtement
-la vie de tous les jours; elle est grise et tissée de fils 1
+la vie de tous les jours; elle est grise et tissée de fils
 
 La vie de celui qui ne veut pas dominer est générale- |
 ment de la toile bise. |
@@ -2269,11 +2263,11 @@ Tout le monde, ainsi compté, tout le monde en même
 temps connut que la menace d'une invasion allemande
 est présente, qu'elle était là, que l'imminence était ;
 
-Ce n'était pas une nouvelle qui se communiquât de 5
+Ce n'était pas une nouvelle qui se communiquât de
 bouche en bouche, que l'on se communiquât, latéralement, comme les nouvelles ordinaires; ce que les gens |
 qui se rencontraient se communiquaient, ce n'était pas
 la nouvelle, ce n'était que la confirmation, pour chacun #4
-d'eux, d'une nouvelle venue de l'intérieur; la connais- È
+d'eux, d'une nouvelle venue de l'intérieur; la connais-
 
 : sance de cette réalité se répandait bien de proche en
 proche; mais elle se répandaït de l'un à l'autre comme
@@ -2299,15 +2293,15 @@ dehors, cette voix de mémoire engloutie là et comme
 ) index alphabétique provisoire du catalogue analy- :
 &: tique sommaire; notre petite table analytique provi-
 
-À soire très sommaire de notre sixième série......... 2
+À soire très sommaire de notre sixième série.........
 
 k Nous avons donné le bon à tirer après corrections
 
 sl pour deux mille exemplaires de ce troisième cahier le
 
-1 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
+Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-7 720
+7
 
 8 rez-de-chaussée, Paris, cinquième arrondissement.
 És. Nos Cahiers sont édités par des souscriptions menEE suelles régulières et par des souscriptions extraordii naires ; la souscription ne confère aucune autorité sur
@@ -2318,11 +2312,11 @@ Fi ouvrière, d'octobre-novembre à juin-juillet ; l'abonnen ment se prend pour 
 ne On peut souscrire cet abonnement à tout moment de
 É l'année, mais l'abonnement ainsi souscrit est, de droit,
 3 valable pour la série en cours, et pour toute cette série.
-4 Prix de l'abonnement, pour chaque série annuelle
+Prix de l'abonnement, pour chaque série annuelle
 n pendant le cours de cette série :
 ‘4 HAE / Autres pays de l'Union postale uni-
 | ‘ verselle....... vingt-cinq francs
-4 Abonnement sur whatman... cent francs pour tous pays
+Abonnement sur whatman... cent francs pour tous pays
 ; Les exemplaires sur whatman, tirage non réimposé,
 4 sont numérotés à la presse et imprimés au nom du
 3 souscripteur ; le tirage à part sur whatman commen-
@@ -2335,7 +2329,7 @@ ti naturellement aux premières inscriptions; c'est ce nuDe. méro d'inscription
 : numéro du tirage réservé à chacun des souscripteurs ;
 mn: lédition sur whatman sera strictement limitée au
 
-4 Pour tout changement d'adresse envoyer soixante
+Pour tout changement d'adresse envoyer soixante
 centimes, quatre timbres de quinse centimes.
 
 Nous engageons nos abonnés de certains pays à nous
@@ -2349,7 +2343,7 @@ Nous engageons nos abonnés de certains pays à nous
 % exemplaires sur whatman sont tous recommandés et
 4 envoyés aux souscripteurs dans des enveloppes-sacs.
 
-11 L'abonnement ordinaire cesse de fonctionner pour
+L'abonnement ordinaire cesse de fonctionner pour
 ” chaque série au plus tard le 31 décembre qui suit
 À lachèvement de cette série; ainsi du premier octobre
 ‘4 au 31 décembre 1905, et sauf épuisement de la sixième

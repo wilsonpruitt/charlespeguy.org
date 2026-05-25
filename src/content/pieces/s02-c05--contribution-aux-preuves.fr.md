@@ -116,7 +116,7 @@ réduits à des conjectures sur la date où les bandits ont
 fabriqué cette pièce extraordinaire, sur le rôle précis qu'ils
 lui destinaient, sur l'usage qu'ils en ont fait. C'est probablement la visite faite par M. de Munster à M. Casimir- ,
 
-Perier qui a suggéré à Henry et à ses acolytes l'idée d'élaborer ce document. Du moment que l'ambassadeur d'Alle- S
+Perier qui a suggéré à Henry et à ses acolytes l'idée d'élaborer ce document. Du moment que l'ambassadeur d'Alle-
 magne, averti que le bordereau avait été saisi à son a.
 ambassade, était venu se plaindre au Président de la Répu- à
 blique et demander qu'officiellement aucune allusion ne
@@ -129,9 +129,9 @@ avait dù désarmer M. de Munster par la substitution au
 bordereau authentique d'un décalque où les mots écrits
 par l'empereur ne paraissaient plus. Les scélérats ont compté
 sur le mystère diplomatique pour risquer cette légende
-Bien entendu, ils ne destinaient pas la pièce à la publi- x
+Bien entendu, ils ne destinaient pas la pièce à la publi-
 cité, pas plus d'ailleurs qu'ils n'y destinaient le faux Henry
-lui-même. Elle devait être montrée sous le manteau, épou- ÿ
+lui-même. Elle devait être montrée sous le manteau, épou-
 vanter les ministres en qui des doutes s'éveilleraient, confirmer dans le haut personnel militaire lui-même les convictions chancelantes. Il est infiniment probable qu'elle
 fut fabriquée après les premières découvertes du colonel
 Picquart, et je suis tenté de croire qu'au moment précis où
@@ -140,7 +140,7 @@ d'Esterhazy avec l'écriture du bordereau, sur lequel fut
 condamné Dreyfus, éclaterait à tous les yeux. On se pré-
 parait donc, par un changement très hardi de système, à
 dire mystérieusement, comme un terrible secret d'État, que
-le bordereau soumis aux juges de 189%, et où l'on retrouvait ÿ
+le bordereau soumis aux juges de 189%, et où l'on retrouvait
 l'écriture d'Esterhazy, n'était pas le vrai bordereau; qu'il y
 en avait un autre formidable, impossible à produire publi-
 quement, parce que Guillaume II lui-même l'avait annoté.
@@ -187,7 +187,7 @@ faussaires avaient fabriqué une autre pièce, moins difficile
 plus directement un empereur, mais seulement des attachés
 militaires. 11 est possible qu'Henry, à la découverte d'un de
 ses faux, ait pensé que les autres, y compris la lettre impé-
-riale et le bordereau annoté, seraient aussi percés à jour; M
+riale et le bordereau annoté, seraient aussi percés à jour;
 la situation lui a paru désespérée, et il s'est suicidé, autant
 par la crainte des aveux qui lui restaient à faire que dans
 l'accablement des aveux qu'il avait déjà faits. \à
@@ -216,7 +216,7 @@ bouton sur le nez de Rochefort.
 
 Aussitôt, tous les patriotes effarés se sont empressés autour de l'innocent polémiste : « Cachez, lui ont-ils dit, ce (à
 méchant bobo qui ferait jaser. »
-Et c'est pourquoi, ni au procès Cuignet ni ailleurs, Roche- L
+Et c'est pourquoi, ni au procès Cuignet ni ailleurs, Roche-
 fort ne montrera le bout de son nez qu'il relevait l'autre
 jour d'un air de défi.
 
@@ -250,7 +250,7 @@ serait la vérité.
 Mon innocence est absolue ; cette innocence, j'en
 poursuivrai jusqu'à mon dernier souffle la reconnaissance juridique par la revision.
 Je ne suis pas plus l'auteur du bordereau annoté
-par l'empereur d'Allemagne, qui n'est qu'un faux, 4
+par l'empereur d'Allemagne, qui n'est qu'un faux,
 que du bordereau original, authentique, qui est
 Sauf Henry, tous les principaux auteurs de mon
 inique condamnation sont encore en vie. Je ne suis
@@ -262,10 +262,10 @@ la solliciter.
 Veuillez agréer, monsieur le président, les assurances de mon profond respect.
 Un de nos anciens abonnés nous a envoyé cette contribution aux Preuves
 Puisque vous êtes de ceux qui tiennent qu'il y a toujours une affaire Dreyfus, vous devez penser qu'il est
-utile de continuer à l'étudier pour en éclaircir les obscurités. Je vous soumets donc une hypothèse qui vous l
+utile de continuer à l'étudier pour en éclaircir les obscurités. Je vous soumets donc une hypothèse qui vous
 paraîtra sans doute, comme à bien d'autres, lever de
 Il s'agit du faux Guillaume, c'est-à-dire d'un bordereau sur papier fort, avec une annotation autographe
-de l'empereur d'Allemagne, où cette canaille de Dreyfus ÿ
+de l'empereur d'Allemagne, où cette canaille de Dreyfus
 est nommée. Rochefort l'a vu et a failli le montrer par
 patriotisme. C'est encore un fait constant que le géné-
 ral Mercier en possède l'original ou un fac-similé, qu'il
@@ -295,7 +295,7 @@ les faits et les hommes
 Cette pièce est introduite en 94, nous rechercherons
 
 sont dupes. — De là leur émoi bien connu. De là leur
-terreur de l'ambassade d'Allemagne et la fameuse nuit k
+terreur de l'ambassade d'Allemagne et la fameuse nuit
 historique, jusqu'ici mal expliquée. Ils craignaient, ont-
 ils dit, la colère de l'ambassadeur, menacé par la presse
 de voir son attaché militaire mis en cause ! En réalité,

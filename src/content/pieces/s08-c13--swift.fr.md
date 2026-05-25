@@ -8,29 +8,29 @@ isAvertissement: false
 wordCount: 16992
 ---
 | ner le meilleur de lui-même à l'amié qui l'attendaità is
-Dublin, tandis qu'il causait, faisait des impromptus 4
+Dublin, tandis qu'il causait, faisait des impromptus
 | badins ou philosophait dans le salon de Bury-Street. d \
 Vanessa n'avait pas vingt ans, Swift en avait déjà *
-plus de quarante, quand leurs destinées se croisèrent. D
+plus de quarante, quand leurs destinées se croisèrent.
 Cette différence d'âge contribua probablement à aveu- NE
-gler Swift sur les dangers de leur intimité. Il ouvrit les \ Ÿ
+gler Swift sur les dangers de leur intimité. Il ouvrit les \
 yeux peu de temps avant son retour à Dublin en 1713, <
 quand Vanessa lui avoua son amour. Son secret lui is
 échappa lorsqu'elle apprit qu'il allait partir. Elle espé- A
-rait que Swift l''épouserait. Elle ignorait qu'une autre M
-avait sur lui des droits plus anciens et plus sacrés que 4
+rait que Swift l''épouserait. Elle ignorait qu'une autre
+avait sur lui des droits plus anciens et plus sacrés que
 les siens. Une sorte de pudeur portait toujours Swift à Ni
-éviter les sujets très intimes. Peut-être son silence vint- k
+éviter les sujets très intimes. Peut-être son silence vint-
 il aussi d'un sentiment de prudence. Un certain cynisme À
 contraignait son cœur et il devait souffrir toute sa vie \
 de cette « froideur » dont il parle dans une lettre de ‘#
-jeunesse. La vie du cœur, si profonde chez lui sous sa d: ï
+jeunesse. La vie du cœur, si profonde chez lui sous sa
 ‘ réserve, demeurait soumise au joug tyrannique de la ‘E
-raison. Il eût nié le mot de Pascal : « Le cœur a des 14
+raison. Il eût nié le mot de Pascal : « Le cœur a des
 l raisons que la raison ne connaît pas. » Un sens très ‘à
 aigu de la réalité l'obligeait à des' calculs qui tuaient “
 net ses élans désintéressés. Même devant l'aveu de { “0
-Miss Vanuhomrigh, il ne crut pas nécessaire de lui 4
+Miss Vanuhomrigh, il ne crut pas nécessaire de lui
 découvrir le secret de sa vie. Il ne voulut voir dans son ce
 amour qu'une fantaisie de jeune fille et se fia au temps Fe
 et à sa propre prudence pour ramener cette affection Fi
@@ -38,7 +38,7 @@ dans les limites de l'amitié. à
 D'ailleurs, il allait partir. Il dut lui parler sans dureté, A
 comme il convenait à un galant homme, usant d'un lan- ‘4
 gage ferme et mesuré, recourant à d'amicales railleries. DEA
-De Saint-Albans, il écrit une courte lettre d'adieu. Une . k
+De Saint-Albans, il écrit une courte lettre d'adieu. Une
 
 autre, de Dunstable, est adressée à Mrs. Vanhomrigh et
 ne contient qu'une ou deux plaisanteries pour ses filles.
@@ -70,7 +70,7 @@ j'ai quitté l'Angleterre, que j'essaierais d'oublier tout ce
 ; ( ») Lettre déjà citée. C'est celle où il parle de Laracor peu de
 £ temps après son installation à Dublin, à
 
-même cercle, leur intimité se renoua d'elle-même. 1 k
+même cercle, leur intimité se renoua d'elle-même.
 Mrs. Vanhomrigh étant morte, sa fille aînée dut faire
 face à de sérieuses difficultés pécuniaires et assumer le :
 rôle de chef de famille vis-à-vis d'un frère dépensier et À
@@ -83,7 +83,7 @@ la mort de la reine, il la prévient qu'il n'écrira guère et
 comme elle avait déjà parlé d'aller s'établir en Irlande
 pour y surveiller de plus près ses intérêts, (1) il ajoute |
 qu'il ne pourra la voir souvent. Mais elle ne veut pas ;
-comprendre et elle se refuse à l'oublier. Elle vient vivre s:
+comprendre et elle se refuse à l'oublier. Elle vient vivre
 
 Cette démarche plaçait Swift dans une situation très ;
 délicate. Il crut en sortir à force de prudence. Nul doute
@@ -128,12 +128,12 @@ ce monde, que j'y cède malgré moi, et je vous supplie
 | condamneriez personne, j'en suis certaine, à souffrir
 fl comme moi, si seulement vous pouviez savoir ce que
 # + j'ai souffert. Je vous écris ces choses parce que, si je }
-À vous voyais, je ne pourrais vous les dire : dès que je Ë
+À vous voyais, je ne pourrais vous les dire : dès que je
 ; commence à me plaindre, vous êtes irrité; votre regard (
 À devient alors si terrible qu'il me coupe net la parole. à
-x (1) Il l'engagea même à examiner deux projets de mariage. | ñ
+x (1) Il l'engagea même à examiner deux projets de mariage.
 
-._ Oh! puissiez-vous avoir encore assez d'affection pour L.
+._ Oh! puissiez-vous avoir encore assez d'affection pour
 $ moi, pour que ma plainte fasse naître quelque pitié +
 dans votre âme. J'en dis le moins possible. Si vous au
 saviez seulement les pensées qui me sont venues, je sa !
@@ -143,13 +143,13 @@ choses et de vivre. » (1714) AU
 On comprend les alternatives d'attendrissement et a
 d'impatience qui se succédaient chez Swift. Il lui deve- He ;
 nait de plus en plus difficile de recourir au parti radical LT
-que la sagesse eût dû lui conseiller dès le début. Il per- :4
+que la sagesse eût dû lui conseiller dès le début. Il per-
 sista dans la même attitude, Vanessa S'étant établie ti
-tout à fait à Marley-Abbey (près de Celbridge), il prit l'ha- d. 1
+tout à fait à Marley-Abbey (près de Celbridge), il prit l'ha-
 bitude d'aller l'y visiter. — La maison était construite "ha
 : dans un site romantique; le jardin descendait jusqu'à a
-la rivière, qui coulait très rapide parmi les îlots et les 14
-rochers, entre des rives élevées couvertes de vieux 1
+la rivière, qui coulait très rapide parmi les îlots et les
+rochers, entre des rives élevées couvertes de vieux
 arbres magnifiques. Swift et Vanessa aimaïient à s'as- pu
 seoir à l'ombre d'un bosquet d'où ils dominaient la Le
 rivière, pour y lire et y converser comme au temps de Du
@@ -159,7 +159,7 @@ raires. Elle-même lui soumettait les vers qu'elle compo- ne %
 _elle. Il revisait aussi le poème de Cadenus et Vanessa, ‘1
 écrit dès 1713 : ne pouvant répondre à sa passion, il se pi
 laissait aller à flatter son orgueil, et parfois même des 8 à
-expressions de tendresse lui échappaient malgré lui. 444
+expressions de tendresse lui échappaient malgré lui.
 Elle s'en emparait avidement et"provoquait ces accès Den
 d'irritation qui la plongeaient ensuite dans le désespoir. 1 st
 « Il y a des moments, dit-elle, où vous me frappez nor.
@@ -184,7 +184,7 @@ aident à éviter le spleen. » IL y avait assurément de la
 pitié derrière ces mots cyniques; les paroles plus douces
 qui lui échappaient par moments le prouvent bien.
 Cependant les années passaient. La santé de Stella
-| déclinait rapidement. Miss Vanhomrigh avait supporté Ê
+| déclinait rapidement. Miss Vanhomrigh avait supporté
 l'attente, dans la persuasion secrète que Swift l'épouserait après la mort de sa rivale. Mais Stella languissait
 sans que rien fit prévoir un dénouement proche à cette
 . situation dont elles devaient souffrir autant l'une que
@@ -193,11 +193,11 @@ autant que brusque. ;
 pour lui demander la vérité sur les engagements que
 Swift pouvait avoir contractés envers elle. Stella répondit
 qu'un mariage secret l'unissait à Swift depuis 1716 et À
-envoya la lettre de Miss Vanhomrigh à Swift. 1
+envoya la lettre de Miss Vanhomrigh à Swift.
 
 Vanessa le vit arriver à l'improviste à Marley-Abbey. À )
-Il jeta la lettre sur la table et partit sans proférer une 1,
-parole. Sa physionomie était si terrible en cet instant que û
+Il jeta la lettre sur la table et partit sans proférer une
+parole. Sa physionomie était si terrible en cet instant que
 Miss Vanhomrigh en fut frappée à mort. Elle ne le revit il
 plus, languit quelques semaines et mourut en révoquant pu
 le testament qu'elle avait fait en sa faveur. (1) Elle se } ;
@@ -209,7 +209,7 @@ guérit jamais du choc intime. }
 
 L'histoire de son mariage est restée très mystérieuse. ïk
 Seuls quelques amis furent dans le secret et la nature (
-de ses relations avec Stella ne changea en rien. Elle ë
+de ses relations avec Stella ne changea en rien. Elle
 vécut près de Mrs. Dingley comme par le passé. Telle &
 fut la récompense de quinze ans de silencieux dévoue- ti
 
@@ -220,7 +220,7 @@ Irlande, des projets d'avenir avaient dû être agités, et NU:
 les assurances réitérées de Swift prouvent qu'il ne cessait d'associer son amie à toutes ses espérances de for- à
 tune. A Londres, malgré l'éloignement, rien pendant : ke
 deux ans ne l'avait distrait de leur intimité. Puis sans RE
-doute la politique s'était emparée de lui plus tyranni- ù
+doute la politique s'était emparée de lui plus tyranni-
 quement, n'excitant son ambition que pour la mieux "|
 décevoir ensuite. Vanessa était apparue dans sa vie, et jt
 sans jamais y prendre la place de Stella, y avait a
@@ -234,7 +234,7 @@ bague en souvenir d'elle. Vs
 lui fallait se libérer de lourdes dettes. Enfin, les attaques
 xt i de son mal se rapprochaient et devenaient de plus en {
 # plus pénibles. Ses tendances à l'amertume et au cynisme la
-à s'accentuaient. Elles n'étouffaient pas la sensibilité pro- 1
+à s'accentuaient. Elles n'étouffaient pas la sensibilité pro-
 ‘à fonde qui se cachait tout au fond de son âme, mais À
 : \ la rendaient morbide et en paralysaient les élans. Il
 Il n'en sentait que plus vivement la solitude du génie. |
@@ -243,98 +243,98 @@ Une sorte de rupture d'équilibre s'était produite en lui
 É F et toute l'intensité de sa volonté ne devait plus servir ;
 j: qu'à le torturer lui-même et à torturer les autres. ii
 1e : Quand il était revenu à Dublin, en 1713, il avait ;
-4 repris en apparence son intimité de jadis avec Stella. d
-“4 j Elle dut vite comprendre, cependant, que sa longue K
+4 repris en apparence son intimité de jadis avec Stella.
+“4 j Elle dut vite comprendre, cependant, que sa longue
 “al attente serait déçue. Une gêne cruelle pour tous deux, Ds
 6 encore augmentée par la présente de Vanessa en ;
-d: Irlande, se glissa dans leurs rapports. La malignité. ñ
+d: Irlande, se glissa dans leurs rapports. La malignité.
 1 . publique était en éveil. Stella, dont la santé avait
-1 toujours été fragile, tomba dans un état de langueur qui 102
+1 toujours été fragile, tomba dans un état de langueur qui
 < M inquiéta tous ses amis. Swift lui-même ne put fermer
 ÿ plus longtemps les yeux à l'évidence. Il chargea leur
 À ( ami commun, le docteur Saint-George Ashe, évèque de |
-fé Clogher, de l'interroger. Après cet entretien, il consentit 1
+fé Clogher, de l'interroger. Après cet entretien, il consentit
 à à un mariage secret qui fut célébré par l'évêque de
 
-4 Clogher dans le jardin du doyenné. (1) (1716) Stella
+Clogher dans le jardin du doyenné. (1) (1716) Stella
 , d n'accepta sans doute cette satisfaction dérisoire que
 
 ui pour sauvegarder son honneur aux yeux de la posté- A
-de (à) L'histoire du mariage secret est confirmée par le témoignage ÿ
+de (à) L'histoire du mariage secret est confirmée par le témoignage
 108 d'amis intimes. Le Dr. Sheridan, Mrs. Whiteway, le Dr. Delany, y (
 
-Delany raconte que vers l'époque où le mariage eut é
+Delany raconte que vers l'époque où le mariage eut
 lieu, il remarqua la tristesse et l'extrême agitation de À :
-Swift; et s'étant un jour rendu chez l'archevêque King, 18
+Swift; et s'étant un jour rendu chez l'archevêque King,
 il croisa Swift qui en sortait, l'air désespéré, violem- El
 ment surexcité. L'archevêque lui dit, les larmes aux “A
 yeux : « Vous venez de voir l'homme le plus malheureux bi
 de la terre ; mais vous ne devez pas demander ce qui le net
-Rien n'a révélé le secret de Swift. Stella demeura ) É;
-”_ jusqu'au moment où elle mourut, son amie la plus chère, 4
+Rien n'a révélé le secret de Swift. Stella demeura )
+”_ jusqu'au moment où elle mourut, son amie la plus chère,
 celle dont il prisait le plus l'entretien et dont il aimait We
-les soins pendant les accès de son mal. Sans assumer 4
-ouvertement le rôle de maîtresse de maison, elle ordon- 318
-nait les réceptions du Doyenné, y figurait à une place ñ
-d'honneur et vivait dans l'intimité des meilleurs amis de 1
+les soins pendant les accès de son mal. Sans assumer
+ouvertement le rôle de maîtresse de maison, elle ordon-
+nait les réceptions du Doyenné, y figurait à une place
+d'honneur et vivait dans l'intimité des meilleurs amis de
 () Walter Scott dit à ce propos : « Il y a encore une supposition DE.
-qui, si elle est juste, expliquerait les bizarreries de la conduite de ! 7
+qui, si elle est juste, expliquerait les bizarreries de la conduite de !
 Swift dans ses rapports avec le sexe féminin. A cette époque de A
-la vie où les passions sont le plus violentes, Swift se vante de sa 4
+la vie où les passions sont le plus violentes, Swift se vante de sa
 froideur (cold temper). Depuis, le retour continuel de vertiges |
-pénibles minait peu à peu sa santé. Peut-être la continence qu'il N
+pénibles minait peu à peu sa santé. Peut-être la continence qu'il
 observait était-elle due à des causes physiques aussi bien que FR
-morales. Si tel était le cas, il est possible qu'il ait recherché la 15
+morales. Si tel était le cas, il est possible qu'il ait recherché la
 société de Vanessa sans craindre d'exciter des passions auxquelles " à
 il était lui-même insensible; et le fait qu'il vécut séparé de Stella RAL »
 après leur mariage peut bien avoir été motivé par une nécessité, (2
 autant que par une préférence. Il y a ceci de certain, du moins, À
 que si, selon le mot que Swift lui-même trouvait très juste, le désir TE
-produit l'amour chez l'homme, nous ne pouvons trouver une seule D.
+produit l'amour chez l'homme, nous ne pouvons trouver une seule
 ligne écrite par Swift laissant supposer qu'il a jamais connu cette wn
 source de la passion; et pas une seule des anecdotes rapportées Ê Al
 sur sa vie n'indique non plus qu'il se soit jamais soumis à ce qu'il | té
-appelle : « cette passion ridicule, qui n'existe nulle part en dehors 1
+appelle : « cette passion ridicule, qui n'existe nulle part en dehors
 des pièces de théâtre et des romans ». : A
 (2) Avec les femmes, elle nentretenait guère que des relations "y
-de politesse; mais elle assistait tous les mercredis avec Mrs. Din- n.
-gley au diner d'hommes que donnait le docteur Delany. k
+de politesse; mais elle assistait tous les mercredis avec Mrs. Din-
+gley au diner d'hommes que donnait le docteur Delany.
 
 Mrs. Delany parle avec admiration de la beauté de a
 #4 __ sa physionomie. Elle avait les yeux et les cheveux très
-(1 d noirs et le teint très blanc. A l'époque où la vit Mrs. De- l
+(1 d noirs et le teint très blanc. A l'époque où la vit Mrs. De-
 #0 lany, son expression habituelle était pensive, mais non
 
 E. elle devait garder jusqu'à la fin sa vaillance et aussi la (
-"1 _ vivacité d'esprit qui faisait son plus grand charme. Sa É
+"1 _ vivacité d'esprit qui faisait son plus grand charme. Sa
 de. s jalousie même n'eut rien de romantique. Elle était trop tr
 ï É spirituelle. Après la mort de Vanessa, quelqu'un admi- |
 ‘4 rant devant elle le poème écrit par Swift en l'honneur
 4 de sa rivale (Cadenus and Vanessa), elle gut ce mot
-‘à cruel, que l'on pardonne : « Tout le monde sait que s
+‘à cruel, que l'on pardonne : « Tout le monde sait que
 _ le Doyen peut écrire avec talent sur un manche à "il
-40 Il ne restait plus qu'elle en ce monde entre Swift et :
+Il ne restait plus qu'elle en ce monde entre Swift et :
 à le désespoir. “4
 
-Avant de s'abîmer définitivement dans la misanthro- 1
+Avant de s'abîmer définitivement dans la misanthro-
 
 pie, Swift devait encore accomplir une grande œuvre. À
 
 Les années de lutte politique l'avaient laissé complè- à
 tement désabusé, mais n'avaient pas épuisé l'énorme PAUL
-réserve d'activité qui fermentait en lui. La chute du 2
+réserve d'activité qui fermentait en lui. La chute du
 Ministère le rendit malgré lui à la vie privée. Il y devait Va
 gagner de s'élever bien au-dessus de l'esprit de parti et à
 
 de combattre enfin pour une cause plus généreuse. Il 7140
 allait devenir le champion de l'Irlande opprimée. ;
-Swift avait toujours considéré l'Irlande comme une w
+Swift avait toujours considéré l'Irlande comme une
 
 terre d'exil. Bien qu'il y eût vécu son enfance et une \à
 partie de sa jeunesse, il était de pure souche anglaise \)
 
 et trop profondément anglais par sa réserve, son tem- Gi
-pérament pratique, son amour de l'ordre et l'indépen- M
+pérament pratique, son amour de l'ordre et l'indépen-
 dance quasi farouche de sa personnalité, pour sympa- î +
 thiser avec le caractère irlandais, spontané, prompt à ‘NE ;
 l'illusion et rempli de déconcertantes faiblesses. ie
@@ -343,10 +343,10 @@ Le but de toute sa vie avait été de conquérir une of
 
 place digne de lui en Angleterre pour y vivre dans le à
 
-, commerce familier de ceux qui formaient alors l'élite € 1
+, commerce familier de ceux qui formaient alors l'élite €
 _, intellectuelle. Loin de ses amis, il n'était qu'un banni. tu
 
-17 Après Londres, Dublin représentait pour lui ce « calme
+Après Londres, Dublin représentait pour lui ce « calme
 
 $ plat » de l'esprit qu'il redoutait par dessus tout. Il y
 
@@ -362,7 +362,7 @@ $ plat » de l'esprit qu'il redoutait par dessus tout. Il y
 à à un amour passionné de la liberté, cette puissance |
 Ÿ : d'indignation que peuvent seules connaître les natures
 
-Ë très ardentes et violemment sincères. j
+Ë très ardentes et violemment sincères.
 
 #1 Il était si bien organisé pour la lutte, qu'il n'avait
 
@@ -378,7 +378,7 @@ K sa lucidité habituelle. Il ressentit plutôt de l''amertume
 
 À de son besoin de logique et ne devait mourir en lui
 
-1 qu'avec la raison. | l
+1 qu'avec la raison.
 à A ses yeux, le meilleur gouvernement, celui qui pou-
 
 # vait le mieux concilier ces deux principes essentiels, Li
@@ -386,40 +386,40 @@ F l'ordre et la liberté, ne pouvait venir que d'un ministère à
 44 tory. Les événements le forçaient à entrer dans l'op- À
 74 position et son tempérament l'y précipitait. Il n'eut iJ
 ù qu'à regarder autour de lui pour trouver une cause à CA
-ki défendre. On le sent déjà tout prêt à l'action quand il 2
-r écrit en 1716 à Atterbury, avec une si amère ironie : k
-“4 « Je vous félicite et l'Angleterre aussi, de vous joindre j
-1 à nous dans la fraternité de l'esclavage. Ce n'est pas x
+ki défendre. On le sent déjà tout prêt à l'action quand il
+r écrit en 1716 à Atterbury, avec une si amère ironie
+“4 « Je vous félicite et l'Angleterre aussi, de vous joindre
+1 à nous dans la fraternité de l'esclavage. Ce n'est pas
 # aussi terrible que vous l'imaginez : nous en avons une he
-be longue expérience et quand vous aurez envie de savoir 1
+be longue expérience et quand vous aurez envie de savoir
 .. comment vous comporter dans votre nouvelle condition, À
 h: vous n'avez pas besoin de chercher d'autre conseiller :
 
 que moi. Mais, étant résolus à vous dépasser, nous \
-avons transmis un bill à l'Angleterre, qui nous le ren- 14
+avons transmis un bill à l'Angleterre, qui nous le ren-
 verra, — donnant au géuvernement et à six membres us
 du Conseil le droit pendant trois ans d'emprisonner FA
 pour trois mois tous ceux qu'ils voudront, sans jugement Re
 et sans interrogatoire et j'espère être des premiers à #
 voir la loi exécutée contre ma personne. » (18 Avril RL
-En 1719, il dit : « Je suis plus vieux de six ans et 0
+En 1719, il dit : « Je suis plus vieux de six ans et
 plus abêti de vingt ans. » (1 am six years' older and he
-twenty years duller.) Mots ironiques, arrachés par n.
+twenty years duller.) Mots ironiques, arrachés par
 À l'impatience d'agir et l'ennui, non par la conscience à
 réelle du déclin. Il n'avait que cinquante et un ans. En è à
-. réalité, ces années d'apparente inactivité avaient été 4
-très pleines. Pour se distraire, il s'était consacré à ses 1
-affaires avec acharnement, s'obligeant à une grande x
+. réalité, ces années d'apparente inactivité avaient été
+très pleines. Pour se distraire, il s'était consacré à ses
+affaires avec acharnement, s'obligeant à une grande
 parcimonie afin de se libérer de ses dettes, (1) et rem- ni FE
 plissant avec zèle ses fonctions ecclésiastiques. Il s'était LM
 imposé par sa fermeté, son désintéressement et sa “4
 droiture, et s'était vite rendu maître des résistances de 4 \
 son chapitre. Sa rigide économie lui permettait d'espérer "1
 | bientôt l'aisance. Le gouvernement le laissait tranquille; de ‘
-l'atmosphère politique semblait s'éclaircir, et Boling- 5e
+l'atmosphère politique semblait s'éclaircir, et Boling-
 broke lui-même commençait à parler de retour. 4 à
 Swift ne pouvait plus rentrer dans la vie publique Ki
-comme l'homme d'un parti. Mais les rancunes qui | à F
+comme l'homme d'un parti. Mais les rancunes qui | à
 couvaient en lui avivèrent son indignation contre le sy- ‘4
 () E vivait alors en commun avec ses amis Worrall, par éco- } ‘1
 nomie, donnant seulement deux réceptions par semaine au TC :
@@ -429,7 +429,7 @@ par les Anglais. (1) Il demanda un jour à Delany : « Les
 corruptions et les vilenies des hommes ne rongent donc
 pas votre chair et n'épuisent donc pas vos énergies ? »
 ; — Il vivait dans un état pénible de rébellion intérieure.
-1 Il allait se jeter une fois de plus dans l'action pour
+Il allait se jeter une fois de plus dans l'action pour
 ‘4 y trouver un soulagement.
 En 1720, parut le pamphlet intitulé Proposition pour
 l'usage universel des produits irlandais. (2) Il exhortait
@@ -465,25 +465,25 @@ Dès lors, il intervint constamment par des pamphlets #
 ou des satires en vers dans les affaires publiques. (1) À
 Sa popularité s'était considérablement accrue et l'on Fi
 commençait à le regarder comme le champion des 1 |
-libertés irlandaises, lorsque l'incident Wood lui permit (1 h
+libertés irlandaises, lorsque l'incident Wood lui permit (1
 } de prendre position plus hardiment encore. L'enthou- à
-siasme du peuple ne connut plus de bornes quand i
+siasme du peuple ne connut plus de bornes quand
 parurent les premières Lettres du Drapier. de
-Grâce à l'influence de la duchesse de Kendal, maï- k
-tresse de Georges Ie", un nommé Wood obtint le droit I
+Grâce à l'influence de la duchesse de Kendal, maï-
+tresse de Georges Ie", un nommé Wood obtint le droit
 de frapper pour l'Irlande 108.000 livres de « half nor
-« Privy Council » ne furent consultés. Contre l'extra- à 4
+« Privy Council » ne furent consultés. Contre l'extra- à
 ordinaire audace et l'arbitraire de cette mesure, ni
 © Swift, indigné, s'éleva. Le billon manquait réellement à
 et Wood, dit-on, exécutait le contrat loyalement. Mais Ni
 peu importait à Swift. Il protestait au nom de la À
-Il le fit avec son sens pratique ordinaire. Pour x,
+Il le fit avec son sens pratique ordinaire. Pour
 émouvoir le peuple, il lui parle de ses intérêts. Le dt
 Drapier affirme à l'Irlande qu'on la vole : « Frères, if
 amis, compatriotes et camarades, ce que je vais vous vi
-dire à présent est, après votre devoir envers Dieu et le 1
-soin de votre salut, du plus grand intérêt pour vous- 1
-( ») Voir ses Libelles contre le Lord Chief Justice Whitshed et 4
+dire à présent est, après votre devoir envers Dieu et le
+soin de votre salut, du plus grand intérêt pour vous-
+( ») Voir ses Libelles contre le Lord Chief Justice Whitshed et
 son âme damnée, le juge Godfrey Boate, à propos du procès qu
 Waters. Voir aussi la satire intitulée : À Swearer's Bank. Il y pro- la “
 pose d'établir une banque alimentée par des amendes imposées de
@@ -506,15 +506,15 @@ ou (On doing good) un de ces sermons qui, suivant sa |
 
 YA chambres irlandaises demandèrent à la Couronne le
 
-“ retrait de la patente; un même élan réunit tous les 1
-# |.‘ partis et toutes les sectes, les marchands refusèrent la f.
+“ retrait de la patente; un même élan réunit tous les
+# |.‘ partis et toutes les sectes, les marchands refusèrent la
 À monnaie de Wood, la populace fit des processions so-
 #4 lennelles et brûla Wood en effigie. Swift attisait encore
 
 Me l'indignation populaire par des ballades et des satires
 
-14 * que les colporteurs allaient distribuer jusqu'au fond ï
-| d des campagnes. F
+14 * que les colporteurs allaient distribuer jusqu'au fond
+| d des campagnes.
 # Walpole éssaya d'abord de réduire l'émission à
 il | 40.000 livres. Mais Swift voulait un triomphe plus com-
 
@@ -522,46 +522,46 @@ Se: plet. Le moment était venu de donner son véritable à
 J dénonce l'indignité de la politique anglaise et dit aux
 
 UT offrira cette monnaie; si on la refuse, il sacrera, fera le diable à tA
-ti quatre, menacera de battre le boucher ou le cabaretier, ou pren- É
+ti quatre, menacera de battre le boucher ou le cabaretier, ou pren-
 \, dra les marchandises par force et leur jettera la pièce fausse.
 
-4 Dans ce cas ét dans les Cas analogues, le boutiquier ou le débi- à
+Dans ce cas ét dans les Cas analogues, le boutiquier ou le débi- à
 ne tant de viande, ou toute autre marchandise, n'a pas d'autre chose FA
 ; à faire que de demander dix fois le prix de sa marchandise, sion
 
-; veut le payer en monnaie de Wood,— par exemple vingt pence de ; 1
-“4 cette monnaie pour un quart d'ale, — et ainsi dans toutes les autres k
+; veut le payer en monnaie de Wood,— par exemple vingt pence de
+“4 cette monnaie pour un quart d'ale, — et ainsi dans toutes les autres
 
-Irlandais, après avoir montré leur pays régi par un 1
+Irlandais, après avoir montré leur pays régi par un
 Parlement dans lequel ils n'ont pas un seul représen- "Ha
 -_ tant : « Le remède est absolument entre vos mains et 4 ne
-c'est pourquoi je me suis laissé aller à quelques digres- 11
+c'est pourquoi je me suis laissé aller à quelques digres-
 sions. afin de prouver que d'après les lois de Dieu, de es
 la nature, des nations et de votre propre pays, vous k à
 êtes et devriez être aussi libres que vos frères d'Angle- KR |
-Trois cents livres furent offertes pour la dénonciation # 4
+Trois cents livres furent offertes pour la dénonciation #
 de l'auteur. Harding, l'imprimeur, fut mis en prison. DA
 Les preuves légales manquaient contre Swift, mais il re
-ne se cachait nullement d'avoir écrit les Lettres. Il se 4 4
+ne se cachait nullement d'avoir écrit les Lettres. Il se
 présenta au lever du Lord Lieutenant Carteret et Ha
 . demanda ce que signifiaient ces rigueurs contre un 1 LCR
-pauvre libraire qui avait publié deux ou trois lettres 10
+pauvre libraire qui avait publié deux ou trois lettres
 « pour le bien de son pays ». Carteret répondit spiri- ‘30
 tuellement par cette citation de Virgile : Ne
 « Res dura et regni novitas me talia cogunt J'4ÿ
 _ L'infatigable plume travaillait toujours. Il lança pam- cl #
-phlet sur pamphlet avant et après le jugement de 10
+phlet sur pamphlet avant et après le jugement de
 Harding. (1) Le jury rendit un verdict d' « ignoramus » fe
-malgré les efforts et les menaces du Lord Chief Justice PN 4
-, Whitshed, (2) qui n'hésita point à commettre deux illé- A x
-galités, en demandant d'abord au jury de motiver son ‘4 A4
+malgré les efforts et les menaces du Lord Chief Justice PN
+, Whitshed, (2) qui n'hésita point à commettre deux illé- A
+galités, en demandant d'abord au jury de motiver son ‘4
 ( ») Avant le jugement il fit circuler cette citation tirée de l'Ecri- Eu
 ture : « Et le peuple dit à Saül : Jonathan doit-il mourir, lui qui a AE
 sauvé Israël? Dieu ne le veut pas : Aussi vrai que le Seigneur pas
-existe, il ne tombera pas un seul cheveu de sa tête; car il a tra- ny nl 5
+existe, il ne tombera pas un seul cheveu de sa tête; car il a tra- ny nl
 Ù vaillé avec Dieu en ce jour. Aussi le peuple vint au secours de : 1200
-Jonathan, pour qu'il ne mourût pas. » :230
-() Whitshed devait mourir peu après, accablé de honte et de 34
+Jonathan, pour qu'il ne mourût pas. »
+() Whitshed devait mourir peu après, accablé de honte et de
 
 s verdict, puis en le renvoyant avant la fin de la
 Trois Lettres parurent encore. L'une d'elles, adressée
@@ -569,11 +569,11 @@ au Lord Chancelier Middleton et signée de Swift, plai-
 | dait la cause du Drapier. Il avait gagné la victoire : le |
 Ministère céda, Lord Carteret indemnisa Wood et lui
 retira sa patente.
-4 Swift exerça dès lors en Irlande une véritable
+Swift exerça dès lors en Irlande une véritable
 ï royauté. (1) Ce peuple bon enfant paya ses généreux
 | efforts et ses coups d'étrivière d'une immense popula-
 | rité. Swift accepta cette dictature morale sans joie, car
-| il ne pouvait oublier qu'il régnait sur des « esclaves ». ÿ
+| il ne pouvait oublier qu'il régnait sur des « esclaves ».
 £ La lutte avait prouvé qu'il n'avait rien perdu de sa
 | puissance de combat; mais elle avait occupé son âme
 inquiète sans l'assouvir. Il en sortait vengé du parti
@@ -581,7 +581,7 @@ whig, grandi aux yeux de l'Irlande et même de l'Angleterre, et comblé de gloir
 ü passé, s'il avait été capable de contempler les faiblesses
 Ro humaines sans indignation, il eût peut-être, après cette |
 & vie agitée, pu connaître une vieillesse plus sereine.
-3 Mais l'oubli et l'indulgence philosophique sont égale2 (1) L'enthousiasme des Irlandais ne devait jamais se démentir.
+Mais l'oubli et l'indulgence philosophique sont égale2 (1) L'enthousiasme des Irlandais ne devait jamais se démentir.
 ! Quand il visitait une ville, il y était reçu comme un prince souve-
 | rain. La tête du Drapier devint une enseigne populaire ; on l'im- :
 4 prima sur des mouchoirs et des médailles. Un « club du Drapier »
@@ -594,35 +594,35 @@ fl d'un geste méprisant une des monnaies de Wood. Deux anges
 ge descendent avec une guirlande de laurier pour couronner Swift,
 A} qui siège, vêtu de son costume d'apparat, sur un trône, entre le
 Le temple de la Gloire et la cathédrale de Saint-Patrick.
-1 Plusieurs compositions analogues sont signalées' par les bio-
+Plusieurs compositions analogues sont signalées' par les bio-
 *e graphes de Swift.
 
-ment impossibles à certaines âmes. La haïne dont 1
+ment impossibles à certaines âmes. La haïne dont
 s'était nourri son génie était devenue son génie même. \ ;
-Il en devait être la plus douloureuse victime. F
-I1 eut encore quelques joies. Il revit cette Angleterre, | f
+Il en devait être la plus douloureuse victime.
+I1 eut encore quelques joies. Il revit cette Angleterre,
 dont il disait : « C'est là que j'ai fait mes amitiés; là Le
 que j'ai laissé mes désirs. » ; ;
 Ses amis le pressaient de revenir à Londres. Il leur oh
-résistait par une sorte d'appréhension morbide. Treize ï
-ans s'étaient écoulés sans affaiblir les liens qui les unissaient à lui; mais il désirait et redoutait à la fois de se L
+résistait par une sorte d'appréhension morbide. Treize
+ans s'étaient écoulés sans affaiblir les liens qui les unissaient à lui; mais il désirait et redoutait à la fois de se
 retrouver parmi eux, de revoir l'ancien théâtre de sa vie }
 active et d'y constater les effets de l'âge et des événe- pr
-ments sur eux et sur lui. Leurs instances le troublaient. 1!
+ments sur eux et sur lui. Leurs instances le troublaient.
 Il répond à Gay, avec un peu d'impatience : « La mono- (1
-tonie de ma vie serait assez supportable, si vous vouliez \ 0
+tonie de ma vie serait assez supportable, si vous vouliez \
 Swift se décida enfin en Mars 1726. Ils se revirent, A
 dit Arbuthnot, comme des « mariniers après l'orage ».
 Swift vécut d'abord à Londres auprès de Gay, puis alla a
-s'installer avec lui chez Pope à Twickenham. Il visitait s
-souvent Bolingbroke à Dawley, où l'ancien ministre, M
+s'installer avec lui chez Pope à Twickenham. Il visitait
+souvent Bolingbroke à Dawley, où l'ancien ministre,
 jouant à la sérénité philosophique, moralisait élégam- À
 ment à la facon d'Horace. il
 Ce fut une halte salutaire dans la vie de Swift. Il pré- ‘il
 parait avec Pope la publication de leurs Miscellanies. qu
 Gulliver, sa grande œuvre des dix dernières années, À “
 fut soumis aux « Yahoos » de Twickenham. Lord ‘4
-Bathurst, Congreve, vieilli, mais toujours spirituel, h
+Bathurst, Congreve, vieilli, mais toujours spirituel,
 ù Lord Peterborough, venaient chez Pope s'entretenir ".
 comme autrefois d'art, de politique ou de philosophie. }
 Swift se sentait plus à sa place parmi ces « honnêtes À
@@ -632,16 +632,16 @@ ne Il était d'ailleurs profondément attaché à quelques- jh
 ÿ uns d'entre eux. Il aimait le bon Gay, si candide, si ,
 | négligent, qui devait rester enfant toute sa vie; il 1]
 Ÿ aimait Pope, dont les petits côtés, la vanité littéraire et {;
-4 les susceptibilités féminines, étaient rachetés à ses 41
+4 les susceptibilités féminines, étaient rachetés à ses
 is yeux par de hautes qualités de désintéressement et de +:
-générosité. Il chérissait et admirait surtout Arbuthnot, 14
+générosité. Il chérissait et admirait surtout Arbuthnot,
 + chez qui Fou de soi, la sereine gaîté, la dignité, l'hé- 1 |
 roïque et simple résignation à de cruelles souffrances in
 K:; physiques, formaient un si frappant contraste avec ses à
-ÿ propres révoltes : &« S'il existait une douzaine d'Ar4 buthnot, — disait-il, — je brûlerais mes Voyages. » N
-is Les préoccupations littéraires ne l'absorbèrent pas 4
-d'une façon exclusive pendant son séjour à Londres. Il L:
-“ad n'avait jamais été « homme de lettres ». Il dédaignait 51
+ÿ propres révoltes : &« S'il existait une douzaine d'Ar4 buthnot, — disait-il, — je brûlerais mes Voyages. »
+is Les préoccupations littéraires ne l'absorbèrent pas
+d'une façon exclusive pendant son séjour à Londres. Il
+“ad n'avait jamais été « homme de lettres ». Il dédaignait
 | les profits qui auraient pu lui venir de sa plume et ne à
 voyait dans son génie qu'une arme, dans ses œuvres Li
 % que des instruments de combat. La politique demeuraïit ‘4
@@ -649,19 +649,19 @@ voyait dans son génie qu'une arme, dans ses œuvres Li
 F Il eut une entrevue avec Walpole. Il répondit à l'invipu tation du ministre qui désirait sans doute voir si l'on |
 ne pourrait convertir et utiliser ce dangereux adver- “
 #2 saire. Swift exposa les maux de l'Irlande. Mais Wal- |
-À pole, qui ne pouvait oublier l'affaire Wood, l'écouta froi4 dement. Swift ne lui offrit point ses services, comme ses | 4
-Nr. ennemis le prétendirent. (1) Il n'attendait rien de Wal 1
-4 pole. Mrs. Howard, confidente de la Princesse de Galles L
+À pole, qui ne pouvait oublier l'affaire Wood, l'écouta froi4 dement. Swift ne lui offrit point ses services, comme ses
+Nr. ennemis le prétendirent. (1) Il n'attendait rien de Wal
+4 pole. Mrs. Howard, confidente de la Princesse de Galles
 " (1) La meilleure preuve en est que Swift vivait ouvertement *,
 LE dans l'intimité des adversaires du Ministère. Ses visites à Boling- ‘à
 NS broke ne pouvaient qu'indisposer Walpole. Après leur entrevue,
-fe ; Swift en écrivit d'ailleurs le récit à Lord Peterborough, avec d
+fe ; Swift en écrivit d'ailleurs le récit à Lord Peterborough, avec
 an: injonction de montrer la lettre à Walpole, — qui ne rectifia rien. #
 
 | et maîtresse du Prince, l'ayant présenté à la Princesse, h NE
 il avait été reçu avec une faveur marquée. Cet accueil { à
 
-lui avait donné l'espoir que son exil en Irlande aurait 4
+lui avait donné l'espoir que son exil en Irlande aurait
 
 un terme. Ses illusions tombèrent vite et la déception "à
 
@@ -669,7 +669,7 @@ vint encore augmenter toutes ses rancunes anciennes. #iN
 
 Le second portrait de Swift peint par Jervas, (1) date ni
 
-sans doute de cette époque : La belle vigueur de son M
+sans doute de cette époque : La belle vigueur de son
 
 âge mûr a fait place à la majesté de la vieillesse. Le bi $
 
@@ -684,23 +684,23 @@ mépris, l'amertume se sont douloureusement accentués. Fa
 On devine qu'il survivait à tous ses espoirs. Il n'avait is
 recueilli que déceptions dans la lutte; son mal revenait va
 
-le torturer de plus en plus souvent; il voyait enfin h:
+le torturer de plus en plus souvent; il voyait enfin
 s'approcher le moment le plus cruel de sa vie. ‘4
 
-. Stella, minée par la consomption, n'avait cessé de 4
+. Stella, minée par la consomption, n'avait cessé de
 
 | ‘dres que l'on craignait un dénouement très proche. Il à}
 1 était préparé aux pires nouvelles ; le choc fut quand \
-| même épouvantable : « Pour ma part, comme j'attache 4
+| même épouvantable : « Pour ma part, comme j'attache
 Ï très peu de prix à la vie, les pauvres jours qui pourront (
-1 me rester à vivre après une telle perte seront un far- 48
+1 me rester à vivre après une telle perte seront un far-
 ( deau pour moi; et je dois supplier Dieu de toutes mes 1)
-| L écrit des lettres trompeuses; mais Mr. Worrall a eu la 44
+| L écrit des lettres trompeuses; mais Mr. Worrall a eu la
 raison et la prudence de me dire la vérité : cette vérité  ‘ ;
 
 me torture, mais cela vaut mieux que d'être frappé tout
 
-d'un coup. Cher Jim, pardonnez-moi; je ne sais plus ce ï
+d'un coup. Cher Jim, pardonnez-moi; je ne sais plus ce
 
 (1) Le premier est celui que nous donnons en tête de ce cahier Û À
 
@@ -733,46 +733,46 @@ d révèlent tout à coup; son masque tombe et le montre
 k. de Londres, dans quelque endroit écarté, jusqu'au mo- Li
 10 ment où je pourrais prendre sur moi de réapparaître, À
 à après un événement qui doit être si fatal pour mon }
-Fe repos. » Enfin, il est si troublé qu'il dévoile sa véritable 1
+Fe repos. » Enfin, il est si troublé qu'il dévoile sa véritable
 
 Ë pensée dans la même lettre : « Je ne voudrais pour rien À
 1 au monde subir l'épreuve de la voir mourir. » À
 Égoïsme, indifférence? non, car toutes les fibres de th:
 
-son être sont torturées. Il semble plutôt douter de ses 1
+son être sont torturées. Il semble plutôt douter de ses
 propres forces et se voyant si près de la folie, sé le
 
 | demander si la vue de Stella mourante ne l'y précipite- al
 | rait pas tout à fait. Sa raison ne lui sert plus qu'à me- di
-surer toute l'étendue de sa perte et sans doute à lui 1 Ÿ
-rappeler que Stella lui a sacrifié sa vie. De son habituel 4
-sang-froid, il garde seulement une lucidité cruelle qui ï
-l'oblige à prendre des dispositions pour que la calomnie, : 14
+surer toute l'étendue de sa perte et sans doute à lui
+rappeler que Stella lui a sacrifié sa vie. De son habituel
+sang-froid, il garde seulement une lucidité cruelle qui
+l'oblige à prendre des dispositions pour que la calomnie,
 
 tenue si longtemps en respect, ne s'attaque pas à la il
 mémoire de son amie. Il recommande à Sheridan de
 veiller à ce que Mrs. Johnson soit logée en ville dans À
 
 Ù « un endroit sain et bien aéré, non au Doyenné. » Et À
-| cette prudence n'étonne pas si l'on se souvient du soin 1
+| cette prudence n'étonne pas si l'on se souvient du soin
 + avec lequel il'avait toujours évité de donner prise à la
-| malignité publique. On comprend aussi que dans ce W
+| malignité publique. On comprend aussi que dans ce
 à moment tragique, il ait voulu écarter à tout prix les \:
-commentaires indiscrets que son orgueil et sa réserve é
-naturelle lui faisaient en tout temps redouter presque ÿ
+commentaires indiscrets que son orgueil et sa réserve
+naturelle lui faisaient en tout temps redouter presque
 
 Au moment de partir, il dit encore : « Je m'attends à à
 
 être très misérable quand j'arrivérai, mais jy suis pré- “4
 paré. » Cependant un mieux se produisit et le dénoue- d |
 
-ment fut retardé. 4
+ment fut retardé.
 
-Il devait revoir Londres pour la dernière fois l'année 5
+Il devait revoir Londres pour la dernière fois l'année
 
 Walpole rester au ministère après la mort du roi, que (à
 
-| tout espoir de quitter l'Irlande était perdu, et recevoir D
+| tout espoir de quitter l'Irlande était perdu, et recevoir
 Ê là comme l'année précédente la nouvelle de la fin pro- !,
 | chaine de Stella. Il était alors à Twickenham, en proie :
 
@@ -787,14 +787,14 @@ h santé, — disait Swift, — je ferai volontiers un troisième
 s voyage; sinon, il faut nous quitter, comme c'est le desk tin de toutes les créatures humaines. »
 ! Stella mourut le 28 Janvier 1728. Swift ne parutnià
 ÿ * son lit de mort, ni à son enterrement, bien qu'il l'eût paie
-à Le soir même du 28, il se mit à écrire le récit bioj graphique bien connu sous le titre de Caractère de T4
+à Le soir même du 28, il se mit à écrire le récit bioj graphique bien connu sous le titre de Caractère de
 ñ Mrs. Johnson. Le 29, la force lui manque pour continuer : « La tête me fait mal et je ne puis plus écrire. »
-Le 30, il reprend son récit, tandis qu'on enterre Stella 1
+Le 30, il reprend son récit, tandis qu'on enterre Stella
 à dans le cloître de la cathédrale. Pas un mot de douleur |
 7 ne lui échappe, mais il ne peut pas supporter la vue |
 no des lumières dans l'église : « L'enterrement est ce soir
 æ et mon état ne me permet pas d'y assister. Il est main- |
-4 tenant neuf heures du soir; j'ai changé de pièce pour F
+4 tenant neuf heures du soir; j'ai changé de pièce pour
 F ne pas voir la lumière dans l'église, qui est juste en face (
 | Elle reposa dans le cloître jusqu'au jour où l'on réunit
 | Ë ses restes à ceux de Swift. (1)
@@ -817,42 +817,42 @@ des cheveux de femme. » (1) À ‘
 
 Les déceptions, les progrès de l'âge et de la maladie, (l
 
-les chagrins et les remords le vouaient à cette sombre x
+les chagrins et les remords le vouaient à cette sombre
 misanthropie dont les progrès sont visibles dans la Fù
 grande œuvre de sa vie, qui fut ébauchée à Londres, \h
-commencée en Irlande au lendemain de la défaite du h
+commencée en Irlande au lendemain de la défaite du
 
-parti tory, continuée pendant les tristes années qui sui- î
+parti tory, continuée pendant les tristes années qui sui-
 
-virent et terminée après la mort de Vanessa, au temps k
+virent et terminée après la mort de Vanessa, au temps
 
-_ où les Lettres du Drapier révolutionnaient l'Irlande. ÿ ï
+_ où les Lettres du Drapier révolutionnaient l'Irlande.
 Gulliver parut en Novembre 1726, entre ses deux der- À
 
-(1) Sheridan raconte que Stella aurait prié Swift, peu de jours 1
+(1) Sheridan raconte que Stella aurait prié Swift, peu de jours
 
-avant sa mort, de rendre leur mariage public, et que Swift serait d
+avant sa mort, de rendre leur mariage public, et que Swift serait
 
-sorti de la chambre sans lui répondre et ne laurait pas revue. Û
+sorti de la chambre sans lui répondre et ne laurait pas revue.
 
 Stella, désespérée, aurait, dans son indignation, révoqué le tes- îne
 tament qu'elle avait fait en faveur de Swift. Mais lhistoire est {
 
 À racontée différemment par Mr. Deane Swift, qui la tenait directe- tt
-ñ ment de Mrs. Whiteway, sa mère, tandis que Sheridan la tenait de É
-son père, — lequel, la tenant de Mrs. Whiteway, la lui avait 1e
-racontée quand il était encore enfant. Les souvenirs de Sheridan 7.
+ñ ment de Mrs. Whiteway, sa mère, tandis que Sheridan la tenait de
+son père, — lequel, la tenant de Mrs. Whiteway, la lui avait
+racontée quand il était encore enfant. Les souvenirs de Sheridan
 peuvent donc être suspects. Le récit de Mr. Deane Swift semble \}
 
 | au contraire bien plus vraisemblable : ji)
 + Stella vint pour la dernière fois au doyenné dans les derniers à
 | jours de sa maladie. Comme elle était très faible on la conduisit pe
-dans une chambre où elle se reposa et prit un cordial préparé par Û
+dans une chambre où elle se reposa et prit un cordial préparé par
 
-; Swift. Mrs. Whiteway était dans la pièce à côté, dont la porte était 1
+; Swift. Mrs. Whiteway était dans la pièce à côté, dont la porte était
 restée entrouverte. Swift et Stella causaient à voix basse. Elle à
-entendit malgré elle des lambeaux de leur conversation et retint é
-surtout ces mots de Swift: « Eh bien, mon amie, si vous le désirez, F
+entendit malgré elle des lambeaux de leur conversation et retint
+surtout ces mots de Swift: « Eh bien, mon amie, si vous le désirez,
 
 ce sera rendu public. » Stella répondit tristement : « IL est trop \AÏ
 
@@ -869,7 +869,7 @@ Stella et de l'emploi charitable qu'elle voulait faire de sa fortune, ph
 
 À ‘ nières visites en Angleterre, peu de temps avant la
 4 mort de Stella. (1)
-4 Il n'avait d'abord voulu faire qu'une satire politique :
+Il n'avait d'abord voulu faire qu'une satire politique :
 ; on reconnaît l'Angleterre du dix-huitième siècle dans
 PA le Royaume de Lilliput. (2) L'amusante peinture de la
 ; À] Cour témoigne de l'expérience que Swift avait acquise
@@ -879,8 +879,8 @@ ns, satire politique jusqu'à la satire humaine.
 1) k Déjà dans Brobdingnag, les allusions particulières
 
 AN ( ») Swift et ses amis avaient fondé en 1911 ou 1712 une Société
-È littéraire (the Brothers), pour discuter et même composer en 43
-‘4 commun des œuvres humoristiques. Martin Scribblerus fut le ÿ
+È littéraire (the Brothers), pour discuter et même composer en
+‘4 commun des œuvres humoristiques. Martin Scribblerus fut le
 0 produit de ces discussions. Swift conçut aussi dès lors l'idée d'une %
 ‘4 satire politique de son temps. L'œuvre mûrit, s'amplifia et devint
 # Gulliver. Mais il en avait déjà parlé à ses amis avant de quitter :
@@ -888,25 +888,25 @@ ne Le succès du livre fut prodigieux, dans toutes les classes de la ii
 i 3 société. La princesse Caroline exprima si chaudement son admi- &
 4 ration que les amis de Swift conçurent pour lui les plus hautes nr
 Ke espérances : — « Le capitaine n'a vraiment plus qu'à enduire de
-He craie ses escarpins et à apprendre à danser sur la corde — et il se . d
-F4 peut fort bien que je vive pour le voir devenir évêque... En vérité, 4
-#4 en vérité, je crois qu'il n'a jamais couru danger aussi imminent U
+He craie ses escarpins et à apprendre à danser sur la corde — et il se
+F4 peut fort bien que je vive pour le voir devenir évêque... En vérité,
+#4 en vérité, je crois qu'il n'a jamais couru danger aussi imminent
 qu On trouve aussi dans une lettre d'Arbuthnot : — « Gulliver est -
 ‘2 dans toutes les mains. Lord Scarborough, qui n'est point un faiseur À
 5 de contes, m'a dit avoir rencontré un capitaine de vaisseau qui
 1e lui a dit avoir très bien connu Gulliver; mais que limprimeur
-à s'était trompé, et qu'il « vivait à Wapping et non à Rotherluthe ». f
+à s'était trompé, et qu'il « vivait à Wapping et non à Rotherluthe ».
 x J'ai prêté le livre à un vieux monsieur qui s'est mis tout de suite Etes
 54 (2) Tories et Whigs revivent dans les « Talons hauts » et « Talons .
 4 bas » ; Papistes et Protestants, dans des Big-endians (ceux qui
 nr mangent l'œuf à la coque par le gros bout), et les Small-endians #
-48 (ceux qui le mangent par le petit bout). Le prince de Galles est 1
-: représenté par l'héritier du trône qui porte un talon bas et un Æ
+48 (ceux qui le mangent par le petit bout). Le prince de Galles est
+: représenté par l'héritier du trône qui porte un talon bas et un
 7 talon haut, Walpole par Flimnap, la France par Blefuscu, la fuite ;
 Wu de Bolingbroke et d''Ormond en France par la fuite de Gulliver à pi
 PA: Blefuscu, la disgrâce encourue par Swift pour avoir écrit le Conte FAUA
 fe du Tonneau, par la disgrâce encourue par Gulliver quand il éteint er
-4 Vincendie du palais sans songer au décorum... etc. ! 1
+Vincendie du palais sans songer au décorum... etc. !
 
 sont plus rares et le caractère humain et général de la à
 satire apparaît plus clairement. Son roi géant, dont la à
@@ -915,37 +915,37 @@ chose, n'éprouve que mépris souriant pour la « plus Ge
 pernicieuse race de petites vermines auxquelles la
 Nature ait jamais permis de ramper sur la face de la ‘1
 
-_ terre ». Ce coup de talon sur la « vermine » humaine 151
+_ terre ». Ce coup de talon sur la « vermine » humaine
 fait présager la misanthropie désolée de la fin. sa
 
 ë Dans Laputa, Swift revenait à son aversion pour les |
-divagations philosophiques et les chimères des inven- ï
-teurs. IL y prenait aussi un plaisir amer à décrire l'hor- : ë
-reur de la décrépitude humaine, dont il redoutait les 4
+divagations philosophiques et les chimères des inven-
+teurs. IL y prenait aussi un plaisir amer à décrire l'hor-
+reur de la décrépitude humaine, dont il redoutait les
 
 __ progrès en lui-même avec une terreur morbide. Quand ‘2
 il décrivit Les « Struldbrugs » (les immortels de Laputa), ds.
 il était déjà bien près de la misanthropie totale. f )
 Quand il imagina ses « Yahoos », il avait atteint au x ‘à
-mépris absolu, désespéré de l'humanité. Il ravalait 4
+mépris absolu, désespéré de l'humanité. Il ravalait
 l'homme au-dessous de la brute, car le seul usage de #e
-cette raison dont nous sommes si fiers, c'est « d'aug- 1
-menter et de multiplier les vices que la nature nous a 1
-donnés ». Et le triomphe de son art consistait à obliger F È
+cette raison dont nous sommes si fiers, c'est « d'aug-
+menter et de multiplier les vices que la nature nous a
+donnés ». Et le triomphe de son art consistait à obliger
 
 | l'homme à se reconnaître dans la peinture de la brute We
 | livrée à ses plus répugnants instincts. | à
 On ne songe pas sans effroi à la solitude morale où ne
 devait vivre l'homme qui écrivait Gulliver. Pour arriver ‘1
 
-à cette haine, qu'avait-il donc souffert, et faut-il voir à é
+à cette haine, qu'avait-il donc souffert, et faut-il voir à
 seulement les rantunes d'un désillusionné dans un mé- . à
-pris qui devient beau à force de violence et de sincé- : b 5
+pris qui devient beau à force de violence et de sincé-
 rité ? — Sans doute, ni ses déceptions, ni ses douleurs, à ‘0
 
-ni même ses erreurs ne furent étrangères à cette fasci- 1e
-nation qu'exerçaient sur lui nos aspects les plus vils. 4
-Pour s'en distraire, il n'eut même pas le refuge de la F
+ni même ses erreurs ne furent étrangères à cette fasci-
+nation qu'exerçaient sur lui nos aspects les plus vils.
+Pour s'en distraire, il n'eut même pas le refuge de la
 
 ‘ beauté : son siècle l'ignorait, son génie pratique ne
 devait jamais goûter des joies si désintéressées et son
@@ -1005,18 +1005,18 @@ sê l'humanité irrémédiablement mauvaise, il continua de
 sur la brèche pour rappeler à l'Irlande qu'elle aurait dû :
 Le Lord Lieutenant Carteret admirait Swift, mais
 évitait de le laisser intervenir dans les détails de
-l'administration. Il ne voulut pas le nommer « trustee » i
+l'administration. Il ne voulut pas le nommer « trustee »
 de la manufacture de toile, ou même Juge de Paix : —
 « Je suis sûr, monsieur le Doyen, lui dit Carteret, que
 vous méprisez ces plumes (feathers) et ne voudriez pas
-les accepter. — Non, monseigneur, répondit Swift, je ne ÿ
+les accepter. — Non, monseigneur, répondit Swift, je ne
 les méprise pas; car je pourrais rendre service au public
 dans ces deux emplois; mais comme je ne voudrais pas
 me laisser gouverner par Votre Excellence, ni faire la
-besogne administrative, ni souffrir les abus, je sais que l
+besogne administrative, ni souffrir les abus, je sais que
 vous ne me permettrez pas d'agir pour le bien de cette
 malheureuse nation. Mais si j'étais un membre indigne À
-du Parlement, ou un évêque, ou si je voulais voter pour 4
+du Parlement, ou un évêque, ou si je voulais voter pour
 la Cour et trahir mon pays, alors vous m'accorderiez à
 facilement ma requête. — Ce que vous dites là est litté- |
 ralement vrai; c'est pourquoi il faut m'excuser », dit à
@@ -1025,14 +1025,14 @@ Carteret, qui ne manquait pas d'humour. fi
 il affectait l'impassibilité du cynisme. La rigueur logique
 dans l'absurde avait déjà fait du Conte du Tonneau |
 une œuvre d'art extraordinaire et unique. Dans Gul- | À
-liver, le sarcasme est plus cruel, surtout vers la fin, ÿ
+liver, le sarcasme est plus cruel, surtout vers la fin,
 parce que l'humour a perdu toute spontanéité. Le sou- %
-f rire a disparu. Il reste une imperceptible contraction de 1e
+f rire a disparu. Il reste une imperceptible contraction de
 la lèvre, qui indique l'ironie. Ce sang-froid devient À
 d'autant plus troublant que l'on sait toute la colère ii
-qui bouillonne en dessous. Il l'est encore ‘bien plus 4
+qui bouillonne en dessous. Il l'est encore ‘bien plus
 quand cette colère est mélangée de pitié. &
-F4 Pour savoir combien Swift put souffrir des misères de { 1
+F4 Pour savoir combien Swift put souffrir des misères de {
 
 M l'Irlande, il faut lire sa Modeste proposition. Afin d…
 \ venir en aide aux parents malheureux et d'enrayer les
@@ -1062,7 +1062,7 @@ te (2) Une fois encore, il devait révolutionner Dublin pour résister
 A la quantité d'argent en cours. Swift alla faire une harangue à la
 HU Bourse, déploya le drapeau noir en haut du clocher de Saint4 Patrick, fit sonner le tocsin et distribuer parmi le peuple des
 jar chansons et des satires. il apparut plus jamais ensuite dans ce
-k À res. PP plus jan s
+k À res. PP plus jan
 LAS rôle de tribun, mais il ne cessa de s'intéresser aux affaires
 ‘A publiques jusqu'aux derniers temps de sa vie.
 pa Voir les nombreuses publications de la fin de sa vie : Tableau
@@ -1074,35 +1074,35 @@ Mr: miser 500 livres, il en constitua un premier fonds destiné à de.
 L15 petits prêts; l'argent devait être restitué peu à peu, chaque
 LE ae semaine, par sommes insignifiantes. On laccusa naturellement de
 2 108 faire de l'usure. On raconte qu'un jour, un homme très pauvre
-.. 18 vint lui demander à emprunter un peu d'argent. Interrogé sur les 1
+.. 18 vint lui demander à emprunter un peu d'argent. Interrogé sur les
 
 Le ton pessimiste de ses lettres aux amis d'Angle- l'AS
 terre laisse entrevoir son amertume croissante sous le
-poids de l'âge et des infirmités. Depuis la mort de 1
-Stella, il est entré lui-même dans la « Vallée de l'Ombre hi U
+poids de l'âge et des infirmités. Depuis la mort de
+Stella, il est entré lui-même dans la « Vallée de l'Ombre hi
 
 et de la Mort ». Il semble n'avoir plus le courage \e
 
-; d'aimer. La lettre suivante montre quel prix ses amis 1
+; d'aimer. La lettre suivante montre quel prix ses amis
 attachaient à son affection et fait voir aussi l'envers de “à
 
 son masque cynique. Venant d'Arbuthnot, elle honore Ne
 
 « Cher ami, la dernière phrase de votre lettre metue.
 Ne répétez jamais cette triste et tendre parole, « que ne
-« vous vous efforcerez de m'oublier ». Pour moi, je suis 1
+« vous vous efforcerez de m'oublier ». Pour moi, je suis
 .. sûr de ne jamais pouvoir vous oublier, jusqu'au jour où
-je rencontrerai (ce qui est impossible) un autre homme n:
+je rencontrerai (ce qui est impossible) un autre homme
 
 ‘ dont la conversation me donne les mêmes joies que celle 1100
 du docteur Swift : et cependant, ceci est la plus insigni- LL
 fiante des raisons pour lesquelles je devrais tenir à hi. fé
-: vous. Cette cordiale et sincère amitié, la candeur D
+: vous. Cette cordiale et sincère amitié, la candeur
 simple et ouverte de votre commerce, voilà ce que je f {1
 
 suis sûr de ne pouvoir jamais trouver chez un autre. "1
 J'aurai souvent besoin d'un conseiller fidèle qui me
-défende par derrière et me dise mes torts en face. Je 0
+défende par derrière et me dise mes torts en face. Je
 garanties qu'il pouvait offrir, il répondit : « Je n'en ai pas, sauf ma ss
 foi däns le Rédempteur. » Swift inscrivit la garantie offerte en [Le
 
@@ -1116,7 +1116,7 @@ la voir, il s'amusa à faire dire que « l'éclipse avait été remise par Ï de
 
 ordre du Doyen de Saint-Patrick », et nul parmi les bonnes gens ; ui
 
-ne douta que ce ne fût vrai. Ë D 6
+ne douta que ce ne fût vrai.
 
 ï prends Dieu à témoin que j'écris ceci les larmes aux 1"
 
@@ -1124,11 +1124,11 @@ ne douta que ce ne fût vrai. Ë D 6
 
 _ et surveillait de loin les progrès de la corruption dans
 
-ÿ la société politique, sans pouvoir partager le mépris 1
+ÿ la société politique, sans pouvoir partager le mépris
 
 n calme de ses amis. Il n'était pas de ces modérés qui se :
 
-‘4 résignent à ce qu'ils ne peuvent empêcher. Des mots 14
+‘4 résignent à ce qu'ils ne peuvent empêcher. Des mots
 
 fi amers lui échappent à l'égard des hommes qu'il estime
 
@@ -1138,15 +1138,15 @@ fi amers lui échappent à l'égard des hommes qu'il estime
 
 1] évidemment de ne plus se trouver en parfaite harmonie {
 
-2 avec eux. À Pulteney, qu'il appelait le « dernier des x
-F Bretons », il dit en parlant de Pope et de Bolingbroke : U
+2 avec eux. À Pulteney, qu'il appelait le « dernier des
+F Bretons », il dit en parlant de Pope et de Bolingbroke
 
 Fe « Quant à nos amis de Twickenham et de Dawley, je
 1 leur ai dit franchement qu'ils étaient trop spéculatifs et
 
 A trop tempérés pour que j'accepte leur invitation, et À
 
-à infiniment trop philosophiques. » Dans la même lettre il 6
+à infiniment trop philosophiques. » Dans la même lettre il
 
 1 dit également : « Je suis aussi las de ce monde que je
 
@@ -1160,33 +1160,33 @@ A trop tempérés pour que j'accepte leur invitation, et À
 
 4 moins de charme que celle d'Arbuthnot ; mais sous une forme
 
-He. plus apprêtée, elle exprime évidemment avec sincérité les senti- 1
+He. plus apprêtée, elle exprime évidemment avec sincérité les senti-
 444 ments de Pope :
 
 F4 « Ma sincère amitié pour cet homme estimable je es
 
-à incomparable, l'accompagnera toute sa vie et sera fidèle à sa j
+à incomparable, l'accompagnera toute sa vie et sera fidèle à sa
 +74 mémoire, quand je devrais vivre cent vies, c'est-à-dire aussi long-
 
 <1h temps que vivront ses œuvres si complètement originales et sans
 
 FL: rivales. Son humanité, sa charité, sa condescendance, sa sincérité,
-al, sont égales à son esprit; et pour les estimer il faut un goût aussi f
-__ sûr et aussi délicat... » p,
+al, sont égales à son esprit; et pour les estimer il faut un goût aussi
+__ sûr et aussi délicat... »
 
-4 honorablement, et j'ai ‘quelques amis de grande valeur, sn k
-qui lorsque nous nous visitons mutuellement, sont d'ac- ï
-cord avec moi pour exprimer notre haine absolue de ‘ L
+4 honorablement, et j'ai ‘quelques amis de grande valeur, sn
+qui lorsque nous nous visitons mutuellement, sont d'ac-
+cord avec moi pour exprimer notre haine absolue de ‘
 ‘ tout ce qui se fait ici et là-bas. » \
-| La mort d'Arbuthnot et celle de Gay furent pour lui 1
-deux coups très cruels. Jamais les amitiés qu'il forma 4
+| La mort d'Arbuthnot et celle de Gay furent pour lui
+deux coups très cruels. Jamais les amitiés qu'il forma
 en Irlande ne remplacèrent ces amis de la première pl
 | heure. Lady Masham, Lord Peterborough, disparurent À
 aussi. Bolingbroke, écœuré, finit par se retirer en \
-France. Pope, affaibli par la maladie, cessa presque ñ
+France. Pope, affaibli par la maladie, cessa presque
 -
 d'écrire. Swift gardait cependant autour de lui un petit à
-cercle de familiers, parmi lesquels Delany et Sheridan Û
+cercle de familiers, parmi lesquels Delany et Sheridan
 î étäient les plus privilégiés. Mais après avoir vécu à
 Londres avec les hommes les plus brillants de son temps, l'A
 il dominait ceux-ci de toute la hauteur de son génie, et N£
@@ -1195,15 +1195,15 @@ les forçait trop souvent à jouer auprès de lui le rôle de 4 He
 complaisants. (1) Sa dignité n'y gagnaït pas plus que la ‘À
 | Comme au temps où Stella vivait, les divertissements pe
 littéraires (impromptus, vers badins..., etc.) occupaient À
-À les loisirs du petit cercle de Swift. Son humour intaris- | d
+À les loisirs du petit cercle de Swift. Son humour intaris-
 sable résistait encore à la misanthropie et se jouait de À
 | tout, des gens et des choses, dans ces pièces légères. ‘4%
-Quelques-unes portent les traces de la: morbidité qui L
+Quelques-unes portent les traces de la: morbidité qui
 s'accentuait chez lui sous l'influence de la maladie. Il à %
 
 (1) Voir par exemple les récits qui représentent Swift se diver- d (l
 tissant à poursuivre les Grattans, un fouet à la main, du haut en Fa
-bas du Doyenné, — sous prétexte de prendre de l'exercice. Ses 1 0
+bas du Doyenné, — sous prétexte de prendre de l'exercice. Ses
 
 amis se prêtaient aux caprices les plus fantasques de son humeur,
 
@@ -1211,7 +1211,7 @@ et s'ils voulaient parfois s'y soustraire, provoquaient chez lui de #
 
 vrais accès de fureur. En
 
-83 4
+83
 
 | s'attarde avec une insistance pénible sur les détails ue
 _ répugnants et l'on reconnaît trop bien le créateur du
@@ -1219,7 +1219,7 @@ mn « Yahoo » dans l'auteur du Cabinet de toilette d'une
 dame, de Cassina et Peter ou de Chloé. RL:
 ‘#4 D'autres pièces sont au contraire de petits chefs- El
 4 d'œuvre de fine ironie, de badinage facile et élégant. A
-"40 Gosford, où il passa près d'un an chez ses amis 44
+"40 Gosford, où il passa près d'un an chez ses amis
 “0 Acheson, il rimait tous les menus faits de la vie quoti- ‘ta
 __ dienne. Il se plaisait dans ce milieu cultivé, très fami- (A
 _ lial. Mais là encore, de brusques accès de désespoir le 118 NOR
@@ -1228,27 +1228,27 @@ LA séparaient tout à coup de ses amis et le confinaient .
 pan conjuré, il reprenait sa place parmi les vivants. * pi ‘
 
 Il combattait avec une angoisse toujours plus aiguë
-les progrès de son mal et prévoyait l'issue avec une 4
+les progrès de son mal et prévoyait l'issue avec une
 clairvoyance atroce. Sa mémoire vacillait par instants, je
 mais ses facultés restaient absolument intactes. Les T'Y
 vers sur « sa propre mort », écrits vers 1735, sont pour ei
-ainsi dire son testament moral et prouvent qu'il n'avait M
+ainsi dire son testament moral et prouvent qu'il n'avait
 rien perdu de sa vigueur intellectuelle et de sa puis- à
 Il était plus seul que jamais. Delany avait rompu “à
 | avec lui. Sheridan lui-même était mort peu de temps di
 } après s'être éloigné de lui, rebuté par son humeur ss
 tyrannique et par trop inégale. Il était devenu tellement A
-irritable qu'un mot imprudent le jetait parfois dans des 1
+irritable qu'un mot imprudent le jetait parfois dans des
 accès de colère terribles. dé
-| Durant les années 1738-1739, il s'efforce encore déses- 168
+| Durant les années 1738-1739, il s'efforce encore déses-
 pérément de tenir le mal en respect. Le régime violent ps
-qu'il s'obstinait à suivre, l'épuisait sans éalmer sa 1
+qu'il s'obstinait à suivre, l'épuisait sans éalmer sa
 souffrance. Il était devenu d'une maigreur de squelette. Le?
 A la fin, n'osant plus sortir, il parcourait sa maison de À
 xp (1) Vers la même époque, peut-être, il établissait la liste trouvée il
-plus tard dans ses papiers, où il divisait ses amis en « reconEn naissants, ingrats, indifférents et douteux ». J 4
+plus tard dans ses papiers, où il divisait ses amis en « reconEn naissants, ingrats, indifférents et douteux ».
 
-, haut en bas, ou marchait dans sa chambre pendant 2
+, haut en bas, ou marchait dans sa chambre pendant
 1 des heures. IL souhaïtait mourir et sans doute ne
 | se reconnaissait pas le droit de se tuer. Mais il dit
 s un jour, quand une glace tomba juste à l'endroit qu'il
@@ -1260,18 +1260,18 @@ La conversation avait toujours été sa distraction |
 ù plaisir unique. Une lettre de Mr. Deane Swift à Lord
 ; Orrery, dit qu'en Août et Septembre 1739, il pouvait
 à encore causer avec un étranger, pourvu qu'un ami fût ;
-4 là pour l'aider quand sa mémoire défaillait : il deman- 2
-à dait alors d'un air détaché : « Qu'allais-je donc dire? » f
+4 là pour l'aider quand sa mémoire défaillait : il deman-
+à dait alors d'un air détaché : « Qu'allais-je donc dire? »
 et « rassemblait ses idées au moindre mot ». Mais il !
-avait clairement conscience de son état, car il écrivait: 1
-f « Je ne suis depuis bien des mois que l'ombre, de D
+avait clairement conscience de son état, car il écrivait:
+f « Je ne suis depuis bien des mois que l'ombre, de
 x: J'ombre.. du docteur Swift. » |
-ù Son état le rendait très défiant, mais le livrait sans d
+ù Son état le rendait très défiant, mais le livrait sans
 ; défense aux entreprises des intrigants. Un nommé Wil-
 ; son qui manœuvrait pour se faire nommer « Sub Dean »,
 $ réussit à s'établir au doyenné; il employa même, dit-on,
 Er l'intimidation et la violence personnelle contre Swift.
-4 On put enfin chasser l'intrus. Mrs. Whiteway, sa cou4 sine, la fille de son oncle Adam Swift, et Mr. Deane
+On put enfin chasser l'intrus. Mrs. Whiteway, sa cou4 sine, la fille de son oncle Adam Swift, et Mr. Deane
 ÿ Swift, fils de Mrs. Whiteway, furent ses derniers amis |
 4 et les spectateurs attristés de son déclin. Grâce à eux,
 É une certaine décence accompagna sa fin. Mrs. Whiteway
@@ -1286,7 +1286,7 @@ M « J'ai été très misérable toute la nuit, et aujourd'hui il
 je suis très sourd et je souffre horriblement. Je suis Hs
 dans un tel état de stupeur et d'hébétude que je ne puis à
 
-| rendre ma misère physique et morale. Tout ce que je 4
+| rendre ma misère physique et morale. Tout ce que je
 puis dire, c'est que ce n'est pas encore la torture, mais ‘ \
 | que je l'attends chaque jour et à chaque instant. Dites- ND
 moi, je vous prie, comment vous allez et comment vont
@@ -1294,25 +1294,25 @@ moi, je vous prie, comment vous allez et comment vont
 _ tous les vôtres. — C'est à peine si je comprends un mot Lg
 de ce que j'écris en ce moment. Mes jours sont comptés, HA
 
-j'en suis sûr...ils sont comptés et ils seront misérables. f:
+j'en suis sûr...ils sont comptés et ils seront misérables.
 
 « Je suis, pour ces quelques jours, tout à vous, ,
 
 « Si je ne me trompe, c'est aujourd'hui samedi, à
 
-« Si je vis jusqu'à Lundi, j'espère vous voir, peut- ù
+« Si je vis jusqu'à Lundi, j'espère vous voir, peut-
 
-. être pour la dernière fois. » h
+. être pour la dernière fois. »
 | Il perdit bientôt tout à fait la mémoire et ses meilleurs pu
 amis durent renoncer à l'approcher. Mrs. Whiteway, (
-\ n'osant plus se montrer à lui, l''observait en secret lors- 14
+\ n'osant plus se montrer à lui, l''observait en secret lors-
 ï qu'il marchaït sans trêve de long en large dans sa À
 à chambre. Cette agitation de fauve durait parfois dix à
-heures. Il fallait le laisser seul pour qu'il consentit à i
+heures. Il fallait le laisser seul pour qu'il consentit à
 | mänger. Il ne parlait plus. En Mars 1742, on confia sa ‘3
 fortune à des « trustees » et sa personne aux soins ;
-| dévoués du docteur Lyons. En Septembre, il lui vint une : h
-tumeur sur l'œil. La torture fut telle que pendant plu- 4
+| dévoués du docteur Lyons. En Septembre, il lui vint une
+tumeur sur l'œil. La torture fut telle que pendant plu-
 sieurs semaines on dut veiller sur lui jour et nuit et qu'il ;
 fallut par moments cinq hommes pour l'empêcher de à
 
@@ -1323,7 +1323,7 @@ pu Puis ce fut l'apathie. Il ne souffrait plus et quittaità
 il trois ans; son embonpoint revint, ses rides s'effacèrent, à
 F5 et sous ses cheveux d'un blanc de neige, son visage, dit À
 pr Mrs.Whiteway, prit une expression douce et enfantine. il
-À Quelques mots lui échappaient de temps en temps, « une 1
+À Quelques mots lui échappaient de temps en temps, « une
 1148 ou deux fois par semaine ». Ayant un jour vainement
 HA essayé de dire quelque chose, il ajouta : « Je suis un +4
 Du imbécile. » On le vit aussi se contempler dans la glace ‘4
@@ -1331,7 +1331,7 @@ _ avec pitié, puis dire : « Pauvre vieux! » — Et comme A
 “à on enlevait un couteau qui se trouvait à sa portée, il
 if murmura en secouant la tête : « Je suis ce que je suis! »
 4 un? Peut-être la raison vivait-elle encore en lui; peut-être ‘4
-À ce farouche esprit de résistance qui l'avait animé toute 1
+À ce farouche esprit de résistance qui l'avait animé toute
 At. sa vie, enfin, s'avouait-il vaincu. ”
 De Il ne connut le grand repos définitif que trois ans plus “
 el tard. Après trente-six heures de convulsions, il s'éteignit
@@ -1354,12 +1354,10 @@ English Humourists, by Thackeray. de
 
 La vie et les œuvres du Dr. Swift, par Prévost-Paradol. ne
 
-Œuvres de Swift f' 4
+Œuvres de Swift f'
 
-| 210
-
-| Consequences they had upon both those States. qe : 14
-| A short Character of his Excellency Thomas, Earl of DL à 4
+| Consequences they had upon both those States. qe
+| A short Character of his Excellency Thomas, Earl of DL à
 
 nt The Conduct of the Allies; and of the late Ministry, in be- TA PA
 16 ginning and carrying on the present War. — 19124
@@ -1371,7 +1369,7 @@ Et: seven Lords of the Committee appointed to examine
 
 #1 - A Preface to the Bishop of Sarum''s Introduction to the third
 
-4 Ke L The public Spirit of the Whigs, set forth in their generous |
+Ke L The public Spirit of the Whigs, set forth in their generous |
 
 4 de Observations on the Seasonableness, Candour, Erudition
 
@@ -1381,25 +1379,25 @@ Le The History of the four last Years of the Queen (first prin210 ted in 1758). 
 
 #0 Some free Thoughts upon the present State of Affairs. — 1714. à
 
-‘à A Proposal for the universal Use of Irish Manufactures. Vie h É
+‘à A Proposal for the universal Use of Irish Manufactures. Vie
 à An Essay on English Bubbles. Me
 #, The Story of the injured Lady, written by herself, inaLet.
-: A on that all the Ladies and Women of Ireland l 1
-On giving Badges to the Poor... etc. j 15
-On the Causes of the wretched Condition of Ireland. : Un è
+: A on that all the Ladies and Women of Ireland
+On giving Badges to the Poor... etc.
+On the Causes of the wretched Condition of Ireland. : Un
 Thoughts on Religion. ké \
 | Further Thoughts on Religion. | ‘ à
 Î Tracts on the Test Act. ii
 
 ‘5 An Essay on modern Education. $ #
 D: Hints toward an Essay on Conversation.
-1 A Letter to a very young Lady on her Marriage.
+A Letter to a very young Lady on her Marriage.
 #4 On the Death of Mrs. Johnson. (Stella.)
 _ Bons mots de Stella. :
 ni * Three Prayers used by the Dean for Mrs. J. in her last
 ‘10 several Ships. In four parts : L A Voyage to Lilliputs
 : 81 IL. A Voyage to Brobdingnag; II. A Voyage to Laputa,
-ue Remarks on Lord Clarendon's History of the Rebellion. W
+ue Remarks on Lord Clarendon's History of the Rebellion.
 si A Short Remarks on Bishop Burnet's History, etc. PAPE ‘ai
 
 Poems and Ballads on Wood... ete. \ ‘03
@@ -1407,70 +1405,70 @@ Poems and Ballads on Wood... ete. \ ‘03
 | Mrs. Frances Harris's Petition. “AN
 \ * A Ballad on the Game of Traffic. “
 l The Discovery. à ‘
-L On the Death of Dr. Swift (written Nov. 1731) 10
+L On the Death of Dr. Swift (written Nov. 1731)
 Ni Verses written during Lord Carteret's administration of HA
 j Verses on Stella's Birth-days.. etc. Pi.
-"à Nous avons donné le bon à tirer après corrections 100
-pour deux mille exemplaires de ce treizième cahier 4
+"à Nous avons donné le bon à tirer après corrections
+pour deux mille exemplaires de ce treizième cahier
 
 À et pour treize exemplaires sur whatman le mardi ‘0
 
-‘14 Ce cahier a été composé et tiré par des ouvriers syndiqués 1
+‘14 Ce cahier a été composé et tiré par des ouvriers syndiqués
 ni ïl À Suresnes. — Imprimerie ERNEST PAYEN, 13, rue Pierre-Dupont. — 1605 ke Fat
 
-41248 1 548
+41248
 
-Il a été tiré de ce cahier treize exemplaires sur 0
+Il a été tiré de ce cahier treize exemplaires sur
 whatman ainsi distribués : Le
-premier exemplaire de souche, exemplaire du gérant; nil 1
+premier exemplaire de souche, exemplaire du gérant; nil
 É deuxième exemplaire de souche, exemplaire de l'ad- es
 troisième exemplaire de souche, exemplaire de Pimprimeur ; (13510
-‘ dix exemplaires d'abonnement, numérotés de 1 à 10 à n
+‘ dix exemplaires d'abonnement, numérotés de 1 à 10 à
 
-Tous nos exemplaires sur whatman sont numérotés 14
+Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur; nos
 tirages d'exemplaires sur whatman sont rigoureuse- ÿ Fi
 _ stant souscrits; nous ne vendons point d'exemplaires hi
-sur whatman en dehors de l'abonnement; l'abonnement « 11
+sur whatman en dehors de l'abonnement; l'abonnement «
 sur whatman à cette huitième série est de cent francs ‘3
 pour tous pays. de à RL
 Les Cahiers de la Quinzaine sont composés à la main,
 en caractères fin dix-huitième siècle (Didot) de la fon- {4
-derie Mayeur (Allainguillaume et compagnie succes- d.
-is _seurs) 21, rue du Montparnasse, à Paris, sixième 1
+derie Mayeur (Allainguillaume et compagnie succes-
+is _seurs) 21, rue du Montparnasse, à Paris, sixième
 
 | rez-de-chaussée, Paris, cinquième arrondissement. ‘a
 
-Nos Cahiers sont édités par des souscriptions men- 4
+Nos Cahiers sont édités par des souscriptions men-
 
-suelles régulières et par des souscriptions extraordi- k
+suelles régulières et par des souscriptions extraordi-
 
 | naires ; la souscription ne confère aucune autorité sur |
 
-la rédaction ni sur l'administration ; ces fonctions N
+la rédaction ni sur l'administration ; ces fonctions
 
 | Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
 
-| ouvrière, d'octobre-novembre à juin-juillet ; l'abonne- 6
+| ouvrière, d'octobre-novembre à juin-juillet ; l'abonne-
 
 ment se prend pour une série. À
 
-| On peut souscrire cet abonnement à tout moment de 0
+| On peut souscrire cet abonnement à tout moment de
 
 l'année, mais l'abonnement ainsi souscrit est, de droit, <ie
 
-valable pour la série en cours. ï
+valable pour la série en cours.
 
 Prix de l'abonnement, pour chaque série annuelle %
 
 pendant le cours de cette série : A
 
-: naire .,......... | Autres pays de l'Union postale uni- 4
+: naire .,......... | Autres pays de l'Union postale uni-
 
 Abonnement sur whatman... cent francs pour tous pays
 
-D. Les exemplaires sur whatman, tirage non réimposé, q
+D. Les exemplaires sur whatman, tirage non réimposé,
 
 î sont numérotés à la presse et imprimés au nom du ‘jà
 
@@ -1482,11 +1480,11 @@ de fonctionner au premier janvier 1906 ; les inscrip- #3
 
 tout temps et reçoivent un numéro d'ordre déterminé is
 
-automatiquement par le rang même qu'elles occupent 14
+automatiquement par le rang même qu'elles occupent
 
-dans l'ordre de l'arrivée, les numéros les plus bas venant ï
+dans l'ordre de l'arrivée, les numéros les plus bas venant
 
-0 naturellement aux premières inscriptions; c'est ce nu- \ « méro d'inscription qui devient automatiquement le k
+0 naturellement aux premières inscriptions; c'est ce nu- \ « méro d'inscription qui devient automatiquement le
 
 numéro du tirage réservé à chacun des souscripteurs ; “
 
@@ -1495,21 +1493,21 @@ Es l'édition sur whatman est strictement limitée au us
 © Pour tout changement d'adresse envoyer soixante
 | centimes, six timbres de dix centimes. ÿ !
 F Nous engageons nos abonnés de certains pays à nous
-4 demander un abonnement recommandé ; tous les cahiers 1
-_ de l'abonnement recommandé sont empaquetés à part et Ë
+4 demander un abonnement recommandé ; tous les cahiers
+_ de l'abonnement recommandé sont empaquetés à part et
 recommandés à la poste ; la recommandation postale, Ge
 | comportant une transmission de signature, garantit le \
 destinataire contre certains abus; pour cette recom- A
 mandation, pour tous pays, en sus, cinq francs. &
-Automatiquement et sans augmentation de prix les Ÿ
-\ exemplaires sur whatman sont tous recommandés et  . ê
-envoyés aux souscripteurs dans des enveloppes-sacs. 4
+Automatiquement et sans augmentation de prix les
+\ exemplaires sur whatman sont tous recommandés et
+envoyés aux souscripteurs dans des enveloppes-sacs.
 L'abonnement ordinaire cesse de fonctionner pour "410
-chaque série au plus tard le 31 décembre qui suit k
-l'achèvement de cette série ; ainsi jusqu'au 31 décembre F0
+chaque série au plus tard le 31 décembre qui suit
+l'achèvement de cette série ; ainsi jusqu'au 31 décembre
 À 1906 on pouvait encore avoir pour vingt francs les dix- ‘a
-neuf cahiers de la septième série complète. d
-A partir du premier janvier qui suit l'achèvement 19
+neuf cahiers de la septième série complète.
+A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins A:
 au total des prix marqués; ainsi depuis le premier 4 À
 janvier 1907 la septième série complète se vend quarante- (A

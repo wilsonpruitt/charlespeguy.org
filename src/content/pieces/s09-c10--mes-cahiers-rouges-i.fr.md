@@ -61,7 +61,7 @@ que nous ne pouvons pas songer à en donner ici
 l'énoncé méme le plus succinct; pour savoir ce qui a
 î paru dans les cinq premières séries des cahiers, il
 suffit d'envoyer un mandat de cinq francs à M. André
-Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondisse- L
+Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondisse-
 ment; on recevra en retour le catalogue analytique
 sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
@@ -107,7 +107,7 @@ Et ia brasserie de la rue Saint-Séverin, vous en souvenez-vous ? Toute la Commu
 Paget-Lupicin. Qui encore? Une barbe, Benjamin
 Flotte, qui s'emploiera en vain pour échanger les otages
 contre son vieil ami Blanqui; une figure de rhétorique,
-s Rogeard, l'auteur des Propos de Labiénus; un futur 1
+s Rogeard, l'auteur des Propos de Labiénus; un futur
 député, Ordinaire, que sauvera de loubli, dix ans plus
 tard, son apostrophe à la Commission des grâces :
 Verlaine accordaient leurs violes...; car le terrible auteur des Incendiaires n'était, au fond, qu'un Rossel du
@@ -123,9 +123,9 @@ Qui reste seule, sans famille,
 Et loge près du Châtelet. |
 
 Rue Elle est jolie et mal famée; ,
-Elle a l'œil bleu, grand et moqueur, 1
+Elle a l'œil bleu, grand et moqueur,
 | Et c'est des reines de mon cœur
-Celle que j'ai le mieux aimée! ÿ
+Celle que j'ai le mieux aimée!
 Je n'oublie pas non plus, rassurez-vous, Vuillaume, la
 brasserie de l'Union, la brasserie de la rue Monsieurle-Prince, tenue par Théodore et où se rencontraient \
 avec Vallès encore, avec Courbet toujours, avec
@@ -201,7 +201,7 @@ fonda le Père Duchéne, avec Vermersch et Alphonse
 Je n'ai pas à raconter l'histoire de ce brandon
 fameux : Vuillaume le fera mieux que moi. Et puis,
 mon amitié pour lui ne m'aveugle pas. Autant les excitations du Père Duchéne à la guerre civile me paraissent concevables, autant m'est insupportable le
-pastiche d''Hébert, dans la forme. Et je vais dire pourquoi. ï
+pastiche d''Hébert, dans la forme. Et je vais dire pourquoi.
 *  Vuillaume, Vermersch et Humbert, sortis de la bourgeoisie, des collèges où elle fait élever ses fils, avaient
 parfaitement le droit et le devoir d'embrasser la
 cause du peuple; mais ils navaient ni le droit ni {
@@ -213,7 +213,6 @@ L'expression : descendre au peuple, m'agace. Elle
 évoque à mes yeux des amateurs passant une blouse et
 chaussant de grandes bottes, pour pénétrer dans les
 égouts. J'aime mieux Blanqui ganté de noir, Flourens
-| 13
 
 bien mis, et le père Delescluze prenant un bain avant .
 * d'aller mourir, en redingote, chapeau de soie et bottines ;
@@ -225,7 +224,7 @@ qu'aux enfants. Si les hommes auxquels s'adressait Le nie
 | Père Duchéne de 1871 avaient assez de clairvoyance |
 pour s'apercevoir que ses mains étaient noires d'encre
 et non pas de'suie, à quoi bon soutenir la fable et le ton À
-du marchand de fourneaux? : Ê
+du marchand de fourneaux?
 | Ce qui irritait Barbey d'Aurevilly, quand il entendait
 la Bordas chanter La Canaille, c'était surtout que celleci fût chantée par une femme en robe de velours noir à
 traîne et en torsade d'or. La discordance l'offusquait
@@ -265,7 +264,7 @@ pour soutenir que Hébert, l'auteur du Père Duchéne —
 que du reste personne de la table n'a lu — avait du
 talent. Sainte-Beuve a professé que la preuve qu'il n'en
 avait pas, c'est que ses contemporains ne lui en avaient
-pas reconnu. » l
+pas reconnu. »
 Je souscris, cela va de soi, au jugement des Goncourt, mais ne vous hâtez pas d'inférer de ma sévé-
 rité pour les petits-fils d'Hébert, qu'elle me met en
 contradiction avec moi-même,
@@ -380,7 +379,7 @@ les bruits assoupis qu'il réveille, ne nous arrivent pas à
 l'oreille comme des imitations, mais comme la voix et :
 le bruit mêmes, dans la plénitude de leur son. MEN
 Vous auriez tort également de chercher dans ces
-Souvenirs une peinture à la brosse de l'insurrection. 1
+Souvenirs une peinture à la brosse de l'insurrection.
 Voyez-la plutôt exprimée par cet enragé, resté seul,
 accroupi dans un kiosque à journaux de la rue de
 Rennes, et tiraïllant de là sur la gare de Montparnasse
@@ -469,7 +468,7 @@ une journée He
 nous sommes foutus. Plus de chefs. La mère et les |
 petits pleurent à la maison. J'en ai assez, je vous }
 
-4 Tristement, l'homme baisse la tête. Il arrache à la
+Tristement, l'homme baisse la tête. Il arrache à la
 hâte la large bande rouge de son pantalon, qui peut
 le dénoncer. Peine inutile. La Cour martiale, si mince
 galon qu'il ait conservé, l'infortuné, l'attend.
@@ -537,7 +536,7 @@ ornée d'un brassard tricolore, brandit un fusil dont il
 écrase la crosse sur le tas.
 
 une journée ‘ |
-— Encore un! clame-t-il d'une voix furieuse, qui ar- R
+— Encore un! clame-t-il d'une voix furieuse, qui ar-
 rive jusqu'à nous.
 Tout autour, des uniformes, des képis, des ceintu- |
 rons, jetés au hasard sur la chaussée.
@@ -560,7 +559,7 @@ Et des papiers bien comprometiants. Une carte de laïsser-passer sur la place Ve
 la colonne. (1) C'est déjà quelque chose... Une autre
 plus dénonciatrice encore. La carte verte délivrée par
 la Commune, sorte de coupe-file que l'on ne donnait
-(1) On trouvera la reproduction de cette carte, délivrée par le 4
+(1) On trouvera la reproduction de cette carte, délivrée par le
 major de la place Vendôme, page 284 de l'album l'/noasion, le Siège,
 la Commune, par Armand Dayot.
 
@@ -568,7 +567,7 @@ qu'à bon escient. Elle indique mes nom et prénoms,
 ma profession, hélas ! Cela suflit largement pour me
 faire coller au mur sans examen. Elle m'a été donnée
 par l'ami Tridon, (r) qui l'a signée.
-Je déchire rapidement les deux cartes, dont je glisse L
+Je déchire rapidement les deux cartes, dont je glisse
 les morceaux sous le tapis cloué au parquet.
 Et mon képi au double galon d'argent! Il me faut
 une autre coiffure. Ma foi, sonnons le garçon. Il n'y a
@@ -576,10 +575,10 @@ pas autre chose à faire. |
 Brave homme de garçon! Il a déjà deviné, avant
 même que je l'aie interrogé. Vite il va me chercher
 son chapeau rond à lui.
-— Monsieur, ils sont descendus toute la nuit, me ditil rapidement, étouffant sa voix. Il y en a plein le jar- f
-din. Moi, j'ai déjà jeté ma vareuse et tout le reste. û
+— Monsieur, ils sont descendus toute la nuit, me ditil rapidement, étouffant sa voix. Il y en a plein le jar-
+din. Moi, j'ai déjà jeté ma vareuse et tout le reste.
 Nous sortons, l'ami qui est venu me retrouver dans
-ma chambre, et moi. Le cœur me bat certainement 1
+ma chambre, et moi. Le cœur me bat certainement
 ; quand je mets le pied sur la première marche.
 Eh bien! ma foi, en avant. Et comme la porte du
 | petit hôtel est encombrée de soldats qui causent et
@@ -621,14 +620,14 @@ d'armes et d'uniformes.
 près de moi, avec un gros rire, un homme en bourgeois, |
 brassardé, lui aussi, aux trois couleurs.
 Avant de continuer sa route, le policier — car.je le
-saurai bientôt, ces hommes à redingote noire et à bras- 4
+saurai bientôt, ces hommes à redingote noire et à bras-
 sard tricolore sont les pourvoyeurs des cours martiales
 — jette un regard autour de lui.
 — Et dire que dans ces crapules-là, hurle-t-il, il y en |
 a qui l'ont construite.
 Et, après une pause :
 — Oui, mais, les cochons, ils nous l'ont bougrement
-‘payé. Fallait voir ça, cette nuit, au Luxembourg ! x
+‘payé. Fallait voir ça, cette nuit, au Luxembourg !
 lendemain de victoire
 Maintenant, c'est l'effroyable spectacle du lendemain
 de la victoire. Rues défoncées, maisons écorchées par
@@ -647,7 +646,7 @@ Mais je recule d'horreur. Dans l'encoignure, qui se dé-
 à l'Assemblée de Bordeaux.
 
 ù une journée
-couvre devant moi, une demi-douzaine de cadavres, 4
+couvre devant moi, une demi-douzaine de cadavres,
 dont l'un, replié sur lui-même, montre sa tête affreusement ouverte, sanglante et vidée.
 Horrible et inoubliable vision!
 
@@ -681,7 +680,7 @@ Médecine, les deux barricades qui défendaient l'entrée
 du boulevard Saint-Michel, sont éventrées. Au fond du
 
 fossé une mitrailleuse a roulé, écrasant un cheval blanc
-blessé, dont on voit l'échine sanglante. Sous cette ruine, k
+blessé, dont on voit l'échine sanglante. Sous cette ruine,
 le cadavre d'un fédéré de taille géante, la face aplatie
 sous la roue de laffüt.
 
@@ -723,7 +722,7 @@ des fusillades. Tout ce dédale de petites rues noires est
 pavé de morts. Un peloton de chasseurs est monté dans |
 notre maison. Nous avons été descendus une vingtaine.
 Moi, je m'étais assis sur une borne, attendant. On
-amena un vieux en chemise, tout tremblant. Un soldat Ç
+amena un vieux en chemise, tout tremblant. Un soldat
 l'aborde.
 
 Le vieillard regarde le soldat d'un air suppliant,.
@@ -767,7 +766,7 @@ aujourd'hui médecin dans un département proche de
 Paris, et qui avait été aide-major du 248° fédéré, l'ancien bataillon de Longuet (1) pendant le Siège.
 
 — C'est bien simple de circuler sans danger d'être
-arrêté, me dit tranquillement A... On n'arrête pas les ù
+arrêté, me dit tranquillement A... On n'arrête pas les
 médecins. Mets comme moi un brassard d'ambulancier.
 
 Et il me passa au bras le brassard à croix rouge de
@@ -818,9 +817,9 @@ bien dans ces bosquets qui viennent de passer devant
 ma prunelle. Je me retourne. Mais, brusquement, je me
 sens pousser par l'épaule, d'une main solide et pesante,
 
-' une journée 4
+' une journée
 certainement cette même main qui m'a empoigné ilya |
-— Allons, allons! Qu'on ne traîne pas... F 1
+— Allons, allons! Qu'on ne traîne pas...
 Nous sommes tous deux dans une petite salle obscure, |
 où, confusément, je sens que s'agitent des choses mys- |
 térieuses et cruelles. Je n'ai pas besoin d'ouvrir longtemps les yeux pour que, rapidement, se détache, pour
@@ -846,10 +845,10 @@ avec une moustache en croc, qui le fait ressembler à un
 
 Ce gendarme, je ne lui parlerai jamais. Mais l'autre ?
 Si j'essayais ? Précisément, il s'approche. C'est lui qui
-prend la parole : 1
+prend la parole
 — Qu'est-ce que vous avez là, au bras ?
 — C'est un brassard de la Convention de Genève.
-— Qu'est-ce que c'est que ça ? Connaïs pas ce brassard. 1
+— Qu'est-ce que c'est que ça ? Connaïs pas ce brassard.
 Pour lui, bien sûr, il n'y a pas d'autre brassard, que .
 celui qu'il porte fièrement à la manche de sa redingote
 noire, une redingote ample, toute neuve, qui lui donne
@@ -861,17 +860,17 @@ pas être bien ferré sur la géographie.
 reprend-il.
 — C'est, dis-je en mettant dans ma phrase tout mon
 plus insinuant accent de sincérité, c'est — et j'appuie
-bien sur les mots pour vaincre son doute — c'est le ê
+bien sur les mots pour vaincre son doute — c'est le
 brassard de la Convention Internationale de Genève.
-Ah, ce qu'il bondit, mon homme! Ê
+Ah, ce qu'il bondit, mon homme!
 — Internationale ! Internationale ! hurle-t-il avec une
-rage qui le fait presque écumer. Ah ! tu es de l'Internationale ! Ah! nom de Dieu ! l
+rage qui le fait presque écumer. Ah ! tu es de l'Internationale ! Ah! nom de Dieu !
 Et il se retourne, triomphant, vers les gendarmes, que
 je vois, assis sur les banquettes, donner des signes
 Et il gueule :
 Je veux répliquer. J'essaye de plaider ma cause. De
 — Mais, citoyen, dis-je doucement, l'Intern…
-— Citoyen ! citoyen! Ah ! nom de Dieu! ça, c'est en45 Luxembourg. — 3.
+— Citoyen ! citoyen! Ah ! nom de Dieu! ça, c'est en45 Luxembourg.
 
 \ une journée hr |
 core plus fort. Ne m'appelle pas citoyen... ou je te fous
@@ -899,7 +898,7 @@ homme « citoyen ». Je ne puis être autre chose qu'un
 nous avons prise vraiment pendant le siège! Sapristi!
 Pourquoi ma langue a-t-elle fourché... Et dire que ma
 peau se trouve compromise par un seul mot, trois
-Comment sortir de là 2... s
+Comment sortir de là 2...
 Il est à peu près dix heures. Je n'ai rien pris depuis
 
 la veille. Voici quatre grandes heures que je cours les :
@@ -929,7 +928,7 @@ qui n'éveille aucun soupçon. Et je songe au nom d'un
 camarade de collège — le collège d'Étampes, où j'ai
 commencé mes études — qui se présente à mon esprit.
 
-. Je me le rappelle : Langlois. Je me suis appelé Langlois, ÿ
+. Je me le rappelle : Langlois. Je me suis appelé Langlois,
 en effet. Si les registres de la prévôté du Luxembourg
 ont été conservés, ce qui est fort peu probable, on
 retrouverait ce nom :
@@ -999,7 +998,7 @@ confiance, que je fus rappelé au sentiment de la réalité
 par l'entrée d'un groupe, soldats, policiers, prisonniers,
 qui fit bruyamment irruption dans la salle.
 
-une journée É
+une journée
 Je comptai une demi-douzaine d'infortunés que l'on
 venait très probablement de rafler dans une perquisi-
 
@@ -1147,7 +1146,7 @@ trois de mes compagnons. Je les suivis. J'étais à la
 
 une journée Nr |
 deuxième étape de cette journée maudite. J'allais être | |
--fixé sur mon sort. Libre ou prisonnier. Je ne songeais j
+-fixé sur mon sort. Libre ou prisonnier. Je ne songeais
 pas encore, je l'avoue, à la fusillade.
 Le bras appuyé sur leur arme, indifférents, les soldats
 nous regardaient l'un après l'autre. A... était près de
@@ -1156,7 +1155,7 @@ moi. Nous avions tous deux conservé nos brassards
 si l'on voulait aller aux renseignements.
 — Oui répondis-je, mais moi... Je ne suis pas étudiant |
 en médecine... Tes nrofesseurs ne me connaîtront pas. |
-Et je sentis que l'espérance s'envolait. Cet officier de Ë
+Et je sentis que l'espérance s'envolait. Cet officier de
 gendarmerie devant qui j'allais passer m'avait pas Pair
 d'un imbécile. Il verrait bien tout de suite que je ne suis !
 Mini médecin, ni même étudiant en médecine. Et alors ?
@@ -1198,9 +1197,9 @@ Et après une courte pause, s'adressant au voisin :
 — Allons, à vous... Où avez-vous été arrêté ? ‘
 — Rue Saint-Jacques, ce matin...
 — C'est bien. Que faisiez-vous pendant la Commune?
-— Je ne faisais rien... 3
+— Je ne faisais rien...
 — Rien ? repartit le prévôt. Vous ne travailliez pas?
-Entendu... Allons, emmenez-le. k
+Entendu... Allons, emmenez-le.
 C'était là tout linterrogatoire.
 — Videz vos poches.
 Et deux agents s'approchaient, l'un tenant le bras du
@@ -1208,7 +1207,7 @@ prisonnier, l'autre fouillant, jetant sur la table du tribunal ce qu'il rencontr
 portefeuille ou un livret, de la menue monnaie, un
 Cette table du jugement était encombrée d'objets |
 disparates, pêlé-méle. Deux ou trois képis d'officiers
-fédérés, des revolvers, des livres. 1
+fédérés, des revolvers, des livres.
 J'examinai la salle. Elle me sembla envahie par une
 sorte de brouillard, qui ne me laissait qu'une perception
 confuse des choses. Par-dessus les épaules des soldats,
@@ -1251,16 +1250,16 @@ un sabre de gendarme ou de cavalier tué pendant la ‘
 - Mais non, c'est bien le sabre du chef de notre bataillon des Enfants du Père Duchéne. C'est bien sa
 coquille dorée, sur laquelle se détache une large et |
 bautaine fleur de lys. Si je pouvais tirer du fourreau la
-lame richement gravée, je ferais lire au prévôt cette Î
-devise en gros caractères : « Vive le Roi! » ù
+lame richement gravée, je ferais lire au prévôt cette
+devise en gros caractères : « Vive le Roi! »
 Certainement, il serait difficile de rencontrer deux
 sabres semblables dans les deux armées en ce moment
 encore en présence. Découvert un jour dans une armoire
 du Palais de Justice, où il devait sommeiller depuis À
 mombre d'années, ce sabre étrange, qui avait orné le :
-flanc d'un garde du corps de Louis XVIII ou de 4
-Charles X, était venu échouer à la caserne de la Cité, M
-en face de Notre-Dame. 4
+flanc d'un garde du corps de Louis XVIII ou de
+Charles X, était venu échouer à la caserne de la Cité,
+en face de Notre-Dame.
 Un jour que nous étions allés, Vermersch (1) et moi, |
 déjeuner au mess des ofliciers du bataillon, j'avais
 avisé dans un coin ce sabre phénoménal dont nous ;
@@ -1269,8 +1268,8 @@ Ma conviction était faite. Notre vaillant commandant
 était mort et j'avais devant moi sa dépouille opime.
 Je ne sus que plus tard la vérité. | &
 Le commandant des Enfants du Père Duchéne
-n'était pas mort. Au premier jour de la luite dans les 4
-) rues, il avait remis son sabre à son capitaine d'état- 1
+n'était pas mort. Au premier jour de la luite dans les
+) rues, il avait remis son sabre à son capitaine d'état-
 major Samson, un vaillant soldat de Crimée et d'Italie, |
 que je vois encore, dans la cour de la caserne, étalant
 (1) Vermersch (Eugène), l'un des trois rédacteurs du Père Duchéne
@@ -1307,8 +1306,8 @@ enfants seuls. Je voudrais savoir ce que j'ai fait.
 — C'est la femme d'un insurgé, interrompit le greflier
 aux manches de lustrine qui tenait le rôle d'assesseur.
 
-une journée L
-Et, feuilletant quelques papiers : 1
+une journée
+Et, feuilletant quelques papiers
 — Vous vous appelez bien X..… (le nom n'est point
 resté dans ma mémoire) et vous demeurez rue Malebranche !
 — Oui, répondit la femme.
@@ -1321,7 +1320,7 @@ Je ne sais pas.
 ; La jeune femme sentait s'enfoncer de plus en plus le :
 fer dans ia plaie. Le prévôt ne la quittait point du regard. |
 — Allons ! Avouez, avouez, disait le greffier.
-— Je ne sais pas, reprenait toujours Faccusée. Je ne l
+— Je ne sais pas, reprenait toujours Faccusée. Je ne
 sais pas s'il est rentré.
 — Allons donc ! Dites-nous donc qu'il s'est battu,
 $ reprit l'homme en ricanant. |
@@ -1347,7 +1346,7 @@ J'étais déjà médecin sous le siège.
 — Et médecin de qui êtes-vous maintenant? Quels
 blessés soignez-vous ?
 
-— Mais, tous, repris-je, un peu embarrassé. J'ai l
+— Mais, tous, repris-je, un peu embarrassé. J'ai
 soigné tout le monde pendant la bataille, les soldats de
 l'armée et ceux de la Commune.
 
@@ -1371,7 +1370,7 @@ du grand abattoir.
 ceux qui attendent
 
 Je me retrouvai dans la petite cour du Sénat. Il était !
-environ une heure. Le désordre y était encore plus k
+environ une heure. Le désordre y était encore plus
 bruyant que lorsque je l'avais traversée pour la pre-
 
 une journée

@@ -40,12 +40,12 @@ francs ; ce cahier comptait comme premier cahier de la À
 
 sixième série et nos abonnés l'ont reçu à sa date, le je
 
-2 octobre 1904, comme premier cahier de la sixième f
+2 octobre 1904, comme premier cahier de la sixième
 série; toute personne qui jusqu'au 31 décembre 1905
 
 s'abonne rétrospectivement à la sixième série le reçoit, ‘ À
 
-par le fait même de son abonnement, en tête de la série; 4
+par le fait même de son abonnement, en tête de la série;
 
 nous l'envoyons contre un mandat de cinq francs à toute si
 
@@ -59,11 +59,11 @@ dans notre premier catalogue analytique sommaire, con- à
 
 avons établi de ce catalogue analytique sommaire. Th
 
-Ce petit index alphabétique provisoire, in-18 grand M,
+Ce petit index alphabétique provisoire, in-18 grand
 
-Jésus, forme un cahier très maniable de XII + 60 pages È
+Jésus, forme un cahier très maniable de XII + 60 pages
 
-très claires, marqué un franc; ce cahier comptait S
+très claires, marqué un franc; ce cahier comptait
 
 comme premier cahier de la septième série et nos
 
@@ -83,9 +83,9 @@ la demande. ;
 
 Pour la sixième série, année ouvrière 1904-1905, et $
 
-en attendant que paraisse le catalogue analytique som- 5
+en attendant que paraisse le catalogue analytique som-
 
-maire de nos deuxièmes cinq séries, 1904-1909, on F
+maire de nos deuxièmes cinq séries, 1904-1909, on
 
 peut consulter, — provisoirement, — la petite table é À
 
@@ -106,25 +106,25 @@ André Bourgeois, — quatre jours à Montceau, — un o js à
 | Félicien Challaye, — Courrier d'Indo-Chine, — épuisé, LP PUTEE
 _ n'est plus mis en vente que dans les collections com- AE
 eu: —  — la Russie vue de Vladivostock, journal US
- —  — Second courrier d'Indo-Chine, un franc 205 j HA É
+ —  — Second courrier d'Indo-Chine, un franc 205 j HA
 
 Re cinquième cahier de la septième série Ex
 ‘2 4 Félicien Challaye, — impressions sur Java, — fragments él ;
 HE; —  — la France vue de Laval..... deux franes 34r de
-ER Henri Dagan, — l'Oppression des juifs dans l'Europe G
+ER Henri Dagan, — l'Oppression des juifs dans l'Europe
 # orientale, — les massacres de Kichinef et la situation
-3 des prolétaires juifs en Russie.......... deux francs 262
+3 des prolétaires juifs en Russie.......... deux francs
 4 a François Dagen, — cahier de courriers, — courrier À
-ES d'Algérie, — considérations sur les causes de la gran- ë
+ES d'Algérie, — considérations sur les causes de la gran-
 LE deur et de la décadence de l'antisémitisme en Algérie
 ÿ Fa Jean Deck, — cahier de courriers, — courrier de Fin-
-à À lande, — en particulier sur les troubles des 17 et j
+à À lande, — en particulier sur les troubles des 17 et
 ni ! —_ — Pour la Finlande, mémoire et documents
-st Maurice Kahn, — cahiers de courriers, — courriers de 4
+st Maurice Kahn, — cahiers de courriers, — courriers de
 En Lionel Landry, — courrier de Chine, du temps de
 ‘4 54 — — courrier de Chine, même temps.........
 21: Henri Lebeau, Jérôme et Jean Tharaud, — Moines de
-Fe h: Edmond Lebret, — courrier de Bretagne.....un franc 215
+Fe h: Edmond Lebret, — courrier de Bretagne.....un franc
 a : Jean le Clerc, — introduction à courrier de France, ;
 bi A grève générale des mineurs, du Bulletin de l'Office <R
 NN —  — du même Bulletin, présentation de :
@@ -274,7 +274,7 @@ fût jamais arrivé malheur, et dont le pied sonnaït sur le
 4 dorées' des commencements de l'automne.
 À Un Jaurès qui, bien que venu chez nous des versants
 à des Cévennes et remonté des rives de la Garonne, goû-
-5 tait parfaitement la parfaite beauté des paysages fran- 2
+5 tait parfaitement la parfaite beauté des paysages fran-
 çais. Un Jaurès qui admiraïit et qui savait regarder et
 
 cite voir ces merveilleux arbres de l'Ile-de-France, tout dorés
@@ -358,7 +358,7 @@ F0 confessions, — dans ma sotte vanité de jeune homme,
 5 de jeune socialiste, de jeune dreyfusiste, j'étais secrèteke ment flatté d'être publiquement le public, l'hommeWe public, d'un homme aussi célèbre et d'un aussi grand
 
 “4 Envoyé de l'Humanité, correspondant de ce journal à
-1 Saint-Pétersbourg, Avenard tenait beaucoup à ce qu'il
+Saint-Pétersbourg, Avenard tenait beaucoup à ce qu'il
 ‘a füt dit en tête de ce cahier quel bon souvenir il avait
 
 gardé de ses relations professionnelles et généralement
@@ -367,9 +367,9 @@ devenu ainsi le collaborateur occasionnel, et dont
 j'ajouterai qu'il serait à souhaiter qu'il devint régulière- à
 ment le collaborateur. Que notre collaborateur se rassure. Je le dirai. Je ne le ferai point seulement comme “
 un devoir de ma charge. Maïs je le ferai comme accom- \2
-plissant un voyage de retour vers un passé qui fut heu- f
+plissant un voyage de retour vers un passé qui fut heu-
 reux. S'il faut dire du bien de Herr et de Jaurès, nul ne LS,
-le fera mieux que moi. Nul autant que moi n'en a l'ha- ï
+le fera mieux que moi. Nul autant que moi n'en a l'ha-
 bitude et n'en sait la manière. Ce fut mon premier, et :
 longtemps mon seul métier. Ce fut mon métier pendant À
 plusieurs années, pendant toutes les années de mon
@@ -381,15 +381,15 @@ avez la manie d'imaginer la vie de tout le monde autrement que les titulaires eu
 d'en disposer à leur place, pour eux. — C'est qu'étant AA
 simple citoyen j'ai le recul nécessaire. Situé dans le |
 simple peuple, je vois, comme tout le monde, beaucoup
-de mouvements que les grands ne voient pas. ; é:
+de mouvements que les grands ne voient pas.
 
-La dernière fois, donc, la dernière fois que je vis É
+La dernière fois, donc, la dernière fois que je vis
 Jaurès, dans ces conditions, etie ne l'ai jamais revu non |
 
 , plus dans aucunes autres conditions, ce fut précisément
 pendant les mois qu'il préparait ce journal qui est
 devenu l'Humanité. Les vieilles gens se rappellent
-encore tout ce que l'on attendait de ce journal en forma- 16
+encore tout ce que l'on attendait de ce journal en forma-
 tion. Le journal de Jaurès! on en avait plein les années #
 à venir. Depuis des années on savait bien, on avait Ÿe
 bien dit que Jaurès finirait par faire son journal. Enfin ‘
@@ -406,8 +406,8 @@ di vous demander. Ils n'étaient pas peu fiers, les imprire meurs, de me faire c
 “ ns) ration que les anciens sujets avaient pour le roi de
 +4 France n'était rien auprès des sentiments que nos
 4 modernes citoyens nourrissent pour les grands chefs de
-put leur démocratie. l
-1 Il y avait dès lors fort longtemps que je n'avais pas 5
+put leur démocratie.
+Il y avait dès lors fort longtemps que je n'avais pas
 é a ? revu Jaurès, depuis qu'il était redevenu député. Sa
 ke. capitulation devant la démagogie combiste et bientôt
 # sa complicité dans la démagogie combiste avait achevé
@@ -425,15 +425,15 @@ pe d'honnête et de hautement honorable, que le souvenir .
 À "4 g sentai chez lui peut-être le lendemain matin. Il n'est pas
 Er une des maisons où je suis allé une fois où je ne puisse
 
-honorablement retourner. Peu d'hommes publics pour- ï
+honorablement retourner. Peu d'hommes publics pour-
 raient en dire autant. | |
 
 Je me présentai chez lui. Je croyais qu'il avait quelque ;
 chose à me dire. Il n'avait rien. Il était un tout autre
 homme. Vieilli, changé, on ne sait combien. Cette der- |
-nière entrevue fut sinistre. C'est une grande pitié quand S
+nière entrevue fut sinistre. C'est une grande pitié quand
 deux hommes, qui ont vécu ensemble d'une certaine
-vie, après une longue et définitive interruption d'euxmêmes se remettent ou par les événements sont remis è
+vie, après une longue et définitive interruption d'euxmêmes se remettent ou par les événements sont remis
 dans les conditions extérieures de cette ancienne vie.
 Nulle conjoncture, autant que ce rapprochement, n'imprime en creux dans le cœur la trace poussiéreuse et
 creuse de la vanité des destinées manquées. Il sortit. Je
@@ -456,7 +456,7 @@ valent pas cher. Il était lassé, voûté, ravagé. Je n'ai
 jamais vu rien ni personne d'aussi triste, d'aussi
 
  : désolant, d'aussi désolé, que cet optimiste profes- |
-16 Avait-il dès lors, et depuis quelque temps, par ces
+Avait-il dès lors, et depuis quelque temps, par ces
 ni: démarches mêmes, un pressentiment de la vie atroce où
 :. } il allait entrer. Ce jour, ce temps avait dans sa vie une
 Ds ï importance capitale. Pour la dernière fois il quittait la
@@ -468,7 +468,7 @@ is RE citoyen; pour la dernière fois, et irrévocablement, il
 pue fe: main sur les chevaux laissait flotter les rênes. Je lui
 ni dis : Écoutez. Vous savez bien que je ne vous demande
 ES pas d'entrer dans votre journal. Ma vie appartient tout :
-5 À entière aux cahiers. Mais j'ai autour de moi, ou enfin il
+À entière aux cahiers. Mais j'ai autour de moi, ou enfin il
 4 y a aux cahiers un certain nombre de jeunes gens que
 pe vous pourriez faire entrer. Ils ne sont point célèbres. Ils
 s% ne courent point après la gloire. Mais ils sont sérieux.
@@ -494,7 +494,7 @@ l'ai jamais revu depuis.
 
 Je n'ai donc jamais pu savoir pourquoi soudain la
 veille, après un long intervalle et sans crier gare, il
-était venu me voir à l'imprimerie. Peut-être, au moment x
+était venu me voir à l'imprimerie. Peut-être, au moment
 de sauter le pas, un regret obscur, et comme un remords
 sourd. Au moment de quitter à jamais un pays où il
 avait eu quelque bonheur, et quelque tranquillité de
@@ -537,7 +537,7 @@ __ unité socialiste, qui dans sa tête fatiguée successivement
 #4 se battent; pour ne point parler de cette louche et trouble
 5 | et incompréhensible campagne contre madame Syveton
 
-ie accusée, campagne poussée à fond, on n'a jamais su 7
+ie accusée, campagne poussée à fond, on n'a jamais su
 
 R: pourquoi, la seule campagne que Jaurès ait jamais
 24e poussée à fond, odieuse et insensée, ou odieuse et cri-
@@ -570,7 +570,7 @@ même que d'avoir commencé ses premières démarches,
 et dont lui-même il n'était pas si fier, à l'œuvre nous
 avons vu ce que c'était, son personnel. Pour la partie
 d'articles et de renseignements, cette horde affamée |
-de petits agrégés normaliens qui ayant découvert le h
+de petits agrégés normaliens qui ayant découvert le
 socialisme cinquante-cinq ans après Proudhon et qua- |
 rante-cinq ans après Marx lui-même se précipitèrent à
 la défense de la République un peu de temps après
@@ -590,7 +590,7 @@ avec les réactionnaires à seule fin d'embêter les radicaux de la Dépéche.
 [On me pardonnera de ne pas savoir s'il faut écrire
 Gabriel-Ellen Prévost ou Gabriel Ellen-Prévost. Je ne
 faut pas deux. Je ne sais pas même s'il faut écrire Pré-
-vost ou Prévôt. Les journaux et revues orthographient 4
+vost ou Prévôt. Les journaux et revues orthographient
 différemment le nom de ce grand homme. Et je n'ai plus,
 malheureusement, le temps de remonter aux sources.] :
 
@@ -624,32 +624,32 @@ he commandites, avec un appétit insatiable, et d'un mou-
 ù Le vement si régulier qu'il semblait un mouvement d'horA loge, et que nonobstant il ne peut trouver aucuns lecMia teurs, que sans doute il a baissé ou qu'il baisse, en
 ie admettant qu'il soit ou qu'il ait été jamais en situation
 
-. de baisser, aujourd'hui la situation est la suivante : que 4
-- Léon Blum le bon apôtre donnerait volontiers onze ans 2 2!
+. de baisser, aujourd'hui la situation est la suivante : que
+- Léon Blum le bon apôtre donnerait volontiers onze ans
 ._ de la vie du patron pour être ailleurs. Il a bien voulu VA
-- entrer dans l'Humanité pour se faire un nom. A présent Pour F
+- entrer dans l'Humanité pour se faire un nom. A présent Pour
 ; que le nom est fait, il voudrait bien sortir, pour utiliser % 5 à
 L ce nom. Et la situation est aujourd'hui la suivante, que
-_ tout le monde à Paris sait, et que tout le monde dit que F4
-_ Léon Blum a depuis de longs mois posé sa candidature vw + É
+_ tout le monde à Paris sait, et que tout le monde dit que
+_ Léon Blum a depuis de longs mois posé sa candidature vw +
 qui pourtant n'est point vacante, succession qui n'est à $
 _ pas même ouverte, et qu'il ne dépend heureusement pas ; à
 _ de lui de faire ouvrir. De sorte que la situation de .#
-Jaurès en dernière analyse est devenue celle-ci : qu'il a {:6420 » mis et qu'il a, aujourd'hui, à la tête de ses services lit- 7
+Jaurès en dernière analyse est devenue celle-ci : qu'il a {:6420 » mis et qu'il a, aujourd'hui, à la tête de ses services lit-
 - téraires, s'il y est encore, un homme qui manifeste avec ' à ‘
-- enthousiasme, le seul enthousiasme qu'on lui ait jamais 134
-_ connu, le violent désir qu'il aurait d'être aïlleurs, un F4
+- enthousiasme, le seul enthousiasme qu'on lui ait jamais
+_ connu, le violent désir qu'il aurait d'être aïlleurs, un
 . homme qui fait jouer ses influences, qui fait marcher ses É ;
-_ amis, un homme enfin qui au vu et au su de tout Paris 3
+_ amis, un homme enfin qui au vu et au su de tout Paris
 * donnerait quinze ans et quart de la vie de son patron RTS
 - pour monter de l'Humanité au Temps. Belle situation ne
-pour un journal, et point démoralisante. 1
+pour un journal, et point démoralisante.
 _ Is sont d'ailleurs d'immenses quantités, dans le parti PP
 ._ socialiste que l'on nous a fait, qui n'ont jamais vu dans Le
 ” leurs situations socialistes que des marchepieds pour {VS
-4 atteindre à des situations bourgeoises, beaucoup plus 4
-‘4 sérieuses, qui, pour passer dans l'autre camp, n'at- 408
-“ tendent qu'un moment favorable, qui vendraient toutes 17
+4 atteindre à des situations bourgeoises, beaucoup plus
+‘4 sérieuses, qui, pour passer dans l'autre camp, n'at-
+“ tendent qu'un moment favorable, qui vendraient toutes
 « _ les saintes huiles pour être appointés cinq cents francs : ee
 “ par mois, qui enfin donneraient cent cinquante-et-un KA
 . ans de la vie de la cité socialiste pour seulement passer SR à
@@ -681,16 +681,16 @@ k Italie qui était, si mes souvenirs sont exacts, le voyage
 ë très remarqué était déjà un homme sur qui je n'ai assu-
 à rément aucuns droits à faire valoir, un homme que je
 
-_ ne veux point tirer à nous, un homme qui a pour Jaurès 3
+_ ne veux point tirer à nous, un homme qui a pour Jaurès
 une affection profonde, manifestée ici même dans son
 histoire de quatre ans, mais un homme enfin dont j'ai $
-sans doute le droit de dire qu'il n'est point étranger, 1
-qu'il n'était point étranger à ces anciens groupements de G
-relations dont sont sortis Pages libres et les cahiers, j
+sans doute le droit de dire qu'il n'est point étranger,
+qu'il n'était point étranger à ces anciens groupements de
+relations dont sont sortis Pages libres et les cahiers,
 puisqu'il s'agit de notre collaborateur Daniel Halévy. '
-De tels hommes font ce que ne savent point faire nos 1
-omniscients agrégés, d'incompétence universelle, om- L
-niscients sans avoir jamais rien appris, juges de science É
+De tels hommes font ce que ne savent point faire nos
+omniscients agrégés, d'incompétence universelle, om-
+niscients sans avoir jamais rien appris, juges de science
 Ha compétence étendue. La deuxième correspondance est it AS
 aujourd'hui celle de notre collaborateur Avenard.
 Non seulement je suis heureux de rapporter ici, comme
@@ -746,34 +746,34 @@ constitutionnel, ignorant tout du volcan souterrain, Lee #
 _ aussi tranquille, en un sens, et ignorant, que la bureau
 cratie, peut-être plus, et, en un sens, peut-être aussi M ne
 bureaucratique. Et tout à coup ce mouvement révolu- D Re
-tionnaire, ce soulèvement populaire qui éclate, imprévu, 1
+tionnaire, ce soulèvement populaire qui éclate, imprévu,
 inouï, tout au travers de tout, non attendu, non prévu, : A
 non préparé, non organisé, pas même et surtout pas ï EE,
 par les partis révolutionnaires professionnels, quel A.
-Voilà, entre autres, ce que Avenard a marqué admira- 4
+Voilà, entre autres, ce que Avenard a marqué admira-
 blement. Et l'enquête personnelle qu'il a faite sur place ‘#
 sur les événements du 22 janvier demeurera comme un Ÿ à
 . modèle du genre, du genre historique, entendu saine- re
-Mais qu'on aille au texte. Je ne veux point dire ici 4
-quelle impression donne, en présence d'aussi graves 4
+Mais qu'on aille au texte. Je ne veux point dire ici
+quelle impression donne, en présence d'aussi graves
 événements, cette haute et saine sobriété de la narration "#0
-française, parfaite, sans romantisme, sans littérature. Je \ 4
+française, parfaite, sans romantisme, sans littérature. Je \
 * ne commenterai pas non plus ces événements mêmes. kr
 - Quand on demeure à Paris, 8, rue de la Sorbonne, et que a
 l'on est protégé par toute l'épaisseur des vieilles libertés de
 françaises, je plains celui qui, assistant de loin à d'aussi Ke
-graves événements, à la lecture d'un récit aussi exact 4
-et probe se mettrait à jacasser. Quand toute une partie Â
+graves événements, à la lecture d'un récit aussi exact
+et probe se mettrait à jacasser. Quand toute une partie
 de l'humanité, une partie considérable, s'avance dou- À
 loureusement dans les voies de la mort et de la liberté, #
 quand toute une énorme révolution tend aux plus dou- a
 loureux enfantements des libertés les plus indispen- ‘4
 sables par on ne sait combien de sanglants et d'atroces or
-avortements, guerres de peuples, guerres de races, £ n
+avortements, guerres de peuples, guerres de races, £
 guerres de classes, guerres civiles et plus que civiles, Ex
 
 guerres militaires, massacres et boucheries, incendies
-| et tortures, démagogies sanglantes et crimes insensés, 1
+| et tortures, démagogies sanglantes et crimes insensés,
 horreurs inimaginables, massacres des Polonais, masLYS sacres des Juifs, des massacres près de qui ceux de
 ‘ETTIRR Kichinef n'auront été qu'un incident sans gravité, masSn | sacres des Russes, massacres des intellectuels, mas__  sacres des paysans, massacres des ouvriers, massacres |
 ) ds sn des bourgeois, monstruosités de tout ordre et de toute
@@ -799,7 +799,7 @@ Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
 ouvrière, d'octobre-novembre à juin-juillet ; l'abonnement se prend pour une série.
 
-On peut souscrire cet abonnement à tout moment de 4
+On peut souscrire cet abonnement à tout moment de
 l'année, mais l'abonnement ainsi souscrit est, de droit,
 valable pour la série en cours, et pour toute cette série.
 
@@ -840,8 +840,8 @@ k L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit
 l'achèvement de cette série; ainsi du premier octobre
 au 31 décembre 1905, et sauf épuisement de la sixième
-série, on peut encore avoir pour vingt francs les dix-sept é
-cahiers de cette sixième série complète. l
+série, on peut encore avoir pour vingt francs les dix-sept
+cahiers de cette sixième série complète.
 
 A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins

@@ -44,7 +44,7 @@ Ps Nous reviendrons sur cette brochure. — Adresser LE |
 D textes et documents
 
 |: Char nb: e des Députés, huitième législature, session
-| _ordir aire de 1903, compte rendu in extenso, soixantecinqui ème séance, séance du lundi 6 avril. — Journal 2
+| _ordir aire de 1903, compte rendu in extenso, soixantecinqui ème séance, séance du lundi 6 avril. — Journal
 officiel du mardi 7 avril 1903 :
 mm Présidence de M. ÉmENNE, vice-président. (
 | À Discuss ion des conclusions du rapport de la commission ;
@@ -52,7 +52,7 @@ char gée de procéder à une enquéte sur les opérations
 ù électo rales du deuxième arrondissement de Paris et
 ten dant à la validation de ces opérations : MM. Jaurès,
 | Nbuelen Millevoye, Henri Brisson, Godefroy Cavaig'nac,
-| _ Syveton, Massabuau, Paul Beauregard, rapporteur. h
+| _ Syveton, Massabuau, Paul Beauregard, rapporteur.
 M. LE PRÉSIDENT. — L'ordre du jour appelle la disiSsion des conclusions du rapport de la commission
 | rargée de procéder à une enquête sur les opérations MAC
 Ur él pos du deuxième arrondissement de Paris.
@@ -61,7 +61,7 @@ La parole est à M. Jaurès.
 | I. J URÈS. — Messieurs, c'est contre les conclusions
 ; rapport, c'est plus encore contre la façon dont la
 
-ÿ commission a conduit l'enquête, que j'ai demandé la 7
+ÿ commission a conduit l'enquête, que j'ai demandé la
 Dans la période électorale, M. Syveton s'est appro- ,
 prié l'afliche de la Patrie française dénonçant aux bons '
 citoyens le ministère de l'étranger ; il l'a faite sienne, il
@@ -71,14 +71,14 @@ fait humble ; il n'a cherché ni à équivoquer, ni à rusers. “
 il a essayé de démontrer qu'il avait le droit de dénon- »
 cer le Gouvernement républicain d'alors comme le Vi
 ministère de l'étranger et, par conséquent, son adversaire, M. Mesureur, qui avait soutenu ce Gouvernement,
-comme le candidat de l'étranger. 4
+comme le candidat de l'étranger.
 La thèse de M. Syveton et de ses amis est celle-ci.
 Une tentative a été faite après le procès de Rennes pour
 faire casser par la justice civile la décision de la justice
 militaire. Cette tentative n'a avorté que parce que
 M. le général de Galliffet, ministre de la guerre, s'y est.
 opposé. M. de Galliffet a marqué son opposition par "
-une lettre écrite au président du conseil ; il lui disaït : 1
+une lettre écrite au président du conseil ; il lui disaït
 « Si vous vous risquez à cette tentative, ily aura, d'un à
 côté, le législateur, le pays, l'armée et, de l'autre, les
 dreyfusards, le ministère et l'étranger. » Et M. Syveton
@@ -93,10 +93,10 @@ Messieurs, je ne conteste en aucune manière l'authen-…
 & ticité de la phrase attribuée à M. le général de Galliffet ; |
 Fi faut bien que de temps à autre on se serve contre
 nous de pièces authentiques. (Applaudissements et :
-| rires à l'extrême gauche et à gauche) Celle-là est du j
+| rires à l'extrême gauche et à gauche) Celle-là est du
 nombre. On pourrait se demander, même si toute la
 È lettre de M. de Gallifiet se réduisait à cette phrase, si
-| | vous aviez le droit d'en conclure que tout un parti, Ù
+| | vous aviez le droit d'en conclure que tout un parti,
 | | tout le grand parti républicain était le parti de l'étranlé nue Peut-être pourrait-on s'étonner que la lettre entière
 … n'ait pas été produite devant la commission. Je ne veux De
 pas chercher à atténuer le sens de cette phrase; je
@@ -107,7 +107,7 @@ ele, pour ne pas lui donner le texte complet de la
 À lettre, le secret professionnel, alors que cette lettre
 _ que le secret professionnel lui interdit de montrer à
 une commission du Parlement, il l'avait montrée à
-7 M. Jules Lemaitre, à M. Judet et à d'autres.
+M. Jules Lemaitre, à M. Judet et à d'autres.
 ui, Je m'attendais à ce que la commission exprimât, sur
 nie e pont, dans son rapport, au moins un étonnement et
 _ un regret; elle n'y a pas songé.
@@ -121,12 +121,12 @@ vos réponses et vos rectifications pour la tribune. (Très
 bien! très bien! à gauche)
 … Les témoins de M. Syveton et M. Syveton lui-même
 
-53 ne s'en sont pas tenus là, et voici d'abord ce que dit k
-M. Judet, commentant la phrase du général de ! ak ï
-pee Je lui demandai — [à M. de Galliffet| — un entretien. Il M
+53 ne s'en sont pas tenus là, et voici d'abord ce que dit
+M. Judet, commentant la phrase du général de ! ak
+pee Je lui demandai — [à M. de Galliffet| — un entretien. Il
 | savait quel en serait l'objet et s'empressa de m'indiquer mt \
 à rendez-vous. Je m'en réjouis, car j'avais pris trop ardemment parti contre l'agitation Dreyfus pour ne pas souhaiter ME
-d'être fixé sur le mandat réel et sur les manœuvres du 15
+d'être fixé sur le mandat réel et sur les manœuvres du
 cabinet Waldeck. Trois ans j'avais souffert avec tous LES
 ( ; Français de l'oppression d'une politique qui subissait à
 4 nos yeux deux influences certaines, l'une directement #8
@@ -134,12 +134,12 @@ cabinet Waldeck. Trois ans j'avais souffert avec tous LES
 ; solution qui lui plaisait dans un procès de trahison, +
 | l'autre émanant d'une faction que l'opinion a flétrie SOUS.
 X le nom de syndicat Dreyfus. YF
-: Pour nous, le ministère Waldeck était à la fois le minis- D
+: Pour nous, le ministère Waldeck était à la fois le minis-
 : tère Dreyfus et le ministère de l'étranger. Trois ans, es -
 Î l'avons proclamé, parce que nous en étions moralement CM
 sûrs; mais à une époque où les criminels deviennent si aisé
 ment innocents quand ils ne sont pas saisis en flagrant
-| , délit, toute preuve d'accusation est d'une importance exce p -. 3
+| , délit, toute preuve d'accusation est d'une importance exce p -.
 Dans cette longue série d'incidents louches, soigneusement cachés à la nation, nous suivons désormais la série si
 d'audaces et de roueries que le zèle gouvernemental multi-
 | plia pour le salut, puis pour la réhabilitation de Dreyfus.
@@ -152,8 +152,8 @@ témoignage consigné aux annexes de son rapport, M: Sy va
 veton et ses témoins ensuite — celui de qualifier tout le …
 parti républicain de parti qui subit la direction de
 
-es l'étran ger. (Applaudissements à gauche.— Dénégations ) 4
-Ç Je M: de Galliffet est assurément armé. Son trésor intact de È
+es l'étran ger. (Applaudissements à gauche.— Dénégations )
+Ç Je M: de Galliffet est assurément armé. Son trésor intact de
 constatations, de notes et de pièces précieuses n'est pas de ‘ ù LE
 À _ ceux qui se vident en quelques conversations improvisées. DRE.
 | FRE, erends hommage à la prudence avec laquelle il défend sa ee
@@ -161,7 +161,7 @@ constatations, de notes et de pièces précieuses n'est pas de ‘ ù LE
 Ë do benfin le droit de parler à cœur ouvert devant la seule LUN
 SR juni diction qui lui convienne, qu'il appelle de tous ses vœux, À!
 … devant la Haute Cour, pour laquelle ila la sagesse et le cou- “SE
-rage de faire patienter les secrets redoutables dont il est le 4 e
+rage de faire patienter les secrets redoutables dont il est le
 M. Syveton, à son tour, a pris la responsabilité de it
 ces conclusions; il a dit qué la démonstration faite à
 dE A contre le ministère de l'étranger lui donnait le droit de , DS
@@ -174,7 +174,7 @@ _ porte sur ces procédés de diffamation à l'égard de tout
 _noti e parti, de tout le parti républicain? ({nterruptions :
 … au centre. — Applaudissements à gauche et à l'extrême
 que vous dans le parti républicain. En
-M: Jaurès. — Je vous remercie de protester et de N
+M: Jaurès. — Je vous remercie de protester et de
 | rectifier, et je m'empresse de vous donner satisfaction :
 | je vous mets en dehors des injures de M. Judet. (Nou-
 |" oeaux applaudissements à gauche et à l'extrême
@@ -182,7 +182,7 @@ M: Jaurès. — Je vous remercie de protester et de N
 M. Jures-Louis BRETON. — Et en dehors du parti SÉ
 
 M. Jaurès. — Je n'exclus personne, je ne juge per- …
-sonne, j'essaye de continuer ma démonstration. Je dis 3
+sonne, j'essaye de continuer ma démonstration. Je dis
 que la commission n'a fait, sur ces procédés de polé-:
 mique, sur ces procédés de diffamation à l'égard detout
 un parti, aucune réserve sérieuse. Elle s'est bornée à
@@ -193,21 +193,21 @@ s'agissait là d'une des banales violences de la période
 direction de l'étranger était une de ces banales injures
 qu'il suffit d'effacer par un regret. (Très bien! très bien!
 
-É à gauche et à l'extrême gauche) 3
+É à gauche et à l'extrême gauche)
 
 Messieurs, la question qui se pose est celle-ci : El
 s'agit de savoir si la Chambre ne jugera pas utile de
-faire la réponse que n'a pas faite sa commission; il É
+faire la réponse que n'a pas faite sa commission; il
 s'agit de savoir si nous accepterons indéfiniment ce sys- …
 tème de calomnies, et, lorsque nous élevons ici la parole
-pour répondre et pour protester, il y a des hommes, s
+pour répondre et pour protester, il y a des hommes,
 même dans le parti dont je suis, qui nous disent:
 « Prenez garde, il ne faut pas rouvrir une agitation qui
 
 Et moi, je dis qu'il ne faut pas être dupes de la tactique perfide de l'ennemi. (Très bien! très bien! à
 l'extrême gauche et à gauche) Il prétend clore lagita=
 tion pour nous et la continuer pour lui-même, il a donné …
-de l'amnistie une interprétation unilatérale. Au nom de È
+de l'amnistie une interprétation unilatérale. Au nom de
 la politique d'amnistie, il prétend nous interdire de con- $
 tinuer, dans l'intérêt de ce que nous avons cru et de ce
 que nous croyons être la vérité et le droit, des recher-
@@ -215,40 +215,40 @@ que nous croyons être la vérité et le droit, des recher-
 ches eg es et lui, il ne laisse passer aucune occa- (07e
 | sion 2 contre nous ce qui a pu rester encore Ne {
 | k obscuri dans les esprits. Ne
-| 2008 Ce sont les élections : ministère de l'étranger, parti 5
-| _ de l'étranger; c'est l'affaire Humbert qui s'ouvre. On 4:
+| 2008 Ce sont les élections : ministère de l'étranger, parti
+| _ de l'étranger; c'est l'affaire Humbert qui s'ouvre. On
 …. essaye, par la déposition de M. du Paty de Clam, d'y Ge
 _ cssaye, par la déposition de M. du Paty de Clam, d'; }
-) ra tacher l'affaire Dreyfus et de nous noyer, nous tous, ; v
+) ra tacher l'affaire Dreyfus et de nous noyer, nous tous,
 _ da ns la fange de l'affaire Humbert. (Applaudissements s À
 « ..… à gauche et à l'extrême gauche. — Rumeurs au centre so à
-| A Voi à comment on entend l'amnistie, voilà comment AUS 4
+| A Voi à comment on entend l'amnistie, voilà comment AUS
 on pi ‘atique l'apaisement. 6 À
 (À Rice que cette politique perfide nous donne à nous #4 +
-le led roit et nous crée le devoir de répondre à toutes ces Ex 5
+le led roit et nous crée le devoir de répondre à toutes ces Ex
 Be calomnies par une vigoureuse offensive. Û %
 à _ 1 nn prétendu, il a été dit, dans les témoigna- HA
 ee imprimés dans le rapport, que l'intervention présu- FE
 _ mée du gouvernement, après le procès de Rennes, É &
-. n'était qu'un épisode dans une longue série d'opérations : F4
+. n'était qu'un épisode dans une longue série d'opérations
 …_louches — ce sont les paroles mêmes de M. Judet, xt
-: “témoin de M. Syveton. — On a dit, dans les déposi- È
+: “témoin de M. Syveton. — On a dit, dans les déposi-
 tions mêmes que cette action louche s'était exercée th
-À d'ab ord pour tenter de fausser le verdict même du pro- 4
+À d'ab ord pour tenter de fausser le verdict même du pro-
 - cès de Rennes. }
-… Messieurs, je pourrais répondre que si quelque chose ÿ É
-2 apu,au procès de Rennes, étonner et scandaliser, c'est - F0
-_ ke faiblesse de ce gouvernement dont vous dénoncez 32
-[les violences prétendues. (Exclamations à droite et au 3
+… Messieurs, je pourrais répondre que si quelque chose
+2 apu,au procès de Rennes, étonner et scandaliser, c'est
+_ ke faiblesse de ce gouvernement dont vous dénoncez
+[les violences prétendues. (Exclamations à droite et au
 ? lyaeu ce fait sans précédent que l'arrêt de la cour !
--de cassation proclamant, toutes Chambres réunies, que 3
+-de cassation proclamant, toutes Chambres réunies, que
 tout : l'écriture, le papier, indiquaient que le bordereau à à
 
 140 sur lequel Dreyfus fut condamné... (Nouvelles rumeurs LE
 au centre et à droite. — Applaudissements à gauche et SE
 à l'extrême gauche) 5 ne
 Il est étonnant que devant les hommes qui ont si sn,
-longtemps réclamé contre nous le respect de la chose 5
+longtemps réclamé contre nous le respect de la chose
 jugée, je ne puisse pas rappeler les décisions de la * fa)
 cour de cassation. (Applaudissements à gauche) re
 Il est extraordinaire et sans précédent que l'arrêt qui is |
@@ -266,31 +266,31 @@ ont renouvelé cette accusation, à ceux qui triomphe- |
 ront demain, si votre faiblesse laisse passer sans pro- vs
 testaitions et sans sanction cette flétrissure inscrite |
 contre nous dans des documents officiels (Applaudisse- Fo
-ments sur les mémes bancs), je veux rappeler à ceux ï
-qui nous accusent d'être le parti de l'étranger que, É ï
+ments sur les mémes bancs), je veux rappeler à ceux
+qui nous accusent d'être le parti de l'étranger que,
 moins que d'autres peut-être, ils ont Le droit de porter
 contre nous cette accusation, car si je voulais, moi ‘1: à
 aussi, recourir après vous à ces violences de vocabu- ss
 laire, je dirais que le vrai parti de l'étranger, c'est celui ea
 qui pendant quatre ans, dans l'intérêt de ses combi- ie |
 naisons, a fait appel par le faux à la signature d'un
-Je veux démontrer devant cette Chambre et devant È J
+Je veux démontrer devant cette Chambre et devant
 
 n_ Je pays que, en effet, pendant quatre ans, toute la ”
-| presse nationaliste, plusieurs des orateurs du parti W
+| presse nationaliste, plusieurs des orateurs du parti
 | nationaliste, toute la grande presse catholique ont de
 affirmé qu'il existait, à la charge du condamné de nt
 F "à … 1894, une lettre, une note écrite et signée de la main de di
-Guillaume II lui-même et accablante pour l'accusé. 4
+Guillaume II lui-même et accablante pour l'accusé.
 k LE Messieurs, c'est l'histoire de la légende monstrueuse PES
 créée autour de ce faux et c'est l'histoire de ce faux ,
 lui-même, centre de la légende, que je veux suivre pas Ke:
-NA SF Je serai obligé d'infliger à la Chambre, contre d
-k, os gré, de trop nombreuses et trop longues lectures. F
+NA SF Je serai obligé d'infliger à la Chambre, contre
+k, os gré, de trop nombreuses et trop longues lectures.
 AN QJespère que je pourrai la dédommager, au cours de ;
 ‘0 mon exposé, par la communication d'un document iné- (à
 ÿ Det et bref. (Interruptions sur divers bancs. — Mouve- \
-Je prie nos amis de ne pas s'émouvoir de quelques 4
+Je prie nos amis de ne pas s'émouvoir de quelques
 re interruptions et je prie mes adversaires eux-mêmes de “
 . ne pas se hâter ; car s'ils protestaient trop vite ce n'est
 ‘20 pas contre moi, ce n'est pas contre mes aflirmations,
@@ -312,8 +312,8 @@ M. Juzes-Louis BRETON. — J'ai déjà rappelé cet inci- re |
 dent à la tribune. ; ;
 M. Jaurès. — Je donne acte très volontiers à M:Mik UM
 levoye de cette demi-rectification ; j'avais d'ailleurs l'in- :
-tention de préciser tout à l'heure, car vous comptez bien ÿ
-que je reviendrai sur cet incident. f
+tention de préciser tout à l'heure, car vous comptez bien
+que je reviendrai sur cet incident.
 Le récit de la réunion se trouve dans un compte rendu
 du journal le Temps, que M. Millevoye n'a pas démenti
 à cette époque. Il se peut qu'il n'ait pas reproduit le | ;
@@ -321,17 +321,17 @@ texte littéral de la lettre de Guillaume Il, tel que
 M. Millevoye l'a donné, maïs il me suffit à cette heure
 de constater que M. Millevoye ne dément pas — etilne ‘
 saurait le démentir — qu'il a fait allusion à Suresnes, ;
-devant des milliers de citoyens, à l'existence de cette ù
-lettre, et qu'il en a indiqué le sens et le texte approxi- 4
+devant des milliers de citoyens, à l'existence de cette
+lettre, et qu'il en a indiqué le sens et le texte approxi-
 La Libre Parole du 6 septembre 1899 donne le texte Re
-Envoyez le plus vite possible les pièces mentionnées. é
+Envoyez le plus vite possible les pièces mentionnées.
 Faites en sorte que la canaiïlle de Dreyfus se hâte. HN
 M. Rochefort, sous sa propre signature et sa propre ‘ :
 responsabilité, à la date du 15 décembre 1900, donne le
 texte que voici: à
 Envoyez-moi au plus tôt les pièces désignées. Faites en à
 i sorte que cette canaille de Dreyfus se dépêche. ot
-M. Ferlet de Bourbonne, un de ceux qui ont été les l
+M. Ferlet de Bourbonne, un de ceux qui ont été les
 propagateurs les plus actifs de la légende, a donné à ne
 
 “ | madame Séverine, qui l'a reproduit dans l'article du
@@ -347,7 +347,7 @@ gauche) : ces deux grands journaux catholiques, la
 - Groix et La Vérité, affirment l'authenticité de cette lettre
 de Guillaume II et ils en donnent le même texte. ;
 Le La Croix du 20 septembre 1899 :
-3 Envoyez-moi le plus vite possible les pièces indiquées. :
+Envoyez-moi le plus vite possible les pièces indiquées. :
 Faites en sorte que cette canaille de Dreyfus se dépêche.
 Et la Vérité du 17 octobre 1899 la confirme d'une ma- -
 A quel moment cette pièce, dont toute la grande presse
@@ -359,34 +359,34 @@ _ l'élection Syveton! Ce que vous dites n'a rien à voir
 ; … avec l'élection. (Réclamations à l'extrême gauche)
 
 reprenne l'affaire Dreyfus! Le pays n'en veut plus en- : |
-tendre parler. (Bruit) | LA, 4
+tendre parler. (Bruit) | LA,
 
 M. Le PRÉSIDENT. — Je vous invite, messieurs, à écou- |
 ter l'orateur. | 5e A
 Au centre et à droite. — Nous l'écoutons! ; >!
 la Chambre, je l'en remercie au contraire ; mais j'aurais il
 le droit de me plaindre si on prétendait systématique "|
-ment gêner la marche de ma discussion. - 4
+ment gêner la marche de ma discussion.
 M. LE MARQUIS DE Dion. — On a parlé pendant trois *
-ans de l'affaire Dreyfus. Cela suffit ! Il n'est pas admis- È
+ans de l'affaire Dreyfus. Cela suffit ! Il n'est pas admis-
 sible qu'on la prolonge indéfiniment ! L'affaire est clas- à
 sée. Qu'on nous laisse tranquilles, maintenant! (Bruit (4
-M. Jaurès. — Je réponds à ceux qui croient devoir f
+M. Jaurès. — Je réponds à ceux qui croient devoir
 me rappeler à la question que lorsque les témoins de
 M. Syveton ont porté devant la commission d'enquête LE
 un jugement sur toute la politique de la majorité répu- ‘
 blicaine depuis trois ans, comme notre collègue M. Mo: “A
 rel observait: « La commission d'enquête a une mission ;
-étroite à remplir; elle n'est pas chargée de la revue 4
+étroite à remplir; elle n'est pas chargée de la revue
 rétrospective d'événements politiques; elle ne doit +
-s'éclairer que sur les faits qui concernent spécialement 5
-la politique électorale du deuxième arrondissement », 4
-le président de la commission intervint et dit: 3
-« Les faits dont on parle sont connexes. » ë
+s'éclairer que sur les faits qui concernent spécialement
+la politique électorale du deuxième arrondissement »,
+le président de la commission intervint et dit:
+« Les faits dont on parle sont connexes. »
 Je réclame pour moi le bénéfice de cette connexité. qe
 (Applaudissements à gauche et à l'extrême gauche) (s
 J'ai donné, d'après tous nos adversaires, le texte de +
-la lettre prétendue de l'empereur d'Allemagne. Vous ê
+la lettre prétendue de l'empereur d'Allemagne. Vous
 constatez qu'elle est une réponse présumée à un envoi ne
 de documents annoncé. Elle est donc une réponse pré- #
 
@@ -426,39 +426,39 @@ $ M. ze MARQUIS DE Dion. — Nous avons lu cela pen-
 M. Le PRÉSIDENT. — Veuillez garder le silence, mon-
 ; sieur de Dion.
 
-M. JAuURÈS. — Je crains que ce système n'ait été celui ‘4 ÿ
+M. JAuURÈS. — Je crains que ce système n'ait été celui ‘4
 de vos juges. 5 PIS
 
-A quelle date, disais-je, est apparu ce document? IL 2
+A quelle date, disais-je, est apparu ce document? IL
 y a dans quelques-uns des journaux antisémites, dès
-1894, comme une première trace, obscure encore et 4
-incertaine, de la légende qui se préparait, mais il est E j
+1894, comme une première trace, obscure encore et
+incertaine, de la légende qui se préparait, mais il est
 certain, par le témoignage même des juges, — je citerai i à
 le capitaine Freystætter, — qui ont dénoncé la commu :
 nication illégale des pièces secrètes aux juges de 1894, :
 il est certain, dis-je, qu'au procès de 1894 ce système rs
 n'a pas été soutenu et que cette pièce n'a pas été pro- Ke
 duite. Elle est apparue officiellement, en quelque sorte, Che à
-pour la première fois en novembre 1897 ; et c'est dans 44
-une déposition de M. Paléologue, représentant du k
-ministère des affaires étrangères, que j'en trouve la 3e
+pour la première fois en novembre 1897 ; et c'est dans
+une déposition de M. Paléologue, représentant du
+ministère des affaires étrangères, que j'en trouve la
 
-M. Paléologue était chargé officiellement desrelations : f
-du ministère des affaires étrangères avec le service des 4
-renseignements du ministère de la guerre. Déjà, en RES ë
+M. Paléologue était chargé officiellement desrelations
+du ministère des affaires étrangères avec le service des
+renseignements du ministère de la guerre. Déjà, en RES
 septembre et octobre 1897, au moment où l'on commen- RE
 çait à se préoccuper des doutes formulés par M. Scheu- ‘ à
-rer-Kestner et de l'enquête commencée par lui, il y eut 1
+rer-Kestner et de l'enquête commencée par lui, il y eut
 entre M. Paléologue et le lieutenant-colonel Henry plusieurs entretiens. KE
 
 M. Paléologue témoigne devant la cour de cassation : ;
 
-Au mois de septembre ou d'octobre 1897, j'eus l'occasion S
+Au mois de septembre ou d'octobre 1897, j'eus l'occasion
 de revoir le colonel Henry, au moment où l'on recommen-
 çait à parler de l'affaire Dreyfus. Je mis la conversation sur
 le télégramme du 2 novembre 1894.
 
-Je lui en rappelai l'importance, en raison particulière- 4
+Je lui en rappelai l'importance, en raison particulière-
 ment de la date, l'agent B... n'ayant pu savoir, le 2 no- :
 vembre, lendemain du jour de l'arrestation de Dreyfus, si
 l'inculpé avait fait des aveux. Henry me répondit que le
@@ -489,30 +489,30 @@ Ainsi, messieurs, dans les conversations officielles
 engagées pour la constitution et la mise en ordre du
 dossier entre le ministère des affaires étrangères,
 . représenté par M. Paléologue, et le service des rensei- !
-: gneménts, dirigé en fait à cette époque par le lieutenant- ë
+: gneménts, dirigé en fait à cette époque par le lieutenant-
 + k colonel Henry, le lieutenant-colonel Henry se risque à |
 
 opposer aux arguments de M. Paléologue l'existence de. Ne #1
 la lettre prétendue de l'empereur Guillaume. C'est la >
-première apparition officielle du faux, et je dis qu'il est M
-impossible qu'au moment où lelieutenant-colonel Henry 21
-se risquait à parler ainsi de l'existence de cette pièce  n
-au représentant officiel des affaires étrangères, il n'eùt à 4
+première apparition officielle du faux, et je dis qu'il est
+impossible qu'au moment où lelieutenant-colonel Henry
+se risquait à parler ainsi de l'existence de cette pièce
+au représentant officiel des affaires étrangères, il n'eùt à
 pas en mains, matériellement, cette pièce même, car |:
 il était exposé à ce qu'on lui demandât communication FF
-matérielle d'un document aussi grave. Et, de même k 4
+matérielle d'un document aussi grave. Et, de même
 qu'il était prêt à produire... seu
 patrie, ce qui se passe ici! (Exclamations à gauche) 3 :
-M. LE PRÉSIDENT. — Vous n'avez pas la parole, mon- 5e
+M. LE PRÉSIDENT. — Vous n'avez pas la parole, mon-
 sieur de Dion. à
-M. JAURÈS.— … et de même que lelieutenant-colonel E
+M. JAURÈS.— … et de même que lelieutenant-colonel
 ' Henry était prêt à produire matériellement à M. Paléo- pa
 logue la pièce qu'il lui avait récitée et qui s'appellera 5 $
-plus tard le faux Henry, il était prêt à coup sûr aussi à e
+plus tard le faux Henry, il était prêt à coup sûr aussi à
 lui produire matériellement la pièce émanée prétendu
-ment de Guillaume II et dont il lui affirmait l'existence. 4
+ment de Guillaume II et dont il lui affirmait l'existence.
 Comment le chef du service des renseignements pou- À
-vait-il se risquer, en 1897, à une affirmation aussi mons- - 7
+vait-il se risquer, en 1897, à une affirmation aussi mons-
 trueuse ? Comment pouvait-il faire usage d'un faux aussi Ps
 Chambre en quelques paroles rapides que ce ne peut Tel
 « être qu'une pièce fausse. =
@@ -521,7 +521,7 @@ M. JAuURÈS. — M. Drumont nous a dit que nous étions à
 écrite ainsi par un souverain étranger; il nous a rappelé D .
 
 6 dans un puissant article de la Libre Parole que tous les |
-grands souverains laborieux entraient dans le détail des 1
+grands souverains laborieux entraient dans le détail des
 f _ affaires, que Louis XIV se faisait communiquer jour-
 ‘a nellement les rapports de police, que Napoléon l#entrait
 À aussi dans les moindres détails d'administration de son :
@@ -539,13 +539,13 @@ pas parce que les souverainsne peuvent pas s'intéresser |
 | s'abaissent pas à les injurier, parce qu'ainsi ils À
 jo s'abaissent eux-mêmes; (Très bien! très bien! à |
 nn l'extrême gauche. — Mouvements divers) c'est ensuite y
-| parce qu'il est impossible d'attribuer à un souverain D
+| parce qu'il est impossible d'attribuer à un souverain
 de étranger une imprudence que ses agents accrédités en
 … France ne commettaient pas. :
 he Le bordereau n'est pas signé par celui qui l'a écrit.
 Les correspondants, les attachés militaires étrangers |
 We à. Panizzardi et Schwarzkoppen, dont on a cité dans toute À ;
-th cette affaire de si nombreuses dépêches et de si nom- 4
+th cette affaire de si nombreuses dépêches et de si nom-
 breuses lettres, quand ils s'écrivaient, le faisaient sous |
 dr: oublie ces précautions élémentaires, il n'y a qu'un +
 À Î homme qui prenne la peine d'inscrire, sur un bordereau |
@@ -554,7 +554,7 @@ We nom du traître et le nom de l'empereur, c'est Guil4 19 il
 
 laume IT! (Applaudissements à gauche et à l'extréme A
 
-J'ajoute, messieurs, que si une pièce pareille avait ÿ
+J'ajoute, messieurs, que si une pièce pareille avait
 existé, elle se rattache aux événements de 1894, au ni
 premier procès de l'affaire; elle aurait donc, dès larri- À
 vée de ce bordereau, révélé aux bureaux de la guerre #
@@ -605,20 +605,20 @@ G M. Jaurès. — Et le colonel Henry voulait être en état
 à Il fallait pour la production de ce faux que le colonel
 Henry comptât, et c'est là ce qui est grave, c'est là ce
 #4 qui, politiquement, est grave, il fallait qu'il comptât sur
-; la complaisance, je dirai presque sur la complicité du 4
-ÿ:. haut état-major de cette époque. (Interruptions et bruit i
-4 Lee M. Lasres. — Je demande la parole.
+; la complaisance, je dirai presque sur la complicité du
+ÿ:. haut état-major de cette époque. (Interruptions et bruit
+Lee M. Lasres. — Je demande la parole.
 
 : M. Jaurès. — De quel droit, messieurs, prétendrait. DERX |
 | on que la politique du faux se serait nécessairemen PATES
-À arrêtée à un certain grade et qu'elle n'a pas pu s'élever me 74
-au-dessus du grade de lieutenant-colonel ? (Rires et 4
+À arrêtée à un certain grade et qu'elle n'a pas pu s'élever me
+au-dessus du grade de lieutenant-colonel ? (Rires et
 applaudissements à gauche et à l'extrême gauche) : fe Qi “ |
 M. Jaurès. — Je vous ai dit tout à l'heure que je vous La, CA
 communiquerais un document inédit et vrai. pas: SU !
 M. ze MARQUIS DE Dion. — Montrez-le-nous ! FT
 
-F _ M. Jaurès. — Il viendra à son heure. x: 30
+F _ M. Jaurès. — Il viendra à son heure.
 
 -_ Je dis et je démontre qu'une pareille pièce jetée ainsi “0m à
 officiellement par le lieutenant-colonel Henry dans la s. +04
@@ -632,7 +632,7 @@ mon avis, ce ne soit ni vrai ni juste — on peut limiter. LV
 Le faux Henry est une dépêche qui est supposée écrite. FA ‘T4
 en 1896. Quand elle arrive au ministère, le lieutenant- DR ne, |
 colonel Henry peut dire à ses chefs, au général Gonse, EE | ‘si
-| au général de Boisdeffre : « Voilà un documentquia FA ë
+| au général de Boisdeffre : « Voilà un documentquia FA
 été apporté par le service des renseignements », et le” : Ve
 général de Boisdeffre peut, à la rigueur, logiquement, 1100 |
 être trompé lui-même le premier par l'aflirmation du Mu
@@ -641,33 +641,33 @@ Mais, pour la fausse lettre de Guillaume I, il ne peut. CAS
 | pas en être ainsi. Cette fausse lettre n'a pas serviaupro- … à | ; b à
 cès de 1894, c'est-à-dire à sa vraie date; elle n'apparaît | LE } 2 “t
 Ÿ qu'en 1897, et, pour que le lieutenant-colonel Henry puisse " Le À
-| k la produire, il faut qu'il en ait fait accepter l'hypothèse, | TRÈS É
+| k la produire, il faut qu'il en ait fait accepter l'hypothèse, | TRÈS
 
 per € eux qui dirigèrent le Drpees en 1894... (Exclama- ds.
-tions à droite) Écoutez, messieurs.…., par le général de 1
-_ Boisdeff e et par le général Mercier. t É À 3 4
+tions à droite) Écoutez, messieurs.…., par le général de
+_ Boisdeff e et par le général Mercier. t É À
 Cette lettre, qui est affirmée en 1897, est supposée re- "rt
 Ke monter par sa date à 1894. IL faut donc que les hommes LATE
-But qui ont conduit le procès de 1894, et qui savent que 12
+But qui ont conduit le procès de 1894, et qui savent que
 | cette pièce n'y a pas figuré, acceptent du lieutenant- LENS
 colonel Henry une explication qui rend plausible l'appa- ; LEE
-rit on tardive, en 1897, d'une lettre qui, par sa date, sa 4
+rit on tardive, en 1897, d'une lettre qui, par sa date, sa
 tu nature et son objet, remonte à 1894. (Applaudissements AU
-Autrement, il eût été trop facile au général de Bois- # 5
-RE: ee . , » . A . + 2 » _deffre de dire comme chef d'état-major, en 1894 : je n'ai 1e
+Autrement, il eût été trop facile au général de Bois- #
+RE: ee . , » . A . + 2 » _deffre de dire comme chef d'état-major, en 1894 : je n'ai
 > | pas connu ce document, j'aurais dû le connaître alors, UE
 nes pu isqu'il est censé avoir été écrit à cette époque, je ne LEE
 le connais pas, c'est un faux. SEP
-ps: _Ileût été trop facile au général Mercier, qui a dirigé 4.
-: _le procès, qui avoue lui-même devant le conseil de 0
+ps: _Ileût été trop facile au général Mercier, qui a dirigé
+: _le procès, qui avoue lui-même devant le conseil de
 Ê ‘4 guerre de Rennes avoir adressé aux juges les pièces se- Pa.
 Le crêtes, il lui eût été trop facile de dire : Mais non, cette AA
 : 7% pièce-là qui était la pièce capitale, la pièce décisive, je KA
 . nel'aipas connue en 1894 ; je n'aurais pas tâtonné en : “t #
 1894 si j'avais connu cette pièce. "a
 __ Donc, invinciblement, dès que le lieutenant-colonel CNE à
-BELE enry aflirmait en 1897 l'existence d'une lettre de Guil- 7.
-Re aume II remontant à 1894, le premier cri du général de : 0
+BELE enry aflirmait en 1897 l'existence d'une lettre de Guil-
+Re aume II remontant à 1894, le premier cri du général de
 _ Boisdefre, le premier cri du général Mercier devait être: AU :
 C'est une pièce fausse ; à moins que Henry n'ait obtenu ke
 d'eux le silence complaisant qui a tout couvert. (ApplauPRE dissemenis à gauche et à l'extrême gauche) a:
@@ -684,7 +684,7 @@ Dès le lendemain du jour où M. Paléologue recevait À
 du colonel Henry la confidence de la fausse lettre de.
 Guillaume II, Za Libre Parole disait — la conversation
 est du 3 novembre, l'article de La Libre Parole est du
-4 novembre... (Interruptions et bruits à droite) Û
+4 novembre... (Interruptions et bruits à droite)
 
 Vous allez voir, messieurs, que nous avons été tous |
 bien imprudents et bien étourdis de ue pas attacher |
@@ -695,7 +695,7 @@ tions; mais cette campagne n'est que le prolongement, |
 à travers ce pays, du mensonge et du faux organisés |
 par le lieutenant-colonel Henry au centre de l'état- ne
 
-La Libre Parole du 4 dit : 1
+La Libre Parole du 4 dit
 
 La pièce accusatrice dont il a été tant parlé n'a pas été
 produite en original devant le conseil de guerre. Elle constituait une preuve si accablante de la culpabilité de Dreyfus, |
@@ -706,18 +706,18 @@ yeux des juges,
 
 Voilà le premier décalque, dans la presse, du faux
 imaginé à l'état-major. Et c'est par un contre-couv, par À
-un choc en retour vraiment extraordinaire, le lende- 4
+un choc en retour vraiment extraordinaire, le lende-
 
 : main 5 novembre, qu'Esterhazy écrit à M. le Président
 de la République Félix Faure : ;
-Fe La femme qui m'a mis au courant de l'horrible machina- b
+Fe La femme qui m'a mis au courant de l'horrible machina-
 … Lion ourdie contre moi m'a remis une pièce qui est une pro- Li
 | tection pour moi, puisqu'elle prouve la canaillerie de ae
 … Vous reconnaissez là une partie même du texte de LA
-w: nie de Guillaume II. 4
+w: nie de Guillaume II.
 puisqu'elle prouve la canaillerie de Dreyfus et un
-—_ danger pour mon pays, parce que la publication avec le 4
-_fa -similé de l'écriture forcera la France à s'humilier ou à 4
+—_ danger pour mon pays, parce que la publication avec le
+_fa -similé de l'écriture forcera la France à s'humilier ou à
 Ne us essieurs, vous saviez, nous savions, par les docuDee en RES Th :
 … ments saisis chez Esterhazy et apportés devant la cour
 _ de cassation, qu'il y avait eu collusion entre Esterhazyet
@@ -726,29 +726,29 @@ _ de cassation, qu'il y avait eu collusion entre Esterhazyet
 . che de Apte ‘et lui suggérait les réponses qu'il
 devait faire au général enquêteur de Pellieux; nous
 | savions par les aveux de M. du Paty de Clam lui-même, a
-0 u'il avait collaboré aux lettres de menaces et de chan- 24
-_ ta ge qu'Esterhazy adressait au président de la Répu- f
+0 u'il avait collaboré aux lettres de menaces et de chan-
+_ ta ge qu'Esterhazy adressait au président de la Répu-
 _ bliqu e; mais ce que nous n'avions pas assez remarqué
-ie' st que le lieutenant-colonel Henry avait muni Esterk he ; .. . . > ÿ
+ie' st que le lieutenant-colonel Henry avait muni Esterk he ; .. . . >
  hazy, dès le 5 novembre, de la pièce dont il avait parlé |
-Là M. Paléologue. Esterhazy était muni d'un document 4
-“ faux, mais parce qu'il portait la formidable signature É
+Là M. Paléologue. Esterhazy était muni d'un document
+“ faux, mais parce qu'il portait la formidable signature
 de l'empereur d'Allemagne, Esterhazy le patriote pou- ‘a
-“vait faire chanter le Président de la République, le 1
+“vait faire chanter le Président de la République, le
 | Gouvernement et la Chambre! (Applaudissements à #
 l'extrême gauche) ‘4
 
 Voilà l'usage qui était fait du bordereau annoté, voilà EY. nn
-l'usage qui était fait de la lettre de Guillaume IL. 1
+l'usage qui était fait de la lettre de Guillaume IL.
 qu'il le nomma comme l'auteur du bordereau le;
-16 novembre, il fallut redoubler d'efforts, et l'état-major. 13
-songea à s'assurer non plus seulement le concours de 1
-la Groix et de la Libre Parole, maïs le concours de 4
+16 novembre, il fallut redoubler d'efforts, et l'état-major.
+songea à s'assurer non plus seulement le concours de
+la Groix et de la Libre Parole, maïs le concours de
 l'Intransigeant. Et c'est alors que le commandant « à
 Pauffin de Saint-Morel, chef de cabinet du général de |
 Boisdeftre, fut envoyé chez M. Rochefort lui-même: Za hi
 Patrie du 18 novembre publiait sous ce titre : La vérité 4]
-sur l'affaire Dreyfus, une interview de M. Rochefort : 3
+sur l'affaire Dreyfus, une interview de M. Rochefort
 
 Je ne vois aucun inconvénient à vous répéter les paroles \ po
 de cet officier. Il m'a dit presque mot pour mot : Non seulement nous possédons la preuve indubitable que le commandant Esterhazy est la victime d'un infâme complot; "|
@@ -763,20 +763,20 @@ commandant Pauffin de Saint-Morel, chef de cabinet
 du général de Boisdeffre, faisait allusion devant M. Ro- ea
 chefort? C'est l'Intransigeant lui-même qui nous Pin"
 dique dans l'article du 13 décembre 1897 sous le titre:
-La vérité sur le traître. — La pièce secrète. f
+La vérité sur le traître. — La pièce secrète.
 Voici ce que publie l'Intransigeant : “y
-Une des fameuses pièces secrètes est une lettre de l'em- F
+Une des fameuses pièces secrètes est une lettre de l'em-
 pereur d'Allemagne lui-même. Elle fut dérobée, photogra- ni
 phiée et replacée où elle avait été prise. Dans cette lettre
-adressée à M. de Münster, Guillaume II nommait tout aù 1
+adressée à M. de Münster, Guillaume II nommait tout aù
 
 long le capitaine Dreyfus, commentait certains renseigne-
 . ments et chargeait l'agent de l'ambassade communiquant
 ù avec lui d'indiquer au traître les autres renseignements
 à recueillir nécessaires à l'état-major allemand. MEL
 ….… Melle est l'origine de la principale pièce secrète. Nous pos-
-: _sédions depuis longtemps une version qui rous avait été AT x
-. fournie par une personnalité militaire des mieux placées Ê
+: _sédions depuis longtemps une version qui rous avait été AT
+. fournie par une personnalité militaire des mieux placées
 _po ar être admirablement informée, analogue à celle que ;
 | nous publions aujourd'hui en toute certitude.
 : Ain si l'Intransigeant proclame qu'une des pièces dont
@@ -809,32 +809,32 @@ l'agence Havas, n'y changera rien. A y
 L'Intransigeant ajoute que : pe \ +0
 L'émotion produite est très vive, [que] l'échange de
 dépêches entre l'ambassade allemande et Guillaume If en Fal
-est un signe. Il n'est que trop certain, à l'empressement que k
-met l'ambassadeur à opposer un démenti, que notre récit 3
+est un signe. Il n'est que trop certain, à l'empressement que
+met l'ambassadeur à opposer un démenti, que notre récit
 est l'expression de la vérité. } 52)
 Vous le voyez, c'est toujours le même système : on |
 suscite une invention énorme, elle est démentie et on “|
 dit : &« Oui, mais elle est si énorme que le gouvernement ji
-est obligé de la démentir ». Et toute la presse nationa- 4
+est obligé de la démentir ». Et toute la presse nationa-
 liste : la France, la Patrie, l''Intransigeant, que vous À
 n'allez pas, j'imagine, désavouer brutalement aujour- |
 d'hui, toute la presse nationaliste prend prétexte du |
-démenti officiel du gouvernement, pour aflirmer denou- 4
-veau la vérité de la légende et la réalité de la pièce 4
+démenti officiel du gouvernement, pour aflirmer denou-
+veau la vérité de la légende et la réalité de la pièce
 M. Méline fait annoncer par une nouvelle note que le :
 gouvernement allait demander, s'il le fallait, au Parlement, les moyens nécessaires de mettre un terme à
 cette campagne de presse. Mais, laissez-moi le dire, |
-M. le général Billot avait en mains des moyens plus 1
+M. le général Billot avait en mains des moyens plus
 rapides et plus décisifs qu'il a étrangement négligés.
 D'abord, lorsque le commandant Esterhazy prétendait
 avoir en mains des documents capables de jeter l'émoi en
 Europe et lorsqu'il venait rapporter ce document ou un À
-autre au ministère de la guerre, il fallait au moins Pin- 4
+autre au ministère de la guerre, il fallait au moins Pin-
 M. Jaurès. — Il fallait au moins demander à l'état
-major, qui avait communiqué à M. Paléoiogue l'exis- M
+major, qui avait communiqué à M. Paléoiogue l'exis-
 
 | tence de cette lettre, d'où provenait cette campagne. IL
-est prodigieux que vous ayez songé à menacer la presse j
+est prodigieux que vous ayez songé à menacer la presse
 L: qui ne faisait que reproduire les affirmations de l'état-
 à _ major et que votre ministre de la guerre n'ait pas songé
 4 à porter la question au cœur même de l'état-major.
@@ -861,8 +861,8 @@ su de trente jours d'arrêts de rigueur par le ministre.
 à £ Il y a un problème qui émeut le pays et voilà un off-
 |: cier qui se fait, dans la presse nationaliste, le véhicule
 
-d'une pièce fausse, d'une pièce redoutable ; oh! onle D
-consigne chez lui ; mais on ne le questionne pas! Qu'il 1
+d'une pièce fausse, d'une pièce redoutable ; oh! onle
+consigne chez lui ; mais on ne le questionne pas! Qu'il
 reste bien enfermé, mais qu'il se taise et que le monde #00 $
 C'est ce que demandaït à cette heure le général %:
 M. LE LIEUTENANT-COLONEL Rousser. — Rien ne dit. 4 |
@@ -881,13 +881,13 @@ Messieurs, on n'y a pas pris assez garde parce que la Me
 - pièce fausse sensationnelle connue sous le nom de faux 4 |
 Henry, et qui n'était pour Henry qu'un faux d'ordre K 3 |
 secondaire, cette pièce fausse sensationnelle à pris la
-place du véritable faux Henry, de celui auquel Henry É
+place du véritable faux Henry, de celui auquel Henry
 ; lui-même attachait une importance décisive, la seule Des
 dont il ait fait mention devant les jurés de la cour d'as-:100
 sises. Voici, en effet, ce qu'il dit le 14 février, à une. |
 heure où il était acculé par ses contradictions au sujet | ‘34 | |
 Eh bien ! allons-y! Il faut vous dire que, lorsque le colo 3 | |
-nel Sandherr m'a remis ce dossier le 16 décembre 1894, je 1
+nel Sandherr m'a remis ce dossier le 16 décembre 1894, je
 lui ai dit : « Mais comment se fait-il que vous n'ayez Le { |
 
 | 4 important, et je vais vous montrer une lettre de ce dos10 sier. » Il m'a fait voir une lettre, en me faisant jurer de n'en
@@ -895,7 +895,7 @@ lui ai dit : « Mais comment se fait-il que vous n'ayez Le { |
 …__ importante encore que celle du dossier. IL m'a dit : « J'ai
 Û 4 … avec cela quelques documents, mais je les garde par devers
 ." moi, et je m'en servirai si besoin est. » {
-5 Vous le voyez, il ne s'agit pas ici de la pièce connue
+Vous le voyez, il ne s'agit pas ici de la pièce connue
 É É sous le nom de faux Henry et qui est de 1896, il s'agit
 | A4 ; d'une lettre plus importante que toutes les autres, d'une
 lettre si redoutable que le colonel Sandherr avait fait
@@ -926,26 +926,26 @@ fait état au procès de 1894. (Applaudissements à l'ex- TM
 trême gauche et à gauche) - PR
 
 Voilà l'affirmation, et voici maintenant l'écho: D |
-Le 3 novembre, le colonel Henry avait parlé de Ia 14
-lettre à M. Paléologue ; le 4 novembre commençait Ia ” 1
-campagne de presse. Le 14 février, le colonel Henry, 4
-solennellement, fait allusion à la lettre de Guillaume In n
+Le 3 novembre, le colonel Henry avait parlé de Ia
+lettre à M. Paléologue ; le 4 novembre commençait Ia ”
+campagne de presse. Le 14 février, le colonel Henry,
+solennellement, fait allusion à la lettre de Guillaume In
 à la cour d'assises ; le 15 février, dans la réunion ue |
 publique de Suresnes, M. Millevoye affirme l'existence "4
-de cette pièce et ilen donne approximativement le texte. k
-Voici le compte rendu publié alors dans le journal 2
+de cette pièce et ilen donne approximativement le texte.
+Voici le compte rendu publié alors dans le journal
 M. Lucren Mizcevoye. — La question a déjà été |
-portée à la tribune par notre collègue, M. Breton. J'ai 24
+portée à la tribune par notre collègue, M. Breton. J'ai
 M. Jures-Louis BRETON. — Vous n'avez pas répondu. |
 M. Lucx Micrevoxe. — Maintenant je dis que la +9
 tribune n'est pas un confessionnal, et que si j'avais à pi
 choisir un confesseur, monsieur Jaurès, ce n'est pas Fe
 vous que je choisirais. (Aires à droite) des
-J'ignore quelles confidences vous avez pu recevoir de ER 1
+J'ignore quelles confidences vous avez pu recevoir de ER
 Vautre côté de la frontière. (Exclamations à gauche) Ro
 Vous n'êtes pas non plus un juge d'instruction, et ce Ê7ANE
-n'est qu'à un juge d'instruction seul, et saisi légalement, 4
-qu'il n'appartiendra de répondre. ‘ U
+n'est qu'à un juge d'instruction seul, et saisi légalement,
+qu'il n'appartiendra de répondre. ‘
 M. Jaurès. — M. Millevoye demande une enquête.
 Je reconnais que M. Millevoye l'avait demandée déjà, ‘]
 par voie d'interruption, d'une façon formelle lorsqu'en ;
@@ -971,7 +971,7 @@ ki si vous ne répondez pas, je dirai, selon votre propre
 F formule, que votre silence est éloquent. (Sourires à
 L gauche) Mais je veux lire le compte rendu du Temps,
 ‘4 -pas été rectifié à cette époque.
-4 F M. Millevoye, faisant l'historique ‘de l'affaire Dreyfus,
+F M. Millevoye, faisant l'historique ‘de l'affaire Dreyfus,
 4 …._ arrive à la pièce secrète. — Elle existe ? crie-t-on de toutes
 “ paris. — Eh bien, oui! citoyens, elle existe, a dit l'orateur..
 \ (Rires à l'extréme gauche)
@@ -980,22 +980,22 @@ L gauche) Mais je veux lire le compte rendu du Temps,
 à | oui! — Eh bien! la voici. Elle dit: « Que cette canaille de
 wi) Dreyfus envoie au plus tôt les pièces promises: signé Guil- .
 
-4 À . Cette révélation est accueillie par un rire général. Ce sont
+À . Cette révélation est accueillie par un rire général. Ce sont
 ge pendant cinq minutes des clameurs étourdissantes.
 
 Invalidation Syveton FA on
 L'orateur termine en disant que vu les déclarations de è ni
 M. de Bülow, la publication de la pièce secrète prouveraitle Fu
 parjure de l'empereur d'Allemagne et ce serait la guerre. | Re
-C'est toujours l'application du même système, la pro- L
+C'est toujours l'application du même système, la pro-
 duction de faux monstrueux abrités par la menace à
 de la guerre. (Applaudissements à l'extrême gauche :
 En sorte que, par cette jurisprudence prodigieuse
-qu'on prétend instituer, il suflirait maintenant de pro- 3
-duire des pièces fausses accablantes pour des adver- 14
+qu'on prétend instituer, il suflirait maintenant de pro-
+duire des pièces fausses accablantes pour des adver-
 saires, sous la signature de souverains étrangers d'Ita- jai
 lie, d'Angleterre, d'Allemagne, pour échapper à toute
-e#plication et à toute responsabilité. (Applaudissements sur les mêmes bancs) ï
+e#plication et à toute responsabilité. (Applaudissements sur les mêmes bancs)
 Eh bien! messieurs, quelles que puissent être les $
 réserves que m'oppose M. Millevoye, je veux lui sou- ,
 mettre un scrupule, je veux lui dire, en toute sincérité,
@@ -1008,7 +1008,7 @@ votre ministre des affaires étrangères. :
 M. Jaurès. — Monsieur Millevoye — et ceci n'est
 pas, je vous l'affirme, une précaution oratoire; je vous
 donne ma parole d'honneur que je dis toute ma pensée
-— je mets pleinement votre bonne foi hors de cause et É
+— je mets pleinement votre bonne foi hors de cause et
 je dis même que, dans l'erreur que vous avez commise,
 il y a deux traits qui vous font honneur. Le premier,
 c'est qu'à une heure trouble où la calomnie se répan_daïit impersonnelle, anonyme, inavouée, vous avez eu
@@ -1029,8 +1029,8 @@ rendait cette liste invraisemblable. \
 <hs M. Jaurès. — Mais laissez-moi vous dire qu'au moment où, à Suresnes, vous aflirmiez l'existence d'une
 ‘5e lettre de l'empereur Guillaume II, écrasante si elle était
 … authentique, il y avait deux hommes en cause, il y avait
-ñ } M: Zola, accusé, qui comparaissait devant la justice de 4
-. son pays et il y avait à l'île du Diable un condamné ï
+ñ } M: Zola, accusé, qui comparaissait devant la justice de
+. son pays et il y avait à l'île du Diable un condamné
 4 dont le sort se débattait; la pièce apportée par vous
 ; wa pour faire la conviction du pays et contre Zola et contre
 Mar: -le condamné Dreyfus, cette pièce était importante, elle
@@ -1078,9 +1078,9 @@ faux, nous ! Nous n'avons pas dit de mensonges ! (Bruit)
 M. Lucxex Micevoye. — Je parle de ceux qui pen36
 
 , une ans sont allés chercher dans les journaux
-directement inspirés par l'étranger des flots de boue Ê
+directement inspirés par l'étranger des flots de boue
 … sous lesquels ils ontessayé de salir l'uniforme et le dra-
-#23 peau français (Applaudissements à droite. — ProtestaF à tions et interruptions à l'extrême gauche et à gauche); je F.
+#23 peau français (Applaudissements à droite. — ProtestaF à tions et interruptions à l'extrême gauche et à gauche); je
 … parle de cette abominable campagne qui dure encore et
 : 2h _qui a eu pour conséquence cette chose inouïe de laisser
 _ croire qu'on peut planter impunément le drapeau fran-
@@ -1094,7 +1094,7 @@ _ derouvrir ici l'affaire Dreyfus et je vous en laisse toute :
 D M:JAuRÈS. — Je constate, en effet, que vous m'en
 laissez toute la responsabilité (Rires approbatifs à gau-
 + f . che) et je prends acte de votre refus de répondre. Je
-| E prends acte de ce fait, qu'après avoir produit publique- s
+| E prends acte de ce fait, qu'après avoir produit publique-
 ment, non pas à coup sûr pour écraser un homme, mais
 …— pour accabler tout un parti, une pièce d'une gravité
 EN aussi formidable, à l'heure où il apparaît, à d'innom-
@@ -1103,28 +1103,28 @@ EN aussi formidable, à l'heure où il apparaît, à d'innom-
 - devez à la France dont il ne faudrait pas usurper sans
 + | cesse le nom pour couvrir les faux (Vifs applaudisse-
 | ments à gauche et à l'extrême gauche), vous refusez de
-—… dire à quelle source cachée vous avez puisé les accusa- E
+—… dire à quelle source cachée vous avez puisé les accusa-
 tions de cette sorte.
 1018 Quoi qu'il en soit, messieurs, vous voyez la légende
 _ se développer, s'affirmer, s'étaler de plus en plus; de
 
 l'état-major, elle passe dans le prétoire, du prétoire
-dans les journaux, des journaux dans les réunions F 4
-publiques et le système monstrueux qui a été imaginé 74
+dans les journaux, des journaux dans les réunions
+publiques et le système monstrueux qui a été imaginé
 par le colonel Henry et ses complices prend peu à peu
-possession du pays. : 1
+possession du pays.
 Voici maintenant qu'éclate le faux Henry. Il semblait Fig
 que ce faux, avoué par son auteur, devait enfin métire
 un terme aux polémiques. Si le bon sens de ce pays. À
 avait été laissé à lui-même, si la conscience de ce pays
-avait été laissée à elle-même, la conviction unanime se w ÿ
+avait été laissée à elle-même, la conviction unanime se
 serait faite dès le lendemain qu'une cause qu'on était
 réduit à servir par des pièces fausses était une cause €
-injuste et mauvaise. 4
-Il y a eu, messieurs, dans bien des consciences, un. j
+injuste et mauvaise.
+Il y a eu, messieurs, dans bien des consciences, un.
 mouvement de révolte ; à cette heure, bien des yeux se "
 sont ouverts qui, jusque-là, étaient restés obstinément Ke
-clos, et parmi les hommes qui ont crié non pas leur L
+clos, et parmi les hommes qui ont crié non pas leur
 trouble mais leur colère, parmi les hommes qui onicrié }
 aux machinateurs de faux : vous avez trompé le pays À
 et vous m'avez trompé, il y a au premier rang celui qui M |
@@ -1154,9 +1154,9 @@ compter sur la confiance des subordonnés sans laquelle le A,
 commandement est impossible, et, de mon côté, ne pouvant {
 & avoir confiance en ceux de mes chefs qui m'ont fait tra-
 ; vaill er sur des faux, je demande ma mise à la retraite. +
-A (Vis applaudissements à l'extrême gauche et à gauche) 1
+A (Vis applaudissements à l'extrême gauche et à gauche)
 OM Sex: Brisson. — Je demande la parole. ;
-| _… M:1eE PrRésipenr. — La parole est à M. Brisson, avec ï
+| _… M:1eE PrRésipenr. — La parole est à M. Brisson, avec
 “  l'assentiment de M. Jaurès. F)
 
 | … M: Henri Brisson. — Monsieur Jaurès, pardonnez à : » mon émotion de vous interrompre. (Rumeurs à droite. Ge |
@@ -1173,10 +1173,10 @@ es GEORGES Berry. — Elle a paru dans tous les
 
 M. RouLaxp. — C'estun effetd'audience ; un scénario 27.200
 préparé. (Bruit) SEX ne L|
-M. Gonerroy CAVAIGNAC. — Je demande la parole. _ 4
+M. Gonerroy CAVAIGNAC. — Je demande la parole. _
 M. GopErroy CAvAIGNAC. — Je voudrais bien savoir "21
 quelles conclusions vous avez l'intention de tirer d'une nn |
-lettre que vous prétendez avoir été cachée et qui à été u
+lettre que vous prétendez avoir été cachée et qui à été
 accompagnée à la même heure d'une interview sem- ee |
 blable parue dans tous les journaux. (Bruit) EE
 Quand vous venez spéculer sur ces faits, je dis que #0 À
@@ -1185,26 +1185,26 @@ dont vous prétendez tirer parti ici et que le général de Ke
 Pellieux aurait porté sur ses chefs, je déclare queje
 n'en ai pas tenu compte. (Bruit) %
 De ce qui a été fait alors, je prends la responsabilité
-et j'apporte ici aux hommes qu'on a mis en cause et - 28
+et j'apporte ici aux hommes qu'on a mis en cause et
 contre lesquels on dirige dans le vague je ne sais quelles  #
 insinuations ou accusations dont on n'ose même pas on:
-prendre la responsabilité complète, le témoignage de 10
-ma confiance entière dans leur loyauté et dans leur.” 0
+prendre la responsabilité complète, le témoignage de
+ma confiance entière dans leur loyauté et dans leur.”
 bonne foi. (Applaudissements à droite et sur divers
-M. Her: Brisson. — Messieurs, je ne veux faire ici ü
+M. Her: Brisson. — Messieurs, je ne veux faire ici
 qu'une constatation. Je savais déjà par la déposition de |
 M. le capitaine Cuignet devant la cour de cassation, que ‘4
 M. Cavaignac, ministre de la guerre, était, dès le  .}
 14 août — c'est la propre expression de M. le capitaine & |
 Cuignet — convaincu que ce que lon a appelé « le faux 1}
-Henry » était un faux. Or, il n'en a averti le président 4
+Henry » était un faux. Or, il n'en a averti le président
 du conseil que le 30 août, et j'apprends maintenant que 4 |
 
 H: le 3x août, le jour où le colonel Henry mourait sous vos
 _._  verroux, vous aviez cette lettre du général de Pellieux!
 n; M. GrorGes BErRTHOULAT. — Elle a été publiée dans
 ‘à tous les journaux.
-4 M. Herr Brisson. — Vous saviez, le 31 août, que le
+M. Herr Brisson. — Vous saviez, le 31 août, que le
 …__ général de Pellieux avait écrit cette lettre et vous déclarez que vous n'en avez tenu aucun compte et vous n'en
 it avisez ni le président du conseil ni le Gouvernement
 4 dont cette lettre pouvait aider à former l'opinion. (Très
@@ -1235,31 +1235,31 @@ k Eh bien! bénissez l'amnistie, car si elle n'avait pas
 
 £ Mais que serait-il besoin d'un châtiment matériel en
 
-présence du châtiment moral qui pèse sur vous et vous 4
+présence du châtiment moral qui pèse sur vous et vous
 atteint? (Applaudissements à gauche et à l'extrême L KA Ê |
 gauche) Ce parti qui vous couvrait de ses acclamations … #4 |
-il y a quelques années, lorsque vous déposiez des pro- 22
+il y a quelques années, lorsque vous déposiez des pro-
 jets de réformes démocratiques, ce parti, regardez-le, À 13 |
 entendez-le, écoutez-le! (Nouveaux applaudissements à … Dr: |
 gauche et à l'extrême gauche) MR
 Parmi ceux qui faisaient votre éloge j'ai le droit de 4 |
 me ranger. Un jour, à la tribune, j'ai rappelé que, quek 4 |
-ques jours auparavant, vous aviez déposé une proposi- Pa 4
+ques jours auparavant, vous aviez déposé une proposi- Pa
 tion de réforme fiscale et sociale, de réforme démocra- DE
 tique, et je vous ai félicité de marcher sur les traces de RE |
-celui dont vous portiez le nom et le prénom, de ce L
+celui dont vous portiez le nom et le prénom, de ce
 Godefroy Cavaignac dont vous sembliez suivre la tradi "
 Depuis de longs jours, hélas ! je passe au cimetière
 Montmartre devant sa statue et je salue tristement ce M)
-‘ bronze. Eh bien! je me demande à cette heure où reten- 4
+‘ bronze. Eh bien! je me demande à cette heure où reten-
 tit à cette tribune la révélation que vous venez d'en- > |
 tendre, si ce bronze ne va pas se dresser et, tenant entre, 4 |
 ses doigts crispés la plume et l'épée que Rude y avait de
-mises comme pour exprimer que ce paladin.de la Répu M
+mises comme pour exprimer que ce paladin.de la Répu
 blique donnait à sa cause et son âme et sa vie; je me … “4
 demande s'il ne va pas se dresser devant vous et Vous
-crier : « Vous n'êtes plus dans la République; vous n'êtes Te 1
-plus de notre lignée! » (Vifs applaudissements à gauche  « 4
+crier : « Vous n'êtes plus dans la République; vous n'êtes Te
+plus de notre lignée! » (Vifs applaudissements à gauche  «
 et à l'extrême gauche. — Bruit sur divers bancs au -« centre et à droite) DR. |
 A droite. — Des Bouches-du-Rhône. (Æxclamations | M}
 
@@ -1276,7 +1276,7 @@ lui aurait arraché. pen:
 Ah oui! si j'avais voulu faire ce que vous paraissez
 © insinuer sans oser le dire, si j'avais voulu écarter ou $ à
 ke Le dissimuler l'aveu, savez-vous ce que j'aurais fait ?
-Hi lLe jour où le premier doute est venu dans mon 4
+Hi lLe jour où le premier doute est venu dans mon
 4 esprit, oui, j'aurais livré, sans aller jusqu'au bout
 de mon enquête, j'aurais livré le lieutenant-colonel
 .  M:Pasor.— C'est ce que vous avez eu l'intention de
@@ -1290,32 +1290,32 @@ fe à droite. — Exclamations à l'extrême gauche)
 | un rasoir. (Bruit)
 T E . GODEFROY CAvAIGNAC. — Peut-être aussi, monj* ra ur Henri Brisson, à quelqu'une de ces enquêtes parvu NE IOERERRNSE
 
-lementaires dont on nous parle aujourd'hui, dont vous # 4
-avez dirigé l'une et où vous savez si bien combien la S 1
+lementaires dont on nous parle aujourd'hui, dont vous #
+avez dirigé l'une et où vous savez si bien combien la
 vérité échappe facilement à ceux qui la cherchent.
 (Applaudissements et rires sur les mêmes bancs au à
 centre et à droite) +4 |
-Eh bien, non! Je suis sorti volontairement des voies D
+Eh bien, non! Je suis sorti volontairement des voies
 régulières; j'ai fait venir le coupable devant moi et |
 j'ai obtenu de lui ce que des voix sorties de vos rangs « |
 ont appelé un jour, dans un accès de franchise, le seul |
 atome de vérité prouvée qu'il y ait dans cette affaire; {
 - j'ai arraché de lui par ma résolution et par ma volonté |
-laveu que vous essayez aujourd'hui d'exploiter contre î
+laveu que vous essayez aujourd'hui d'exploiter contre
 ° nous. (Bruit à l'extrême gauche) À
-Vous avez encore, monsieur Henri Brisson, insinué j
-ou affirmé que j'aurais établi à ce sujet un concert avec î
+Vous avez encore, monsieur Henri Brisson, insinué
+ou affirmé que j'aurais établi à ce sujet un concert avec
 le commandant du quatrième corps. Sur ce point, c'est \:
 bien simple : je vous oppose le démenti le plus net et le
-plus formel. (Applaudissements sur divers bancs, au 4
-centre et à droite) D:
+plus formel. (Applaudissements sur divers bancs, au
+centre et à droite)
 Quant à cette autre affirmation que vous avez été
 singulièrement imprudent de porter ici, monsieur
-Henri Brisson, d'après laquelle je vous aurais dissimulé Ÿ
+Henri Brisson, d'après laquelle je vous aurais dissimulé
 la pièce dont a parlé M. Jaurès, je n'ai jamais, quant à
 moi, connu cette pièce ; aucune des personnes avec qui.
 jamais soufflé un seul mot. À |
-M. Jean Coper. — Monsieur Cavaignac, vous avez ù
+M. Jean Coper. — Monsieur Cavaignac, vous avez
 dit tout à l'heure le contraire ? ; : |
 M. Maurice Viozretre. — Vous avez dit que wous à |
 n'en aviez pas tenu compte !
@@ -1349,17 +1349,17 @@ de M: Henri Brisson évoquait ici le souvenir des républiRe _ cains d'autrefois
 rons de revendiquer les traditions, et faisait appela À
 leurs témoignages. Oui, je voudrais bien qu'on les appe 17°
 lât ici, les hommes qui ont fondé autrefois la Répu. |
-blique contre les régimes de corruption de jadis; je 4
+blique contre les régimes de corruption de jadis; je
 voudrais bien qu'on les appelât ici. ‘à
 M. Juzes-Lours BReron. — Ils vous enverraient à … Es. |
-l'échafaud, ceux-là! 15
-M. Goperroy CAVAIGNAG. — J'ai peut-être plus de” 0
+l'échafaud, ceux-là!
+M. Goperroy CAVAIGNAG. — J'ai peut-être plus de”
 droits que M. Henri Brisson de parler au nom de ceux |
 drais qu'on rappelât ici les hommes qui ont fondé la ‘al
-République autrefois en face des monarchies et qui ont %: 0
-créé ce parti d'honnêteté politique et de fierté nationale 4
+République autrefois en face des monarchies et qui ont %:
+créé ce parti d'honnêteté politique et de fierté nationale
 qu'était le parti républicain. Je voudrais bien qu'on rap- xl
-pelât ici... ({nterruptions et bruit à l'extrême gauche et nn M
+pelât ici... ({nterruptions et bruit à l'extrême gauche et nn
 M. Juces-Louis Breton. — Si nous étions la Conven- |
 tion, il y à longtemps que vous seriez guillotiné |! ‘A
 M. Le PRÉSIDENT. — Monsieur Breton,je vous rappelle aan
@@ -1368,8 +1368,8 @@ parti républicain en face de la monarchie parlementaire à
 de Juillet, je voudrais qu'on püt leur demander si le :
 régime d'aujourd'hui ressemble plus à celui qu'ils à
 avaient rêvé qu'à ceux qu'ils ont combattus et renver- pt
-M. JAURèS. — Je n'ai qu'un mot à ajouter sur cet inci 4
-Je n'ai jamais dit que M. Cavaignac ait eu connais- k
+M. JAURèS. — Je n'ai qu'un mot à ajouter sur cet inci
+Je n'ai jamais dit que M. Cavaignac ait eu connais-
 sance de la lettre de Guillaume IL; mais je prends acte FA
 
 de sa déclaration relativement à la lettre du général de
@@ -1384,7 +1384,7 @@ c'est qu'on n'ait pas soumis à la même épreuve ceux
 G' que M. Cavaignac apportait jadis à cette tribune. (Très
 … bien! à l'extrême gauche et à gauche) :
 Lo _jele répète, la responsabilité de tout ce qui a pu être
-We 21 fait au sujet de la lettre du général de Pellieux. 5
+We 21 fait au sujet de la lettre du général de Pellieux.
 D Cependant, comme il s'agit de souvenirs qui remon-
 “tent à cinq années, je ne puis pas dire si elle est arri-
 | vée au ministère ou si elle y est arrivée avant ou après
@@ -1401,8 +1401,8 @@ ts A s'agira de savoir qui a pris la responsabilité, dans
 “selon nous, pouvait éclairer le problème d'un jour déci-
 * sif . Ge qui paraît avoir échappé, à moins qu'ils ne l'aient
 
-trop bien vu, à ceux qui ont gardé pour eux cette pièce, : 4
-c'est qu'elle est grave, particulièrement grave, en ce 1
+trop bien vu, à ceux qui ont gardé pour eux cette pièce,
+c'est qu'elle est grave, particulièrement grave, en ce
 que le général de Pellieux, qui avait conduit l'enquête 4)
 Esterhazy qui a servi de base à tout le développement “4 |
 ultérieur, c'est que le général de Pellieux, rappelant ses s |
@@ -1413,22 +1413,22 @@ rément trompé... (Mouvements divers) Ta
 Lorsqu'il dit : « Dupe de gens sans honneur », et lors- :
 qu'il ajoute qu' « il ne peut garder sa confiance en ceux
 de ses chefs qui l'ont fait travailler sur des faux »,
-c'est l'accusation directe de complicité morale avec 4
+c'est l'accusation directe de complicité morale avec
 Henry que porte le général de Pellieux. (Applaudisse
 ments à gauche et à l'extrême gauche. — Exclamations Fr)
 Et notez qu'il dit qu'on l'a « fait travailler sur des #
-faux » c'est-à-dire qu'on a égaré sur des pièces fausses î
+faux » c'est-à-dire qu'on a égaré sur des pièces fausses
 l'enquête d'où devait résulter pour ce pays la lumière et  “}
 Voilà ce qui était grave au moment où Henry avouait
 . le crime commis par lui, et où il importait de savoir si
-c'était un crime isolé ou bien s'il se rattachait à tout un 4
+c'était un crime isolé ou bien s'il se rattachait à tout un
 système de mensonge et de faux. Cette pièce pouvait "
 avoir une importance capitale. En tout cas c'était le ‘à
 devoir de ceux qui l'avaient reçue d'appeler le général :
 de Pellieux à s'expliquer sur son contenu non seulement ÿ |
-devant eux-mêmes, mais devant tout le Gouvernement 4
+devant eux-mêmes, mais devant tout le Gouvernement
 responsable qui avait à prendre solidairement des déci- .
-| sions et des responsabilités. C'est ce devoir qui n'a pas k
+| sions et des responsabilités. C'est ce devoir qui n'a pas
 été rempli : et lorsque vous dites que vous ne savez pas |
 si le général de Pellieux n'a pas en partie retiré la pen- }
 
@@ -1462,29 +1462,29 @@ o (Vifs applaudissements à l'extrême gauche et sur divers
 nuer à s'occuper demain de l'affaire Dreyfus, je ny M |
 d vois pour ma part aucun inconvénient, mais il me |
 semble que nous ne devons point oublier le point de Ml
-départ qui est l'élection du deuxième arrondissement de k 4
+départ qui est l'élection du deuxième arrondissement de
 Paris. (Très bien ! irès bien! à droite et au centre. — ‘4 |
-Interruptions à l'extrême gauche) 4
-Vous pourriez peut-être, messieurs, en jugeant tout À 6
+Interruptions à l'extrême gauche)
+Vous pourriez peut-être, messieurs, en jugeant tout À
 de suite le cas électoral donner satisfaction au suffrage “4
-universel, qui, après tout, m'a envoyé ici. (Bruit à À ; x
-M. MassaBuau. — Je demande la parole. (Æxclama- 4
+universel, qui, après tout, m'a envoyé ici. (Bruit à À
+M. MassaBuau. — Je demande la parole. (Æxclama-
 M. LE PRÉSIDENT. — Il est d'usage que la Chambre 3]
-accorde à l'orateur qui le demande la remise au lende- 0
-main. (Très bien! très bien!) 1
+accorde à l'orateur qui le demande la remise au lende-
+main. (Très bien! très bien!)
 M. pe Boury. — Pas toujours! On a forcé jadis 4}
 M. Prache à continuer son discours. QU |
 remise à demain de la suite du discours de M. Jaurès, L |
-mais à la condition qu'il sera bien entendu qu'une fois M
-que M. Jaurès aura parlé, la Chambre ne prononcera 4
-pas la clôture du débat et qu'elle nous permettra de lui 4
-commission, permettez-moi de dire, messieurs, qu'il est ñ
+mais à la condition qu'il sera bien entendu qu'une fois
+que M. Jaurès aura parlé, la Chambre ne prononcera
+pas la clôture du débat et qu'elle nous permettra de lui
+commission, permettez-moi de dire, messieurs, qu'il est
 incompréhensible qu'on s'oppose à ce que nous propo- |
 sons. Il est tout naturel que M. Jaurès demande le ren- | 4 |
 
 voi à demain, et que ce renvoi soit voté, mais rien
 # n'empêche que nous achevions ce soir l'examen des Jr Le
-* _ opérations électorales ‘du deuxième arrondissement. F:
+* _ opérations électorales ‘du deuxième arrondissement.
 "4 (Interruptions à l'extrême gauche et à gauche) ave
 _ Je ne dis rien là qui puisse blesser personne. Je tiens
 1 : dégager la respons té de la commission... (NouLT le : interruptions sur les mêmes bancs)
@@ -1496,8 +1496,8 @@ Don mi est en cause. (Très bien! très bien! au
 L52 … M-ze rréspenr. — Je consulte la Chambre sur la
 “remise à demain de la suite de la discussion. +
 | 1 fAè IL y a une demande de scrutin signée de MM. Féron,
-| _ Bagnol, Aristide Briand, de Pressensé, Desfarges, Genet, 7
-| _ Baudon, Rouby, Dubief, Pajot, Lesage, Dasque, etc. 4
+| _ Bagnol, Aristide Briand, de Pressensé, Desfarges, Genet,
+| _ Baudon, Rouby, Dubief, Pajot, Lesage, Dasque, etc.
 | _ Le scrutin est ouvert.
 | 150 (Les votes sont recueillis. — MM. les secrétaires en ‘
 * font le dépouillement.) |
@@ -1508,17 +1508,17 @@ VER En conséquence, la suite de la discussion est ren- \
 
 Invalidation Syveton ne
 
-Annexe au procès-verbal de la séance ï 1
+Annexe au procès-verbal de la séance
 
-à du lundi 6 avril 4
+à du lundi 6 avril
 
-La Chambre des députés a adopté. 4
+La Chambre des députés a adopté.
 
 ches-du-Rhône). Barthou. Basly. Baudet (Charles) (Côtes- |
 
 du-Nord). Baudet (Louis) (Eure-et-Loir). Baudin (Pierre). {
 
-(Jules-Louis). Brisson (Henri) (Bouches-du-Rhône). Brunard. 4
+(Jules-Louis). Brisson (Henri) (Bouches-du-Rhône). Brunard.
 (François). Carpot. Castellane (comte Stanislas de). "
 
 Fr Re ne dre-et-Loire). Chautemps (Émile) (Haute-Savoie). ChauEt Le vière. Chavoix. Chenavaz. Clament (Clément) (Dordogne).
@@ -1542,7 +1542,7 @@ Amodru. Anthime-Ménard. Archdeacon. Argeliès. Arnal. NE
 Ru Bar sard de Bois. Baron (Jules) (Maine-et-Loire). Baudry
 A _ d'Asson (de). Beauregard (Paul) (Seine). Beauregard (de)
 5 (ind re). Benoist (de) (Meuse). Berger (Georges). Berry |
-—_ (Georges). Bignon (Paul). Boissieu (baron de). Bonnevay. f
+—_ (Georges). Bignon (Paul). Boissieu (baron de). Bonnevay.
 _  the-et-Moselle). Brindeau. Brisson (Joseph) (Gironde).
 ne Broglie (due de).
 
@@ -1553,13 +1553,13 @@ _ Cornudet (vicomte). Corrart des Essarts. Coutant (Paul)
 | »  Dansette (Jules). Darblay. Daudé. Dèche. Delafosse
 “…_ (marquis de). Drake (Jacques). Dubuisson. Duquesnel.
 
-ne: Elva (comte d'). Engerand (Fernand). Ermant. j
+ne: Elva (comte d'). Engerand (Fernand). Ermant.
 
 #4 à istourbeillon (marquis de l').
 | Ki Fabien Cesbron. Failliot. Faure (Firmin). Ferrette. :
 |. 4 _ Flandin (Ernest) (Calvados). Fontaines (de). Fouché.
 | …_ Gaïlhard-Bancel (de). Gaillard (Jules). Galot (Jules).
-| _ Galpin (Gaston). Gauthier (de Clagny). Gautier (Léon) 5
+| _ Galpin (Gaston). Gauthier (de Clagny). Gautier (Léon)
 | _ Gé ard (Edmond) (Vosges). Gervaize (Meurthe-et-Moselle).
 | | Gévelot. Ginoux-Defermon. Gonidec de Traissan (comte NU
 M“ Ie): Goujon (Julien). Gourd. Grandmaison (de). Grosjean.
@@ -1574,19 +1574,19 @@ sg _ Halgouet (lieutenant-colonel du). Hémon.
 | Larpentaye (Rioust de). Laroche-Joubert. La Rochethulon
 
 (comte de). Lasies. Laville. Lebaudy (Paul). Lefas. Me
-Legrand (Arthur). Le Hérissé. Lemire. Lepelletier (Edmond). 34
+Legrand (Arthur). Le Hérissé. Lemire. Lepelletier (Edmond).
 Lerolle. Lespinay (marquis de). Lévis-Mirepoix (comte de). MA
 Limon. Ludre (comte Ferri de). ; EN:
 Mackau (baron de). Marot (Félix). Maurice Binder. 4 à
 Maurice Spronck. Maussabré (marquis de). Michel ‘4 |
 (comte de). Montalembert (comte de). Montjou (de).
 Moustier (marquis de). Mun (comte Albert de). LLC
-Plichon. Pomereu (comte de). Prache. Proust. Pugliesi- 4
+Plichon. Pomereu (comte de). Prache. Proust. Pugliesi-
 Ramel (de). Rauline. Reille (baron Amédée). Reille (baron
 (Ardèche). Roger-Bailu. Rohan (duc de). Roscoat (vicomte “
 du). Rouland. Rouvre (Bourlon de). Rudelle. ne |
 Saint-Martin (de). Saint-Pol (de). Savary de Beauregard. Fe
-Schneider (Eugène) (Saône-et-Loire). Suchetet. k
+Schneider (Eugène) (Saône-et-Loire). Suchetet.
 
 Bourgeois (Léon) (Marne). Boury (de). Brice (René) (Ille- ‘3h
 
@@ -1594,7 +1594,7 @@ Gaflier. Gellé. Guillain. FAR ET
 er hièze. Laurens-Castelet (marquis de). Léglise. Lozé.
 _  Mahy (de). Maruéjouls. Massabuau. Méline. Motte. LS
 "Un 10 (Camille). Périer de Larsan (comte du). VERS
-| HU tes députés dont l'élection est soumise à l'enquête : 1
+| HU tes députés dont l'élection est soumise à l'enquête
 …_… Caïllaux. Castellane (comte Boni de). Castillard. Cauvin dE » (nest). Chabert (Justin) (Rhône). Chamerlat. Chanoz. "ù
 … David (Henri) (Loir-et-Cher). Decrais. Derveloy. Des- |
  Hugu Les (François) (Aisne). }
@@ -1608,20 +1608,20 @@ de Pour l'adoption... "1327 Re
 Lie Mais, après vérification, ces nombres ont été rectifiés
 | conformément à la liste de scrutin ci-dessus. ne ES
 [Les rectifications au scrutin de ce jour sont port “Eu |
-dans le numéro suivant de l'Oficiel, après les scrutins nn M
+dans le numéro suivant de l'Oficiel, après les scrutins nn
 
 _ Chambre des Députés, huitième législature, session AS
 dé À ordinaire de 1903, compte rendu in extlenso, soixante- sal
 À _ sixième séance, séance du mardi 7 avril. — Journal Hour
 officiel du mercredi 8 avril 1903 : rl » Présidence de M. ÉTIENNE, vice-président. (ire
-A commission chargée de procéder à une enquéte sur é
+A commission chargée de procéder à une enquéte sur
 …. les opérations électorales du deuxième arrondisse- Von
 | ment de Paris et tendant à la validation de ces SA
 le ministre de la guerre, Camille Krantz, Godefroy Ne
 “ _ Cavaignac, Henri Brisson, Lasies, de Pressensé, LAN
-14 Paul Beauregard, rapporteur. Scrutin. Pointage. NE
+Paul Beauregard, rapporteur. Scrutin. Pointage. NE
 Rejet. — Annulation des opérations électorales. ve
-| Projets de résolution : 1° de M. Jaurès et plusieurs Î
+| Projets de résolution : 1° de M. Jaurès et plusieurs
 … de ses collègues; 2° de M. Paul Constans et plusieurs
 mA e ses collègues: 3° de M. Magniaudé. — Demande pe
 “ rès — Demande de l'ordre du jour pur et- 10 TA
@@ -1632,33 +1632,33 @@ mA e ses collègues: 3° de M. Magniaudé. — Demande pe
 2° de M. Ghapuis et plusieurs de ses collègues. _— À
 Demande de l'ordre du jour pur et simple : MM. le À
 président du conseil, Ribot, Chapuis, Vaseille. Retrait. A
-— Rejet, au scrutin, de la priorité en faveur du 4
+— Rejet, au scrutin, de la priorité en faveur du
 projet de résolution de M. Jaurès et plusieurs de ses ‘à |
 collègues. — Sur la priorité en faveur du projet de à |
 résolution de M. Chapuis et plusieurs de ses collègues : 1 |
-— Adoption, au scrutin, au fond, de la première 7
+— Adoption, au scrutin, au fond, de la première
 partie de ce projet de résolution. — Adoption, au | |
 scrutin, de la seconde partie. — Adoption, au scrutin,
-de l'ensemble. Ê.
+de l'ensemble.
 Suite de la vérification des pouvoirs |
-M. LE PRÉSIDENT. — L'ordre du jour appelle la suite Ë
-de la discussion des conclusions du rapport de la commission chargée de procéder à une enquête sur les 1
+M. LE PRÉSIDENT. — L'ordre du jour appelle la suite
+de la discussion des conclusions du rapport de la commission chargée de procéder à une enquête sur les
 opérations électorales du deuxième arrondissement de 43 |
 Paris. il
-La parole est à M. Jaurès pour continuer son discours. 4
-M. JAuRÈS. — Messieurs, hier dans la houle qu'a pro- - 4
+La parole est à M. Jaurès pour continuer son discours.
+M. JAuRÈS. — Messieurs, hier dans la houle qu'a pro-
 voquée l'incident entre M. Brisson et M. Cavaignac, je A
 n'ai pas entendu deux observations présentées par à
 deux de nos collègues. M. Cavaignac a dit : la lettre
-west pas d'ailleurs nouvelle: une interview en avait 4
-donné une idée très exacte dès le 3 septembre. 5
+west pas d'ailleurs nouvelle: une interview en avait
+donné une idée très exacte dès le 3 septembre.
 Je réponds à cela trois choses : il n'y à aucun rap- |
-port entre une interview dont l'authenticité ne peut être 3
-assurée, où les termes ne peuvent pas être contrôlés et 3;
+port entre une interview dont l'authenticité ne peut être
+assurée, où les termes ne peuvent pas être contrôlés et
 une lettre authentique, oflicielle, signée par un homme K]
 
-Has -omme le général de Pellieux. (Très bien! très bien! à Ÿ
-4 En second lieu, entre les termes de l'interview et » ceux de la lettre, il y a de notables différences. Les
+Has -omme le général de Pellieux. (Très bien! très bien! à
+En second lieu, entre les termes de l'interview et » ceux de la lettre, il y a de notables différences. Les
 D Fe expressions les plus fortes de la lettre ne se retrouvent.
 ” pas dans l'interview, et enfin on cherche inutilement à
 comment une interview publiée le 3 septembre pouvait
@@ -1667,7 +1667,7 @@ comment une interview publiée le 3 septembre pouvait
 : 4 _ point du débat.
 Je crois que la presse non seulement a donné une ;
 interview du général de Pellieux, mais encore elle a
-_ signalé sa lettre en en donnant le sens général et même 3
+_ signalé sa lettre en en donnant le sens général et même
 … une des phrases principales. Car voici ce que Le Gaulois
 … du 2 septembre 1898 a publié :
 “ Le document dont le général de Pellieux a été appelé à \
@@ -1679,7 +1679,7 @@ lettre était adressée au ministre; mais, suivant la voie
 é _ hiérarchique, elle est parvenue au général gouverneur de
 —. Paris, — et par laquelle il sollicitait sa mise à la retraite
 —. pour éviter d'être confondu avec des gens sans honneur.
-—_ Ce texte établit que l'existence de la lettre, son sens k
+—_ Ce texte établit que l'existence de la lettre, son sens
 à général, une des phrases principales étaient connus dès
 
 le 2 septembre 1898. (Très bien! très bien! à droite et
@@ -1690,17 +1690,17 @@ laissez, je vous prie, l'orateur s'expliquer. RE
 f M. ze marquis DE Dion. — Si M. Jaurès juge que Ni
 l'affaire Dreyfus est, comme la triple alliance, uw
 contrepoids nécessaire au chauvinisme français, cela le ri à
-regarde; mais nous ne pouvons pas laisser passer de 74
+regarde; mais nous ne pouvons pas laisser passer de
 télles paroles sans protester. FES
-M. LE PRÉSIDENT. — Monsieur de Dion, si vous per- “à 4
+M. LE PRÉSIDENT. — Monsieur de Dion, si vous per- “à
 sistez à interrompre, je serai obligé de vous appliquer ‘]
 les peines du règlement. on |
-M. ze marquis DE Dion. — J'ai le droit de donner 4
+M. ze marquis DE Dion. — J'ai le droit de donner
 mon sentiment. US
-vous prie encore une fois de garder le silence. ; à k
+vous prie encore une fois de garder le silence. ; à
 pas à vous rappeler à l'ordre avec inscription au S à
 M. LE MARQUIS DE Dion. — M. Jaurès a déjà dit que "}
-la triple alliance était un contrepoids nécessaire au 3
+la triple alliance était un contrepoids nécessaire au
 patriotisme français et il essaye de démontrer que : @
 l'affaire Dreyfus doit jouer le même rôle. (Æxclama- :. |
 tions et rumeurs à l'extrême gauche) à |
@@ -1717,30 +1717,30 @@ _ quand j'aurai été mis à la porte par vous tous. (Bruit)
 … des décisions immédiates que le Gouvernement devait
 … prendre, entre une interview où même il serait fait siR
 allusion à la lettre du général de Pellieux et Le texte si :
-| vigoureux de cette lettre. L
+| vigoureux de cette lettre.
 | 2 . Jaurès. — Oh! monsieur Syveton! je vous en sx
-12 L M. ze marQuIS DE Dion. — C'est une manœuvre pour
+L M. ze marQuIS DE Dion. — C'est une manœuvre pour
 S _ Paralyser et détruire notre pays.
 _ M. Pracne. — Enfin, est-ce qu'il s'agit de l'élection
 _ de Dreyfus?
 dise tout ce qu'il voudra. Tout cela n'a aucune impor-
 . M. 1E marquis DE Dion. — C'est un défi porté au
-M. Jaurès. — Laissez-moi vous dire que ces mani- c
+M. Jaurès. — Laissez-moi vous dire que ces mani-
 %. M tions concertées, tapageuses et injurieuses viennent
 __ un peu tard... (Bruit à droite) |
-re vous m'avez écouté en silence, parce que vous 2
+re vous m'avez écouté en silence, parce que vous
 … nimaginiez pas que je vous porterais les coups que je -
 
-vous porte. (Applaudissemenis à gauche. — Exclama- ë
+vous porte. (Applaudissemenis à gauche. — Exclama-
 
 Vous vous êtes donné le mot d'ordre pour essayer de
-couvrir ma voix aujourd'hui; je vous assure... (Bruit) ÿ
+couvrir ma voix aujourd'hui; je vous assure... (Bruit)
 
-M. Le MARQUIS DE Dion. — Nous avons bien le droit Ë
-de manifester notre opinion! 4
+M. Le MARQUIS DE Dion. — Nous avons bien le droit
+de manifester notre opinion!
 
 M. LE PRÉSIDENT. — L'orateur ne peut pas continuer
-ainsi, je vous prie de garder le silence. J
+ainsi, je vous prie de garder le silence.
 
 M. JAURÈS. — … je vous assure qu'en agissant ainsi, #
 vous ne servez pas votre cause devant le pays. À
@@ -1750,11 +1750,11 @@ c'est celle du pays que nous servons.
 
 | M. LE PRÉSIDENT. — Cette attitude est intolérable! |
 
-M. Lasies. — Monsieur Jaurès, voulez-vous me per- ë
+M. Lasies. — Monsieur Jaurès, voulez-vous me per-
 mettre une observation ?.…
 
 M. Lasres. — Aujourd'hui, M. Jaurès veut bien faire |
-échange de bons procédés avec moi, et je en remercie. 4
+échange de bons procédés avec moi, et je en remercie.
 
 M. Jaurès a dit qu'on s'était concerté pour l'empêcher
 de parler. Chacun assiste à la discussion, monsieur
@@ -1772,7 +1772,7 @@ M. LE PRÉSIDENT. — J'espère que maintenant on
 
 M. JAuRÈS. — Il est donc entendu que les amis de
 
-4 M. Lasies ne retarderont pas le moment où il pourra
+M. Lasies ne retarderont pas le moment où il pourra
 KL nous porter des coups décisifs.
 ; M. Massapuau. — On ne le laissera pas parler.
 ; M. Jaurès. — M. Grosjean — et c'est la deuxième
@@ -1805,29 +1805,29 @@ M. Grorces GrossEan. — L'intérêt qu'avait la cham-
 ral de Peliieux consistait à savoir de lui ce qui s'était
 È ‘passé au cours de l'enquête Esterhazy, qu'il avait con-
 
-duite. Il n'était point nécessaire, pour faire appeläce L
+duite. Il n'était point nécessaire, pour faire appeläce
 témoignage, de connaître la lettre dont M. Jaurès vous
-a lu hier le texte à cette tribune. J'ajoute que si cette ; 4
-lettre vous a privé d'un moyen d'émotion sur l'opinion, É
+a lu hier le texte à cette tribune. J'ajoute que si cette
+lettre vous a privé d'un moyen d'émotion sur l'opinion,
 elle n'a pas privé les juges d'un élément d'appréciation « et voici pourquoi : Si considérable que soit l'intérêt que
-vous attachez à ce document, vousreconnaîtrez cependant T4
+vous attachez à ce document, vousreconnaîtrez cependant
 que: les aveux d'Henry avaient une force autrement
-considérable. Eh bien! je vous rappelle que arrêt de la 1
+considérable. Eh bien! je vous rappelle que arrêt de la
 cour a écarté, comme fait nouveau, le faux, les aveux À
 et la mort d'Henry. 3 ;
 M. Jaurès. —Vous ne contestez pas vous être trompé
-M. Jaurès. — Nous discuterons ensuite sur les con D
-séquences de votre erreur. (Bruit à droite) 4
+M. Jaurès. — Nous discuterons ensuite sur les con
+séquences de votre erreur. (Bruit à droite)
 M. ze MARQUIS DE Dion. — Alors, la Chambre est À
 transformée en cour de cassation! Qu'on nous donne la :
-orateurs, vous vous plaindrez ! 34
+orateurs, vous vous plaindrez !
 M. Jaurès. — L'aveu d''Henry a donné tout à coup à ;
-la lettre de l'empereur Guillaume une importance nou è
+la lettre de l'empereur Guillaume une importance nou
 velle et un rôle plus grand. ;
-_ Après l'aveu du faussaire reconnaissant qu'il avait 4
-fabriqué une pièce pour charger un condamné, il n'y É
+_ Après l'aveu du faussaire reconnaissant qu'il avait
+fabriqué une pièce pour charger un condamné, il n'y
 avait plus que deux attitudes à prendre : ou bien ceux |
-qui avaient soutenu jusque-là la culpabilité du condamné de 1894 devaient reconnaître que cette culpabi- Ë
+qui avaient soutenu jusque-là la culpabilité du condamné de 1894 devaient reconnaître que cette culpabi-
 lité devenait plus que douteuse, puisqu'il avait fallu
 lappuyer de pièces fausses ; ou bien ils devaient expli- |
 quer que si le lieutenant-colonel Henry avait fabriqué :
@@ -1859,7 +1859,7 @@ Les celui qui va maintenant donner le mot d'ordre à toute
 d. “x les mouvements, M. le général Mercier, ne s'y est pas
 4 - trompé, et dès le lendemain ou le surlendemain de
 —_  laveu d'Henry aussitôt que le parti nationaliste, d'a-
-:4 bord accablé, se ressaisit et se retrouve, c'est la lettre j
+:4 bord accablé, se ressaisit et se retrouve, c'est la lettre
 _ de Guillaume II qui devient son moyen suprême de
 
 encore, lui, à ce moment, le temps de se ressaisir tout <
@@ -1868,22 +1868,22 @@ Le crime du colonel Henry est à la fois odieux et stu À
 pide. A quel sentiment misérable ou à quelle idée biscor- T0)
 nue a pu obéir le chef du service des renseignements ? Je à
 le cherche vainement. Peut-être, s'il ne s'était suicidé hier,
-aurait-il essayé d'expliquer qu'il avait fabriqué un docu- 4
-dont la divulgation eùt pu compromettre la sûreté de VE- 3
+aurait-il essayé d'expliquer qu'il avait fabriqué un docu-
+dont la divulgation eùt pu compromettre la sûreté de VE-
 tat. Ce serait là en tout cas une excuse étrange attendu
-que ce témoignage ne pourrait servir qu'à infirmer la sincé- F
-rité des autres. 1
-M. Rochefort est traversé par le doute ; mais le doute 4
+que ce témoignage ne pourrait servir qu'à infirmer la sincé-
+rité des autres.
+M. Rochefort est traversé par le doute ; mais le doute
 n'habitera pas longtemps en lui. (Sourires à gauche) $
 La Patrie du 3 septembre précise le système et elle -
-le met en quelque sorte sous le patronage d'Henry lui- 4
+le met en quelque sorte sous le patronage d'Henry lui-
 Nous devons à une indiscrétion de connaître la déclara- |
 tion suivante qu'aurait faite le colonel Henry : à
 « J'étais obsédé par l'impossibilité de rendre publiques
 les pièces établissant de façon irréfutable la culpabilité de
 Dreyfus. Cette publication mêlerait l'étranger à l'affaire et
 serait grosse de conséquences pour la France. IL fallait |
-cependant faire la contre-partie de l2 campagne poursuivie k
+cependant faire la contre-partie de l2 campagne poursuivie
 en vue de prouver l'innocence du traître. Devant cette
 impérieuse nécessité, j'ai fabriqué une pièce, j'ai fait un
 faux, je l'ai fait en mon âme et conscience 25 #
@@ -1903,7 +1903,7 @@ M: Jaurës. — C'est pour cela que vous parlez! (Rires
 . … M. Jaurès. — Le 3 septembre, dans le Petit Journal,
 « M. Judet qui est venu dans l'enquête formuler le sys-
 . ième de défense de M. Syveton, dit :
-14 L'explication du faux qu'il a commis, qui brise si lugu-
+L'explication du faux qu'il a commis, qui brise si lugu-
 …. brement toute une carrière de devoir et de vaillance, se
 — tire du sentiment exagéré des responsabilités personnelles
 .—._. devant une menace de revision. Il savait que le dossier
@@ -1920,7 +1920,7 @@ ue Je ne crois pas qu'on ait encore formulé aussi heureuse-
 … ment, aussi exactement l'explication du faux.
 di: Et la Patrie du 3 annonce que, pour faire valoir ce
 …— système, pour faire accepter au pays l'idée d'une pièce
-1 69
+1
 
 Invalidation Syveton Re FE de,
 
@@ -1944,25 +1944,25 @@ cès Dreyfus doit se faire, les nouveaux débats ne pourront
 pas avoir lieu à huis clos et qu'il faudra tout dire à ia
 France. « C'est la guerre certaine, » disait l'un d'eux ce #
 matin. Pourquoi est-ce la guerre ; sinon parce qu'on
-aurait à produire un document qui mettait personnellement en cause un souverain étranger ? 1
+aurait à produire un document qui mettait personnellement en cause un souverain étranger ?
 
 Messieurs, le système se propageait si abondamment.
 dans la presse nationaliste de France qu'il y futrépondu
-par une communication officieuse de la Gazette de « Cologne, du 7 septembre : 4
+par une communication officieuse de la Gazette de « Cologne, du 7 septembre
 
-Les soi-disant feuilles d'état-major francais continuent à n
+Les soi-disant feuilles d'état-major francais continuent à
 vouloir faire croire que la France, par tous les documents |
-du procès Dreyfus, va au devant d'une guerre menaçante L
-avec l'Allemagne. On sait à peu près aujourd'hui, grâce aux e
+du procès Dreyfus, va au devant d'une guerre menaçante
+avec l'Allemagne. On sait à peu près aujourd'hui, grâce aux
 communications de certaines feuilles, à quels documents,
-on fait allusion et qu'il s'agit certainement des prétendues : M
+on fait allusion et qu'il s'agit certainement des prétendues
 lettres de l'empereur allemand.
 
 Nous pouvons attendre iei avec un grand calme ces :
 publications. Car, il est à peine nécessaire de le dire, ilme
 peut s'agir que de faux, un empereur allemand ne corres-
 
-AR AS avec les espions au service de l'Allemagne. Si 6
+AR AS avec les espions au service de l'Allemagne. Si
 F quelque agent subalterne ou même un officier supérieur a
 
 _ falsil é le nom de l'empereur, nous n'y verrions pas de
@@ -1970,7 +1970,7 @@ _ falsil é le nom de l'empereur, nous n'y verrions pas de
 à la France. Ce serait tout au plus pénible pour les officiers
 
 É qui auraient donné un instant dans le piège d'un faux
-… aussi grossier que ridicule. É
+… aussi grossier que ridicule.
 Vous me permettrez de dire, puisque très souvent de
 
 —…. véhémentes déclarations de patriotisme sont jetées dans
@@ -1980,14 +1980,14 @@ Vous me permettrez de dire, puisque très souvent de
 | tism e à ne pas organiser notre état-major de telle sorte ?
 “€ que nous obligions l'étranger à le rappeler d'une façon
 _si humiliante au bon sens élémentaire et au sens
-commun. (Réclamations à droite. — Applaudissements L
+commun. (Réclamations à droite. — Applaudissements
 | à l'extrême gauche et à gauche)
-M. Puezæsi-Conri. — Parlez-nous donc de l'opinion î
+M. Puezæsi-Conri. — Parlez-nous donc de l'opinion
 
 que professe sur votre compte Liebknecht.
 
 DEUM. Lasres. — Vous trouvez cela très bien, monsieur À
-: le ministre de la guerre; pour moi, je trouve cela écœu- 1
+: le ministre de la guerre; pour moi, je trouve cela écœu-
 rant. (Applaudissements à droite. — Interruptions et
 1 . M: Jaurès. — Mais, messieurs, c'est le journal la }
 
@@ -2002,41 +2002,41 @@ A _ d'exploiterl'équivoque diplomatique qui s'était produite das
 
 - en 1894. Cette équivoque avait été créée tout ensemble
 
-| par la faute de l'ambassade allemande et par la faute - 1
-du ministère français de 1894. Ÿ
+| par la faute de l'ambassade allemande et par la faute
+du ministère français de 1894.
 
 _ L'ambassade allemande avait pris, à propos d'une :
 
 ; ‘affaire antérieure d'espionnage, l'engagement qu'aucun
 
-4 Ness de l'ambassade ne continuerait à se livrer
+Ness de l'ambassade ne continuerait à se livrer
 
 à Paris à cette sorte d'opération. L'engagement fut. que
-oublié, ou bien un des attachés militaires se livra à « 3
-quelqu'une de ces opérations sans avoir prévenu lam- 5
+oublié, ou bien un des attachés militaires se livra à «
+quelqu'une de ces opérations sans avoir prévenu lam-
 bassadeur lui-même, si bien que, lorsqu'en 1804 un. ia
 . bordereau fut trouvé à l'ambassade allemande, le démenti ‘4
-opposé par l'ambassade n'était pas inspiré seulement M
+opposé par l'ambassade n'était pas inspiré seulement
 par des raisons de fierté et de susceptibilité natio-. ‘4
-nales, il sy mêlait encore le dépit de la constatation É
-qui était faite que des règles de convenance internationale n'avaient pas été observées. 3 4
-De son côté, le gouvernement français, le ministère 41
-de cette époque, tout en ayant la sagesse de consentir 4
-à des communiqués à l'agence Havas qui atténuaient 4
+nales, il sy mêlait encore le dépit de la constatation
+qui était faite que des règles de convenance internationale n'avaient pas été observées.
+De son côté, le gouvernement français, le ministère
+de cette époque, tout en ayant la sagesse de consentir
+à des communiqués à l'agence Havas qui atténuaient
 ce qu'il pouvait y avoir de fâcheux dans les événements
-qui se produisaient, eut le tort d'employer des formes M
+qui se produisaient, eut le tort d'employer des formes
 ambiguës qui paraissaient non pas atténuer, mais À
-démentir la vérité, et où il paraissait nier qu'un borde- 1
-reau eût été trouvé dans une ambassade étrangère. k
+démentir la vérité, et où il paraissait nier qu'un borde-
+reau eût été trouvé dans une ambassade étrangère.
 Messieurs, cette équivoque, la démarche faite par À
 M. de Münster auprès du président de la République,
-ont été savamment exploitées. Et comme, au procès 1
+ont été savamment exploitées. Et comme, au procès
 Zola, M. Casimir-Perier, adoptant une règle de prudence" "
-outrée, dont heureusement il s'est départi devant la 5
-cour de cassation et devant le conseil de guerre de 1
-Rennes, où il a dit toute la vérité, comme M. CasimirPerier avait dit au procès Zola : « Mon devoir n'em- 74
-pêche de dire toute la vérité », le parti clérical essaya M
-de profiter de cette réticence et de l'obscurité qui res- M
+outrée, dont heureusement il s'est départi devant la
+cour de cassation et devant le conseil de guerre de
+Rennes, où il a dit toute la vérité, comme M. CasimirPerier avait dit au procès Zola : « Mon devoir n'em-
+pêche de dire toute la vérité », le parti clérical essaya
+de profiter de cette réticence et de l'obscurité qui res-
 tait dans le pays sur les incidents diplomatiques de $
 1894 pour y glisser la légende de la fausse lettre de
 I! fut entendu que si, à cette époque, des communi- à
@@ -2083,7 +2083,7 @@ des instructions détaillées, peut-être de la maïn de lempereur lui-même, in
 authenticité et, incidemment, il nomme en toutes lettres le
 traître Dreyfus. Bon nombre de personnes l'ont vu. Quel |
 qu'un qui a vu ce dossier a déclaré qu'avec une/seule pièce pl
-on convaincrait les plus aveugles. 3
+on convaincrait les plus aveugles.
 
 Messieurs, c'est à l'aide de ce système que, pendant
 tout le mois de septembre et tout le mois d'octobre, la à
@@ -2095,31 +2095,31 @@ C'est au moyen de ce système, c'est en dénonçant le
 ministère qui semblait vouloir prendre l'initiative de la :
 revision comme un ministère de trahison tout ensemble
 
-et d'aventures, qui n'allait pas craindre, pour réhabiliter un coupable, d'exposer la France à la guerre par f
+et d'aventures, qui n'allait pas craindre, pour réhabiliter un coupable, d'exposer la France à la guerre par
 la production de documents redoutables, c'est au “
 moyen de ce système que, pendant tout le mois de sep- ;.
-. tembre et tout le mois d'octobre, le parti clérical a 1
+. tembre et tout le mois d'octobre, le parti clérical a
 combattu le ministère Brisson, le ministère de la revi- à
 
 Si vous lisez la Croix de cette époque, vous y verrez |
-la haïne implacable, (Rumeurs à droite. — Applaudisse- h.
+la haïne implacable, (Rumeurs à droite. — Applaudisse-
 ments à l'extrême gauche et à gauche) l'appel à la À
-eurée contre le ministère de lumière et de revision. È
+eurée contre le ministère de lumière et de revision.
 
-Et c'est avec le système que je viens de vous mon- È
+Et c'est avec le système que je viens de vous mon-
 trer de la fausse lettre de Guillaume glissée à la faveur }
 de l'obscurité et de l'équivoque diplomatique de 1894, |
 c'est avec ce système qu'on essayait de batire en +
 brèche la conviction de vérité et de bon sens qui avait
 commencé à se produire dans le pays. C'est avec ce :
-système qu'on battait en brèche le Gouvernement qui L
+système qu'on battait en brèche le Gouvernement qui
 
 1e _voulai donner à la révélation du faux Henry, par la
 64 revision, sa sanction nécessaire. fi
-Aujourd'hui, messieurs, il vous est facile de désaAn _vouer cette presse. ({nterruptions à droite. — Applau- 4
+Aujourd'hui, messieurs, il vous est facile de désaAn _vouer cette presse. ({nterruptions à droite. — Applau-
 …  dissements à l'extrême gauche et à gauche) Aujour- PAUNE
  d'hui, quand je vous apporte les citations de vos propres
-journaux, quand je saisis, que je dénonce votre sys- 14
+journaux, quand je saisis, que je dénonce votre sys-
 _ tème non pas d'après les imaginations de vos adver-
 | saires, mais d'après les publications permanentes de Rn
 . vos propres amis, il vous est facile de railler et de
@@ -2135,7 +2135,7 @@ d connais pas la Croix; quel est ce journal? Où paraît-il ?
 M. Peut-être est-il publié en Allemagne ! (Applaudissements
 à l'extrême gauche) Non, me dit aussi M. PugliesiConti. En vérité, messieurs, laissez-moi.. (Vives inter-
 \ _ raptions et bruits à droite) : ;
-410 M. Puezæsr-Conri. — Parlez-nous donc de M. Urbain È
+M. Puezæsr-Conri. — Parlez-nous donc de M. Urbain
  Gohier et de son opinion sur l'affaire. Il nous serait
 agréable de la connaître. (Bruit)
 ee à: M. LE PRÉSIDENT. — Monsieur Pugliesi-Conti, je vous
@@ -2144,27 +2144,27 @@ de rappelle à l'ordre.
 M. Jaurès. — Vous donnez ici, messieurs, un spec- PA
 tacle singulier ! (Applaudissements à l'extrême gauche « et à gauche. — Interruptions à droite) Ê ss
 Divers membres à droite. — C'est vous qui le don
-bien attristant que vous nous donnez. (Très bien! très 6
+bien attristant que vous nous donnez. (Très bien! très
 bien ! à droite. — Interruptions à gauche) à
-M. Jures-Lours BRETON. — Nous comprenons cela ! k
+M. Jures-Lours BRETON. — Nous comprenons cela !
 martyriser la patrie! Pa.
 M. Puezxæsr-Coxrr. — Vous êtes les pires ennemis de <
 la patrie. à
 M. LE PRÉSIDENT. — Je serai obligé de vous rappeler
 à l'ordre, avec inscription au procès-verbal, si vous à
-M. Jaurès. — Dans les citations que j'ai faites, dans Æ
-les extraits que j'ai apportés à cette tribune depuis 2
+M. Jaurès. — Dans les citations que j'ai faites, dans
+les extraits que j'ai apportés à cette tribune depuis
 l'origine du débat, je n'ai pas pris, par une sorte de :
 sélection trop habile, tel ou tel journal représentant À
 exclusivement telle ou telle catégorie de l'opposition à
-nationaliste, conservatrice ou catholique; j'ai emprunté È
-des citations, des articles à tous vos grands journaux 4
+nationaliste, conservatrice ou catholique; j'ai emprunté
+des citations, des articles à tous vos grands journaux
 de toutes vos nuances, de toutes vos catégories; j'ai À
 emprunté des citations décisives à la France, à la ;
 Presse, au Jour, à la Patrie, à l'Intransigeant, à la
 Libre Parole, à la Croix, à la Vérité, à tous vos journaux. à
 M. JaAuRËs. — Et maintenant, je dis que c'est un sn
-spectacle étrange, lorsque dans tous vos journaux je 4
+spectacle étrange, lorsque dans tous vos journaux je
 
 \ retrouve et je dénonce le même système, lorsqu'il est
 -# apparu qu'il n'ÿ a pas chez eux l'inspiration ou la fan4 taisie de tel ou tel individu, mais que c'est un plan d'ensemble, un plan commun où se résument les procédés
@@ -2176,7 +2176,7 @@ $ que vous avez tiré de cette presse, de ses affirmations,
 £ de ses inventions, de ses systèmes, de ses mensonges,
 " tout le parti électoral et politique. ({nterruptions à
 é droite et sur divers bancs)
-3 M. Anraime-MÉNARD. — Mais c'est vous qui en avez
+M. Anraime-MÉNARD. — Mais c'est vous qui en avez
 f fallait désavouer dans la période électorale. Vous êtes
 les élus de ces faux. (Bruit. — Exclamations à droite)
 Ÿ M. JAURÈS. — … tout le parti électoral et politique que
@@ -2189,27 +2189,27 @@ M. Jaurès. — … lorsque je fais défiler devant vous une
 cohorte d'articles de journaux dont les mensonges sont
 désavoués maintenant parce qu'ils ne peuvent plus
 | servir... (Applaudissements sur les mêmes bancs)
-4 77
+4
 
 M. Louis Orrrvier. — Nous ne désavouons rien du A
-M. Jaurès. — … il est étrange de voirtout un partise : M
+M. Jaurès. — … il est étrange de voirtout un partise
 renier lui-même en reniant.. (Interruptions à droüe. — ns Fe
 Applaudissements à l'extrême gauche et à gauche) Ts
-M. Louis Ocuivier. — Nous ne sommes pas des rené 4
+M. Louis Ocuivier. — Nous ne sommes pas des rené
 M. Lucrex Micevoye.—Nous ne renions absolument -
 rien, rien, rien! (Applaudissements à droite. — Hxcla  "« mations à gauche) Ë De
 M. Massaguau. — Nous ne désavouons rien! (Nou
-M. Jaurès. — Je dis qu'ilest prodigieux de voir tout 3
+M. Jaurès. — Je dis qu'ilest prodigieux de voir tout
 un parti se renier lui-même en reniant aujourd'hui. ï "4
 M. Cacuer. — Ce n'est pas vrai! "#6 |
 M. Savary DE BEAUREGARD. — Nous protestons |
 contre vos paroles. SR
-prêter à un parti de la Chambre une telle attitude. 59
+prêter à un parti de la Chambre une telle attitude.
 M. GEorGEs BERRY. — C'est une inexactitude de plus 4 |
 que vous portez à la tribune. Fa |
 M. LE PRÉSIDENT. — Je fais appel à tous nos collè- +
 gues pour qu'ils laissent la discussion se poursuivre de |
-dans le calme. - 4
+dans le calme.
 M. Jaurès. — Vous l'aurez: pour le moment, je l'ai. 2514
 
 Quel triomphe, pour moi, de vous faire hurler en
@@ -2229,7 +2229,7 @@ M. Jaurès. — … contre toutes les inventions...
 e M. LE PRÉSIDENT. — Monsieur Berry, vous n'avez pas
 ë la parole.
 ‘a M. GeorGEs BERRY. — Je dis que nous n'avons rien
-4 M. ze PRÉSIDENT. — Monsieur Berry, je vous rappelle
+M. ze PRÉSIDENT. — Monsieur Berry, je vous rappelle
 F à l'ordre. (Réclamations à droite)
 ë M. Savary DE BEAUREGARD. — Nous ne sommes pas
 disposés à nous laisser injurier !
@@ -2240,32 +2240,32 @@ _ bien! très tien!)
 M. Jaurès. — Messieurs, je m'étais borné à des lec-
 & tures, non pas à des lectures de journaux de la majo-
 
-rité, mais à des lectures de journaux de la minorité et ; 1
+rité, mais à des lectures de journaux de la minorité et
 on me disait sans cesse d'un ton railleur : Mais qu'est-ce ‘4
 que cela ? "4
 La Croix a dit ces choses : que nous veut la Groix ? E |
-— L'Intransigeant a produit ce système : qu'est-ce 1
+— L'Intransigeant a produit ce système : qu'est-ce
 que l'Intransigeant ? ; à |
-M. Rochefort a signé cet article ? — Où donc réside E
+M. Rochefort a signé cet article ? — Où donc réside
 maintenant M. Rochefort? (Rires et applaudissements à É |
 l'extrême gauche. — Réclamations à droite. — Inter- |
-ruptions et bruit) 4
-M. GABRIEL SyYveron. — L'orateur invente des 4
+ruptions et bruit)
+M. GABRIEL SyYveron. — L'orateur invente des
 interruptions. Personne n'a dit cela. : |
 M. JaAurÈs. — C'est M. Drumont, c'est Za Libre |
-Parole. Tout cela n'est rien ? D
-M. Jaurès. — Expliquons-nous bien alors ! 14
-Je me suis efforcé de démontrer, hier et aujourd'hui, 1
-que votre presse, toute votre presse, dès 189% a affirmé 1
-l'existence d'une prétendue lettre de l'empereur d'Alle- 4
-magne annexée à un bordereau sur papier épais. J'ai 4
-démontré, hier et aujourd'hui, par des citations multi- 1
-pliées de toute votre presse et de plusieurs de vos N
+Parole. Tout cela n'est rien ?
+M. Jaurès. — Expliquons-nous bien alors !
+Je me suis efforcé de démontrer, hier et aujourd'hui,
+que votre presse, toute votre presse, dès 189% a affirmé
+l'existence d'une prétendue lettre de l'empereur d'Alle-
+magne annexée à un bordereau sur papier épais. J'ai
+démontré, hier et aujourd'hui, par des citations multi-
+pliées de toute votre presse et de plusieurs de vos
 orateurs, que c'est avec ce système que vous prétendiez ‘4
-maintenir votre opinion dans l'affaire Dreyfus. Tout à 1
-l'heure, M. Millevoye me disait : non, nous ne désa- 1
+maintenir votre opinion dans l'affaire Dreyfus. Tout à
+l'heure, M. Millevoye me disait : non, nous ne désa-
 M. JAuRÈSs. — Eh bien! j'en prends acte. Il est À
-entendu par conséquent, que vous maintenez aujour- 4
+entendu par conséquent, que vous maintenez aujour-
 
 ne M. Luce Mizevoye. — J'attends le résultat de
 — votre enquête. D'ailleurs, je vais vous répondre.
@@ -2297,7 +2297,7 @@ M. ze Marquis DE Dion. — Mais quel rapport cela
 , at-il avec l'élection de M. Syveton ?
 
 M. ze président. — Monsieur de Dion, laissez-moi K. à
-diriger le débat ou venez prendre ma place. (On rit.) E
+diriger le débat ou venez prendre ma place. (On rit.)
 M. Jaurès. — Il faut savoir s'il sera permis à ce parti ‘à |
 pendant quatre ans, delaisser faire sa presse, de laisser ne à
 parler ses orateurs, de permettre à quelques-uns de ses ;
@@ -2305,26 +2305,26 @@ orateurs et à toute sa presse, la propagation de mons- nn |
 trueuses légendes, qui peuvent servir un intérêt de ‘4 |
 parti, et puis, quand la vérité apparaît, (Exclamations |
 à droite) quand vous avez retiré de cette légende mons- E |
-trueuse toute la substance, tout le profit que vous pouvez en retirer, et lorsque le moment est venu pour vous 4
-ou de vous solidariser avec le mensonge collectif et 4
-permanent de votre presse pendant quatre ans, ou de 4
+trueuse toute la substance, tout le profit que vous pouvez en retirer, et lorsque le moment est venu pour vous
+ou de vous solidariser avec le mensonge collectif et
+permanent de votre presse pendant quatre ans, ou de
 la désavouer, il faut savoir si vous allez renier votre ‘4
-presse et vous renier vous-mêmes. (Applaudissements 1
-A droite. — Nous ne renions rien. È
-M. JAUuRÈs. — Eh bien ! c'est entendu, vous prenez à 4
+presse et vous renier vous-mêmes. (Applaudissements
+A droite. — Nous ne renions rien.
+M. JAUuRÈs. — Eh bien ! c'est entendu, vous prenez à
 votre compte ces affirmations. 7 :
 M. Puczresir-ConrtI. — Nous nous solidarisons avec ‘4
-notre armée et avec nos juges militaires de Rennes. 4
-M. LE MARQUIS DE Dion. — Mais cela n'a rien à voir È.
+notre armée et avec nos juges militaires de Rennes.
+M. LE MARQUIS DE Dion. — Mais cela n'a rien à voir
 avec l'élection Syveton. (Bruit à gauche) À
-M. LE PRÉSIDENT. — Je vous prie encore une fois de 4
+M. LE PRÉSIDENT. — Je vous prie encore une fois de
 garder le silence. L'orateur discute le rapport présenté
-à la Chambre. 4
+à la Chambre.
 M. Jaurès. — Vous prenez donc à votre compte les à
-affirmations de M. Millevoye surla lettre de Guillaume IE, 4
-à votre compte les aflirmations de l'Intransigeant, de F
-la Patrie, de la Croix, de La Libre Parole sur la lettre ÿ
-de Guillame II. Il est entendu que cette presse est avec 1
+affirmations de M. Millevoye surla lettre de Guillaume IE,
+à votre compte les aflirmations de l'Intransigeant, de
+la Patrie, de la Croix, de La Libre Parole sur la lettre
+de Guillame II. Il est entendu que cette presse est avec
 vous. (Applaudissements à l'extrême gauche) +4
 
 *à M. Pucuæsi-Conri. — Parlez-nous donc de l'opinion
@@ -2350,7 +2350,7 @@ laient maintenir à tout prix l'arrêt de 1894, essayaient
 
 de calmer autour d'eux les inquiétudes de conscience
 qui commençaient à s'éveiller jusque dans le monde où
-… ils vivaient. Pour calmer ces inquiétudes de conscience, Î
+… ils vivaient. Pour calmer ces inquiétudes de conscience,
 … ils allaient affirmant, eux aussi, l'existence du borde-
 “ _ réau annoté et ils en faisaient voir des photographies à
 ceux dont ils voulaient rassurer la conscience troublée.
@@ -2365,31 +2365,30 @@ inventait tous les jours une nouvelle histoire.
 . Cela l'amusait beaucoup, et comme le dit le général de Sancy
 « à M: de Bernis, qui l'a conté à un de mes amis, voici un
 Ê nouvel échantillon de la fécondité d'esprit de nos grands
-| 83
 
-chefs. Il y a eu un incendie, racontait donc le général 7 1
+chefs. Il y a eu un incendie, racontait donc le général
 de Saney, à l'ambassade d'Allemagne. C'est pendant cet
 incendie qu'on a dérobé le bordereau, accompagné de
 plusieurs lettres de Dreyfus adressées à attaché mili- "4
 taire. Le comte de Münster est venu déclarer au ministre 2 |
 des affaires étrangères qu'il demanderait son passeport si ;
-on ne rendait pas le bordereau. Quant aux lettres de Dreyfus, il n'en parlait pas. Le bordereau lui a été rendu, mais D.
+on ne rendait pas le bordereau. Quant aux lettres de Dreyfus, il n'en parlait pas. Le bordereau lui a été rendu, mais
 on en a fait faire une copie et cette copie a été faite par à
-Esterhazy lui-même. De là, le papier pelure sur lequel le É:
+Esterhazy lui-même. De là, le papier pelure sur lequel le
 bordereau a été écrit. On n'a donc pas l'original au minis- D |
-tère de la guerre, mais seulement la copie faite par 4
-Esterhazy. Et le général de Sancy ajouteit: « On s'amuse 4
+tère de la guerre, mais seulement la copie faite par
+Esterhazy. Et le général de Sancy ajouteit: « On s'amuse
 beaucoup de cela à l'état-major. » 4 |
-Cette photographie du bordereau annoté, le général 4
+Cette photographie du bordereau annoté, le général
 Mercier, avec ses amis, l'ont pendant deux ans colpor- \
 tée ; et, ici encore, nous allons voir si vous désavouerez pe
 les affirmations de votre presse. (/nterruptions à (
 Mais il y a mieux ici que les affirmations des jour- L |
 veton qui est en discussion. ;
 M. Jaurès. — Il y a des hommes qui témoignent que F]
-cette photographie du bordereau frauduleux a été mon- 4
+cette photographie du bordereau frauduleux a été mon-
 trée, et je ne serai pas démenti par M. Émile Olliviersi
-je rappelle les termes exacts d'une déclaration faite par ë
+je rappelle les termes exacts d'une déclaration faite par
 I n'a jamais vu ni jamais dit qu'il eût vu le bordereau ;
 annoté par l'empereur d'Allemagne et restitué par Casimir- :
 Perier à l'ambassadeur de Münster, mais qu'un de nos És
@@ -2425,7 +2424,7 @@ lettres de l'empereur Guillaume. Nous étions sur le boulevard en face du Crédi
 teniez la chose du colonel Stoffel et, comme moi, vous vous
 esclaffiez de l'imbécillité des gens qui croyaient à ce faux
 
-6 impudent et grossier. s
+6 impudent et grossier.
 
 Et le Gaulois du 7 février, sous la signature de M. Robert Mitchell lui-même, écrit à M. Ranc :
 
@@ -2439,28 +2438,28 @@ document et j'avoue, en toute sincérité, que je n'ai pu croire Es
 à son authenticité. Je ne dirai pas qu'à ce sujet je me suis NN
 esclafté, selon votre familière expression ; mais il est vrai
 que j'ai montré quelque surprise. J'avais tort, car la lettre … ‘4
-existe ; elle n'émane pas, ilest vrai, de l'empereur allemand, B.
-mais je crois qu'on n'aurait pas grand'peine à retrouver ses 4
+existe ; elle n'émane pas, ilest vrai, de l'empereur allemand,
+mais je crois qu'on n'aurait pas grand'peine à retrouver ses
 Elle arrivait juste à point pour jeter le trouble dans les "4
-esprits non prévenus « et créer une présomption contre le 10
+esprits non prévenus « et créer une présomption contre le
 bureau des renseignements militaires ; is fecit cui prodest ».. | k +
-C'est entendu, messieurs, c'est nous qui avons fabri- k 4
+C'est entendu, messieurs, c'est nous qui avons fabri-
 qué le faux bordereau annoté. (Applaudissements à ‘: ‘à |
 l'extrême gauche et à gauche. — Interruptions et rires ne
 Mais je retiens — vous pouvez sourire et les beaux FE. |
 esprits en peuvent railler; mais cela demeure, cela aura ne |
 ses conséquences ; cela portera ses fruits — je retiens où
 que le parti de l'état-major et du faux avait convertià NN
-l'idée du bordereau annoté le colonel Stoffel. (Applau- E
-dissements à l'extrême gauche et à gauche) | 0
+l'idée du bordereau annoté le colonel Stoffel. (Applau-
+dissements à l'extrême gauche et à gauche)
 J'en retiens que le colonel Stoffel s'était fait l'agent ll
-de cette propagande, j'en retiens que le colonel Stoffel 4
-affirmait l'existence de cette lettre, de ce document ; et 1
-il est facile, après avoir désavoué, au moins à demi, la 4
-presse qui colportait publiquement la légende et le 4
-faux, il est facile aussi de railler quand on apporte à 4
+de cette propagande, j'en retiens que le colonel Stoffel
+affirmait l'existence de cette lettre, de ce document ; et
+il est facile, après avoir désavoué, au moins à demi, la
+presse qui colportait publiquement la légende et le
+faux, il est facile aussi de railler quand on apporte à
 cette tribune cette sorte de propagande occulte et mon- À
-daine ; mais elle est dans vos habitudes, elle est un des È
+daine ; mais elle est dans vos habitudes, elle est un des
 secrets de votre action; (Applaudissements à gauche et à
 à l'extrême gauche) elle est un des moyens subtils par ‘4
 
@@ -2476,8 +2475,8 @@ _ monde... (Zxclamations au centre et à droite)
 -… bien que les officiers, qui peuvent être appelés éventuellement à juger ces sortes de procès, rencontrent et
 . subissent, dans ce monde, cette sorte de propagande;
 nu comme vous savez qu'il était ainsi facile de propager,
-…_ de bouche en bouche, la légende monstrueuse, après è
-… avoir montré la photographie de la pièce fausse dans ù
+…_ de bouche en bouche, la légende monstrueuse, après
+… avoir montré la photographie de la pièce fausse dans
 … quelques salons, il était facile de préparer ainsi l'action
 occulte que cette pièce fausse jouerait dans les prétoires
 militaires. (Vifs applaudissements à l'extrême gauche
@@ -2502,35 +2501,35 @@ _ de ces lettres.
 
 Ÿ: Le soir dont il s'agit, M. de Münster m'ayant pris à part,
 
-me parla des bruits courant sur l'existence de ces lettres. IL d
+me parla des bruits courant sur l'existence de ces lettres. IL
 comprit aussitôt à ma réponse que je n'y croyais pas; Fe
 il me dit qu'il en était très heureux et il ajouta qu'il
 était très satisfait de pouvoir me confirmer dans mom
-Quelques jours après, je rencontrai M. Hanotaux, je crus J
+Quelques jours après, je rencontrai M. Hanotaux, je crus
 devoir lui faire connaître l'impression qui résultait pour |
-moi de ma conversation avec M. de Münster. 4 9
+moi de ma conversation avec M. de Münster.
 M. Hanotaux ne parut pas surpris et me remercia simple- À
 M. LE MARQUIS DE Dion, ironiquement. — C'est très
 M. JaAuRÈS. — Ce n'est pas grave, mais c'est un indice
 plus sérieux que vous n'imaginez. Lorsque leffort
 occulte et obscur que vous avez fait pour tromper l'opinion, lorsque cet effort est surpris, vous haussez les  "#
-épaules : « C'est une bagatelle! » Mais c'est par cette M
+épaules : « C'est une bagatelle! » Mais c'est par cette
 œuvre patiente, obscure, subtile de mensonges quoti- |
 diens, par la propagande dans tous les mondes que
 vous opérez peu à peu et que vous faussez les juge- “
-ments. (Applaudissements à gauche et à l'extrême 4
-gauche) l
-Cette double propagande,propagande par la presse et M
-propagande mondaine, dont le général Mercier était l'ar- J
-tisan principal et le centre, voici qu'à la veille de l'ouver- 1
+ments. (Applaudissements à gauche et à l'extrême
+gauche)
+Cette double propagande,propagande par la presse et
+propagande mondaine, dont le général Mercier était l'ar-
+tisan principal et le centre, voici qu'à la veille de l'ouver-
 ture du procès de Rennes, elle pose devant le général |
-Mercier un dramatique problème et lui crée une grave M
+Mercier un dramatique problème et lui crée une grave
 responsabilité. Le général Mercier avait le droit d'être Î |
 préoccupé quand le procès de Rennes allait s'ouvrir. Une
 demande de mise en accusation devant la Haute Cour | |
 avait été déposée contre lui par un ministère qui |
 s'étonna peut-être lui-même le lendemain de l'avoir
-risquée, par l'honorable M. Charles Dupuy, mais la r
+risquée, par l'honorable M. Charles Dupuy, mais la
 
 re Chambre statua qu'il serait sursis au vote sur le renvoi
 É: du général Mercier devant la Haute Cour, jusqu'à ce
@@ -2568,7 +2567,7 @@ l'affaire Dreyfus. — La pièce secrète. FFT SEC |
 Demain, nous publierons une communication des plus
 graves sur la pièce secrète du procès Dreyfus. TERRE
 Cette communication traite aussi, avec une compétence. L::8i) |
-particulière, la question des actes personnels de l'empereur 4
+particulière, la question des actes personnels de l'empereur
 d'Allemagne dans cette affaire. Nous croyons que la lecture d'une telle communication peut jeter sur le drame qui
 va se dérouler à Rennes un jour nouveau. D |
 Au témoignage qu'il en a rendu ces jours-ci etquia
@@ -2578,22 +2577,22 @@ en prendra la responsabilité. |
 Le lendemain, 4 août, le journal disait sous le même ch |
 Nous annoncions hier que nous publierions aujourd'hui
 une communication des plus graves sur la pièce secrète du
-procès Dreyfus. Cette note nous a valu la visite d'un per- M
+procès Dreyfus. Cette note nous a valu la visite d'un per-
 sonnage dont le nom est intimement mêlé à l'affaire
 Dreyfus et qui est appelé à se rendre à Rennes pour
 déposer au procès qui se déroulera la semaine prochaine, (2
 Sur les instances de notre visiteur et pour lui laisser sa
-complète liberté d'action et de déposition, nous avons 4
+complète liberté d'action et de déposition, nous avons
 consenti, dans l'intérêt de la justice, à priver nos lecteurs :
-d'un article vraiment sensationnel et dont tous les termes 4
-étaient, nous en avons reçu l'affirmation catégorique, 4
+d'un article vraiment sensationnel et dont tous les termes
+étaient, nous en avons reçu l'affirmation catégorique,
 l'expression de l4 vérité. Cette vérité sera du reste :
-démontrée au cours du procès d'une façon irréfutable par 4
+démontrée au cours du procès d'une façon irréfutable par
 le témoin auquel nous faisons allusion, et comme, d'après “&
-les renseignements qui nous parviennent, nous avons lieu È
+les renseignements qui nous parviennent, nous avons lieu
 de croire que les juges du conseil de guerre de Rennes
 jugeant en leur âme et conscience, ne se laisseront ‘4
-influencer par aucune cause étrangère à la justice, c'est 4
+influencer par aucune cause étrangère à la justice, c'est
 avec confiance que nous attendons le verdict. “+
 
 : ME 1 à résulterait de l'article que ce serait le général
@@ -2628,8 +2627,8 @@ it discrète et plus occulte en créant autour des juges un
 … état d'opinion qui déterminât leur verdict sans l'expa poser à la discussion directe et contradictoire du
 _ système qui, depuis des années, s'aflirmait sans qu'il le
 
-démentit. (Applaudissements à gauche et à l'extrême 1
-Voilà pourquoi avant le procès de Rennes le Petit 4
+démentit. (Applaudissements à gauche et à l'extrême
+Voilà pourquoi avant le procès de Rennes le Petit
 Caporal fut prié de ne pas produire le système qui ‘4
 avait fait jusque-là le fond même de l'accusation. :
 Mais à Rennes, le général Mercier n'a pas pu le produire publiquement ; il n'a pas pu, parce qu'il s'est
@@ -2638,26 +2637,26 @@ de M. Casimir-Perier, affirmant qu'il disait tout, qu'il
 ne restait pas d'inconnu dans l'incident diplomatique
 de 1894. Mais, si le général Mercier n'a pas pu produire
 publiquement le système qui était le sien et celui de
-ses amis, il a tout fait, dans sa déposition même, 4
-pour en suggérer l'hypothèse à l'esprit des juges et M
+ses amis, il a tout fait, dans sa déposition même,
+pour en suggérer l'hypothèse à l'esprit des juges et
 pour jeter ainsi la confusion et le trouble dans iles con- |
-Il a affirmé que l'empereur Guillaume lui-même était 4 1
+Il a affirmé que l'empereur Guillaume lui-même était
 en correspondance directe avec ses chefs d'espionnage.
 Il a affirmé que, dans la nuit du 5 janvier 1895, la |
 guerre avait été à nos portes et il a essayé d'indiquer à.
-ainsi que si l'on ne pouvait pas dire la vérité tout 4
-entière, C'est parce qu'en 1894 un conflit mortel avait M
+ainsi que si l'on ne pouvait pas dire la vérité tout
+entière, C'est parce qu'en 1894 un conflit mortel avait
 été sur le point d'éclater entre la France etl'Allemagne.
-Enfin il a dit aux juges, leur suggérant ainsi l'hypothèse ÿ
+Enfin il a dit aux juges, leur suggérant ainsi l'hypothèse
 des manipulations multiples du bordereau, il leur a dit, ‘4
 dans sa déposition: ;
-Je laisse de côté Î
+Je laisse de côté
 Retenez bien, messieurs, ces paroles : À
-Je laisse de côté toutes ces considérations relatives aux f
+Je laisse de côté toutes ces considérations relatives aux
 écritures parce que je considère qu'elles ont peu d'impor- à
 tance, attendu que, quelle que soit la personne qui a fait |
 
-92 4
+92
 
 ‘ C bordereau, quelle que soit la personne qui l'a écrit, je {
 “persiste à croire qu'il est du capitaine Dreyfus.
@@ -2670,7 +2669,7 @@ ni le capitaine Dreyfus ! mais je n'attache pas grande importance à cette quest
 . été écrit par un autre, son examen cryptographique va
 ..… démontrer qu'il n'a pu l'être que sous l'inspiration du
 
-1 M. Maurice Viozcerre. — C'est un joli misérable !
+M. Maurice Viozcerre. — C'est un joli misérable !
 
 è M. Juzes-Lours BreToN. — C'est un fou simplement !
 g M. Jaurès. — Voilà le système. Mais, prenez garde !
@@ -2695,7 +2694,7 @@ L'auteur original, le véritable inspirateur, c'est le capi-
 
 plaudissements à l'extréme gauche)... par toutes les si |
 indications de son témoignage, le système qu'on n'osait ES. |
-pas produire directement. C'est toujours le même pro- 4
+pas produire directement. C'est toujours le même pro-
 cédé, le procédé occulte, le procédé insinuant, le procédé À
 et à l'extrême gauche) : a ”. |
 
@@ -2704,23 +2703,23 @@ de cette hypothèse. L'un d'eux lui demande : EN
 Mon général, a-t-on jamais fait l'hypothèse que le bor |
 dereau sur papier calque pouvait bien être la copie d'un. RU |
 Voilà des années que ce système est propagé, qu'on - 4 |
-y a mêlé le général Mercier, voilà la première fois que 4
-ce système fait, par une question des juges, son appa- “é 4
+y a mêlé le général Mercier, voilà la première fois que
+ce système fait, par une question des juges, son appa- “é
 rition officielle dans le procès. Que va faire le général" "4
 Si ce système est faux, s'il veut le désavouer, il va nn
 saisir l'occasion qui lui est donnée de protester publi- q à
-quement contre une invention qui est compromettante 1
-pour lui-même. Ne l'oubliez pas, en 1894, ce n'est pas : 4
+quement contre une invention qui est compromettante
+pour lui-même. Ne l'oubliez pas, en 1894, ce n'est pas
 sur le bordereau en papier épais, c'est sur le bordereau 4 "4
 en papier mince que Dreyfus a été condamné; par ue
-._ conséquent, si le bordereau de, 1894 n'était qu'une % 4
+._ conséquent, si le bordereau de, 1894 n'était qu'une %
 - copie, un décalque du bordereau original, le général.
-Mercier aurait assumé en 1894 la lourde responsabilité ; 4
+Mercier aurait assumé en 1894 la lourde responsabilité
 de faire juger un homme sur un document dont il n'aurait pas révélé aux juges le véritable caractère. (Très a ;
-: bien! très bien! à gauche) 4
+: bien! très bien! à gauche)
 Le général Mercier va protester ? Écoutez : (10
 J'ai vu — dit le général Mercier d'un air détaché — j'ai ‘4
-vu cette hypothèse dans les journaux, mais elle n'a jamais | 3
+vu cette hypothèse dans les journaux, mais elle n'a jamais
 
 avons toujours admis que le document sur papier pelure
 
@@ -2779,10 +2778,10 @@ _ dite tout entière? J'en doute et voici pourquoi : vous
 ge ce qui a org irrité l'empereur au point de menaces de
 
 guerre et ce qui l'a ensuite calmé. Votre silence, sur ce.
-point, laisse planer, sur votre déposition, et sur toute 4
+point, laisse planer, sur votre déposition, et sur toute
 l'affaire une obscurité redoutable. et que je sens dans les
 esprits. Un homme des plus sérieux m'a expliqué ainsi L |
-qu'il suit le drame dont vous n'avez soulevé qu'un coin. ÿ
+qu'il suit le drame dont vous n'avez soulevé qu'un coin.
 
 Le bordereau avait été écrit par Dreyfus sur papier fort |
 et envoyé au chef de l'espionnage allemand, de l'empereur
@@ -2801,23 +2800,23 @@ Le comte de Münster tempête, menace; il ne se calme
 que sur la promesse solennelle de ne jamais parler de :
 l'incident; mais avant de communiquer aux ministres ‘À
 
-ï politiques le bordereau, le ministre de la guerre en a fait 201
-faire une photographie ; vous possédez un des exemplaires F
+ï politiques le bordereau, le ministre de la guerre en a fait
+faire une photographie ; vous possédez un des exemplaires
 de cette photographie et vous l'avez apportée sur vous à ni
 
 Ces faits expliquent le quiproquo d'Esterhazy; pour ‘1
-motiver les poursuites sans découvrir l'empereur d'Alle- D
+motiver les poursuites sans découvrir l'empereur d'Alle-
 magne on chargea Esterhazy de décalquer sur papier !
 pelure la photographie du bordereau en omettant l'anno- }
 tation de l'empereur d'Allemagne. Ainsi, Esterhazy a pu
 dire avec vérité que le bordereau avait été écrit par lui;
 vous avez pu soutenir avec vérité qu'il était l'œuvre de \
 
-Si cette affirmation est très sérieuse et très exacte, confirmez-la : si elle est en partie erronée, rectifiez-la. Quoi s
-que vous disiez, la France honnête et patriote l'acceptera ê
+Si cette affirmation est très sérieuse et très exacte, confirmez-la : si elle est en partie erronée, rectifiez-la. Quoi
+que vous disiez, la France honnête et patriote l'acceptera
 comme l'expression définitive de la vérité. À
 
-Mais le général Mercier se taisait. L'article du Gaulois ù
+Mais le général Mercier se taisait. L'article du Gaulois
 était distribué à Rennes dans les cercles militaires, À
 
 |: * envoyé directement aux juges, il faisait l'objet de leurs
@@ -2851,9 +2850,9 @@ atmosphère de légende dont on les enveloppait, je la
 
 superficiels révèlent au médecin la lésion profonde de FA
 Quand madame veuve Henry, le 16 août 1899, vient. 64 L<
-déposer devant.les juges de Rennes, écoutez les ques- 4
+déposer devant.les juges de Rennes, écoutez les ques-
 vous voulez, que posent les juges. Elle vient de raconter :
-que le soir où le bordereau accusateur avait été remis M
+que le soir où le bordereau accusateur avait été remis
 à son mari, le jour où il l'avait trouvé parmi les papiers  "}
 débrouillés et reconstitués par lui, il lui avait dit :
 « J'ai bien peur qu'un officier français ne soit compromis à
@@ -2863,24 +2862,24 @@ Ce papier que votre mari dépouillait, le soir, tard, vous
 rappelez-vous si c'était du papier épais? 3 3 kr:
 (Exclamations et rires à droite) DT
 bien! très bien!) hi] |
-Madame veuve Henry.— Je n'ai pas vu le bordereau de 3 x
-C'est entendu ! J'ai perçu quelques ricanements dont .. 4!
+Madame veuve Henry.— Je n'ai pas vu le bordereau de
+C'est entendu ! J'ai perçu quelques ricanements dont ..
 | je ne m'émeuspas, et je dis : Pour tous les hommes qui |
 ont le courage de chercher de bonne foi, même à des | É |
-indices qui peuvent paraître légers d'abord mais qui à 46
+indices qui peuvent paraître légers d'abord mais qui à
 la réflexion sont décisifs, je leur demande si ce n'est
--pas le signe d'une grave préoccupation d'esprit chez les 4
+-pas le signe d'une grave préoccupation d'esprit chez les
 juges de Rennes. Voici un autre détail qui pourra
 . exciter la verve de certains de nos collègues. 2 \
-Le même membre du conseil de guerre. — Mais vous … k
-l'avez vu travailler sur ce papier? à ER 1
+Le même membre du conseil de guerre. — Mais vous …
+l'avez vu travailler sur ce papier? à ER
 
  Mada me veuve Henry. — Il avait des papiers de toutes, !
 _ sortes. Il était onze heures du soir. Je n'ai pas vu. DER
-+ Un autre membre du conseil. — Voulez-vous nous dire, è
++ Un autre membre du conseil. — Voulez-vous nous dire,
 ire vous plait, si dans les bureaux où travaillait le colonel A
 Henry il y avait une table? #
-le Madame veuve Henry. — C'était dans la salle à manger. . l
+le Madame veuve Henry. — C'était dans la salle à manger.
 … Le même membre du conseil. — Il y avait une table, quand
 vous y étiez, vers onze heures du soir, et que le colonel
 …_Henry était occupé à travailler? Ce papier était sur la
@@ -2903,34 +2902,34 @@ toile cirée n'était pas relevé de façon à mettre la table
 sur l'esprit des juges et qui se révèle par les questions
 en apparence étranges que je viens de commenter rapi4 dement devant vous, de même que dans la première
 
-semaine du procès le journal le Gaulois était venu afir- M
-mer le système du bordereau annoté, dans la dernière M
-semaine, le 6 septembre 1899, c'est la Libre Parole, trois #4 6
-jours avant le verdict, qui reproduit, elle aussi, pour M
+semaine du procès le journal le Gaulois était venu afir-
+mer le système du bordereau annoté, dans la dernière
+semaine, le 6 septembre 1899, c'est la Libre Parole, trois #4
+jours avant le verdict, qui reproduit, elle aussi, pour
 les juges le même système et quiles avertit — messieurs,
-vous allez souligner de voire attention ce passage — M
-que le général Mercier lui-même avait dans sa déposi- « 4
-tion donné l'indication discrète du système : 4
-5 Les deux bordereaux. — L'extraordinaire visite de M. de En
-Münster à l'Élysée devient au contraire tout ce quiyade M
-plus simple, de plus naturel et de plus logique si l'on admet M
+vous allez souligner de voire attention ce passage
+que le général Mercier lui-même avait dans sa déposi- «
+tion donné l'indication discrète du système
+Les deux bordereaux. — L'extraordinaire visite de M. de En
+Münster à l'Élysée devient au contraire tout ce quiyade
+plus simple, de plus naturel et de plus logique si l'on admet
 qu'en apprenant l'arrestation de Dreyfus, l'Allemagne se
-soit sentie compromise et qu'elle ait redouté qu'on ne M
+soit sentie compromise et qu'elle ait redouté qu'on ne
 retrouvât sur le document saisi quelques traces de cette ». compromission. Plusieurs journaux, tant français qu'étran- |
 gers, ont un instant éventé cette piste que nous avons de À
 bonnes raisons de croire des plus sérieuses. À: |
 Le vrai bordereau. — Mais si le bordereau qu'on nous -#
-présentait jusqu'à ce jour n'est pas le vrai bordereau, 4
-quel était donc le bordereau inconnu, et qu'est-il devenu ? 1
-L'Allemagne, dit la Libre Parole, voulut bien passer M
+présentait jusqu'à ce jour n'est pas le vrai bordereau,
+quel était donc le bordereau inconnu, et qu'est-il devenu ?
+L'Allemagne, dit la Libre Parole, voulut bien passer
 léponge, mais à la condition qu'il ne serait jamais question du vrai bordereau. D'un commun accord il fut convenu
 que ce document serait dorénavant considéré non seule- |
-ment comme n'existant plus mais comme n'ayant M
-jamais existé. Les deux gouvernements s'engagèrent àn'en M
-jamais faire état, à n'y faire jamais la moindre allusion M
+ment comme n'existant plus mais comme n'ayant
+jamais existé. Les deux gouvernements s'engagèrent àn'en
+jamais faire état, à n'y faire jamais la moindre allusion
 quoi qu'il arrivât. Dès ce moment et par cette grosse faute à
-de M. Casimir-Perier, l'affaire Dreyfus devenait un véri- M
-table casse-tête chinois, une énigme dont le secret ne M
+de M. Casimir-Perier, l'affaire Dreyfus devenait un véri-
+table casse-tête chinois, une énigme dont le secret ne
 pouvait être pénétré que par de très rares initiés. 4)
 L'annotation. — Qu'était maintenant ce véritable borde- ai ;
 reau ? Dans sa teneur, il ne différait en rien du bordereau « Éxi ET 00 .:
@@ -2940,12 +2939,12 @@ reau ? Dans sa teneur, il ne différait en rien du bordereau « Éxi ET 00 .:
 . bordereau initial, le vrai, portait quelque chose de plus,
 …_ quelque chose d'essentiel, une annotation écrite et signée
 à de la main d'un très grand personnage.
-4 Cette annotation qui se composait de deux phrases,
+Cette annotation qui se composait de deux phrases,
 ; n'était pas écrite en français, cela va sans dire. Nous
 …. croyons cependant pouvoir affirmer que la traduction suivante en reproduit très fidèlement le sens : Envoyez le
 — plus vite possible les pièces mentionnées ; faites en sorte
 que la canaille de Dreyfus se hâte.
-2 Vous voudriez connaître le nom de l'annotateur ? Nous
+Vous voudriez connaître le nom de l'annotateur ? Nous
 } ne le dirons pas. Mais... —
 À: G nous pensons qu'en relisant
 | attentivement certaines dépositions du procès de Rennes,
@@ -2973,8 +2972,8 @@ Mareuil il lui a consacré, article vigoureux, d'ailleurs,
 M. Syveton rappelait un des épisodes de la vie du "4
 colonel de Villebois-Mareuil, et M. Syveton qui, comme
 moi, a assisté, au moins pendant une partie des
-débats, au procès de Rennes, rappelait, dans un article | 4
-de l'Écho de Paris, à quelle propagande se livrait le M
+débats, au procès de Rennes, rappelait, dans un article
+de l'Écho de Paris, à quelle propagande se livrait le
 colonel de Villebois-Mareuil. .
 Il le montrait — je crois pouvoir reproduire à peu  #
 près de mémoire le passage où il parle de cet incident
@@ -2984,20 +2983,20 @@ Villebois-Mareuil sur le canapé vert d'un hôtel de
 Rennes, assis côte à côte d'un officier qu'il n'a pas
 nommé — mais qui est, à n'en pas douter, M. de
 Bréon — tout employé, disait-il, à le disputer à son “0
-Non, on ne disputait pas M. de Bréon à son confes- M
-seur, on essayait de le disputer à sa conscience : il fal- 4
-lait plier cet homme. 4
+Non, on ne disputait pas M. de Bréon à son confes-
+seur, on essayait de le disputer à sa conscience : il fal-
+lait plier cet homme.
 Un membre à droite. — Êtes-vous sûr de cela, mon
 M. GEorGEs BERTHOULAT. — Vous n'avez pas le droit ne
-de faire parler ce grand mort! (Exclamations à l'ex- 5
+de faire parler ce grand mort! (Exclamations à l'ex-
 \ trêéme gauche. — Applaudissements au centre et à
-droite) Je proteste! Si vous aviez entendu comme moi 4
-le colonel de Villebois-Mareuil avant son départ pour M
+droite) Je proteste! Si vous aviez entendu comme moi
+le colonel de Villebois-Mareuil avant son départ pour
 sa campagne au Transvaal, vous sauriez quel grand
 idéal de patriotisme l'animait, idéal que vous êtes peut- #4
 être incapable de comprendre. (Nouveaux applaudisse- À à
 ments au centre et à droite. — Bruit à gauche) }, ;
-102 1
+102
 
 : 12 M. Jaurès. — Je ne veux pas qu'il y ait de malener tendu et je ne veux forcer en rien le sens des déclara-
 ‘14 tions de M. Syveton. Je constate seulement, d'après
@@ -3006,7 +3005,7 @@ ci M. GaBrteL Syveron. — Voulez-vous me permettre
 - je crois, dans mon article, mais je n'en suis pas tout à
 “. faitsûr: M. de Villebois-Mareuil était le cousin de M. de *
 ? — Bréon; il n'y avait donc rien d'étonnant que, dans cette
-4 Ke ville, où ils se trouvaient ensemble, ils eussent des |
+Ke ville, où ils se trouvaient ensemble, ils eussent des |
 . entretiens à l'hôtel où était descendu M. de Villeboïis-
 + Mareuil et où j'étais descendu moi-même. :
 M. de Villebois-Mareuil n'avait pas entrepris une
@@ -3024,28 +3023,28 @@ fi M. JauRÈs. — … Un des juges du procès de Rennes
 M. Gasrez Syveron. — C'était son cousin!
 
 M. Jaurès. — Un autre officier, son cousin — je ne. “
-conteste pas que ce fût son droit — mais un autre M
+conteste pas que ce fût son droit — mais un autre
 officier, non muni de documents spéciaux, essayait de
-faire dériver dans un autre sens la conviction du É:
+faire dériver dans un autre sens la conviction du
 digne de vous, monsieur Jaurès. à
-M. Jaurès. — Messieurs, presque tout le clergé régu- 2
+M. Jaurès. — Messieurs, presque tout le clergé régu-
 lier ou séculier avait pris parti dans l'affaire... (Vives ;
-réclamations au centre et à droite) k.
-M. Aynarp. — Ce n'est pas exact! (Si! sil à 4
-M. JAURÈS. — J'ai dit: presque tout le clergé; je ne 4
+réclamations au centre et à droite)
+M. Aynarp. — Ce n'est pas exact! (Si! sil à
+M. JAURÈS. — J'ai dit: presque tout le clergé; je ne
 prétends pas qu'il n'y ait eu de nombreuses et nobles 4 |
-exceptions. Mais l'immense majorité du clergé régulier h
+exceptions. Mais l'immense majorité du clergé régulier
 et séculier considérait que lacquittement du juif con- 4 |
-damné par l'autorité serait une défaite pour l'Église 4
-elle-même et pour le principe d'autorité. (Applaudisse- 1
+damné par l'autorité serait une défaite pour l'Église
+elle-même et pour le principe d'autorité. (Applaudisse-
 ments à l'extrême gauche et sur divers bancs à gauche. n |
-— Vives protestations à droite et sur divers banes au 4
+— Vives protestations à droite et sur divers banes au
 centre) il
-M. GAyrAUD. — Comment pouvez-vous dire cela ? 1
+M. GAyrAUD. — Comment pouvez-vous dire cela ?
 Vous savez bien que c'est faux! Al
 M. JaAurÈs.— Et alors, lorsque dans ce clergé presque 1 |
-tout entier, obstiné à maintenir quand même une déci- 1
-sion d'autorité; lorsque dans ce clergé un homme se 4
+tout entier, obstiné à maintenir quand même une déci-
+sion d'autorité; lorsque dans ce clergé un homme se
 trouve confident, à cette heure de crise, d'un des juges |
 qui doivent juger, et lorsqu'on apprend qu'au lieu de |
 s'abandonner au vertige de l'esprit d'autorité et de |
@@ -3089,19 +3088,19 @@ général Mercier lui-même. Aussi ce ne serait pas miracle
 Invalidation Syveton LP ER ne
 si les juges de 1899 ne parvenaient pas à débrouiller
 tout de suite et à affirmer tout haut, bien vite, les
-influences diverses qui ont pu agir sur eux. NS 84
+influences diverses qui ont pu agir sur eux. NS
 Mais ici qu'il n'y ait pas d'équivoque ! Ce n'est pas
 d'une procédure de revision qu'il s'agit, et, même si le À
 système du bordereau annoté, si la légende de la lettre A
-de Guillaume II, dont je vous ai raconté l'histoire, 5
-n'avait pas eu sur l'espritdes juges de Rennes l'influence 1
+de Guillaume II, dont je vous ai raconté l'histoire,
+n'avait pas eu sur l'espritdes juges de Rennes l'influence
 troublante qu'elle a eue sans doute, même si le verdict : À
-s'expliquait uniquement ou surtout par d'autres causes, 4
-le programme politique et social resterait, la respon- 4
-sabilité politique et sociale resterait, et nous, hommes À 4
+s'expliquait uniquement ou surtout par d'autres causes,
+le programme politique et social resterait, la respon-
+sabilité politique et sociale resterait, et nous, hommes À
 politiques, nous, parti républicain, nous aurions le <
 devoir de chercher comment, du service des renseigne- #
-aussi monstrueuse légende. (Très bien! très bien! à M
+aussi monstrueuse légende. (Très bien! très bien! à
 Mais il y a eu déjà quelques balbutiements de confi- a h |
 . dences, le trouble de l'un au moins des juges a com- D |
 mencé à se laisser deviner; je ne ferais ici qu'une allu- D |
@@ -3109,13 +3108,13 @@ sion, si je ne craignais de forcer le sens du récit que
 j'ai entre les mains, et c'est par un scrupule de loyauté Ne
 que je veux en donner une lecture complète à la #
 Monsieur, je crois de mon devoir de vous faire connaître +
-dans l'intérêt de la vérité, les diverses conversations que e
-j'ai eues au courant du mois d'octobre dernier, avec le 21
+dans l'intérêt de la vérité, les diverses conversations que
+j'ai eues au courant du mois d'octobre dernier, avec le
 commandant en retraite Merle, juge en 1899 au procès de "à
 Rennes, dans l'affaire Dreyfus. ke
 C'est le témoignage d'un médecin, M. Dumas, qui À :
-s'offre à certifier devant toute juridiction, sous la foi du 5
-serment, l'exactitude de son récit. Vous allez voir qu'il 4
+s'offre à certifier devant toute juridiction, sous la foi du
+serment, l'exactitude de son récit. Vous allez voir qu'il
 
 ne convient pas d'en forcer le sens. Ce n'est qu'une: -: » indication, mais je crois de mon devoir de la donner à
 RE Chambre dans sa teneur littérale. MA À
@@ -3129,56 +3128,56 @@ FA _ — Jamais. Pour ma part, j'ai toujours suivi ce que me 12 One
 _  dictait ma conscience. ge
 -_  — Et vous n'avez jamais eu de doute après condamna- RS
 M .— Cependant pour le capitaine Dreyfus, il me paraît qu'à LU
-“> _ votre place, je serais ravagé de doutes. RC ÿ
-_…_. — Non, oh! non; là, la certitude était absolue. : à 7
+“> _ votre place, je serais ravagé de doutes. RC
+_…_. — Non, oh! non; là, la certitude était absolue. : à
 ….  — Absolue? une certitude; vous voulez dire votre con- tas
 —__ _ — Oui, certainement, mais elle était absolue. ce
 à ._ — Et cependant, moi qui ai suivi chaque ligne de ce ES
-… … procès, j'aurais acquitté sans l'ombre d'un doute. A7
+… … procès, j'aurais acquitté sans l'ombre d'un doute.
 …_ — Il était impossible à un autre qu'un juge de se faire ;
-‘2 une conviction. è
+‘2 une conviction.
 _ … — Pourquoi? puisque tout se passait au grand jour ? ;
 — Non! non! pas tout. En
 et _— Mais alors enlevez-moi toute angoisse à ce sujet. C'est
-‘5 une véritable souffrance pour moi que de croire à l'inno- ï
+‘5 une véritable souffrance pour moi que de croire à l'inno-
 _ cence d'un homme deux fois condamné. Citez-moi la dépo-
-….  sition qui vous a convaincu. Est-ce celle de Mercier ? d
+….  sition qui vous a convaincu. Est-ce celle de Mercier ?
 A LE Non, non. Mais nous parlons de l'affaire Dreyfus, et
 ee n'en parle jamais. Il ne faut pas en parler, vous ne
 % À | pouvez pas savoir. se
  — C'est donc le dossier secret qui vous a édifié ?
 _  — Non, non, ne m'en parlez plus.
-_—_ — Cest donc la déposition secrète de ce misérable CzerHE Ge 107
+_—_ — Cest donc la déposition secrète de ce misérable CzerHE Ge
 
-— Non, d'aucune façon. Ne vous occupez pas des déposi- 5
+— Non, d'aucune façon. Ne vous occupez pas des déposi-
 tions, on ne peut pas se faire une impression sur elles. ne
-Nous avons eu des éléments que vous ne pouviez pas con- 4
+Nous avons eu des éléments que vous ne pouviez pas con-
 naître et qui nous ont fixés. ‘4
 — Enfin, voyons, le bordereau est d'Esterhazy. IL ne A
-peut y avoir de doute. 4
+peut y avoir de doute.
 — Laissez de côté Esterhazy et le bordereau; tout cela
 n'a rien à faire là-dedans. ‘4
-— Mais alors, ce serait donc vrai, cette abominable E
+— Mais alors, ce serait donc vrai, cette abominable
 histoire d'un bordereau portant une annotation signée de À
 l'empereur d'Allemagne, d'un bordereau sur papier épais et
-où Dreyfus serait nommé dans l'annotation ? 4
-— Quoi? Que dites-vous ? 4
-Le commandant Merle paraissait stupéfait et épouvanté. D:
-J'ai répété les mêmes termes. 4
-— Ne parlez pas d'une affaire pareille. Il ne faut jamais 4
+où Dreyfus serait nommé dans l'annotation ?
+— Quoi? Que dites-vous ?
+Le commandant Merle paraissait stupéfait et épouvanté.
+J'ai répété les mêmes termes.
+— Ne parlez pas d'une affaire pareille. Il ne faut jamais
 en parler, cette affaire pourrait remonter sur l'eau. de
 — Mais elle y est remontée, commandant. ; .
 Une enquête va être demandée par la famille auprès des à
-juges, pour savoir s'ils ont subi une pareille pression, une 4
-— Ne parlez pas de cela, je ne veux pas en parler. b
+juges, pour savoir s'ils ont subi une pareille pression, une
+— Ne parlez pas de cela, je ne veux pas en parler.
 Il fuyait, marchaït vite, agité. ‘4
-— Pourquoi, si vous êtes sùr de vous ? Pourquoi, si vous h:
+— Pourquoi, si vous êtes sùr de vous ? Pourquoi, si vous
 n'avez pas fait erreur ? #
 — Non, je n'ai pas fait erreur. Il était coupable. ‘4
-— Mais si votre conviction s'était faite sur une pièce 4
-— Non, non, je ne veux pas parler. : 4
+— Mais si votre conviction s'était faite sur une pièce
+— Non, non, je ne veux pas parler.
 — Mais vous pensez bien que je n'ai pas deviné cela. Si
-je le sais, c'est qu'on a parlé. 4
+je le sais, c'est qu'on a parlé.
 — Mais Mercier lui-même en a parlé. I en a parlé à
 Emile Ollivier, à la princesse Mathilde. D'autres enfin ont ,
 — En tout cas, ce n'est pas moi, non ce n'est pas moi qui à
@@ -3192,7 +3191,7 @@ pas écrit un seul mot qui n'ait été prononcé.
 ne. Revenu à Montpellier avec le commandant, j'ai contiA nué à le voir tous les jours. A la fin de la semaine, le
 À dimanche 19 octobre 1902, je me suis trouvé à Saint-Georges
 S chez son frère.
-4 En causant seul avec le commandant, je lui ai demandé :
+En causant seul avec le commandant, je lui ai demandé :
 — Eh bien, commandant, que comptiez-vous faire ?
 \ — À propos de quoi?
 € — À propos du bordereau annoté communiqué à Rennes
@@ -3225,26 +3224,26 @@ du bordereau annoté, il hésita. Je lui dis alors : « Enfin,
 voyons, commandant, cette pièce est fausse. » E à
 C'est alors qu'il me dit : « Écoutez, docteur, vous admet- M"
 tez bien qu'on peut être trompé de bonne foi! » ‘&
-Je ne veux exagérer en rien la valeur de cette pre- 5
+Je ne veux exagérer en rien la valeur de cette pre-
 mière confidence. Mais pour quiconque sait avec quelle
-réserve étroite les juges se sont toujours défendus contre 4
-des communications et des confidences de cet ordre, il E
-y a de quoi éveiller tout au moins un commencement 4
+réserve étroite les juges se sont toujours défendus contre
+des communications et des confidences de cet ordre, il
+y a de quoi éveiller tout au moins un commencement
 d'inquiétude dans les esprits. à
-Je n'ajoute rien au point de vue du fond de l'affaire 4
-dont ni vous ni moi ni le Gouvernement ne sommes 4
+Je n'ajoute rien au point de vue du fond de l'affaire
+dont ni vous ni moi ni le Gouvernement ne sommes
 juges, mais je dis que le problème politique reste, et
-je dis à nos adversaires, à ceux qui ont apporté ici dans M
-l'élection dont vous avez à juger le caractère et la 4
-moralité, ({nterruptions) à ceux qui ont apporté ici E
+je dis à nos adversaires, à ceux qui ont apporté ici dans
+l'élection dont vous avez à juger le caractère et la
+moralité, ({nterruptions) à ceux qui ont apporté ici
 contre le parti républicain l'accusation formelle d'être | ‘4
 le parti de l'étranger, à ceux qui ont apporté contre la ‘4
 A droite. — Pas contre tout le parti républicain. ‘4
 M. Jaurès. — Messieurs, vous aggravez l'injure en la
-précisant. (Applaudissements à l'extrême gauche et à. : 4
-M. Jaurès. — J'ai le droit de dire à ceux qui ont M
-apporté ici contre le Gouvernement dela majorité répu- : M
-blicaïine, celui d'hier continué par celui d'aujourd'hui, j
+précisant. (Applaudissements à l'extrême gauche et à.
+M. Jaurès. — J'ai le droit de dire à ceux qui ont
+apporté ici contre le Gouvernement dela majorité répu-
+blicaïine, celui d'hier continué par celui d'aujourd'hui,
 
 le droit de leur dire qu'après la campagne menée autour
 _ d'une pièce fausse et d'une légende inepte et coupable
@@ -3276,19 +3275,19 @@ irrités, mais écœurés.
 
 M: Jaurès. — M. Rochefort, sous le titre : Les Mys- :.
 tères du Mont-Valérien, raconte toute l'histoire du bor- À
-dereau annoté, et il s'offre à en témoigner soit devant le M
-jury, soit devant une commission d'enquête quelconque; ÿ
-puis il ajoute : ÿ
-“ . À cette époque il y avait peut-être du patriotisme à se Ë
-Eh bien, messieurs, je dois à M. Rochefort des excuses. J'avais cru qu'il avait pris parti violemment dans M
-cette affaire par esprit de parti, par passion mauvaise; M
+dereau annoté, et il s'offre à en témoigner soit devant le
+jury, soit devant une commission d'enquête quelconque;
+puis il ajoute
+“ . À cette époque il y avait peut-être du patriotisme à se
+Eh bien, messieurs, je dois à M. Rochefort des excuses. J'avais cru qu'il avait pris parti violemment dans
+cette affaire par esprit de parti, par passion mauvaise;
 je suis obligé de reconnaître qu'il était de bonne foi, je
 suis obligé de reconnaître qu'il a pris au sérieux la "
-pièce de Guillaume IT. Oui, l'état-major l'a converti. d
+pièce de Guillaume IT. Oui, l'état-major l'a converti.
 Il l'a converti le premier afin de se servir de lui |
-comme d'une caution envers les autres; il en a fait, 1
+comme d'une caution envers les autres; il en a fait,
 dans cette affaire, la dupe fondamentale. (Rires. à
-Messieurs, je n'espère pas que M. Rochefort s'ex- 1
+Messieurs, je n'espère pas que M. Rochefort s'ex-
 plique, tout en ayant déclaré que le patriotisme faisait
 maintenant une loi de s'expliquer ; c'est un patriotisme
 M. JaAuURÈSs. — Et maintenant, j'imagine que la prudence viendra corrigerles élans de ce patriotisme. Non!
@@ -3297,11 +3296,11 @@ même après les affirmations d'eux que j'ai produites à
 cette tribune et dont ils devraient prendre la responsa=
 bilité en indiquant les origines du système allégué par.
 eux. Ils garderont le silence pour continuer à s'abriter
-dans l'équivoque. Mais il est démontré maïntenant — et ÿ
+dans l'équivoque. Mais il est démontré maïntenant — et
 
 _« ela suflirait — qu'on peut parler à cette tribune de ces
 … choses, (/Znterruptions à droite) qu'on peut parler du
-… bordereau annoté, de la fausse lettre de Guillaume I,
+… bordereau annoté, de la fausse lettre de Guillaume
 à sans déchaîner des orages. La guerre ne gronde plus
 … sur nos têtes, le prétexte patriotique, allégué par eux, |
 est dissipé, (/nterruptions) ils peuvent parler sans
@@ -3332,22 +3331,22 @@ Pia M Jaurès. — Non; ce n'est pas empiéter sur l'ordre
 
 politique et gouvernemental. ré Applaudissemenis Le “5
 
-Nous avons le droit et le devoir de le connaître, et M
+Nous avons le droit et le devoir de le connaître, et
 nous avons en même temps le devoir de condamner
 par un vote précis l'abominable système de calomnie
 électorale par lequel on a essayé de ruiner le crédit du
-parti républicain dans ia conscience même de la patrie. 144
+parti républicain dans ia conscience même de la patrie.
 (Nouveaux applaudissements sur les mêmes banes)
-Nous avons le devoir d'y mettre un terme et de prouver 2.
+Nous avons le devoir d'y mettre un terme et de prouver
 au parti nationaliste déclinant que son impuissance É À
 d'aujourd'hui ne doit pas être une excuse à ses méfaits
 
-M. Fin FauRE. — Si vous n'aviez pas eu la candidature officielle vous ne seriez pas ici. 4
+M. Fin FauRE. — Si vous n'aviez pas eu la candidature officielle vous ne seriez pas ici.
 
 < M. JaAuRÈs. — Si vous ne le faisiez pas, vous consa- Je
 creriez vous-mêmes une jurisprudence électorale, poli
 tique, de calomnie meurtrière allant jusqu'aux racines. ‘4 |
-mêmes de la vie nationale de ce pays. Que le parti qui. F
+mêmes de la vie nationale de ce pays. Que le parti qui.
 a, depuis cinq ans, la responsabilité de tant de
 fautes commises, de tant de faux accumulés, que ce
 parti ait osé contre nous, contre la République, se
@@ -3355,8 +3354,8 @@ dresser en accusateur; si vous le tolériez, ce serait la
 stupeur de l'histoire, le scandale de la conscience:et lan
 honte de la raison. (Applaudissements vifs et répétés à
 l'extrême gauche et à gauche. — Bruit prolongé à
-droite.— L'orateur, de retour à son banc, reçoit les féli- M
-citations de ses amis.) 4
+droite.— L'orateur, de retour à son banc, reçoit les féli-
+citations de ses amis.)
 
 la guerre. Li |
 
@@ -3406,31 +3405,30 @@ crime de cette nature. (Mouvements divers)
 …. vérité légale, je comprends parfaitement les inquiétudes
 … et l'anxiété de certains d'entre vous.
 
-EX - Pour apporter en ce moment une contribution à la: Ë
+EX - Pour apporter en ce moment une contribution à la:
 — vérité, j'apporte la lettre du général de Pellieux, dont
 
 il a été question. (Applaudissements à gauche. — Mou
 RU Les secrets dont j'ai la garde et que je conserve, je
-les communique au Parlement. (Applaudissements à M
+les communique au Parlement. (Applaudissements à
 gauche. — Exclamations et rires à droite) FE
 M. Gayraup. — C'est un étrange moyen de les con ‘3
 communique dans la limite où je le crois possible. ‘2
-Il y a d'abord une lettre du 31 août 1898 : 4
+Il y a d'abord une lettre du 31 août 1898
 Le général de brigade de Pellieux, commandant le Gépar- he
-tement de la Seine, adjoint au général de division comman- 4
-dant la place de Paris. 14 1e
-J'ai l'honneur de vous prier de vouloir bien transmettre M
+tement de la Seine, adjoint au général de division comman-
+dant la place de Paris.
+J'ai l'honneur de vous prier de vouloir bien transmettre
 à M. le ministre de la guerre la demande ci-jointe que je
-lui adresse, : 14
+lui adresse,
 Vu et transmis : :Ui
 « Le général commandant la place de Paris, À
 Il n'y a rien avec cette pièce. Pourquoi n'y a-til
 Mais voici une note : ti
-J'ai l'honneur de retourner cette demande au général 4
+J'ai l'honneur de retourner cette demande au général
 commandant la place de Paris. Le général de Pellieux a bien ne:
 voulu consentir à la retirer. ‘#
 Le gouverneur militaire de Paris, er,
-| 13
 
 + Donc une pièce est arrivée au ministre.
 
@@ -3439,7 +3437,7 @@ Le gouverneur militaire de Paris, er,
 _ retournée à son tour.
 
 k _  Continuons l'historique. Ceci est du 31 août 1898.
-0 Le 4 juin 1899, le général Zurlinden, gouverneur de ‘
+Le 4 juin 1899, le général Zurlinden, gouverneur de ‘
 “ Paris, écrit au ministre de la guerre :
 k Monsieur le ministre,
 # J'ai l'honneur de vous adresser ci-joint une lettre du
@@ -3459,13 +3457,13 @@ So M. Cavaignac, alors ministre de la guerre, que le général -
 RER juin 1899 et voici la lettre d'envoi qui accompagne la
 
 C'est le général de Pellieux qui renvoie sa lettre. -:
-À Monsieur le gouverneur militaire de Paris ; : F0
-C'est la voie hiérarchique. 2
+À Monsieur le gouverneur militaire de Paris ;
+C'est la voie hiérarchique.
 Monsieur le gouverneur,
-Conformément au désir que vous m'exprimez dans votre É
+Conformément au désir que vous m'exprimez dans votre
 lettre du 3 juin, j'ai l'honneur de vous adresser la demande bo -
 guerre en date du 31 août dernier. ‘4
-Voici la lettre que le général de Pellieux a conservée É:
+Voici la lettre que le général de Pellieux a conservée
 pendant dix mois et qu'il renvoie au ministre de la .
 guerre. Elle arrive avec sa date du 31 août 1898 : |
 Monsieur le ministre, À
@@ -3480,13 +3478,13 @@ d vous prier de vouloir bien liquider ma retraite pour ancien …
 neté de services.
 Voilà, vérifiée, certifiée officiellement, la lettre dont
 il vous a été donné lecture hier. (Applaudissements à :
-l'extrême gauche et à gauche) 3
-Je le répète, je n'examine absolument pas la question, F
-mais le Gouvernement, désireux de faciliter absolument 4
+l'extrême gauche et à gauche)
+Je le répète, je n'examine absolument pas la question,
+mais le Gouvernement, désireux de faciliter absolument
 la recherche de la vérité dans cette affaire, accepte en- à
-tièrement d'être chargé de procéder administrativement 4
-à une enquête. ( Vifs applaudissements à l'extrême gauche et à gauche) 4
-118 9
+tièrement d'être chargé de procéder administrativement
+à une enquête. ( Vifs applaudissements à l'extrême gauche et à gauche)
+118
 
 F. J'ajoute que, pour sauvegarder ma responsabilité, je
 me propose, d'accord avec le Gouvernement qui en a
@@ -3514,43 +3512,43 @@ ment à l'engagement qu'il avait pris dans le conseil, je
 …  meésuis occupé de rechercher ces responsabilités et 'ai
 eu notamment à m'occuper du général de Pellieux.
 
-C'est à cette occasion qu'ayant appris par M. le général ss e
+C'est à cette occasion qu'ayant appris par M. le général ss
 Zurlinden, gouverneur de Paris, que le général de Pek >
 lieux, le 31 août 1898, à la suite de la découverte du
-faux Henry, avait demandé sa mise à la retraite et M
+faux Henry, avait demandé sa mise à la retraite et
 avait ensuite retiré cette demande, j'ai demandé com- Fe.
 munication de la lettre qu'il avait écrite. 3:00
 M. Gusrave Rouaxer. — Elle n'avait donc pas paru à À
-| dans les journaux ? « 1
+| dans les journaux ? «
 M. Camuxze Knraxrz. — Ce n'est pas dans les jour
 naux que le ministre de la guerre a coutume de”
 rechercher ce qui concerne les officiers sur le sort des- À
-quels il peut avoir à se prononcer. (Applaudissements 4
-à droite et au centre) 74
+quels il peut avoir à se prononcer. (Applaudissements
+à droite et au centre)
 J'ai pris connaissance de cette lettre ; j'ai fait veni® “4
-dans mon cabinet le général de Pellieux et, après M
-lavoir entendu, je me suis absolument refusé à le s
+dans mon cabinet le général de Pellieux et, après
+lavoir entendu, je me suis absolument refusé à le
 déplacer. (Applaudissements au centre et à droite) J À
 M. Jures-Louis BRETON. — Cela n'empêche pas que
-sa letire avait été escamotée par M. Cavaignac. (Zxcla- À 1
+sa letire avait été escamotée par M. Cavaignac. (Zxcla- À
 mations et bruit au centre et à droite) ET
-M. Gopgrroy CAvaIGNAC. — Je n'ai tout d'abord … 4
-qu'à renouveler ici la déclaration que j'ai faite hier 0
+M. Gopgrroy CAvaIGNAC. — Je n'ai tout d'abord …
+qu'à renouveler ici la déclaration que j'ai faite hier
 devant la Chambre. Cette déclaration était celle-ci : Je
-prends la responsabilité de tout ce qui a été fait et 4
+prends la responsabilité de tout ce qui a été fait et
 j'estime qu'en présence d'une lettre comme celle du .
 général de Pellieux, le ministre de la guerre n'avait ‘4
 qu'une résolution à prendre, c'était de n'en point tenir k |
 compte. (Exclamations ironiques à l'extrême gauche et 4 |
 à gauche. — Applaudissements à droite et au centre) |
 Cette première déclaration faite, afin que personne ne |
-ne puisse supposer que dans l'examen des faïts je 4
+ne puisse supposer que dans l'examen des faïts je
 
 ‘3e cherche à dégager ma responsabilité, j'en arrive à la
 …. précision sur des faits qui n'ont, à mes yeux d'ailleurs,
 ge je le répète, aucune importance. (Aires ironiques à
 
-1 Lorsque M. le général de Pellieux s'est adressé au
+Lorsque M. le général de Pellieux s'est adressé au
 à gouverneur militaire de Paris, M. le général Zurlinden
 F — et je suis ici autorisé à parler au nom de M. le géné-
 …_ ral Zurlinden — lorsque le général de Pellieux est venu
@@ -3585,28 +3583,28 @@ de Pellieux.
 - tirer des conclusions, je tire cette première conclusion
 
 que, contrairement à ce que M. Jaurès a dit hier, le” FR
-général de Pellieux n'a pas maintenu ce qu'il avait dit 3
+général de Pellieux n'a pas maintenu ce qu'il avait dit
 dans sa lettre. (/nterruptions et dénég'ations à l'extrême à
 gauche et à gauche) ETES
-Je vous demande bien pardon! C'était contesté hier 4
-et c'est établi aujourd'hui et par les déclarations que M
-j'apporte et par celles qu'a apportées M. le ministre de 4
+Je vous demande bien pardon! C'était contesté hier
+et c'est établi aujourd'hui et par les déclarations que
+j'apporte et par celles qu'a apportées M. le ministre de
 la guerre. (Mouvements divers)
-Je n'admets sur ce point aucune dénégation. Je dis F 4
-que les déclarations que j'apporte de M. le général 4
-Zurlinden et celles que M. le ministre de la guerre a t
+Je n'admets sur ce point aucune dénégation. Je dis
+que les déclarations que j'apporte de M. le général
+Zurlinden et celles que M. le ministre de la guerre a
 apportées sont parfaitement concordantes. (Protesta- À
-tions à l'extrême gauche et à gauche. — Applaudisse- n
+tions à l'extrême gauche et à gauche. — Applaudisse-
 ments à droite et sur divers bancs) ne
 marquer que dans la lettre adressée par le général
-Zurlinden, gouverneur militaire de Paris, le 4 juin, il 14
+Zurlinden, gouverneur militaire de Paris, le 4 juin, il
 y a le post-scriptum suivant. ‘4
 M. Goperroy CAvaIGNAC. — Nous allons en parle
 tout à l'heure, monsieur le ministre de la guerre. +
 A l'extrême gauche. — Lisez! lisez! (Bruit) *
-M. Goperroy CAvAIGNAC. — Monsieur le ministre D.
+M. Goperroy CAvAIGNAC. — Monsieur le ministre
 pas interrompre ma discussion. (Applaudissements à "|
-droite. — Vives exclamations et protestations à l'ex- i
+droite. — Vives exclamations et protestations à l'ex-
 tréme gauche) Vous imaginez-vous, messieurs, par NA
 hasard, que je suis ici pour subir vos volontés ?
 M. LE PRÉSIDENT. — Parlez en face, monsieur Cavai- ;
@@ -3634,7 +3632,7 @@ s'il y a sur vos bancs quelqu'un qui soit prêt à nous
 _ répondre au dehors ou si vous êtes tous des lâches
 comme M. Jaurès. (Bruit prolongé. — Applaudissements à droite et sur divers bancs. — Exclamations et ;
 … protestations à l'extréme gauche)
-; Je reviens à l'examen des faits. 4
+; Je reviens à l'examen des faits.
 à M. ALBERT PouLAIN. — Je fais remarquer que M. CaL vaignac a proféré une injure que personne n'a relevée,
 car elle n'atteint personne. (Bruit)
 
@@ -3650,27 +3648,27 @@ M. le ministre de la guerre, je rappellerai l'attention de
 Invalidation Syveton ne
 la Chambre : c'est que la lettre adressée par M. le. MS :
 général de Pellieux à M. le général Zurlinden lui a été.
-remise par celui-ci trois jours après; c'est la raison. Ë 2
+remise par celui-ci trois jours après; c'est la raison.
 pour laquelle elle ne se trouve pas dans le dossier. di:
-J'ajouterai, puisqu'en vérité, hier, on a paru attacher M
-tant d'importance à ce que cette pièce du dossier, B.
-comme on disait, eût été entre les mains du ministre M
+J'ajouterai, puisqu'en vérité, hier, on a paru attacher
+tant d'importance à ce que cette pièce du dossier,
+comme on disait, eût été entre les mains du ministre
 de la guerre et qu'il l'eût gardée et dissimulée à ‘4
-M. Brisson, ce que M. Brisson n'a pas craint de venir 14
-gauche et à l'extrême gauche. — Applaudissements & 4
+M. Brisson, ce que M. Brisson n'a pas craint de venir
+gauche et à l'extrême gauche. — Applaudissements &
 M. LE PRÉSIDENT. — Vous vous servez d'un mot,
 monsieur Cavaignac, que je ne puis tolérer. 1%
-M. Hexrr Brisson. — Je demande la parole. (Æu- 4
+M. Hexrr Brisson. — Je demande la parole. (Æu-
 meurs à droite. — Applaudissements à gauche et à de:
-l'extrême gauche) 4
+l'extrême gauche)
 M. Henri Brisson. — M. Cavaignac ne peut pas dire
 Pellieux, car il a dit hier, répondant à M. Jaurès, qu'il
-ne se rappelle même plus s'il était encore au ministère M
-de la guerre lorsqu'elle y est arrivée. (Vifs applau M
+ne se rappelle même plus s'il était encore au ministère
+de la guerre lorsqu'elle y est arrivée. (Vifs applau
 dissements à gauche et à l'extrême gauche) ;
-M. Goperroy CAvAIGNAC. — Je suis autorisé par M
-M. le général Zurlinden à dire ici qu'il a gardé cette M
-pièce et qu'elle n'a jamais été au ministère de la guérre. M
+M. Goperroy CAvAIGNAC. — Je suis autorisé par
+M. le général Zurlinden à dire ici qu'il a gardé cette
+pièce et qu'elle n'a jamais été au ministère de la guérre.
 Voilà une déclaration positive et nette. (Applaudisse-
 
 qu'a citée M. le ministre de la guerre, à cette phrase
@@ -3678,7 +3676,7 @@ qu'a citée M. le ministre de la guerre, à cette phrase
 dans laquelle M. le général Zurlinden explique que
 … c'est à la suite d'un entretien avec moi que M. le gé-
 « néral de Pellieux aurait retiré sa lettre. M. le général
-4 Zarlinden commet sur ce point une erreur. (ÆxclamaLe tions à lextrême gauche et à gauche) Je n'ai pas vu le
+Zarlinden commet sur ce point une erreur. (ÆxclamaLe tions à lextrême gauche et à gauche) Je n'ai pas vu le
 4 général de Pellieux er je ne l'ai pas déterminé à retirer
 sa lettre. Mais j'ajoute, pour vous mettre tout à fait à
 à l'aise que ce point n'a aucune importance. (ÆxclamaF3 tions ironiques sur les mémes bancs)
@@ -3710,30 +3708,30 @@ a parlé de ces accusations qui ont été portées contrela 4]
 majorité actuelle au cours des opérations électorales, 54 |
 que nous sommes censés discuter. Je n'ai pas à parler
 ici de la forme de ces attaques. Ce n'est pas de la ‘4
-forme, mais du fond que je veux parler. On a mis le 4
+forme, mais du fond que je veux parler. On a mis le
 parti nationaliste en cause. LE:
-Eh bien ! oui, nous nous sommes trouvés au cours de 4
-la dernière campagne électorale, en face de M. Jaurès; 0
+Eh bien ! oui, nous nous sommes trouvés au cours de
+la dernière campagne électorale, en face de M. Jaurès;
 et nous avons dit au pays qu'on l'entraiînait à son insu
 dans une entreprise de désorganisation nationale. F ‘à
 et sur divers bancs au centre) Ne |
 M. Jaurès et la majorité nous ont répondu à ce « R::
-moment que la question n'était pas là; que le débat, : 1
-entire nous était purement politique, qu'il s'agissait seu- 1
-_ lement de la défense de la République et du progrès 1
+moment que la question n'était pas là; que le débat,
+entire nous était purement politique, qu'il s'agissait seu-
+_ lement de la défense de la République et du progrès
 Eh bien! je dis qu'aujourd'hui en engageant, en
 imposant à la Chambre le débat qu'il a apporté ici,
-M. Jaurès s'est chargé de prouver lui-même que c'est 4
+M. Jaurès s'est chargé de prouver lui-même que c'est
 nous qui avions raison. Il est assez manifeste, par la Nu
-futilité même des arguments qu'on a apportés à cette M
+futilité même des arguments qu'on a apportés à cette
 tribune, (Applaudissements à droite et sur divers bancs ‘2
 au centre) qu'il s'agit d'une entreprise politique. On a
 ne viendra pas prétendre que c'est par amour de la ‘4
-vérité qu'on a apporté ici les allégations que nous 4
-avons entendues en ce qui concerne particulièrement M
+vérité qu'on a apporté ici les allégations que nous
+avons entendues en ce qui concerne particulièrement
 la lettre du général de Pellieux. Nous nous trouvons en ‘4
-présence d'une entreprise politique nettement caracté- M
-risée! Vous n'êtes pas ici les serviteurs de la vérité, M
+présence d'une entreprise politique nettement caracté-
+risée! Vous n'êtes pas ici les serviteurs de la vérité,
 
 À | vous êtes simplement les esclaves de vos passions et de
 + vos rancunes politiques. (Nouveaux applaudissements
@@ -3767,7 +3765,7 @@ de M. Jaurès ; il a avoué lui-même un jour devant son
 .… pagne de justice et de vérité n'était au fond qu'une
 entreprise contre l'organisation militaire elle-même.
 
-3 M. Jures-Lours Breron. — Ce n'est pas clair. (Æxcla_ mations à droite)
+M. Jures-Lours Breron. — Ce n'est pas clair. (Æxcla_ mations à droite)
 
 _. M. Goperrox CAVAIGNAC. — Puis il a prononcé ici
 
@@ -3780,22 +3778,22 @@ qui l'empêchât de réclamer le désarmement simultané
 des peuples. (Applaudissements sur les mêmes bancs)
 Ce qu'on vise, ce ne sont pas telles ou telles person 4%
 nalités, mais bien l'institution militaire elle-même. Cet
-aveu a échappé à M. Jaurès dans la surprise de son 4
+aveu a échappé à M. Jaurès dans la surprise de son
 débat de l'autre jour avec M. Ribot, il a prononcé ici 4 |
-des paroles que je veux citer textuellement; il a dit... 4
-A l'extrême gauche. — Est-ce un faux? 4
-M. Goperroy CAvaiGNAc. — Messieurs, j'entends une 4
+des paroles que je veux citer textuellement; il a dit...
+A l'extrême gauche. — Est-ce un faux?
+M. Goperroy CAvaiGNAc. — Messieurs, j'entends une
 interruption que je relève. %
-Vous voulez, vous, un débat personnel... 2
-M. GopErroy CAvAIGNAC. — Vous n'en avez pas 4
+Vous voulez, vous, un débat personnel...
+M. GopErroy CAvAIGNAC. — Vous n'en avez pas
 l'air. (Exclamations et bruit à l'extrême gauche) ‘4
 juger si j'ai défendu le droit de parole de M. Cavaignac.
 . l'heure — et je répète mes paroles pour qu'elles soient $
-entendues — si vous étiez tous des lâches comme E
+entendues — si vous étiez tous des lâches comme
 M. Jaurès. (Vives protestations à gauche et à l'extrême
-gauche. — Cris: A l'ordre. — Applaudissements à 2
+gauche. — Cris: A l'ordre. — Applaudissements à
 M. Jaurès. — Je demande la parole... (Très bien! |
-très bien ! à l'extrême gauche) 4
+très bien ! à l'extrême gauche)
 
 Laissez-moi dire que je n'ai pas été, que je ne suis
 “ pas et que je ne serai pas dupe de la diversion grossière
@@ -3823,7 +3821,7 @@ messieurs, et j'ai moi-même donné la parole à
 d présence d'une entreprise de désorganisation nationale.
 (Applaudissements sur divers bancs au centre et à
 
-1 Et lorsque vous prétendez que ce n'est pas l'institu-
+Et lorsque vous prétendez que ce n'est pas l'institu-
 
 4 tion militaire elle-même que vous attaquez, et que vous
 
@@ -3835,28 +3833,28 @@ cées à cette tribune. (Bruit à gauche. — Applaudisse- A]
 Vous avez dit, il y a quelques jours : ü |
 Et lorsque le pays tout entier, lorsque les honnètes gens. É. |
 du pays tout entier ont vu la profondeur de corruption,
-dire que cette politique de faux... avait empoisonné la 26
-conscience de l'armée elle-même... ñ
+dire que cette politique de faux... avait empoisonné la
+conscience de l'armée elle-même...
 (Applaudissements à l'extréme gauche et sur divers ‘4
 Ainsi il est bien établi par votre aveu même et par les £.
 applaudissements que la phrase de M. Jaurès vient de |
 recueillir, il est bien entendu que ce n'est pas telle où À
-telle personne que vous visez ici, et s'il en est que vous È
+telle personne que vous visez ici, et s'il en est que vous
 visiez plus particulièrement parce qu'elles ont eu l'hon- oi
-neur, dans des circonstances difficiles, d'être les défen- ê
+neur, dans des circonstances difficiles, d'être les défen-
 seurs des idées que vous attaquez, de cela encore,nous %
 sommes fiers. Sachez-le bien, en face de vous, en face +
 des idées que vous avouez aujourd'hui, vous nous trou- À
-verez armés d'une résolution inébranlable. (Applaudis- î
-sements sur divers bancs à droite et au centre) ÿ
-Il est possible que nous ne soyons qu'une minorité. L
+verez armés d'une résolution inébranlable. (Applaudis-
+sements sur divers bancs à droite et au centre)
+Il est possible que nous ne soyons qu'une minorité.
 (Oui! oui! à l'extrême gauche)
 Il est possible, dis-je, que nous ne soyons qu'une mi- \
 norité, mais nous sommes une minorité résolue et une À
 minorité forte. (ÆExclamations ironiques à gauche et à ;
-l'extrême gauche.— Applaudissements sur divers bancs î
+l'extrême gauche.— Applaudissements sur divers bancs
 à droite et au centre). forte de ce qui a été autrefois
-la grandeur et l'honneur du parti républicain et du parti ÿ
+la grandeur et l'honneur du parti républicain et du parti
 socialiste lui-même. à
 
 î que votre parti est un parti républicain !
@@ -3875,7 +3873,7 @@ k ‘4 M: Henri Brisson. — Je demande la parole pour un
 “ fait personnel. (Vifs applaudissements à gauche et à pie
 l'extrême gauche)
 … Voix nombreuses. — A la tribune ! |
-(M: Henri Brisson monte à la tribune. — Vifs applaub diss ements à gauche et à l'extrême gauche) l
+(M: Henri Brisson monte à la tribune. — Vifs applaub diss ements à gauche et à l'extrême gauche)
 k M. HenriBrisson.— M. Cavaignac a tout à l'heure pro- ;
 k noncé le mot « faussement » en l'accolant à ce que j'avais
 î à hier et à mon nom. Je lui demande s'il applique ce <
@@ -3883,44 +3881,44 @@ K m ot « faussement » à l'assertion que j'ai produite hier,
 à savoir qu'il n'avait pas communiqué au GouverneFA ment ni à moi la lettre de M. le général de Pellieux.
 pa pplaudissements à gauche et à l'extrême gauche)
 Fe A droite. — Il ne l'avait pas.
-£ M. Gopernoy Cavaicnac. — J'applique cette afürM ie + N
+£ M. Gopernoy Cavaicnac. — J'applique cette afürM ie +
 
 mation à la phrase dans laquelle vous avez dit que vous
-appreniez — en feignant d'ailleurs de l'apprendre au M
+appreniez — en feignant d'ailleurs de l'apprendre au
 cours de la séance... (Applaudissements à droite. —
 Réclamations à gauche) que vous appreniez que javais |
-gardé une pièce qui ne vous avait pas été communi- F
+gardé une pièce qui ne vous avait pas été communi-
 quée et que cette pièce était la lettre du général de Pel
 lieux. (Mouvements divers) ; ne.
 
-M. Henri Brisson. — Donc il reste acquis que M: Ca- M
-vaignac n'a pas communiqué au Gouvernement dont il 4
-faisait partie la lettre de M. le général de Pellieux. M
-(Applaudissements à l'extrême gauche et à gauche. — 4
+M. Henri Brisson. — Donc il reste acquis que M: Ca-
+vaignac n'a pas communiqué au Gouvernement dont il
+faisait partie la lettre de M. le général de Pellieux.
+(Applaudissements à l'extrême gauche et à gauche.
 
-A droite. — Puisqu'il ne l'a pas eue! 4
+A droite. — Puisqu'il ne l'a pas eue!
 
 M. Henri Brissow. — Il reste acquis de plus parla
 parole écrite de M. le général Zurlinden, que c'est après à
 une conversation entre M. le général de Pellieux et” :
-M. Cavaignac que M. le général de Pellieux a retiré M
+M. Cavaignac que M. le général de Pellieux a retiré
 cette lettre. (Vifs applaudissements à gauche et à l'ex- à
 
 M. Gonerroy CAvaAIGNAc. — Je demande la parole.
 (Rumeurs à l'extrême gauche) à à
 
 M. LE PRÉSIDENT. — Vous n'avez pas le droit de pro- |
-tester ainsi, messieurs. Une question a été posée, écoutez 4
+tester ainsi, messieurs. Une question a été posée, écoutez
 la réponse. Me
 
 M. Goperroy CAVAIGNAC. — Il reste acquis que ce %
 n'a pas été à la suite d'une conversation qui n'a pas eu à
-lieu, que M. le général de Pellieux a retiré sa'lettre. 4
+lieu, que M. le général de Pellieux a retiré sa'lettre.
 
 Il reste acquis que, contrairement à ce que vous ayez
 affirmé vous-même, la lettre du général de Pellieux n'a
 jamais été au ministère de la guerre. (Applaudissements
-l'extréme gauche) 4
+l'extréme gauche)
 
 demande la parole. (Applaudissements à gauche et à
 _ l'extrême gauche)
@@ -3930,7 +3928,7 @@ LA M: LE PRÉSIDENT. — Messieurs, vous l'avez voulu !
 _ aucune conclusion de moi-même, dela version de la lettre
 à général Zurlinden, gouverneur militaire de Paris,
 lettre qui est datée du 4 juin 1899 :
-D octuun — C'est à la suite d'un entretien avec M.
+D octuun — C'est à la suite d'un entretien avec
 “ Cavaignac, alors ministre de la guerre, que le général de
 Le Pellieux a retiré sa demande du 3r août 1898.
 nur applaudissements à l'extréme gauche et à gauche)
@@ -3947,9 +3945,9 @@ tout! (Bruit à l'extrême gauche) J'ai même, afin qu'il
 Le eût aucune équivoque, interrompu M. Jaurès après :
 
 qu'il avait repris la parole — et chacun s'en souvient.
-Pour bien préciser quel était le sens de mes déclara- « tions, j'ai dit : « J'ai pris et je prends, je le répète, 1
+Pour bien préciser quel était le sens de mes déclara- « tions, j'ai dit : « J'ai pris et je prends, je le répète,
 responsabilité de tout ce qui a pu être fait au sujet de ”
-la lettre du général de Pellieux. » (Exclamations à l'ex- Ÿ 3
+la lettre du général de Pellieux. » (Exclamations à l'ex-
 
 Mais, messieurs, je donne lecture du Journal officiel. :
 
@@ -3958,15 +3956,15 @@ Si vous voulez, nous allons nous reporter à la sténo-
 
 M. FRANCIS DE PRESSENSÉ. — Reproduisez-nous votre
 
-vous prétendez créer ici une équivoque. ; ë
+vous prétendez créer ici une équivoque.
 
-A l'extrême gauche. — Ne renversez pas les rôles ! l
+A l'extrême gauche. — Ne renversez pas les rôles !
 
 M. Gongrroy CAvalGNAc. — Je vous demanderai « quelle est votre singulière conception de la loyauté. .
 ({nterruptions à l'extrême gauche)
 
-A l'extrême gauche. — Vous n'avez pas le droit de u
-dire cela ! 4
+A l'extrême gauche. — Vous n'avez pas le droit de
+dire cela !
 
 prendre une partie de la pensée d'un homme sans en
 prendre le reste... (Applaudissements au centre et sur
@@ -3974,7 +3972,7 @@ prendre le reste... (Applaudissements au centre et sur
 M. Gusrave ROUANET. — Il y a simplement deux pas-"
 
 M. LE PRÉSIDENT. — La tâche des interrupteurs est
-vraiment facile! (Très bien ! — On rit.) f
+vraiment facile! (Très bien ! — On rit.)
 
 M. Goperroy CAVAIGNAG. — J'ai dit — et ma déclaration ne pouvait avoir qu'un sens — que je prenais
 la responsabilité de tout ce qui avait été fait; mais
@@ -3988,7 +3986,7 @@ et vous pouvez, messieurs, si cela convient à vos passions politiques, fouiller
 La éfie de trouver une parole de moi par laquelle je
 _ déclare avoir reçu la lettre. (Bruit à gauche) à
 — A l'extrême gauche. — Si, vous l'avez dit !
-M. Gopgrroy CAvaIGnac. — C'est un peu fort! 3
+M. Gopgrroy CAvaIGnac. — C'est un peu fort!
 M: Maurice Viorerte. — Vous avez dit à peu près
  textuellement que vous l'aviez reçue et que vous n'en
 aviez tenu aucun compte, et c'est pour cela que je vous
@@ -3996,7 +3994,7 @@ ai répondu dans une interruption.
 . M. GopErRoY CAVAIGNAC. — Vous aurez beau faire
 “pour introduire dans ce débat la déloyauté de vos inL erruptions. (Zxclamations à l'extrême gauche)
 M. Maurice Viozcerre. — C'est vous qui...
-— M. ze PRÉSIDENT. — Monsieur Violletie, vous n'avez é
+— M. ze PRÉSIDENT. — Monsieur Violletie, vous n'avez
 . pas la parole! à
 —_M. Gonxrroy CAvaIGNAC. — Je répète donc ici quel
 à été hier le sens de mes déclarations et pour répondre
@@ -4011,16 +4009,16 @@ A l'extrême gauche. — Quelle estla date de cettelettre?
 M. Goperroy CAvAIGNAC. — Elle est du 7 avril 1903.
 M. ARISnIDE BrrAND, — C'est une lettre de complaisance. (Bruit)
 Monsieur le député, toutes réflexions faites, voici comme
-à mon avis, doit être rétablie l'affaire de la lettre du géné- F.
+à mon avis, doit être rétablie l'affaire de la lettre du géné-
 ral de Pellieux, demandant sa mise à la retraite, dont on
 a parlé hier lundi, à la Chambre des députés. de
 Aussitôt après la découverte du faux Henry, le général.
 Borius, alors commandant de la place de Paris, le chef :
 immédiat du général de Pellieux, est venu me trouver
 dans mon cabinet, aux Invalides, pour m'apporter cette
-lettre du général de Pellieux et appeler mon attention sur M
-sa gravité. 3
-Je fis venir immédiatement le général de Pellieux. Il était 4
+lettre du général de Pellieux et appeler mon attention sur
+sa gravité.
+Je fis venir immédiatement le général de Pellieux. Il était
 très surexcité, très énervé à l'idée qu'on pourrait l'aceuser
 d'avoir cité trop légèrement une pièce fausse au procès
 Zola ; douloureusement préoccupé surtout de la pensée que
@@ -4061,13 +4059,13 @@ et si j'avais été saisi de la lettre, j'eusse agi comme lui.
 “  mentairement rien ne s'y opposait.
 H Les états-majors du gouvernement militaire de Paris
 
-n'ont pas été mêlés à cette affaire. Il est probable qu'on ne é
+n'ont pas été mêlés à cette affaire. Il est probable qu'on ne
 trouvera rien dans les archives. es
 
-Et ici M. le général Zurlinden commet une erreur F
+Et ici M. le général Zurlinden commet une erreur
 puisque M. le ministre de la guerre a retrouvé les
 pièces qu'il est venu lire à cette tribune. (Exclamations à
-et applaudissemenis ironiques à l'extréme gauche) 6
+et applaudissemenis ironiques à l'extréme gauche)
 
 Vous êtes bien fiers, messieurs, de votre infaïllibilité
 si vous pensez qu'un homme ne puisse pas même se
@@ -4109,7 +4107,7 @@ _ devotre mémoire, si vous essayez de tirer argument,
 
 … lettre dont M. le ministre de la guerre a donné lecture ?
 
-G M. Mausan.— L'allégation dont vous parlez est écrite ù
+G M. Mausan.— L'allégation dont vous parlez est écrite
 
 de la main du général Zurlinden et signée par lui.
 
@@ -4152,22 +4150,22 @@ choses se sont passées. Quel intérêt cela a-til puisque
 
 L venu me trouver, j'aurais fait précisément ce que vous
 
-pensez pouvoir me reprocher d'avoir fait ? (Applaudis- É
-sements à droite et sur divers bancs) Quel est done Pin- 7
+pensez pouvoir me reprocher d'avoir fait ? (Applaudis-
+sements à droite et sur divers bancs) Quel est done Pin-
 térêt de ce débat ? Que cherchez-vous à faire? Vous -°
-cherchez ici à créer des équivoques. ({nterruptions à È
-Quel intérêt cela a-t-il que les choses se soient pas M
-sées d'une façon ou d'une autre, que M. le général Zur- k
+cherchez ici à créer des équivoques. ({nterruptions à
+Quel intérêt cela a-t-il que les choses se soient pas
+sées d'une façon ou d'une autre, que M. le général Zur-
 linden ait fait iui-même ce qu'il's'honore d'avoir fait, à
 ou que j'eusse fait moi-même ce que je m'honorerais
-d'avoir fait, quelle importance cela at-il pour le but k,
+d'avoir fait, quelle importance cela at-il pour le but
 politique que vous poursuivez ? (Applaudissements à à
 droite et sur divers bancs. — Bruit à gauche) $
 avez trahi votre président du conseil. :
 M. Goperroy CAvAIGNAC. — Quant à ma responsa- {
-bilité, je l'affirme ici pleine et entière solidaire avec 1
-celle de M. le général Zurlinden. (Vifs applaudissements j
-à droite et sur divers bancs) 4
+bilité, je l'affirme ici pleine et entière solidaire avec
+celle de M. le général Zurlinden. (Vifs applaudissements
+à droite et sur divers bancs)
 M. LE PRÉSIDENT. — La parole est à M. Lasies pour
 une demande d'ajournement de la discussion. {
 prendre la parole dans ce débat malgré ce que je pourrais appeler, sans avoir d'intention blessante contre
@@ -4181,9 +4179,9 @@ gouvernement soucieux de ses devoirs n'aurait pas dû
 permettre de réveiller ici. (Applaudissemenis à droite.
 
 “ M. Gustave Rouaxer. — C'est la commission d'en_ quête qui a commencé !
-4 M. Riomreau, président de la commission d'enquête.—
+M. Riomreau, président de la commission d'enquête.—
 __ Je demande la parole.
-4 M. Maurice Viozretre. — C'est M. Beauregard qui Û
+M. Maurice Viozretre. — C'est M. Beauregard qui
 $ a réveillé l'affaire.
 ; M. Gusrave Rouaner. — Il ne fallait pas accepter le
 _ témoignage de M. Judet.
@@ -4209,15 +4207,15 @@ iG M. Lasres.— … et déclarer qu'il allait se faire l'auxi-
 ï l'extrême gauche)
 
 M. Henrr Micez (Bouches-du-Rhône). — De ceux à
-qui veulent la lumière et la vérité. 5h
-M. LAMENDIN. — Ce n'est pas un ministre qui dit des 4
-faux à la tribune celui-là ! F
-M. PAsrRE. — Il ne fait que son devoir. L
+qui veulent la lumière et la vérité.
+M. LAMENDIN. — Ce n'est pas un ministre qui dit des
+faux à la tribune celui-là !
+M. PAsrRE. — Il ne fait que son devoir.
 M. Lasres. — Ce que je dis vous fait sourire, mon
-sieur le ministre de la guerre? i
+sieur le ministre de la guerre?
 M. Lasres.— C'est tout ce que vous avez à répondre ? à
 Eh bien! permettez-moi de vous faire connaître ce que à
-pense l'étranger de l'affaire. (Æxclamations à l'extréme ÿ
+pense l'étranger de l'affaire. (Æxclamations à l'extréme
 gauche. — Applaudissements à droite) Il faut que vous
 entendiez ces paroles et qu'elles restent sur votre conscience. (Nouveaux applaudissements à droite) |
 doute nous lire une correspondance qui vient de Paris.
@@ -4257,17 +4255,17 @@ L: et à l'extrême gauche)
 # Voilà l'œuvre à laquelle vous voulez coopérer, mon_ sieur le ministre de la guerre.
 : M. Lasres. — Il aurait suffi d'un mot, lorsque M. Jau-
 Ë .  rès est venu dire ici — et il était dans son rôle — que
-4 Vétat-major prussien avait rappelé l'état-major fran-
+Vétat-major prussien avait rappelé l'état-major fran-
 à çais au devoir et à la conscience. Vous n'auriez pas dû
 …. laisser passer une pareille parole sans protester. (4p-
 
-4 - 143
+4
 
 M. GusrAve RouUANET. — Il n'a pas dit cela! C'est à
-M. Lasres. — Je sais bien, monsieur le ministre, que 4
-vous avez dit qu'avant tout vous vouliez la lumière et 4
+M. Lasres. — Je sais bien, monsieur le ministre, que
+vous avez dit qu'avant tout vous vouliez la lumière et
 la vérité. :
-Oui! Vous prenez les formules de ceux qui vous 1
+Oui! Vous prenez les formules de ceux qui vous
 applaudissent et vous soutiennent. La lumière et ia
 vérité ce sont de bien belles choses, mais la France, $
 qu'en faites-vous dans tout cela, monsieur le ministre? à
@@ -4283,7 +4281,7 @@ cette tribune pour nous dire que nous étions le parti
 des faussaires. Je suis monté après lui à la tribune et
 j'ai dit ce que je vous dis de nouveau aujourd'hui:
 Nous avons assez de ces accusations. Les faussaires,
-ils sont chez vous. (Applaudissements à droite) 4
+ils sont chez vous. (Applaudissements à droite)
 M. Jures-Louis BRETON. — Vous l'avez dit, mais àl
 fallait le démontrer.
 M. Lasies. — J'avoue que j'ai eu un moment d'inquié-
@@ -4313,7 +4311,7 @@ Fe Henry, il a été puni dès qu'il a été connu ; il n'a pas servi
 
 au conseil de guerre de 1895 ; il n'a jamais servi à faire
 + condamner Dreyfus, tandis que vous autres vous avez
-L'fait un faux à l'aide duquel vous avez essayé de le faire p
+L'fait un faux à l'aide duquel vous avez essayé de le faire
 k acquitter. Vous n'en parlez pas de celui-là? Je viens
 
 vous rafraîchir la mémoire. { Applaudissements à
@@ -4331,22 +4329,22 @@ M. Millevoye, dans une réunion publique à Suresnes.
 
 Il y avait d'autres documents que vous pouviez cor- “4
 sulter; il y avait d'autres documents que les journaux
-qui passent au jour le jour. Vous aviez les archives M
-parlementaires, tous les débats qui ont eu lieu au M
-cours de l'affaire Dreyfus. Et vous, qui êtes si soucieux 3
+qui passent au jour le jour. Vous aviez les archives
+parlementaires, tous les débats qui ont eu lieu au
+cours de l'affaire Dreyfus. Et vous, qui êtes si soucieux
 de la lumière et de la vérité, vous auriez vu, en lisant « ces débats, qu'il subsiste des points obscurs sur lesquels,
-nous, nous avions voulu porter la lumière. Cette M
+nous, nous avions voulu porter la lumière. Cette
 lumière, vous l'avez étouffée, de complicité avec le
 M. Henri Micuez (Bouches-du-Rhône). — Faitesla;
-nous ne demandons pas mieux. 4
+nous ne demandons pas mieux.
 M. Lasies. — Certes, nous n'aurions point parlé de
 cette affaire que nous croyions oubliée, affaire qui fut
 provoquée par la lettre du général de Gallifiet à
-M. Waldeck-Rousseau. Je suis peut-être un des premiers qui l'aient connue, je n'en ai jamais parlé à per- M
+M. Waldeck-Rousseau. Je suis peut-être un des premiers qui l'aient connue, je n'en ai jamais parlé à per-
 sonne; je ne voulais pas prendre sur moi la responsa- "
-bilité de renouveler cette agitation dans le pays qui 4
+bilité de renouveler cette agitation dans le pays qui
 vient à peine de s'en relever et qui en a tant souffert. IL …
-faut que ce soit vous qui la recommenciez! (Applaudissements à droite) F
+faut que ce soit vous qui la recommenciez! (Applaudissements à droite)
 é Il vous serait bien commode, si nous nous taisions,
 de dire dans vos journaux et dans les réunions publiques que nous sommes le parti des faussaires et de
 l'état-major. Mais je ne veux pas que le pays reste sur
@@ -4368,16 +4366,16 @@ pu faire la lumière.
 — premier venu? Non. Qui avait découvert le faux Henry ?
 | C'est le commandant Cuignet.
 | grand honnête homme ! (Très bien ! très bien!)
-4 M. Lasrs. — Lorsque le commandant Cuignet a
+M. Lasrs. — Lorsque le commandant Cuignet a
 
 Ÿ découvert ce faux, vous vous êtes inclinés devant cet
 Le officier de l'état-major qui, comme vous le disiez, était
-par hasard un honnête homme. IL avait découvert le k
+par hasard un honnête homme. IL avait découvert le
 —… faux Henry, et dès qu'il l'avait eu découvert, il n'avait \
 
 … pas hésité à le montrer à son ministre.
 
-114 Maïs cet homme a découvert un autre faux, et lors- |
+Maïs cet homme a découvert un autre faux, et lors- |
 … qu'ilest venu vous dire : Un faux a été commis par les
 
 . défenseurs de Dreyfus, vous avez mis un bâillon sur sa
@@ -4392,7 +4390,7 @@ _ bouche et vous l'avez jeté aux oubliettes au Mont-
 
 … cette tribune lorsque, me faisant l'écho du commandant
 à Cuignet, je suis venu dénoncer le faux Panizzardi. Il
-_ aurait constaté que le Gouvernement avait étoufté le 1
+_ aurait constaté que le Gouvernement avait étoufté le
 Hdébat dont on né voulait pas. En lisant le texte de l'in_ terpellation que je vous adressais, monsieur le ministre
 
 _ dela guerre, sur la façon dont vous agissiez vis-à-vis ‘
@@ -4401,35 +4399,35 @@ S RS commandant Cuignet, M. Jaurès aurait vu que vous
 me vouliez pas de la lumière que le commandant Cui-
 
 gnet vous proposait de faire. Sa franchise vous fit peur, ne
-et vous avez reculé devant elle. RU 8
-M. Jaurès est venu nous lire un document qu'il déclarait inédit et qui devait nous écraser, c'est cette lettre M
-du général de Pellieux, lettre qui traîna dans tous les 1
-bureaux de rédaction. 533
-Moi, je viens lire un autre document qui n'a traîné É
-dans aucune rédaction, qui était mon secret à moi tout ï
+et vous avez reculé devant elle. RU
+M. Jaurès est venu nous lire un document qu'il déclarait inédit et qui devait nous écraser, c'est cette lettre
+du général de Pellieux, lettre qui traîna dans tous les
+bureaux de rédaction.
+Moi, je viens lire un autre document qui n'a traîné
+dans aucune rédaction, qui était mon secret à moi tout
 seulet dont je n'ai point jusqu'ici voulu parler. C'est
 vous qui ny avez obligé. Oui, pour me défendre, je
 veux vous attaquer. J'en ai assez! (Applaudissements à |
 Ce document, il faut que ce ministre l'entende; ce )
-ministre qui a dit à la tribune, pour vous flatter, qu'il F
-voulait favoriser la découverte de la lumière, (Applau M
+ministre qui a dit à la tribune, pour vous flatter, qu'il
+voulait favoriser la découverte de la lumière, (Applau
 dissements sur les mêmes bancs) ce ministre qui songe ,
 bien plus à son rôle de politicien qu'à son devoir de
 soldat. (Nouveaux applaudissements sur les mêmes
-M. LE PRÉSIDENT. — Monsieur Lasies, je vous invite É
-à surveiller vos paroles. ÿ
-M. MaRrcEL Sempar. — C'est un système de provoca- ÿ
-tions calculées et que vous ne pouvez pas laisser conti- M
-nuer, monsieur le président. û
+M. LE PRÉSIDENT. — Monsieur Lasies, je vous invite
+à surveiller vos paroles.
+M. MaRrcEL Sempar. — C'est un système de provoca-
+tions calculées et que vous ne pouvez pas laisser conti-
+nuer, monsieur le président.
 M. LE PRÉSIDENT. — J'avertis monsieur Lasies qu'il
 s'engage dans une voie où je ne pourrai pas le laisser
 M. Lasres. — Monsieur Sembat, je vous afiirme qu'il
 discussion. Je viens de dire toute ma façon de penser. Si
 ma pensée a revêtu une forme trop vive, je le regrette,
 et je tâcherai à l'avenir de modérer mes expressions.
-|. 148
+|.
 
-4 IA fant que ce ministre entende comment il vous
+IA fant que ce ministre entende comment il vous
 … aidera à faire la vérité; il faut que vous sachiez ce qu'il
 F a fait lorsqu'il pouvait la découvrir.
 | Un officier, le même qui avait découvert le faux
@@ -4456,24 +4454,24 @@ lettre du général de Pellieux. Il aurait dû consulter les
 à comptes rendus de nos débats ; il y aurait vu qu'il est
 
 des points où il fallait porter la lumière; et peut-être
-< alors M. Jaurès, homme indépendant, aurait été avec 4
+< alors M. Jaurès, homme indépendant, aurait été avec
 nous pour vous demander de la faire. ray T TER
 Au lieu de cela qu'avons-nous vu? Dès que le faux :
 fut dénoncé, immédiatement, dans la presse gouvernementale, ministérielle, il y eut un mot d'ordre donné : ;
 ne point répondre à l'accusation qui avait été portée, si
 nette et si précise. 4 |
-Avec le commandant Cuignet nous avons cherché 4
+Avec le commandant Cuignet nous avons cherché
 dans tous les journaux de Paris et de province une
-seule accusation contre nous, qui nous aurait permis 4
+seule accusation contre nous, qui nous aurait permis
 de poursuivre ceux qui nous accusaient. Nous n'avons
 pu relever un seul acte. Le mot d'ordre était donné, et
 vos journaux écrivaient tous les jours : L'affaire Paniz- %
 zardi et l'affaire Cuignet, mais il n'y a rien là-dedans.
 Rien dans l'affaire Cuignet? Écoutez, messieurs:
 Le 24 décembre 1902, je recevais du Mont-Valérien …
-cette lettre : 4
+cette lettre
 Mon cher ami, l: :
-Je lis dans la presse de ce matin que des efforts sont 4
+Je lis dans la presse de ce matin que des efforts sont
 faits en vue de faire croire qu'il n'y a rien dans l'affaire BE.
 En réponse à cette insinuation, voulez-vous simplement
 faire connaître ce qui suit : À
@@ -4481,9 +4479,9 @@ La dépêche Panizzardi contient l'aveu formel de la culpa |
 bilité de Dreyfus et de la complicité de l'attäché militaire |
 italien. Quand j'ai eu signalé l'existence de la dépêche; et à
 j'ai été le premier et le seul à le faire, il s'est produit un
-véritable affolement dans le camp des défenseurs de Dreyfus. On s'est adressé à l'étranger pour obtenir des argu- M
+véritable affolement dans le camp des défenseurs de Dreyfus. On s'est adressé à l'étranger pour obtenir des argu-
 ments : et le concours de l'étranger a été payé par un acte #
-de trahison commis par des Français contre la France. 4
+de trahison commis par des Français contre la France.
 
 he Mais on s'est efforcé de me faire revenir sur mon témoi-
 …_ gnage et on a employé successivement à cet effet la tenta-
@@ -4512,31 +4510,31 @@ crime de forfaiture, crime de trahison, sans compter le
 Ah ! s'il n'y a rien dans l'affaire Cuignet, pourquoi ne pas
 me confondre ? Ce serait si facile! On me jette en prison,
 . onme traite, par ordre du Gouvernement, de façon humi-
-… liante; on m'a appliqué le régimeréservé aux officiers punis h
+… liante; on m'a appliqué le régimeréservé aux officiers punis
 
 d'arrêts de forteresse pour dettes. Il a fallu mes protesta- ‘4
-tions pour faire cesser ce régime. 4
+tions pour faire cesser ce régime.
 
 Eh bien! n'importe! je parlerai quand j'aurai enfin
-arraché le bâillon que depuis deux ans on tient serré sur M
-ma bouche. Je parlerai et les honnêtes gens de toute opi- 1:
+arraché le bâillon que depuis deux ans on tient serré sur
+ma bouche. Je parlerai et les honnêtes gens de toute opi-
 nion et de tous les partis jugeront et, j'en suis sûr, parta- à
-geront mes conclusions. 120
+geront mes conclusions.
 
-çais : le pays l'entendra! Le ministre de la guerre lais- 1
-sera-t-il, cette fois, parler le commandant Cuignet? E
+çais : le pays l'entendra! Le ministre de la guerre lais-
+sera-t-il, cette fois, parler le commandant Cuignet?
 
-M. Francis DE PRessensé. — M. Lasies vient denous M
-donner lecture d'une lettre du commandant Cuignet, 1
-alors je pose cette question : Est-il vrai que le comman- 1
-dant Cuignet, de concert avec le général Chamoïn, S.
-devant la cour de cassation, toutes chambres réunies, 1
-a signé un procès-verbal par lequel il a déclaré recon-, f
-naître l'authenticité absolue de la dépêche Panizzardi 1
+M. Francis DE PRessensé. — M. Lasies vient denous
+donner lecture d'une lettre du commandant Cuignet,
+alors je pose cette question : Est-il vrai que le comman-
+dant Cuignet, de concert avec le général Chamoïn,
+devant la cour de cassation, toutes chambres réunies,
+a signé un procès-verbal par lequel il a déclaré recon-,
+naître l'authenticité absolue de la dépêche Panizzardi
 et retiré toutes les articulations qu'il avait proférées à
-contre elle. (Applaudissements à l'extréme gauche et à ï
+contre elle. (Applaudissements à l'extréme gauche et à
 
-M. Lasres. — Messieurs, ne vous hâtez pas d'applaudir. M. de Pressensé, avec une bonne foi à laquelle je é
+M. Lasres. — Messieurs, ne vous hâtez pas d'applaudir. M. de Pressensé, avec une bonne foi à laquelle je
 rends hommage, vient de commettre une bien grande
 effet un procès-verbal signé par le commandant Cuignet
 et le général Chamoin ; et M. Delcassé a lu ce procèsverbal à la tribune, lorsque j'ai demandé à interpeller
@@ -4593,19 +4591,19 @@ _ trême gauche et à gauche)
 
 M. Jures-Lours BreroN. — Vous avez tort de parler.
 de l'affaire Dreyfus, monsieur Lasies, vous n'en con
-naissez pas le premier mot. 4
+naissez pas le premier mot.
 M. Lasres. — Il y aici une question debonnefoipour
-nous tous et il faut que les explications soient claires 4
+nous tous et il faut que les explications soient claires
 et nettement données. Voici les pièces auxquelles je
-Voici le premier procès-verbal signé par M. le général M
+Voici le premier procès-verbal signé par M. le général
 Chamoin, M. Paléologue et M. le commandant Cuignet:
-tion, les soussignés : | 4
+tion, les soussignés :
 MM. le général Chamoin et le commandant Cuignet, délé- à
 gués du ministre de la guerre, ,
 D'une part,
 M. Paléologue, secrétaire d'ambassade, délégué du ministre
 des affaires étrangères,
-se sont réunis le 27 avril 1899, dans le cabinet de M. le premier président, à l'effet de procéder au déchiffrement du M
+se sont réunis le 27 avril 1899, dans le cabinet de M. le premier président, à l'effet de procéder au déchiffrement du
 ù décalque du télégramme du 2 novembre 1894, signé Pa- ;
 nizzardi, tel qu'il a été remis à M. le premier président de
 la cour de cassation par l'administration des postes et télé-
@@ -4633,7 +4631,7 @@ les réserves portent sur Le texte de l'adresse et sur la
 - M. Paléologue et qui, séance tenante, quelques minutes
 . après le refus de M. Paléologue, a été signé par MM. le
 …— général Chamoin et le commandant Cuignet :
-En Paris, le 27 avril 1899 H
+En Paris, le 27 avril 1899
 À Les soussignés, général Chamoiïn et commandant Cuignet,
 _ ontopéré le déchiffrement du télégramme du 2 novembre
 1894 en présence de M. Paléologue, sur une copie conforme
@@ -4645,25 +4643,25 @@ k, L'examen de l'écriture, texte et signature, a permis de
 _ reconnaître que ladite écriture n'est pas de la main de Pa-
 … Les soussignés ont fait part de cette constatation à M. Paléologue.
 
-Non! nous ne voulons pas nous laisser traiter departi M
+Non! nous ne voulons pas nous laisser traiter departi
 des faussaires. Lorsqu'il y a eu un faux commis parmi
-les nôtres, il a été immédiatement dénoncé et puni. Il a % 4
+les nôtres, il a été immédiatement dénoncé et puni. Il a %
 été dénoncé par cet officier que vous avez frappé après, "4
 par le commandant Cuignet. C'était un honnête homme
 lorsqu'il a découvert le faux Panizzardi.
-Oui, à ce moment, il était un esprit droit et clair M
+Oui, à ce moment, il était un esprit droit et clair
 voyant, lorsqu'il a dénoncé un faux qui pouvait favo- *
 riser vos menées et vos projets.
-Mais, je vous le demande, à vous tous, qu'auriez-vous 4
+Mais, je vous le demande, à vous tous, qu'auriez-vous
 dit à M. Cavaignac si, lorsque le commandant Cuignet ‘4
-a découvert le faux Henry, il avait agi vis-à-vis delui M
-comme a agi le général André lorsque le commandant 4
+a découvert le faux Henry, il avait agi vis-à-vis delui
+comme a agi le général André lorsque le commandant
 Cuignet a découvert le faux Panizzardi ? (Applaudissements répétés à droite)
-Lorsque le commandant Cuignet a dit au ministre de Ë
-la guerre d'alors: La pièce que vous avez lue à la tri Ê
-bune est un faux, le ministre de la guerre qui, prévoyant 4
+Lorsque le commandant Cuignet a dit au ministre de
+la guerre d'alors: La pièce que vous avez lue à la tri
+bune est un faux, le ministre de la guerre qui, prévoyant
 cependant tous les tracas que cette découverte provo- $
-querait, sans hésiter un seul instant. 4
+querait, sans hésiter un seul instant.
 M. Lasres. — … A puni le coupable, tandis que lorsque le commandant Cuignet a découvert le faux Panizzardi, qu'a fait le ministre de la guerre, général André ?
 I1la fait enfermer au Mont-Valérien. La voilà, votre |
 justice! Le voilà, votre amour dela vérité ! (Applaudissements prolongés à droite et sur divers bancs)
@@ -4676,12 +4674,12 @@ M. Ferxaxp EnGEranD. — Mais si! ces faits se sont
 “à TA mn e ré pondrez. (Très bien ! très bien! à droite. — Inter- !
 n_ En attendant, laissez-moi continuer.
 “ Autre fait plus grave, monsieur le ministre de la
-1 + guerre : lorsque le commandant Cuignet est sorti du j
+1 + guerre : lorsque le commandant Cuignet est sorti du
 ._ Mont-Valérien; lorsqu'il eut subi la peine que vous lui
 R à aviez infligée parce qu'il voulait dire la vérité dont vous
-p A. _ prétendez être le partisan, il vous a renouvelé ses accuFe _ sations par lettre, vous ne me démentirez pas! (Très j
+p A. _ prétendez être le partisan, il vous a renouvelé ses accuFe _ sations par lettre, vous ne me démentirez pas! (Très
 bien ! très bien ! à droite)
-“….… vous a dit: Monsieur le ministre de la guerre, j'ai | » découvert un crime; je le dénoncerai; je veux pour- P
+“….… vous a dit: Monsieur le ministre de la guerre, j'ai | » découvert un crime; je le dénoncerai; je veux pour-
 | suivre ceux qui l'ont commis. Vous avez dit: Vous vous ki
 18 tairez : si vous ne vous taisez pas, je trouverai bien le
 j 4 moyen de vous empêcher de parler.
@@ -4695,38 +4693,38 @@ Ne bancs au centre) Je ne me rappelle pas si la peine dont
 # il s'agit a été infligée par mon prédécesseur, je ne peux
 ‘200 pas l'affirmer. (Bruit sur les mêmes bancs)
 : 0 été infligée par vous, monsieur le‘ministre !
-5 M. Camuze KRANTz. — Je demande la parole. (Bruit
+M. Camuze KRANTz. — Je demande la parole. (Bruit
 
 M. Lasres. — Je ne puis pas suivre la discussion au : “4
-milieu de toutes ces interruptions. 210
+milieu de toutes ces interruptions.
 
-M. Came KRANTz. — Un mot seulement. j 4
+M. Came KRANTz. — Un mot seulement.
 
-M. Lasres. — La discussion est tellement délicate et ! M
+M. Lasres. — La discussion est tellement délicate et !
 diflicile qu'il m'est impossible de la suivre au milieu de ‘à
 toutes ces interruptions. Je prie mes amis de vouloir ‘À
-bien me la laisser achever sans m'interrompre, j'ai fini L
+bien me la laisser achever sans m'interrompre, j'ai fini
 dans quelques instants. ‘à
 
 M. Lasres.— M. le ministre de la guerre me reproche ‘
 de lui adresser une interpellation. Mais depuis deux
-jours que fait donc M. Jaurès si ce n'est une interpella- L
-tion à nous tous ? Parce qu'il exprime vos idées, vous Ÿ
-ne vous en plaignez pas. Vous vous prétendez partisan 4
-de la vérité ; eh bien, avec moi, la vérité vous tient à la b:
+jours que fait donc M. Jaurès si ce n'est une interpella-
+tion à nous tous ? Parce qu'il exprime vos idées, vous
+ne vous en plaignez pas. Vous vous prétendez partisan
+de la vérité ; eh bien, avec moi, la vérité vous tient à la
 gorge et elle ne vous lâchera pas. (Applaudissements à ®
-droite et sur plusieurs bancs au centre) 3
+droite et sur plusieurs bancs au centre)
 
 Vous n'aviez pas le droit de vous faire le complice de à
-M. Jaurès et de ses amis ; ils sont dans leur rôle, eux, 1
-en cherchant à perpétuer dans le pays l'agitation pro- f
-voquée par l'affaire Dreyfus, qui est et doit rester une 4
-affaire close. S'ils ont des arguments nouveaux à faire 1
-valoir, qu'ils s'adressent à la justice. Mais, pour l'hon- 4
-neur de l'armée, vous n'auriez jamais dû, vous, leur h
+M. Jaurès et de ses amis ; ils sont dans leur rôle, eux,
+en cherchant à perpétuer dans le pays l'agitation pro-
+voquée par l'affaire Dreyfus, qui est et doit rester une
+affaire close. S'ils ont des arguments nouveaux à faire
+valoir, qu'ils s'adressent à la justice. Mais, pour l'hon-
+neur de l'armée, vous n'auriez jamais dû, vous, leur
 tendre la main. (Applaudissements sur les mêmes bancs) Le
 Ils ont jeté l'accusation contre nous tous ; nous nous
-défendons. Vous êtes de leur côté; c'est votre affaire, s
+défendons. Vous êtes de leur côté; c'est votre affaire,
 
 M. Jaurès nous a dit que nous renïions les nationalistes ; non, nous ne les avons pas reniés; et il faui lui
 rendre à lui-même cette justice qu'il ne renie pas les
@@ -4759,35 +4757,35 @@ accompli la première partie de votre programme, mais
 É É: à présent vous vous trouvez en face de votre programme
 Re économique et comme vous ne voulez pas l'exécuter,
 
-vous cherchez une diversion dans l'affaire Dreyfus. j 4
+vous cherchez une diversion dans l'affaire Dreyfus.
 (Applaudissements à droite et sur plusieurs bancs au ‘4
 centre. — Exclamations et interruptions à gauche)  :
 Voilà ce que vous voulez, monsieur Jaurès, avec tous ‘4
 vos amis. “4
-Ah !ïil y avait des questions autrement importantes L
+Ah !ïil y avait des questions autrement importantes
 à traiter à cette tribune. Il y avait la question des LA
-retraites ouvrières, il y avait la question de l'impôt sur 4
+retraites ouvrières, il y avait la question de l'impôt sur
 le revenu, mais votre Gouvernement vous a dit qu&
-n'en voulait pas et alors pour faire diversion, commeül 4
+n'en voulait pas et alors pour faire diversion, commeül
 n'y a plus de moines et qu'il n'y aura bientôt plus de |
 curés, vous avez tenté Ge ressusciter l'affaire Dreyfus;
 voilà la vérité. (Exclamations à gauche et à l'extrême À
-Et je dis à M. Jaurès: Vous et vos amis, de compli- i
+Et je dis à M. Jaurès: Vous et vos amis, de compli-
 cité avec le Gouvernement actuel, vous trompez les à
 masses ouvrières ; vous ne voulez pas exécuter le pro: “|
-gramme économique à l'aide duquel vous avez capté 4
-leur confiance. (Vives protestations à gauche et à l'ex- F
-tréme gauche) Vous ne voulez pas tenir vos promesses 4
-et vos engagements ; vous avez pris toutes ces admira- k
-bles forces vives du prolétariat français. 1
-M. Pauz Consrans. — Vous le traitez, vous, comme 1
+gramme économique à l'aide duquel vous avez capté
+leur confiance. (Vives protestations à gauche et à l'ex-
+tréme gauche) Vous ne voulez pas tenir vos promesses
+et vos engagements ; vous avez pris toutes ces admira-
+bles forces vives du prolétariat français.
+M. Pauz Consrans. — Vous le traitez, vous, comme
 l'ont fait le père de M. Cavaignac et Galliffet. |
-M. Lasres. — Ne parlez pas de Galliffet! Vous avez Ë
+M. Lasres. — Ne parlez pas de Galliffet! Vous avez
 léché ses bottes. (Bruit)
 Non, vous ne voulez pas qu'on se trouve en face de
-vos programmes économiques parce que le Gouvernement que vous soutenez, qui vous tient, ne veut pas de L
+vos programmes économiques parce que le Gouvernement que vous soutenez, qui vous tient, ne veut pas de
 ces réformes économiques... à
-M. Pauz Consraxs. — Nous verrons si vous les vo- s
+M. Pauz Consraxs. — Nous verrons si vous les vo-
 
 5 ta HAT LLases. — …ettoutes ces forces vives du socialisme,
 
@@ -4820,7 +4818,7 @@ hi: _ pour dire cela!
 
 M. Lasrs.— Et la preuve, c'est que quand le ministre
 
-18 de la guerre envoyait au Mont-Valérien celui qui J
+18 de la guerre envoyait au Mont-Valérien celui qui
 ‘à voulait la faire voir, vous l''applaudissiez parce qu'il
 
 du . refusait mon interpellation !
@@ -4835,15 +4833,15 @@ D. ce n'est pas un élève des jésuites cependant; c'est un
 
 De fils du peuple, un élève de l'Université. (Vifs applaudis-
 
-sements à droite et sur divers bancs) Vous avezété sans T4
+sements à droite et sur divers bancs) Vous avezété sans
 pitié pour lui, monsieur le ministre de la guerre, parce
-qu'il a découvert que les faussaires étaient du côté de D.
+qu'il a découvert que les faussaires étaient du côté de
 vos amis. (Applaudissements à droite. — Rires ironi- - cl
 ques à l'extrême gauche) 1540
 
 On a accusé vos prédécesseurs d'être les chefs des. ‘7
-faussaires de l'état-major ; vous, monsieur le général 4
-André, vous êtes le chef des faussaires de je ne sais 4
+faussaires de l'état-major ; vous, monsieur le général
+André, vous êtes le chef des faussaires de je ne sais
 
 M. LE PRÉSIDENT. — Monsieur Lasies, je ne peux pas #
 laisser passer un pareil langage.
@@ -4860,7 +4858,7 @@ rès nous propose un projet de résolution, nous y ferons }
 une addition et nous verrons si M. le ministre de la |
 guerre et ses amis l'acceptent. Vous voulez découvrir |
 les responsabilités du faux Henry, c'est entendu! mais
-il faudra aussi vous résigner à découvrir toutes les 1
+il faudra aussi vous résigner à découvrir toutes les
 responsabilités du faux Panizzardi. À
 
 Vous êtes du côté de Dreyfus, général André, restez-
@@ -4874,15 +4872,15 @@ Sur divers bancs. — A demain ! |
 
 M. Francis DE Pressensé. — Messieurs, M. Lasies a
 
-- 162
+-
 
-| déclaré que le parti des faussaires n'était pas le parti K
+| déclaré que le parti des faussaires n'était pas le parti
 
 | qui avai compté dans ses rangs l'auteur du faux
 
 E | vous me prétendez pas la lui enlever, j'imagine. (A Ki
 à FA Â2s M. Francis pe PRESSENSÉ. — … mais que c'était notre
-ne parti pare que d'après notre collègue, la dépêche È
+ne parti pare que d'après notre collègue, la dépêche
 x _Panizzardi est un faux.
 
 Je ferai une première remarque : c'est que le com- ne
@@ -4911,12 +4909,12 @@ autre chose qu'un sceau de nature à faire reconnaître.
 l'origine de la dépêche.
 
 J'ajoute que quand on prétend que la dépêche Paniz- à
-zardi est un faux, on a singulièrement oublié Fhistoire ÿ
+zardi est un faux, on a singulièrement oublié Fhistoire
 de cette pièce. Est-ce que son apparition dans l'affaire. ;
 Dreyfus date de 1899 et de la procédure devant la cour ä
 de cassation ? N'est-ce pas déjà en 1894, au moment où © |
 le procès s'engageait, qu'elle a été versée et que le chef À
-du bureau des renseignements à ce moment, le colonel É
+du bureau des renseignements à ce moment, le colonel
 Sandherr, qui avait reçu ou donné la première interpré- (
 tation entièrement défavorable à l'accusé de cette dé- |
 pêche, consentit à faire l'épreuve qui s'est faite sur les
@@ -4925,7 +4923,7 @@ le résultat qui a été reconnu et proclamé authentique |
 par le colonel Sandherr et le bureau des renseignements « a
 en 1894 et a prouvé que la dépêche Panizzardi devait
 être traduite comme le ministère des affaires étrangères
-l'avait traduite la première fois. k
+l'avait traduite la première fois.
 
 Voilà La vérité sur l'histoire de la dépêche Panizzardi;
 même au bureau de l'état-major en 1894, elle a été
@@ -4967,22 +4965,22 @@ ia porte sur tout.
 …__ M. Lasræs. — Nous y apporterons chacun notre con44 tribution en faisant connaître ce que nous savons.
 —. M. de Pressensé a dit que le commandant Cuignet et
 
-le général Chamoïin avaient reconnu l'exactitude du È
+le général Chamoïin avaient reconnu l'exactitude du
 texte de la dépêche Panizzardi. Ils ont reconnu que le. # $
 chiffre qu'on leur soumettait correspondaït bien autexte
-donné par le ministère des affaires étrangères; mais ÿ
+donné par le ministère des affaires étrangères; mais
 dans un autre procès-verbal, ils ont déclaré que le :
 décalque qu'on communiquait ne pouvait être qu'un faux,
-parce que l'adresse et la signature n'étaient pas de M
+parce que l'adresse et la signature n'étaient pas de
 Panizzardi. M. de Pressensé dit que jamais les dépêches À
-ne sont envoyées en clair. Il y avait un moyen L
+ne sont envoyées en clair. Il y avait un moyen
 simple de vérifier si c'était un faux ; c'était de remettre ; *
-loriginal. (Bruit à l'extrême gauche) i
+loriginal. (Bruit à l'extrême gauche)
 Voulez-vous me permettre de terminer par une anec- :
-dote bien courte? M. de Freycinet était ministre de la l
+dote bien courte? M. de Freycinet était ministre de la
 guerre ; depuis longtemps le commandant Cuignet réelamait .la communication de l'original de la dépêche é ;
 | Panizzardi et, au ministère des postes on répondait: À
-l'original a été détruit, conformément au règlement; 1
+l'original a été détruit, conformément au règlement;
 trois mois après, toutes les dépèches sont détruites et ;
 c'est pour cela qu'on ne donne qu'un décalque, l'original de la dépêche a été détruit. |
 Cette version donnée par le Gouvernement d'alors
@@ -5003,13 +5001,13 @@ Pa D énément italien n'est pas une dépêche ofliee. È M. Lasres. — On ente
 _ A l'extrême gauche. — Mais non chiffrés.
 N M. Lasres. — Par conséquent le Gouvernement que
 . vous couvrez de votre protection, qui couvrait déjà
-7 Dreyfus de sa protection, a commis un premier menRe songe en disant qu'il n'avait pas l'original de la dépêche
+Dreyfus de sa protection, a commis un premier menRe songe en disant qu'il n'avait pas l'original de la dépêche
 …. Panizzardi parce qu'il s'était conformé au règlement
 … pour la détruire; c'est là un premier mensonge et nous
-4 Lorsque M. Charles Dupuy, alors président du conseil,
+Lorsque M. Charles Dupuy, alors président du conseil,
 1 a fait parler le commandant Cuignet, il lui a dit: « Voici
-14 Voriginal de la dépêche Panizzardi que vous réclamez
-“Le commandant Cuignet prit entre ses mains le dé- Ù
+Voriginal de la dépêche Panizzardi que vous réclamez
+“Le commandant Cuignet prit entre ses mains le dé-
 mu. calque que lui tendait le président du conseil, il l'exa-
 à mina avec soin.
 …_ Pendant qu'il l'examinait, M. Dupuy s'approcha du
@@ -5018,7 +5016,7 @@ l'original. »
 …—.. « Non, dit le commandant Cuignet, ce n'est pas l'ori-
 … ginal. C'est un décalque. — Enfin, dit M. Dupuy, un
 . … décalque ou un original c'est la même chose, mais, dans
-È tous les cas, vous reconnaissez bien l'écriture de Paniz- k
+È tous les cas, vous reconnaissez bien l'écriture de Paniz-
 __ zardi? Et tenez, ajouta M. le président du conseil, voyez
 ï la signature de M. Panizzardi avec cette singularité
 \ particulière qu'il a mis un + à l'allemande et l'autre
@@ -5033,19 +5031,19 @@ M. Dupuy congédia le commandant Cuignet et n'a pas … |
 voulu l'entendre. Re
 Quelques jours après M. de Freycinet était démis- : ‘4
 sionnaire, il n'avait pas voulu tremper dans un commencement de faux que vous prépariez. (Applaudisse- ‘4
-ments sur divers bancs au centre et à droite. — Bruit 4
+ments sur divers bancs au centre et à droite. — Bruit
 
-à l'extrême gauche) L
-de cassation n'a-t-elle pas reconnu que ce décalque M
-était un faux ? Il serait intéressant d'avoir sur ce È
+à l'extrême gauche)
+de cassation n'a-t-elle pas reconnu que ce décalque
+était un faux ? Il serait intéressant d'avoir sur ce
 M. Lasres. — Par conséquent, jusqu'à ce que la
 lumière soit faite, c'est vous qui êtes les faussaires, et |
 si vous voulez vous laver de cette accusation, il faut, |
 que vous fassiez comparaître le commandant Cuignet. ]
 (Applaudissements à droite et sur divers bancs au |
 M. FRANCIS DE PRESSENSÉ. — J'ai appartenu moi-même …
-à la diplomatie pendant un certain temps. Chiffreur L
-dans une ambassade, j'ai été constamment chargé de È
+à la diplomatie pendant un certain temps. Chiffreur
+dans une ambassade, j'ai été constamment chargé de
 chilfrer des dépêches, tantôt pour l'ambassadeur, tantôt À
 pour l'attaché militaire. Si on avait reconnu à un mo- à
 ment donné mon écriture sur une dépêche de l'attaché
@@ -5080,14 +5078,14 @@ M. LAsrEs. — Je vous ai indiqué à quelle source vous.
 “ pourriez trouver la vérité et la lumière. Il s'agit de
 savoir si vous voulez aller jusqu'à cette source, si
 
-vous voulez faire comparaître le commandant Cu J
+vous voulez faire comparaître le commandant Cu
 
 Mais dans votre parti, on s'est servi non pas seulement de pièces fausses, mais encore vous dénaturez
 jusqu'aux sentiments des morts, qui ne sont pas là pour “4
 
 M. Jaurès en lisant l'autre jour la lettre du général
-de Pellieux a eu l'air de dire que le général de Pellieux. M
-était resté jusqu'à la fin persuadé qu'on lui avait 4
+de Pellieux a eu l'air de dire que le général de Pellieux.
+était resté jusqu'à la fin persuadé qu'on lui avait
 fait commettre des faux pour faire condamner un
 
 Permettez-moi de vous dire que vous connaissez bien “4
@@ -5095,7 +5093,7 @@ mal le général de Pellieux : s'il avait cru qu'un innocent M |
 avait été condamné, il l'aurait crié bien haut. Comme
 il est mort, vous pourriez vous dire que c'est par ceux
 qui l'entouraient que vous savez que l'état-major était
-considéré comme un ramassis de faussaires. (Mouve- 4
+considéré comme un ramassis de faussaires. (Mouve-
 
 Eh bien ! moi, je veux vous lire une lettre du général |
 de Pellieux ; la vôtre est de 1898, celle-ci est du 11 février
@@ -5107,8 +5105,8 @@ Ma chère mère, -
 
 J'ai vu hier matin M.., et je voulais t'écrire dans l'aprèsmidi; mais j'ai voulu attendre aprèsla magnifique conférence
 de M. Quesnay de Beaurepaire à laquelle j'ai assisté hier soir,
-après avoir naturellement pris part, dans la limite de mes k
-moyens, à la campagne qui vient d'aboutir au dessaisisse- È
+après avoir naturellement pris part, dans la limite de mes
+moyens, à la campagne qui vient d'aboutir au dessaisisse-
 ment de l'ignoble chambre criminelle.
 
 ra Vous voyez l'opinion qu'il avait sur ceux qui combat-
@@ -5142,32 +5140,32 @@ trouve dans une situation assez singulière. MR
 Voilà deux jours que nous discutons au sujet de “F4
 Yélection du deuxième arrondissement de Paris. mA
 M. LE RAPPORTEUR. — … et jusqu'ici nous n'en avons S À
-pas parlé. Vous avez vu, messieurs, avec quelle extrême 4
+pas parlé. Vous avez vu, messieurs, avec quelle extrême
 adresse M. Jaurès a su tisserle lien léger qui, il y a vingt- *
 quatre heures, a rattaché, plus ou moins exactement,
 la question que nous avions à traiter au vaste développement qu'il a donné à l'affaire Dreyfus. Et puis, au
 moment où il allait descendre de la tribune, nous avons
-vu vaguement réapparaître le même lien; mais, dans « 4
+vu vaguement réapparaître le même lien; mais, dans «
 intervalle, au cours d'un discours qui a duré quatre À
-ou cinq heures, vous conviendrez, messieurs, qu'il n'y E
+ou cinq heures, vous conviendrez, messieurs, qu'il n'y
 avait plus aucune espèce de rapport entre le sujet |
 annoncé de notre discussion et les développements que
-nous entendions. Il résulte de Ià que nous nous trouvons et que particulièrement M. Syveton se trouve dans 4
+nous entendions. Il résulte de Ià que nous nous trouvons et que particulièrement M. Syveton se trouve dans
 une situation qui n'est pas équitable. (Interruptions à
 l'extrême gauche) Oui, c'est pour lui se trouver placé
 dans une situation injuste que de voir les conditions de à
-son élection réglées au milieu des passions que déve: M
+son élection réglées au milieu des passions que déve:
 loppe fatalement parmi nous tout débat sur l'affaire "#4
-M. Gusrave Rouaner. — Il fallait tenir ce langage à 4
+M. Gusrave Rouaner. — Il fallait tenir ce langage à
 M. LE RAPPORTEUR. — Je vais précisément répondre
 sur ce point. | ;
-M. LAMENDIN. — Si vous parliez de l'élection Syveton! Ë
+M. LAMENDIN. — Si vous parliez de l'élection Syveton!
 (On rit. — Mouvements divers) À
-M. LE RAPPORTEUR. — Je sais bien qu'on seraït heu- J
+M. LE RAPPORTEUR. — Je sais bien qu'on seraït heu-
 
 ÿ reux de rendre la commission d'enquête responsable
 _ du réveil de l'affaire, mais le procédé est vraiment trop
-simpliste. La commission d'enquête avait une mission i
+simpliste. La commission d'enquête avait une mission
 parfaitement définie : l'élection du deuxième arrondissement était attaquée, la commission devait accueillir tous
 les témoins qui lui étaient adressés par les plaignants,
 ; comme elle devait accueillir ceux que lui adressait la
@@ -5196,35 +5194,35 @@ affiche de M. Syveton n'offre le caractère d'une manœuvre
 déloyale et qu'il a été loisible à son adversaire de répondre
 k à chacune d'elles. Nous ajouterons, spécialement en ce qui
 
-concerne l'affiche qu'avait surtout visée M. Berteaux — c'était: * 2) ë
+concerne l'affiche qu'avait surtout visée M. Berteaux — c'était: * 2)
 l'affiche dite « de l'étranger » — que les seuls témoignages
 par nous recueillis au sujet des affiches de M. Syveton ont De
 confirmé — dans la mesure du possible — l'authenticité du
 fragment de lettre qui en constitue le fond. ‘Le ;
 M. Gustave Rouaxer. — Lisez donc la déposition de
 M. Judet, dont tous vos journaux ont fait état! PE É à
-M. Le RAPPORTEUR. — Monsieur Rouanet, vous répé- M
+M. Le RAPPORTEUR. — Monsieur Rouanet, vous répé-
 tez éternellement les mêmes phrases sans jamais écou- à
-ter les réponses qui y sont faites. C'est un système 4
-qui vous est particulier. (Très bien! très bien! au 4
+ter les réponses qui y sont faites. C'est un système
+qui vous est particulier. (Très bien! très bien! au
 centre) Quoi qu'il en soit, je ne perdrai pas mon #4
 temps à défendre lélection du deuxième arrondis
-sement contre des accusations qui ne se sont pas 4 4
+sement contre des accusations qui ne se sont pas
 Je me borne à vous apporter, au nom de la commis:
 sion d'enquête, la déclaration suivante : Nous avons 1 |
-examiné les divers chefs d'accusation; nous n'avons 4
+examiné les divers chefs d'accusation; nous n'avons
 L'élection du deuxième arrondissement a été une
-élection loyale — oui, toutes les déclarations reçues, | 1
-comme l'examen des faits eux-mêmes, nous ont dé- D
-montré que l'élection de M. Syveton était une élection 4
-résultant du mouvement qui s'était produit à Paris. 1
-Remarquez bien, d'ailleurs, messieurs, que cette élec 1
+élection loyale — oui, toutes les déclarations reçues,
+comme l'examen des faits eux-mêmes, nous ont dé-
+montré que l'élection de M. Syveton était une élection
+résultant du mouvement qui s'était produit à Paris.
+Remarquez bien, d'ailleurs, messieurs, que cette élec
 tion se trouvait toute préparée par les élections muni- |
-cipales qui l'avaient précédée, car, dans trois quartiers L
-sur quatre, l'opinion représentée par M. Syveton avait 1
+cipales qui l'avaient précédée, car, dans trois quartiers
+sur quatre, l'opinion représentée par M. Syveton avait
 triomphé; et dans le quatrième on était arrivé en |
 quelque sorte à l'égalité puisqu'il y avait une diffé |
-rence d'une seule voix. 4
+rence d'une seule voix.
 Dans ces conditions, nous ne pouvons que vous ;
 
 _ demander de suivre la majorité de votre commission.
@@ -5256,7 +5254,7 @@ face de moi l'un d'eux, M. Morel, à qui je suis particulièrement heureux de re
 - vraiment d'une exactitude en même temps que d'une
 loyauté et d'une bonne foi à laquelle nous rendons tous
 
-_ justice. (Très bien! très bien!) t
+_ justice. (Très bien! très bien!)
 Quand l'enquête à été terminée, que s'est-il passé?
 Les six membres de la majorité ont voté la validation;
 
@@ -5273,31 +5271,29 @@ que, si excessives que lui parussent ces attaques, elles
 
 _ ne lui semblaient pas pouvoir motiver l'invalidation.
 
-| 179
-
 Nos collègues, ne voulant pas paraître les couvrir par ;
-un vote positif, se sont abstenus. pee 5
+un vote positif, se sont abstenus. pee
 C'est, je crois, la seule voie que vous puissiez suivre.
 Je ne vois pas, messieurs, comment vous pourriez aller
-plus lain. Il me paraïîtrait incompréhensible que la E.
+plus lain. Il me paraïîtrait incompréhensible que la
 Chambre, sans même avoir attaqué mon rapport,” “4
 substituât une opinion partiale à l'opinion réfléchie de °0
-la commission. ÿ 4
-Je le répète, que ceux qui ont per trop le désir d'in- 4
+la commission.
+Je le répète, que ceux qui ont per trop le désir d'in-
 valider s'abstiennent et laissent faire aux autres. Ces
 autres feront un acte de justice. Comme rapporteur de ne
 la commission, messieurs, je termine en vous disant:
 au nom de la loyauté, au nom de la justice, la valida- 4 |
 tion s'impose. (Très bien! très bien! au centre et sur .
 Je mets aux voix les conclusions de la commission
-- qui tendent à la validation des opérations électorales M
-dü deuxième arrondissement de Paris. È
+- qui tendent à la validation des opérations électorales
+dü deuxième arrondissement de Paris.
 Il y a une demande de scrutin, signée de MM. Rous- à
 set, Brice, Guilloteaux, Congy, Jacquey, Corrart des
-Essarts, Jules Auffray, Gauthier (de Clagny), Ernest M
-Engerand, de Saint-Pol. 1
+Essarts, Jules Auffray, Gauthier (de Clagny), Ernest
+Engerand, de Saint-Pol.
 Le scrutin est ouvert.
-(Les votes sont recueillis. — MM. les secrétaires en é
+(Les votes sont recueillis. — MM. les secrétaires en
 Jont le dépouillement.) /à
 M. ze PRÉSIDENT. — MM. les secrétaires m'informent
 qu'il y a lieu de faire le pointage des votes. à
@@ -5312,16 +5308,16 @@ ER conséquence, les opérations électorales du Pan
 _ Avis en sera donné à M. le ministre de l'intérieur. Het
 … [Icivient dans le Journal officiel discussion des conclu- Hat)
 . sions du rapport de la commission chargée de procéder US
-ca à une enquéte sur les opérations électorales de la 54
+ca à une enquéte sur les opérations électorales de la
 … première circonscription du onzième arrondissement
 A” run. Nous omettons ce compte rendu; la commis- LR
 de sion d'enquête proposait d'annuler les opérations élec- !
-| torales; au contraire la discussion conduisit à la k
+| torales; au contraire la discussion conduisit à la
 
 Projets de résolution DR
 
-Chambre de trois projets de résolution que j'ai reçus. M
-Le premier est signé de MM. Jaurès, Maujan, Henri M
+Chambre de trois projets de résolution que j'ai reçus.
+Le premier est signé de MM. Jaurès, Maujan, Henri
 Brisson, Charles Bos, Gouzy et Jean Codet. Il est ainsi
 
 La Chambre, prenant acte des déclarations du Gou-. Fe
@@ -5330,19 +5326,19 @@ vernement et repoussant toute addition, (Exclamations
 
 à droite) passe à l'ordre du jour. 55108
 
-M. Risor. — Je demande la parole. ; 4
-M. Lasrxs. — Je la demande également. 70
+M. Risor. — Je demande la parole.
+M. Lasrxs. — Je la demande également.
 Thivrier et Walter, et est ainsi conçu : ; Ë à
 
 La Chambre, applaudissant en toute occasion à l&
 
 . révélation de tout scandale et de tout crime qui décon- “
 sidère le militarisme et en accélère la ruine au profit.
-du socialisme, décide une enquête sur tous les méfaits M
+du socialisme, décide une enquête sur tous les méfaits
 du militarisme et sur les réclamations contre les jugements des conseils de guerre.
 Le troisième est ainsi conçu : À
-La Chambre invite le Gouvernement à s'opposer 1
-énergiquement à toute reprise de l'affaire Dreyfus: M
+La Chambre invite le Gouvernement à s'opposer
+énergiquement à toute reprise de l'affaire Dreyfus:
 
 | pe l'invite également à faire aboutir au plus 16 la
 4 4 réforme Jiscale et la loi sur les retraites ouvrières.
@@ -5373,31 +5369,31 @@ M. Rwor. — Fort bien. Nous avons assisté, ce n'est
 _ Il n'était bruit, depuis quelques jours, dans cette
 Chambre, que de l'intention presque unanime de la
 
-majorité d'écarter, comme elle le doit et comme au 1
+majorité d'écarter, comme elle le doit et comme au
 fond elle le veut, cette misérable affaire apportée par | À
 M. Jaurès, d'accord avec M. le ministre de la guerre,
-et que nous avons vue rentrer avec son triste cortège | 4
+et que nous avons vue rentrer avec son triste cortège
 de violences et de haïines que l'on croyait éteintes.
-(Applaudissements au centre et à droite) 0
+(Applaudissements au centre et à droite)
 M. Maurice Viorzerre. — C'est M. Syveton qui l'a …#
 M. RimorT. — Il n'était question, depuis quelques à
 jours, que d'écarter toute motion, quelle qu'elle fat, qui
 jetterait de nouveau la Chambre dans tous les périls de
-cette affaire. Et hier encore un groupe, auquel je m'aï 3
+cette affaire. Et hier encore un groupe, auquel je m'aï
 pas lhonneur d'appartenir, qui est plus près de M |
-M. Jaurès que je ne le suis, n'a pas caché sa pensée. } Ke j
+M. Jaurès que je ne le suis, n'a pas caché sa pensée. } Ke
 M. Rmor. — J'ai le droit assurément de m'emparer à
-de manifestations publiques. Ce groupe a dit — je ln … d
+de manifestations publiques. Ce groupe a dit — je ln …
 rends hommage, c'était la vérité qui sortait de sa déli=
-bération — que si une motion, quelle qu'elle soit, M
+bération — que si une motion, quelle qu'elle soit,
 était faite, quoi que chacun pût penser du fond de
-l'affaire, on serait d'accord pour dire nous n'avons pas M
+l'affaire, on serait d'accord pour dire nous n'avons pas
 le droit de la discuter, c'était la vérité, je n'entends, |
-pour ma part, discuter le fond de l'affaire avec per- 4
+pour ma part, discuter le fond de l'affaire avec per-
 M. Gusrave RouanET. — Vous ne l'avez jamais ?
 M. Risor. — Non, monsieur! je ne lai jamais dis- À
 M. J. Tuierry. — Et nous nous en honorons. À
-une loi qui eùt dû s'imposer à nous tous. 11
+une loi qui eùt dû s'imposer à nous tous.
 Je n'ai pas voulu mêler, comme vous l'avez fait, vous, : à
 
 À dans un intérêt de parti, la politique à la justice.
@@ -5452,49 +5448,49 @@ de la reprendre, comme elle doit l'être, devant les
 
 - tracée, je serais le premier à m'en réjouir et personne
 
-ici dans cette Chambre ne pourrait s'en afiliger, car la 4
+ici dans cette Chambre ne pourrait s'en afiliger, car la
 
-*” réhabilitation d'un officier français, tous nous devons la x
+*” réhabilitation d'un officier français, tous nous devons la
 désirer de tous nos vœux, de toute notre âme. (Applau- F +
 dissements au centre, à droite et sur divers bancs à À
 gauche) Maïs il faut que cela se fasse comme la loi l'a
 
 « voulu, suivant les formes légales et non pas dans le
 
-1218 181
+1218
 
 tumulte d'une mêlée parlementaire où l'on vient rap- ne.
-peler tous les souvenirs brülants de la lutte électorale, … 14
+peler tous les souvenirs brülants de la lutte électorale, …
 toutesleshainesmalassoupies, toutes les colères ettoutes À A
 les passions, c'est-à-dire tout ce qui est le contraire, la ‘0
 négation même de la justice. (Applaudissements sur
-les mêmes bancs) ; D
+les mêmes bancs)
 
-Ce que je dis là — vous le pensez tous — c'est ce L.
-qu'une dure et cruelle expérience avait appris à vos 4
-devanciers et dont vous sentez vous-mêmes la vérité. 1
+Ce que je dis là — vous le pensez tous — c'est ce
+qu'une dure et cruelle expérience avait appris à vos
+devanciers et dont vous sentez vous-mêmes la vérité.
 
 M. Gusrave Rouaner. — Il fallait le dire à la com
 
 M. Rimor. — Oui, quand vos devanciers ont vu le
-mal que cette affaire avait fait au pays, lorsqu'on L
+mal que cette affaire avait fait au pays, lorsqu'on
 l'avait détournée du terrain judiciaire pour la porter {
-sur le terrain politique, quand ils ont vu ce déchirement, M
-quand ils ont vu combien nous donnions à ceux qui regar- Ù
-dent cette malheureuse France se déchirer de ses propres 1
+sur le terrain politique, quand ils ont vu ce déchirement,
+quand ils ont vu combien nous donnions à ceux qui regar-
+dent cette malheureuse France se déchirer de ses propres
 mains un spectacle afiligeant, ils ont pris un engagement À
 vis-à-vis d'eux-mêmes ; ils ont dit dans un ordre du jour :
 présenté par M. Chapuis et qui a réuni ici 425 voix
 contre 70: quoi qu'on nous dise désormais à cette tri- À
-bune, quelle que soit l'éloquence qui s'y épanche, non, l
+bune, quelle que soit l'éloquence qui s'y épanche, non,
 nous n'oublierons pas ce qui s'est passé, le mal qui a
-été fait à notre pays ; sous aucun prétexte nous ne lais- 1
+été fait à notre pays ; sous aucun prétexte nous ne lais-
 serons reprendre l'affaire sous la forme d'une agitation ;
 politique. N'est-ce pas cela que nous avons voté et que |
 425 voix ont ratifié ? |
 
 M. Capuis. — Je me permettrai de dire un seul
-mot: vous rappelez l'ordre du jour voté par la Chambre J
+mot: vous rappelez l'ordre du jour voté par la Chambre
 législature dernière, et je ne lé regrette pas. ]
 
 M. Risor. — Ni moi non plus. à
@@ -5520,7 +5516,7 @@ considérais que malgré le faux Henry il ne fallait pas
 
 __ poursuivre la revision.
 
-4 Je regrette cette lettre pour cette raison que si j'avais
+Je regrette cette lettre pour cette raison que si j'avais
 connu la lettre du général de Pellieux, j'aurais été de
 ceux qui auraient pensé, tout en différant d'opinion
 
@@ -5554,32 +5550,32 @@ lui serions tous reconnaissants s'il avait lui-même ut Ls
 la direction de ce procès de revision. Il l'eût fait accep- |
 ter par tout lemonde. (Très bien! très bien !) ei ‘116
 
-A l'extrême gauche. — Il s'en est bien gardé! 572
+A l'extrême gauche. — Il s'en est bien gardé!
 M. GoDEFROY CAVAIGNAC. — Puisque vous me mettez
-en cause dans des termes à la courtoisie desquels je M
+en cause dans des termes à la courtoisie desquels je
 rends d'ailleurs hommage, veuillez me permettre de ‘4
-M. Risor. — Très volontiers. 21e
+M. Risor. — Très volontiers.
 M. GoperroY CAVAIGNAG. — Vous avez répété ce que
 vous aviez dit l'autre jour que j'avais eu le malheur de “0 |
-faire afficher un faux. Je ne sais pas si la formule est e.
+faire afficher un faux. Je ne sais pas si la formule est
 très exacte. +4
-La responsabilité que j'ai prise, il faut bien le préci- M
+La responsabilité que j'ai prise, il faut bien le préci-
 ser, C'est celle d'apporter à la tribune, de livrer par |
 conséquent à la discussion publique de tous, en don- 4 |
-nant les raisons sur lesquelles j'appuyais ma conviction 4
+nant les raisons sur lesquelles j'appuyais ma conviction
 d'alors, une pièce qui, remarquer-le bien, avait déjà été ‘À
-utilisée devant la justice. J 4
+utilisée devant la justice.
 M. Jaurès. — Cela, c'est vrai! ‘4
 M. GopErroy CAVAIGNAC. — … au procès Zola, sans
 qu'on en eût donné la communication au public. J'ai À
 apporté ici loyalement le débat devant l'opinion publi=
-que et si je n'ai peut-être pas servi en le faisant — et É
+que et si je n'ai peut-être pas servi en le faisant — et
 encore cela n'est pas sûr — les intérêts du parti auquel
 j'appartiens, il y a une chose dont je suis bien sûr,
 c'est que j'ai servi les intérêts de la justice et de la
-vérité. (Exclamations à l'extrême gauche et à gauche) M
+vérité. (Exclamations à l'extrême gauche et à gauche)
 Sur le second point, je n'ai qu'un mot à dire. Vous il
-é dites: Pourquoi, monsieur Cavaignac, lorsque vous 4
+é dites: Pourquoi, monsieur Cavaignac, lorsque vous
 avez découvert le crime et que vous en avez arraché à
 
 4 laveu, n'avez-vous pas permis de liquider l'affaire en
@@ -5619,36 +5615,36 @@ aucun doute dans la sincérité de sa conscience; je
 regrette qu'il n'ait pas pu, à ce moment, avec la situation qu'il avait, mettre fin comme il convenait aux
 
 déchirements de ce pays. Mais il remarquera et la ds
-Chambre verra le danger extrême qu'il y a à apporter % fe 8
+Chambre verra le danger extrême qu'il y a à apporter % fe
 devant elle, à soumettre à ses délibérations, des docu.
 ments qui ne devaient pas être apportés à cette tribune. | #4
 
 > - Que vous le vouliez ou non, monsieur Cavaignac, vous 4 #4
-avez à regretter — et vous le regrettez assurément — 1
+avez à regretter — et vous le regrettez assurément
 que nous tous qui n'avions pas pu vérifier l'authenticité
 de ce document, qui devions croire, sur parole, le mi:
 nistre responsable de la guerre, vous regrettez assuré- 1 |
-ment que nous ayons donné notre vote pour faire - N
+ment que nous ayons donné notre vote pour faire
 aflicher une déclaration dont la fausseté matérielle a .
 
 (M. Cavaignac fait un signe d'assentiment) 4 |
 Qu'est-ce que cela prouve ? Cela prouve qu'il ne faut
-pas que la politique entre dans la justice. (Applaudis- 5] 1
+pas que la politique entre dans la justice. (Applaudis- 5]
 sements au centre et à droite) Cela prouve que jamais,
 sous aucun prétexte, il ne faut que vous vous instituiez  M#
-ici des juges, comme vous venez de le faire, écoutant 4
-les échos... 2
-À l'extrême gauche. — Mais non! 4
-M. Risor. — Comment: non! Mais on aurait pu croire M
+ici des juges, comme vous venez de le faire, écoutant
+les échos...
+À l'extrême gauche. — Mais non!
+M. Risor. — Comment: non! Mais on aurait pu croire
 qu'il s'agissait de l'épilogue du procès de Rennes. $ $
 M. Gusrave Rouaner. — C'est l'épilogue d'une ré- { |
 ponse à un rapport. À
-M. RiBor. — On apporte ici des deux côtés des plai- 4
+M. RiBor. — On apporte ici des deux côtés des plai-
 doiries et aussi des passions, c'était inévitable. Que 4 |
 peuvent faire les membres de cette Assemblée ? Comment peuvent-ils apprécier si un document est vrai ou |
-faux ? Comment peuvent-ils en déterminer la portée 1
+faux ? Comment peuvent-ils en déterminer la portée
 judiciaire ? Est-ce là notre tâche ? Non, quand nous la À
-prenons, nous usurpons un droit et nous introduisons 4
+prenons, nous usurpons un droit et nous introduisons
 dans ce pays un ferment de désordre, un germe de 5%
 
 ‘ danger, parce que nous sommes ici pour faire les
@@ -5685,28 +5681,28 @@ bien des sujets de réflexions et peut-être d'inquiétude !
 
 M. Jaurès. — Des inquiétudes paternelles. Ce |: A
 M. Riot. — En tout cas, s'il avait été aujourd'hui au ne.
-banc du Gouvernement, ce n'est pas lui qui auraït tenu k.
-ou laissé tenir le langage qui a été tenu tout à l'heure. 1
-({Interruptions à l'extrême gauche) 4
+banc du Gouvernement, ce n'est pas lui qui auraït tenu
+ou laissé tenir le langage qui a été tenu tout à l'heure.
+({Interruptions à l'extrême gauche)
 M. le ministre de la guerre non seulement a accepté
 l'enquête qu'on ne lui avait pas encore proposée, mais
 il s'est précipité au devant d'elle et il a dit : Je veux À
-être le collaborateur de M. Jaurès pour découvrir la ñ
+être le collaborateur de M. Jaurès pour découvrir la
 Quel est ce langage de la part d'un ministre de la à
 guerre ? Est-ce qu'il est chargé de préparer les éléments À
 de revisions futures ? |
 M. ARISTIDE Brianp.— C'est une question de responsabilité politique. à
 M. Risor. — Non, ce n'est pas une question de res- #
-M. Risor. — Non, monsieur Briand. Lorsqu'un mi- l
+M. Risor. — Non, monsieur Briand. Lorsqu'un mi-
 aistre fait ce que la loi ne lui permet pas de faire, vous fi
 n'avez pas le droit de le couvrir ; (Très bien! très bien! {
-au centre) la constitution est violée et la loi méconnue. ï
-C'est le garde des sceaux, le garde des sceaux seul qui 4
+au centre) la constitution est violée et la loi méconnue.
+C'est le garde des sceaux, le garde des sceaux seul qui
 M. FRANGIS DE PRESSENSÉ. — Vous connaissez les
-M. Risor. — Les grandes enquêtes anglaises ne por- j
+M. Risor. — Les grandes enquêtes anglaises ne por-
 tent jamais sur des questions de justice. |
-une grande enquête faite en Angleterre sur la guerre. j
-M. RiBoT. — Quand vous voudrez faire une enquête F
+une grande enquête faite en Angleterre sur la guerre.
+M. RiBoT. — Quand vous voudrez faire une enquête
 
 | sur la guerre de Chine, nous sérons prêts à le faire.
 (1 rès bien ! très bien! au centre)
@@ -5739,24 +5735,24 @@ Ft l'avons tous entendu !
 si monsieur Ribot le permet.
 
 du conseil, avec l'assentiment de M. Ribot. ë % ne.
-M. Émize Couees, président du conseil, ministre de :1
-l'intérieur et des cultes. — Je ne me rappelle pas très M
-exactement les expressions dont s'est servi M. le mi- É:
-nistre de la guerre, mais je sais ce qu'il avait mission ; 1
+M. Émize Couees, président du conseil, ministre de
+l'intérieur et des cultes. — Je ne me rappelle pas très
+exactement les expressions dont s'est servi M. le mi-
+nistre de la guerre, mais je sais ce qu'il avait mission
 de déclarer. (Applaudissements à droite et au centre:
 M. Massaguau. — Voilà le compte rendu télégra- à |
 phique qui est apposé dans les couloirs ! (Applaudis- ".
-sements à droite et au centre) 14
-du conseil et non pas à M. Massabuau. 1
-et des cultes. — Il paraît que ces messieurs de la droite N
+sements à droite et au centre)
+du conseil et non pas à M. Massabuau.
+et des cultes. — Il paraît que ces messieurs de la droite
 veulent juger sans entendre — ils en ont probablement
 l'habitude. Quant à moi, j'écoute toujours mes adver- À
 saires et ne les ai jamais, par des clameurs, empêchés À
 de s'expliquer. (Très bien! très bien! à gauche) &
 A droite. — Mais nous vous écoutons ! “ #
-guerre a dit qu'il se proposait de procéder simplement ï
+guerre a dit qu'il se proposait de procéder simplement
 à une enquête administrative, secondé par des magis- À
-traits et voici pourquoi : il s'agit, vous le savez, messieurs, d'un dossier secret qu'il ne connaît pas, dont il 1
+traits et voici pourquoi : il s'agit, vous le savez, messieurs, d'un dossier secret qu'il ne connaît pas, dont il
 n'a jamais vu aucune pièce, à propos duquel il est exposé
 d'un jour à l'autre à des attaques qu'ilne peut pas réfuter. À
 Ce dossier a été scellé par un magistrat de la cour de À
@@ -5800,7 +5796,7 @@ minelle? M. le ministre de la guerre a le droit de vou- +
 loir ne pas être dessaisi comme l'a été la chambre cri
 minelle! (Applaudissements à l'extrême gauche et à
 M. Rmor. — Alors, monsieur Jaurès, il faudra faire
-surveiller, cautionner le ministre de la guerre par les 4
+surveiller, cautionner le ministre de la guerre par les
 magistrats de la cour de cassation, et je pense que
 M. le ministre de la guerre cautionnera à son tour là
 Messieurs, cela est indigne de nous! (Rumeurs à À
@@ -5808,31 +5804,31 @@ l'extrême gauche) Quand on dit qu'on invitera de hauts “4
 magistrats de ce pays à faire le dépouillement d'un
 dossier, cela n'a jamais voulu dire qu'on les inviterait Le.
 simplement à garantir qu'aucune pièce n'avait été
-détournée. (Interruptions à l'extrême gauche) Non, ce ; 1
-n'est pas pour cela que sont faits les magistrats. Car j 5
-enfin, quel rôle leur ferez-vous jouer? Je voudrais que 4
-M. le ministre dela justice füt à son banc, je lui deman- 4
+détournée. (Interruptions à l'extrême gauche) Non, ce
+n'est pas pour cela que sont faits les magistrats. Car
+enfin, quel rôle leur ferez-vous jouer? Je voudrais que
+M. le ministre dela justice füt à son banc, je lui deman-
 derais ce qu'il pense de ce rôle qu'on destine aux magis- ‘à
-magistrat qui acceptera une pareille besogne, une fonc- ù
-tion aussi humiliée! (Applaudissements au centre et sur 4
-Soit ! vous le voulez, vous ferez comme vous voudrez, 4
-mais vous entamez là une procédure illégale dans son è
+magistrat qui acceptera une pareille besogne, une fonc-
+tion aussi humiliée! (Applaudissements au centre et sur
+Soit ! vous le voulez, vous ferez comme vous voudrez,
+mais vous entamez là une procédure illégale dans son
 principe, étrange dans ses procédés, qui ouvre de nou- ;
 veau l'ère des agitations.
 Eh bien! vous me permeïtrez tout au moins de ne
 pas en prendre avec vous la responsabilité. (Oui ! oui!
-192 1
+192
 
 :2 à l'extrême gauche) Je ne voterai pas l'ordre du jour
 : # qui prend acte des déclarations du Gouvernement,
 …_. parce qu'en le votant j'assumerais la responsabilité
 à qu'on veut nous faire partager. ,
-5 Que M. Jaurès triomphe, cela lui est permis.
+Que M. Jaurès triomphe, cela lui est permis.
 fé M. Jaurès. — Est-ce que je triomphe ?
 À M. Rwor. — Vous avez le triomphe modeste, je le
 À M. Jaurès. — C'est une modestie durable!
 à M. Riot. — Que M. Jaurès triomphe ! il a raison,
-< - mais que direz-vous demain, vous tous qui, ces jours x
+< - mais que direz-vous demain, vous tous qui, ces jours
 . derniers, manifestiez votre sentiment intime et qui
 Ë regrettiez que notre collègue lançât à nouveau l'affaire ;
 __ à la tribune et dans le pays, vous qui lui donniez un
@@ -5843,7 +5839,7 @@ M: Cuarzes Bos. — J'ai demandé la parole pour
 _ à le suivre et que si une motion était proposée, vous
 4 répondriez par l'ordre du jour pur et simple ?.. N'est-ce
 pas exact ? Y at-il quelqu'un qui puisse le contester?
-4 Quelles seront demain vos réflexions à vous membres
+Quelles seront demain vos réflexions à vous membres
 _ de la majorité?
 Ne Et alors qu'est-ce que c'est donc que cette majorité ?
 Qu'est-ce que ce Gouvernement? Lorsqu'un homme à
@@ -5853,32 +5849,32 @@ e pas reprendre cette malheureuse affaire, et qui est allé
 … le matin trouver le ministre de la guerre et d'accord
 | avec lui, a organisé cette enquête. (Bruit à l'extrême
 
-M. Jaurès. — Comment cela ! monsieur Ribot? #18 L
+M. Jaurès. — Comment cela ! monsieur Ribot? #18
 Je vous donne ma parole que vous êtes mal informé!
-M. Jaurès. — Depuis que j'ai annoncé que j'avais M
-l'intention à propos de l'affaire Syveton de répondre au 1
-rapport de la commission, je vous affirme que je mai 4
-. jamais vu M. le ministre de la guerre. (Mouvements di- : 1
-M. PAUL BEAUREGARD. — Ceci est une hypocrisie. M
-Je constate que vous n'avez nullement attaqué mon M
+M. Jaurès. — Depuis que j'ai annoncé que j'avais
+l'intention à propos de l'affaire Syveton de répondre au
+rapport de la commission, je vous affirme que je mai
+. jamais vu M. le ministre de la guerre. (Mouvements di-
+M. PAUL BEAUREGARD. — Ceci est une hypocrisie.
+Je constate que vous n'avez nullement attaqué mon
 M. Risor.— Eh bien! monsieur Jaurès, cela ne prouve Ki
-qu'une chose, c'est que M. le ministre de la guerre a n.
-pris les devants, qu'il s'est précipité vers cette demande L
-d'enquête que son devoir strict aurait été d'arrêter. 4
-(Vifs applaudissements au centre et à droite. — Interruptions à l'extrême gauche) 4
-M. Le PRÉSIDENT. — Messieurs, laissez parler M. Ribot! 4
+qu'une chose, c'est que M. le ministre de la guerre a
+pris les devants, qu'il s'est précipité vers cette demande
+d'enquête que son devoir strict aurait été d'arrêter.
+(Vifs applaudissements au centre et à droite. — Interruptions à l'extrême gauche)
+M. Le PRÉSIDENT. — Messieurs, laissez parler M. Ribot!
 M. Risor.— Et sur quoi allez-vous enquêter, monsieur {
 le ministre de la guerre, assisté de M. Jaurès ? ,
 M. Lasres. — Très bien! \
-M. RiæoT. — M. Jaurès nous l'a laissé entendre hier Ë
+M. RiæoT. — M. Jaurès nous l'a laissé entendre hier
 quand il a dit, aux applaudissements de ses amis, que :
 la politique du faux ne pouvait pas s'arrêter au grade )
-de lieutenant-colonel, qu'elle pouvait monter plus haut. j
+de lieutenant-colonel, qu'elle pouvait monter plus haut.
 C'est cela que vous allez chercher ? C'est pour cela que
 vous allez faire cette enquête ? C'est pour jeter un peu
 plus de soupçon. À
 M. Francis DE PRESsENSÉ. — Voyez donc ce que le A
-général de Pellieux écrivait dans sa lettre! F
+général de Pellieux écrivait dans sa lettre!
 
 …_  M.Rwmor. — … pour jeter, s'il est possible, un peu
 si _ plus de boue sur cette malheureuse armée française.
@@ -5913,19 +5909,19 @@ aussi parce qu'il séduit le peuple par une fausse image de
 
 (Rumeurs au centre et à droite)
 
-M. Jaurès. — Je maintiens cela absolument. F
+M. Jaurès. — Je maintiens cela absolument.
 
-Lorsqu'on a vu que cette idole, si glorieuse- ÿ
-ment péinte et si superbe, lorsqu'on a vu que cette idole j
-qui exigeait pour le service de ses appétits monstrueux | M
+Lorsqu'on a vu que cette idole, si glorieuse-
+ment péinte et si superbe, lorsqu'on a vu que cette idole
+qui exigeait pour le service de ses appétits monstrueux
 des sacrifices de générations. ; |
 
 (Très bien! très bien ! à l'extréme gauche) à:
 
-.. Lorsqu'on a vu qu'elle était pourrie, qu'elle ne conte- ë
+.. Lorsqu'on a vu qu'elle était pourrie, qu'elle ne conte-
 nait que déshonneur, trahison, intrigue, mensonge. sl
 
-(Rumeurs prolongées au centre et à droite) 1
+(Rumeurs prolongées au centre et à droite)
 
 M. Lasres. — Vive l'armée ! (Bruit à gauche) re
 
@@ -5933,12 +5929,12 @@ Plusieurs membres à droite et au centre. — Oui! vive
 
 l'armée ! (Interruptions à gauche) fl}
 
-.… Alors, le militarisme a reçu un coup k
+.… Alors, le militarisme a reçu un coup
 mortel et la révolution sociale n'y a rien perdu.
 
 Voilà comment vous parlez de l'armée en France.
-(Réclamations à l'extrême gauche.— Applaudissements ÿ
-au centre et à droite) 1
+(Réclamations à l'extrême gauche.— Applaudissements
+au centre et à droite)
 
 M. Risor. — Eh bien! je plains le Gouvernement |
 obligé de vous suivre comme il l'a fait.
@@ -5950,46 +5946,46 @@ obligé de vous suivre comme il l'a fait.
 Cris : À l'ordre. — Bruit prolongé) :
 
 - contre la parole abominable qui vient d'être prononcée. qu
-4 M. Lastes. — Je demande la parole. t
-. dignité d'une assemblée ne permet pas d'entendre. (Ré- i
+M. Lastes. — Je demande la parole.
+. dignité d'une assemblée ne permet pas d'entendre. (Ré-
 — clamations à droite) J'ai rappelé M. Walter à l'ordre.
 — M:1e PRÉSIDENT. — Vous insistez sur un mot que je ;
 n'a pas entendu. ({nterruptions au centre et à droite) are
-0 Plusieurs membres à droite. — Mais nous avons en- *
+Plusieurs membres à droite. — Mais nous avons en- *
 _ tendu, nous!
 …_ A droite. — La censure! (Bruit prolongé) |
-. M. Pracue. — C'est une honte! 4
+. M. Pracue. — C'est une honte!
 ._ M. Rocer-Bazzu. — C'est une ignominie!
 —. M.Z2E LIEUTENANT-COLONEL Rousser. — Allons-nous- BR
-- droite se disposent à quitter la salle des séances. — J
+- droite se disposent à quitter la salle des séances.
 14 . M. Lasxs. — Monsieur Ribot, ne continuez pas.
 - M. Jaurès. — Monsieur Ribot, voulez-vous me céder
 une minute la parole ?
 4e a. Ribot quitte la tribune où il est remplacé par
 …— M: LE LIEUTENANT-COLONEL Rousser. — Ce n'est pas |
-# à vous, monsieur Jaurès, de prendre la parole. 5
+# à vous, monsieur Jaurès, de prendre la parole.
 
 M. Cacner. — Vous n'avez pas à expliquer la parole
 d'un collègue. (Bruit prolones) ; TS
 M. LE LIEUTENANT-COLONEL Rousser. — Nous avons
-tous entendu l'interruption. ‘ l
+tous entendu l'interruption. ‘
 M. JAURÈS. — Qu'avez-vous entendu ? à
 a dit qu'il y avait des m......... (1) dans l'armée, à
 et je tiens à ce que ce soit au Journal officiel, (Bruit à {
-(Vives rumeurs et protestations au centre et à droite) ÿ
-Permettez à M. Walter de s'expliquer. Î
+(Vives rumeurs et protestations au centre et à droite)
+Permettez à M. Walter de s'expliquer.
 M. WALTER. — Pour les besoins de votre cause, b)
 (Bruit à droite) vous avez voulu entendre autre chose à
-que ce que j'ai dit. (Vives réclamations sur les mêmes M
+que ce que j'ai dit. (Vives réclamations sur les mêmes
 Je répète mes paroles : J'ai dit que l'on n'a jamais !
-attaqué l'armée dans son ensemble, mais ceux qui, 4
-dans l'armée, comme Esterhazy, étaient des m......... 4
-(Applaudissements sur divers bancs à l'extréme gauche 4
-— Vives interruptions à droite et au centre. — Bruit 1
-M. LE PRÉSIDENT. — Je vous rappelle à l'ordre avec 4
-M. Gaston GaALpix. — Ce n'est pas ce que M. Walter 1
+attaqué l'armée dans son ensemble, mais ceux qui,
+dans l'armée, comme Esterhazy, étaient des m.........
+(Applaudissements sur divers bancs à l'extréme gauche
+— Vives interruptions à droite et au centre. — Bruit
+M. LE PRÉSIDENT. — Je vous rappelle à l'ordre avec
+M. Gaston GaALpix. — Ce n'est pas ce que M. Walter
 () M. Walter avait dit des maquereaux.
-- 198
+-
 
 avec inscription au procès-verbal. Le règlement ne me
 # permet pas d'aller plus loin. (Bruit à droite)
@@ -6028,29 +6024,29 @@ Qui donc parlait il y a quelques mois à ce pays d'a-
 
 soire on répond à ces paroles de paix. Vous voulez À
 pousser jusqu'au bout tous vos avantages, troubler ce
-pays jusque dans ses masses les plus profondes. Soit! 1
+pays jusque dans ses masses les plus profondes. Soit!
 mais le pays un jour se réveillera, jugera voire poli A ‘|
 tique; vous jugera, vous, monsieur le ministre de la M |
-guerre et la politique néfaste par laquelle vous compro- 4
-mettez tous les intérêts les plus graves de la France. D
+guerre et la politique néfaste par laquelle vous compro-
+mettez tous les intérêts les plus graves de la France.
 (Vifs applaudissements au centre ei sur divers barcs. M |
-— L'orateur, de retour à son banc, reçoit les félicita- 1
+— L'orateur, de retour à son banc, reçoit les félicita-
 tions d'un grand nombre de ses collègues) ‘4
 M. MaGxraupé. — Je demande la parole sur mon M |
-ordre du jour. 4
+ordre du jour.
 et des cultes. — Avant les dernières paroles prononcées \ ]
 par M. Ribot, qui a nettement repoussé la politique du À |
 cabinet et posé la question sur le terrain politique, le "
 centre et à droite) Ve
 L'ordre du jour pur et simple laissait, en effet, sub- À
 sister les déclarations du Gouvernement et ne lui était
-pas contraire; voilà pourquoi je dis qu'avant l'intervention de M. Ribot, le Gouvernement pouvait hésiter : t
+pas contraire; voilà pourquoi je dis qu'avant l'intervention de M. Ribot, le Gouvernement pouvait hésiter
 dans la pensée de réunir sur l'ordre du jour pur & "4
 simple un plus grand nombre de voix républicaines. (4
 (Très bien ! très bien!) "à
 Mais après les paroles de M. Ribot portant nettement “4
 le débat sur le terrain politique, il est impossible au |
-président du conseil de ne pas repousser l'ordre du jour 4
+président du conseil de ne pas repousser l'ordre du jour
 pur et simple. (Applaudissements à gauche et à l'ex- {
 
 A droite. — Tant mieux!
@@ -6086,20 +6082,20 @@ se passe dans cette Chambre aujourd'hui, et à propos
 
 de cette affaire dont le débat n'est même pas ouvert,
 jugez ce que ce sera ensuite lorsque ce débat sera ‘4
-rouvert. (Applaudissements sur divers bancs à gauche) 4
+rouvert. (Applaudissements sur divers bancs à gauche)
 
-Au cours des magnifiques discours que nous avons. 4
-entendus, on a prononcé à différentes reprises le beau 4
-mot de justice. La justice! nous l'appelons de tous nos È
+Au cours des magnifiques discours que nous avons.
+entendus, on a prononcé à différentes reprises le beau
+mot de justice. La justice! nous l'appelons de tous nos
 vœux; mais nous l'appelons particulièrement pour le
 peuple qui attend toujours avec une inlassable patience
-que j'admire. Nous n'avons qu'un moyen d'arriver à ÿ
+que j'admire. Nous n'avons qu'un moyen d'arriver à
 réaliser cette justice, c'est d'étudier de bonnes et sages
-lois et de les discuter avec toute la maturité qu'elles M
-réclament. Ces lois sont dans nos esprits et dans n0S
+lois et de les discuter avec toute la maturité qu'elles
+réclament. Ces lois sont dans nos esprits et dans
 cœurs, mais pour arriver à les faire aboutir, il nous à
 faut envisager bien nettement le but que nous nous
-proposons. Pour l'atteindre, nous devons suivre le droit 1
+proposons. Pour l'atteindre, nous devons suivre le droit
 chemin, sans nous laisser détourner dans les sentiers
 épineux où l'on veut nous conduire. À
 
@@ -6107,14 +6103,14 @@ A l'extrême gauche.— Ce sont là des mots! À
 
 M. MaGnrauDÉ. — en reprenant l'affaire Dreyfus qui À
 n'a, vous l'avouerez, qu'un rapport bien éloigné avec les À
-réformes fiscales et sociales. (Applaudissements au M
+réformes fiscales et sociales. (Applaudissements au
 centre et sur divers bancs)
 
-En terminant, je ne saurais mieux faire que d'évo- 1
-quer le souvenir des paroles si hautes et si sages de k
-notre très distingué président, M. Léon Bourgeois, lorsqu'il disait le 28 mai 1900 : e
+En terminant, je ne saurais mieux faire que d'évo-
+quer le souvenir des paroles si hautes et si sages de
+notre très distingué président, M. Léon Bourgeois, lorsqu'il disait le 28 mai 1900
 
-Je suis de ceux qui pensent qu'il n'y a actuellement F
+Je suis de ceux qui pensent qu'il n'y a actuellement
 qu'un parti, ou que les partisans d'une certaine politique,
 qui peuvent être intéressés à faire revivre et à agiter l'affaire Dreyfus. Ce sont ceux qui aperçoivent dans les phases
 qui l'ont accompagnée et qui recommenceront si elle
@@ -6171,27 +6167,27 @@ si on ne voulait pas interpréter contre nous seuls lame a
 nistie qui a été votée il y a trois ans par la Chambre. LE)
 La commission a été singulièrement imprudente en
 entendant MM. Lemaître et Judet, qui n'avaient rien à
-faire dans l'élection Syveton, et il est certain que si la 4
-commission n'avait pas recueilli ces dépositions inté- 1
+faire dans l'élection Syveton, et il est certain que si la
+commission n'avait pas recueilli ces dépositions inté-
 ressées, M. Jaurès n'aurait pas apporté ce débat à la Fe |
-J'explique maintenant le vote qu'un certain nombre E
+J'explique maintenant le vote qu'un certain nombre
 de mes amis et moi-même allons rendre; il nous est
 impossible après les révélations qu'a apportées “
-l'extrême gauche et sur divers bancs à gauche) de clô- i
-turer ce débat par l'ordre du jour pur et simple. 1
-Nous voterons donc l'ordre du jour proposé parles M
-gauches et qui prend acte des déclarations du Gouver- . 4
-nement, ordre du jour que le Gouvernement a accepté 4
-et par lequel nous lui demandons d'accomplir simple- 4
-ment des actes politiques. 14
-M. ze pRésipenr. — La parole est à M. Émile Chautemps. 71
-k M. Éuize CnauremPs. — Je veux faire une simple. 4
-déclaration au nom de quelques amis qui, comme moi, M
+l'extrême gauche et sur divers bancs à gauche) de clô-
+turer ce débat par l'ordre du jour pur et simple.
+Nous voterons donc l'ordre du jour proposé parles
+gauches et qui prend acte des déclarations du Gouver-
+nement, ordre du jour que le Gouvernement a accepté
+et par lequel nous lui demandons d'accomplir simple-
+ment des actes politiques.
+M. ze pRésipenr. — La parole est à M. Émile Chautemps.
+k M. Éuize CnauremPs. — Je veux faire une simple.
+déclaration au nom de quelques amis qui, comme moi,
 ; étaient disposés à voter l'ordre du jour pur et sirnple; A
-après la déclaration très catégorique de M. le président M
-du conseil, ne voulant pas de crise ministérielle... 4
-(Exclamations et rires ironiques à droite. — Applau- M
-dissements à l'extrême gauche et à gauche) nous voterons l'ordre du jour accepté par le Gouvernement. M
+après la déclaration très catégorique de M. le président
+du conseil, ne voulant pas de crise ministérielle...
+(Exclamations et rires ironiques à droite. — Applau-
+dissements à l'extrême gauche et à gauche) nous voterons l'ordre du jour accepté par le Gouvernement.
 M. le président du conseil, par ses déclarations, a
 
 | déplacé le débat. Tout à l'heure nous étions appelés à
@@ -6222,32 +6218,32 @@ en un vote sur la politique générale du cabinet, et nous
 … sommes plus que jamais résolus à soutenir cette poli- :
 tique. (Applaudissements à gauche et sur divers
 
-M. Astier. — Tout à l'heure M. Ribot a parlé d'une « communication à la presse qui faisait connaître les É 24
+M. Astier. — Tout à l'heure M. Ribot a parlé d'une « communication à la presse qui faisait connaître les
 décisions d'un groupe important de la Chambre. Rs
-C'est moi qui, dans le groupe radical-socialiste, avant 34
+C'est moi qui, dans le groupe radical-socialiste, avant
 le débat qui vient de se dérouler, avais proposé de
-suivre la politique adoptée dans la dernière législature ‘4 ù
-et de nous efforcer de laisser les affaires judiciaires sur E
-le terrain judiciaire. (Très bien! très bien! sur divers M
+suivre la politique adoptée dans la dernière législature ‘4
+et de nous efforcer de laisser les affaires judiciaires sur
+le terrain judiciaire. (Très bien! très bien! sur divers
 L'événement a prouvé que nous avions été clair
 voyants, mais M. Jaurès avait le droit de venir ici, en
-réponse aux essais de justification contenus dans le 4
+réponse aux essais de justification contenus dans le
 rapport de M. Beauregard, soutenir la thèse qu'il asou
 tenue si brillamment. C'était son droit et c'était son ‘1
-Mais nous, nous sommes une Assemblée politique, et « 34
+Mais nous, nous sommes une Assemblée politique, et «
 -_ comme nous voulons fermement ne pas rouvrir l'ère des
 discordes, nous devons ne pas entraver l'action de la +
 justice et laisser au Gouvernement le soin de faire res
 pecter la légalité. Nous ne voulons pas intervenir dans
 une affaire qui est du ressort judiciaire; mais la ques- À
-tion a été élargie par M. Ribot, et puisque c'est la poli- e.
+tion a été élargie par M. Ribot, et puisque c'est la poli-
 tique générale du Gouvernement qui est en jeu, je
 dépose un ordre du jour qui donnera sa véritable sign
 1 fication à ce débat : %
 La Chambre, confiante dans le Gouvernement et A
 repoussant toute addition, passe à l'ordre du jour.
 (Interruptions sur divers bancs. — Applaudissements à
-l'extrême gauche) k
+l'extrême gauche)
 
 À résolution, signé de MM. Chapuis et Péret. Il est ainsi
 
@@ -6257,7 +6253,7 @@ domaine judiciaire, passe à l'ordre du jour.
 
 Le cinquième projet de résolution est celui de
 
-4 L'ordre du jour pur et simple est-il maintenu ?
+L'ordre du jour pur et simple est-il maintenu ?
 
 et des cultes. — Le Gouvernement repousse l'ordre du
 
@@ -6291,16 +6287,16 @@ pur et simple. |
 
 Si c'est là le sens que M. Chapuis attache à son ordre
 
-du jour, je suis tout prêt, voulant que la Chambre puisse 4
+du jour, je suis tout prêt, voulant que la Chambre puisse
 se prononcer avec netteté, à retirer notre ordre dujour,
 en votant sur l'ordre du jour de M. Chapuis et en ;
 demandant la division. EST ER
 Vous ne pouvez me demander de donner un vote de ?
-confiance au Gouvernement; si j'avais voulu le lui donner ces temps derniers, j'aurais pu le faire, mais je n'ai É
-jamais eu cette tentation; vous conviendrez que laittitude qu'il a tenue dans cette séance n'est pas de nature 4
+confiance au Gouvernement; si j'avais voulu le lui donner ces temps derniers, j'aurais pu le faire, mais je n'ai
+jamais eu cette tentation; vous conviendrez que laittitude qu'il a tenue dans cette séance n'est pas de nature
 à me faire changer de résolution. La majorité peut
 renouveler sa confiance au ministère; elle la renouvellera aussi souvent qu'elle voudra jusqu'au jour où à
-elle s'apercevra où on la mène, c'est son affsire et non 4
+elle s'apercevra où on la mène, c'est son affsire et non
 la mienne. Je ne voterai pas la confiance, mais ie suis |
 prêt pour épargner un trouble à ce pays. ({nterruptions |
 à l'extrême gauche. — Applaudissements au centre) |
@@ -6319,17 +6315,17 @@ M. LE PRÉSIDENT. — L'ordre du jour pur et simple est
 5 ho: a Ch ambre est appelée à se prononcer sur la priorité :
 _ à accorder à l'un des cinq projets de résolution dont
 j | elle est saisie.
-Ë ee M: Cuapuis. — Après les déclarations qui ont été 1
+Ë ee M: Cuapuis. — Après les déclarations qui ont été
 … faites par le Gouvernement; nous disant qu'il n'avait
 #4 pas l'intention, en consultant le dossier, de rouvrir l'af_ faire (Rumeurs au centre et à droite) et de recommenNicer ici des discussions qui divisentle pays, j'ai déposé AU |
 Rs an ordre du jour. Contrairement à l'opinion person-
-| nelle de M. Ribot, j'ai confiance dans le Gouvernement, 1
+| nelle de M. Ribot, j'ai confiance dans le Gouvernement,
 | j'approuve sa politique. IInous a présenté une loi contre
 … les congrégations, et je m'honore de l'avoir votée. (/n-
  terruptions à droite) C'est mon affaire; vous faites la
 _ politique qu'il vous convient, je fais celle qui me semble
 —_  Désireux surtout que l'affaire Dreyfus ne sorte pas
-$ du domaine judiciaire, j'ai cru devoir l'indiquer ÿ
+$ du domaine judiciaire, j'ai cru devoir l'indiquer
 _ dans mon ordre du jour. J'estime que la Chambre ;
 | peut le voter; nous affirmerons ainsi d'un côté la con_ fiance que nous avons dans le Gouvernement que
 | nous soutenons ; nous affirmerons d'autre part la ;
@@ -6342,26 +6338,26 @@ k | je suis de ceux qui aiment et respectent l'armée parce
 s la voir forte ; mais je suis aussi de ceux qui ne pardon-
 È nent pas les fautes commises pour obtenir un jugement
 
-au moyen de procédés contraires à toutes les règles du de E
+au moyen de procédés contraires à toutes les règles du de
 On a bien fait d'y mettre ordre; on a eu raison de
 frapper les coupables et on devra, dans l'avenir, procé- ‘ei
 der à toutes les épurations nécessaires pour faire de
 cette armée une armée soumise à la République. (A4p>
-voter sur la priorité. É
+voter sur la priorité.
 Il y a cinq ordres du jour. ‘4
 La priorité a d'abord été demandée pour celui de 4}
-Gouzy et Jean Codet, qui est ainsi conçu : OUR 4
+Gouzy et Jean Codet, qui est ainsi conçu : OUR
 La Chambre, prenant acte des déclarations du Gou- à
 vernement, passe à l'ordre du jour. À
-du conseil. 4 x
+du conseil.
 et des cultes. — Je ne pense pas que lorsque M. Ribot
 parlait de prolonger de quelques semaines l'existence
 ° du cabinet, il pût croire que personnellement j'attachais
-la moindre importance à cette prolongation. Ë
+la moindre importance à cette prolongation.
 M. CHenavaz. — Nous y tenons tous. ;
 dans différentes circonstances que je n'attachais au
 pouvoir d'autre prix que celui d'être en mesure d'a
-complir la tâche que j'ai assumée. (Applaudissements 1
+complir la tâche que j'ai assumée. (Applaudissements
 Mais je comprends la tactique nouvelle de M. Ribot. :
 Il avait présenté un ordre du jour pur et simple, sur
 
@@ -6373,14 +6369,14 @@ ne. La Chambre me permettra dès lors, quelque jugement
 >. qu'on puisse porter de ce côté, (la droite) de ne pas
 1$ prendre parti pour l'un ou pour l'autre de ces ordres du
 + _ jour. (Applaudissements à gauche. — Rires et applau5 dissements ironiques à droite)
-8 M. Vazeuze. — Messieurs, l'heure à laquelle nous
+M. Vazeuze. — Messieurs, l'heure à laquelle nous
 à sommes arrivés m'interdit de longues explications.
 “vous voulez hâter la fin de cette discussion, il faut
 ; M. pe Boury. — Nous pourrions tous expliquer notre
 È , vote; on n'en finirait pas.
 É M. Vazerrze. — Il ne s'agit pas d'explication de vote;
 à . j'étais inscrit dans la discussion...
-7 M. LE GÉNÉRAL JACQUuEY. — Elle est close.
+M. LE GÉNÉRAL JACQUuEY. — Elle est close.
 Re M. Vazerre. — Non, puisque nous discutons les
 _ ordres du jour.
 
@@ -6395,13 +6391,13 @@ nistie me permettait de prendre la parole aujourd'hui
 _  oubliait que c'est au contraire par le fait même de
 
 Invalidation Syveton ASS ni:
-l'homme qui dit : « L'incident est clos » que ce débat. 3
+l'homme qui dit : « L'incident est clos » que ce débat.
 s'est rouvert hier. “4
 M. MassaBuau.— C'est exact. +.
 M. VAZEILLE. — J'ajoute que, quoi que vous fassiez, |
 tant que vous n'aurez pas fait la lumière complète sur %
-cette affaire, vous la traînerez aux pieds comme um S
-boulet. Et voilà pourquoi je m'étais proposé de déposer 4
+cette affaire, vous la traînerez aux pieds comme um
+boulet. Et voilà pourquoi je m'étais proposé de déposer
 au cours de cette discussion, une demande d'enquête
 parlementaire, dans des conditions qui permettraient ;
 d'arriver à la vérité entière.
@@ -6422,24 +6418,24 @@ font le dépouillement. ) ; pes
 _ La Chambre des députés n'a pas adopté. (Applaudis- ‘at:
 sen rents au centre et à droite) aR
 pe M. Cuaruis. — Je demande la priorité en faveur de #
-Second lieu, par M. Magniaudé. Insiste-il ? Ù
+Second lieu, par M. Magniaudé. Insiste-il ?
 tion de M. Chapuis et je lui cède mon tour de priorité.
-—… M. Asmær. — J'ai réclamé la priorité pour mon ordre f
+—… M. Asmær. — J'ai réclamé la priorité pour mon ordre
 OM | MaGnrAuDé. — C'est possible, mais j'ai demandé .
 la priorité après M. Jaurès et j'ai cédé mon tour de re
 A priorit é à M. Chapuis, me ralliant à son texte. AC
 © M LE PRÉSIDENT. — C'est exact. Je vais appeler la
 “Chambre à se prononcer sur la priorité du projet de
-S ésolution de MM. Chapuis et Péret, dont je rappelle x
+S ésolution de MM. Chapuis et Péret, dont je rappelle
 W. La Chambre, confiante dans le Gouvernement, et
 _ résolue à ne pas laisser sortir l'affaire Dreyfus du
 domaine judiciaire, passe à l'ordre du jour.
 ra . Massapuau. — Je demande la parole pour expli_quer mon vote.
 
-M. Massaguau. — Je voterai l'ordre du jour de î
+M. Massaguau. — Je voterai l'ordre du jour de
 M. Chapuis d'autant plus volontiers que, comme je \
-l'aurais dit à cette tribune si je n'avais cédé mon tour D
-de parole à un de nos collègues qui m'en avait prié, i
+l'aurais dit à cette tribune si je n'avais cédé mon tour
+de parole à un de nos collègues qui m'en avait prié,
 que je m'étonne qu'on vienne chercher des responsabilités quand une loi d'amnistie les a mises hors de :
 
 M. LE PRÉSIDENT. — Je mets aux voix la priorité du
@@ -6471,7 +6467,7 @@ M. 1e PRÉSIDENT. — On demande la division après les
 on .… La Chambre, confiante dans le Gouvernement.
 NicJe mets aux voix cette partie du projet de résolution. »  Ily a une demande de scrutin, signée de MM. Salis,
 | Berger, Charles Chabert, Fouquet, Coulondre, etc.
-Le scrutin est ouvert. ë
+Le scrutin est ouvert.
 ‘4 . (Les votes sont recueillis. — MM. les secrétaires en
 … font le dépouillement.)
 …. M.2e PrRÉsienT. — Voici le résultat du dépouillefe: ment du scrutin: sus
@@ -6485,16 +6481,16 @@ M. Famrn-Cessron. — C'est un blâme pour le
 … publie, signée de MM. Bouctot, Cibiel, Marot, Eugène
 _ Motte, de Castelnau, de Caraman, Lechevallier, de
 
-. Le scrutin est ouvert. ‘ 2
-(Les votes sont recueillis. — MM. les secrétaires en. 4
+. Le scrutin est ouvert. ‘
+(Les votes sont recueillis. — MM. les secrétaires en.
 font le dépouillement.) “4
 Nombre des votants #10 Ne 008 458 ;
-La Chambre des députés a adopté. é
+La Chambre des députés a adopté.
 Je mets aux voix l'ensemble du projet de résolution.
 Il y a une demande de scrutin, signée de MM. Buyat,
 Le scrutin est ouvert.
-(Les votes sont recueillis. — MM. les secrétaires en M
-font le dépouillement.) j
+(Les votes sont recueillis. — MM. les secrétaires en
+font le dépouillement.)
 ment du scrutin :
 Nombre des votants! "20cm 325 | )
 La Chambre des députés a adopté. ;
@@ -6503,15 +6499,15 @@ réouverture de l'affaire Dreyfus. Il importe que le pays + « le sache. |
 
 …_ Annexe au procés-verbal de la séance EAU
 Re du mardi 7 avril eut
-Ë 4 les conclusions de la commission d'enquête tendant à F4
-_ da , validation des opérations électorales du deuxième arron- É
-FC dissement de Paris. (Résultat du pointage) 1
+Ë 4 les conclusions de la commission d'enquête tendant à
+_ da , validation des opérations électorales du deuxième arron-
+FC dissement de Paris. (Résultat du pointage)
 Nombre des votants. .......+ 509 JE RUN
 SEE Pour l'adoption . . ... 928 El
 La Chambre des députés n'a pas adopté. s ARE
 _ Amodru. Anthime-Ménard. Archdeacon. Argeliès. Arnal. LA
 4 _Ballange. Bansarddes Bois. Baron (Jules) (Maine-et-Loire). ;
-… Barrois. Bartissol. Baudry d'Asson (de). Beauregard (Paul) é
+… Barrois. Bartissol. Baudry d'Asson (de). Beauregard (Paul)
 6 eine). Beauregard (de) (Indre). Benoist (de) (Meuse). ue
 k. Boissieu (baron de). Bonnevay. Bonte. Bonvalot. Borgnet. »
 (Laurent). Bourgeois (Paul) (Vendée). Boury (de). Brice Ke
@@ -6527,7 +6523,7 @@ Cochin (Henry) (Nord). Cornudet (vicomte). Corrart des
 
 Estourbeillon (marquis de l).
 
-Flourens. Fontaines (de). Forest. Fouché. Fouquet(Camille). R
+Flourens. Fontaines (de). Forest. Fouché. Fouquet(Camille).
 
 Gaffier. Gailhard-Bancel (de). Gaillard (Jules). Galot (Gules).”
 Galpin (Gaston). Gauthier (de Clagny). Gautier (Léon) -
@@ -6548,21 +6544,21 @@ Lanjuinais (comte de). Lannes de Montebello. Largentaye
 Lasies. Laurens-Castelet (marquis de). Laville. Lebaudy
 (Arthur). Le Hérissé. Lemire. Lepelletier (Edmond):
 
-L erolle. Lespinay (marquis de). Lévis-Mirepoix (comte : f:
+L erolle. Lespinay (marquis de). Lévis-Mirepoix (comte
 _ de) + Limon . Loque. Ludre (comte Ferri de). DEL
 …Mackau (baron de). Mahy (de). Mando. Marot (Félix). ‘+
-+  Maussabré (marquis de). Méline. Michel (Adrien) (Haute- É
++  Maussabré (marquis de). Méline. Michel (Adrien) (Haute-
 Loir e) Millevoye. Miossec. Montaigu (comte de).
 Montalembert (comte de). Motte. Moustier (marquis de).
 fun (6 omte Albert de). ;
 f © livier. Ornano (Cuneo d'). Osmoy (comte d”). l » Pain. Passy (Louis). Paulmier. Périer (Germain). Périer ;
-de | Larsan (comte du). Perroche. Pichat, Pins (marquis de). f!
+de | Larsan (comte du). Perroche. Pichat, Pins (marquis de).
  Plichon. Pomereu (comte de). Prache. Pradet-Balade. ‘
 « Raiberti. Ramel (de). Rauline. Reille (baron Amédée). |
 (Ardèche). Roger-Ballu. Rohan (duc de). Roscoat (vicomte
 du). Rose. Rouland. Rousset (lieutenant-colonel). Rouvre
 (Bourlon de). Rozet (Albin). Rudelle.
-Saint Martin (de). Saint-Pol (de). Savary de Beauregard. j
+Saint Martin (de). Saint-Pol (de). Savary de Beauregard.
 Schne der (Eugène) (Saône-et-Loire). Sibille. :
 Bachimont. Bagnol. Balandreau. Baron (Gabriel) (Bouches-du-Rhône). Barthou. Basly. Baudet (Charles) (Côtesdu-Nord). Baudet (Louis) (Eure-et-Loir). Baudin (Pierre). : à
 | Bepmale. Bérard (Alexandre). Bersez. Berteaux. Berthet.
@@ -6573,9 +6569,9 @@ L Buisson (Ferdinand) (Seine). Bussière. Buyat. ;
 
 Chautemps (Alphonse) (Indre-et-Loire). Chautemps (Emile)
 
-=. Labussière. Lachaud. Lacombe (Louis). Laferre. L
+=. Labussière. Lachaud. Lacombe (Louis). Laferre.
 _ din. Lanessan (de). Larquier. Lassalle. Lauraine. Leffet.
-] * Lepez. Lesage. Le Troadec. Leygue (Honoré) (Haute- j
+] * Lepez. Lesage. Le Troadec. Leygue (Honoré) (Haute-
 | Me simy. Michel (Henri) (Bouches-du-Rhône). Mil (Louis).
 # Minier (Albert). Monfeuillart. Morlot. Mougeot. Mulac. +
 Ni; Pajot. Pams. Pasqual. Pastre. Paul Meunier. Pavie.
@@ -6585,7 +6581,7 @@ _ (Francis de). Puech. ?
 La Batut (de). Laurençon. Levet (Georges). Levraud.
 l Malizard. Mirman. Morel. LES
 le député dont l'élection est soumise à l'enquête: de
-FAT Caïillaux. Castellane (comte Boni de). Castillard. Gauvin Hi: 4
+FAT Caïillaux. Castellane (comte Boni de). Castillard. Gauvin Hi:
 | Coache. Cochin (Denys) (Seine). Couyba. ie : oi nu!
 } _ David (Henri) (Loir-et-Cher). Derveloy. Deschanel Fabre a À
 . Le Baïl. Le Mare. Le Moigne. Leroy (Modeste). Leygues
@@ -6599,7 +6595,7 @@ _ M. Dunaime, porté comme ayant voté contre dans le {
 
 Sar la priorité en faveur de l'ordre du jour de MM, Jaurès,
 
-140 A Henri Brisson, Jean Codet et Maujan.
+A Henri Brisson, Jean Codet et Maujan.
 
 La Chambre des députés n'a pas adopté.
 
@@ -6635,27 +6631,27 @@ ss - (Indre-et-Loire). Chautemps (Émile) (Haute-Savoie). Chevaat lier. Cibiel. 
 ES (vicomte). Corrart des Essaris. Coutant (Paul) (Marne). « ë Cruppi. |
 
 Desgardes. Derrien. Desjardins (Jules). Dion (marquis de). +
-(Fernand). Ermanit. Estourbeillon (marquis de F). 14
+(Fernand). Ermanit. Estourbeillon (marquis de F).
 Fleury-Ravarin. Flourens. Fontaines (de). Forest. Fouché, À
 Gaflier. Gailhard-Bancel (de). Gaillard (Jules). Galot Re
 (Jules). Galpin (Gaston). Gauthier (de Clagny). Gautier %
-(Seine). Gervaize (Meurthe-et-Moselle). Géveloi. Ginoux- x
+(Seine). Gervaize (Meurthe-et-Moselle). Géveloi. Ginoux-
 Defermon. Gonidec de Traissan (comte le). Gontaut-Biron #
 (comte Joseph de). Goujon (Julien). Gourd. Grandmaison À
-(de). Grosdidier. Grosjean. Grousseau. Guiïllain. Guilloteaux. ï
+(de). Grosdidier. Grosjean. Grousseau. Guiïllain. Guilloteaux.
 Guyot de Villeneuve. ‘3
-Halgouet (lieutenant-colonel du). Harriague Saint-Martin. 1
+Halgouet (lieutenant-colonel du). Harriague Saint-Martin.
 Kerjégu (J. de). Klotz. Krantz (Camille). :
-La Batut (de). La Bourdonnaye (comte de). La Chambre. ÿ
+La Batut (de). La Bourdonnaye (comte de). La Chambre.
 Lachièze. La Ferronnays (marquis de). Lamy. Laniel à
 (Henry). Lanjuinais (comte de). Lannes de Montebello. {
 Largentaye (Rioust de). Laroche-Joubert. La Rochethulon & -
 (comte de). Larquier. Lasies. Lauraine. Laurençon. Ml
 Laurens-Castelet (marquis de). Laville. Lebaudy (Paul). |
-(Arthur). Le Hérissé. Lemire. Lepelletier (Edmond). Lepez. È
+(Arthur). Le Hérissé. Lemire. Lepelletier (Edmond). Lepez.
 
 er: Lerolle. I espinay (marquis de). Le Troadec, Levet (Georges). AAC
-\ BL fe N lirepoix (comte de). Limon. Lockroy. Loque. Lozé. s
+\ BL fe N lirepoix (comte de). Limon. Lockroy. Loque. Lozé.
 F 4 Ludre (comte Ferri de). ; :
 _  Mackau (baron de). Magniaudé. Mahy (de). Mando. "5
 PL Spronck. Maussabré (marquis de). Méline. Menier (Gaston). ;
@@ -6680,9 +6676,9 @@ Un. Gabriel Denis. Gérald (Georges). CSSS
 Re Le Bail. Le Mare. Le Moigne. Leroy (Modeste). Leygues… |
 12 {Georges) (Lot-et-Garonne). . . ee Me |
 Ro Millerand. Mollard. Montjou (de). + LS
-| Richard (Pierre). Robert Surcouf. Roch. . VINS l
+| Richard (Pierre). Robert Surcouf. Roch. . VINS
 
-| jte es annoncés en séance avaient été de : LAS Ÿ
+| jte es annoncés en séance avaient été de : LAS
 #24 PAPour l'adoption |. 41.11 are RAGE À
 CM ais, après vérification, ces nombres ont été rectifiés ES
 …_ conformément à la liste de scrutin ci-dessus. De
@@ -6699,12 +6695,12 @@ Beauregard (de) (Indre). Bellier. Benoist (de) (Meuse). uu
 (Vendée). Boury (de). Boutard. Brice (Jules) (Meurthe-etMoselle). Brice (René) (Ille-et-Vilaine). Brindeau. Brisson |
 (Joseph) (Gironde). Broglie (duc de). de
 
-Cachet. Caffarelli (comte). Caraman (comte de). Cardon. K
+Cachet. Caffarelli (comte). Caraman (comte de). Cardon.
 Carnot (François). Castellane (comte Stanislas de). Castelnau À
 (de). Catalogne. Cavaignac (Godefroy). Cazauvieilh. Caze
 de). Chapuis. Charruyer. Chastenet (Guillaume). Chaumet, ;
 Chautemps (Alphonse) (Indre-et-Loire). Chautemps (Émile)
-(Henry) (Nord). Codet (Jean). Compayré (Émile). Congy. l
+(Henry) (Nord). Codet (Jean). Compayré (Émile). Congy.
 Corrart des Essarts. Coutant (Paul) (Marne). Crappi. |
 
 Desjardins (Jules). Dion (marquis de). Disleau. Dormoy.
@@ -6718,7 +6714,7 @@ Gaffier. Gailhard-Bancel (de). Gaillard (Jules). Galot …
 Gode t Frédéric). Gonidec de Traissan (comte le). Gontaut_ Bir on (comte Joseph de). Goujon (Julien). Gourd, Grand- |
 ÿ maison (de). Grosdidier. Grosjean. Grousseau. Guillain.
 | Guillo teaux. Guyot de Villeneuve.
-Halgonet (lieutenant-colonel du). Harriague Saint-Martin. 3h
+Halgonet (lieutenant-colonel du). Harriague Saint-Martin.
 | Jacquey (général). Janet (Léon) (Doubs). Jeanneney. Jules
 
 SE erjégu (J. de). Klotz. Krantz (Camille).
@@ -6729,7 +6725,7 @@ Re. La Ferronnays (marquis de). Lamy. Laniel À
 (Henri). Lanjuinais (comte de). Lannes de Montebello.
  Largentaye (Rioust de). Laroche-Joubert. La Rochethulon
 
-(comte de). Larquier. Lasies. Lauraine. Laurençon. Laurens- Ù
+(comte de). Larquier. Lasies. Lauraine. Laurençon. Laurens-
 ; Gastelet (marquis de). Laville, Lebaudy (Paul). Lebrun. À
 
 Lechevallier. Lefas. Leffet. Léglise. Legrand (Arthur). Le
@@ -6769,16 +6765,16 @@ Basly. Baudet (Louis) (Eure-et-Loir). Beauquier. Begey.
 
 du-Rhône). Mill (Louis). Minier (Albert). '
 _Pressensé (Francis de).
-| Salis. Sauzède. Schneider (Charles) (Haut-Rhin). Selle. ù
+| Salis. Sauzède. Schneider (Charles) (Haut-Rhin). Selle.
 $ | Théron. Thivrier. Thomson. Tourgnol. Trouin. Le
 “_ Bansard des Bois. Baudin (Pierre). Baudon (Oise). Bérard \
 Sal (Alexandre). Bertrand (Lucien) (Drôme). Bichon. Bourgeois PAS
-“ (Léon) (Marne). Brisson (Henri) (Bouches-du-Rhône). 4
+“ (Léon) (Marne). Brisson (Henri) (Bouches-du-Rhône).
 | _ Decker-David. Delarue. Delcassé. Delmas. Doumergue HAN
 
 Lachaud. Lanessan (de). Lion. Es
 Saint-Martin (de). Sarraut (Albert). Sireyjol.
-Caillaux. Castellane (comte Boni de). Castillard. Gauvin i
+Caillaux. Castellane (comte Boni de). Castillard. Gauvin
 David (Henri) (Loir-et-Cher). Derveloy. Deschanel (Paul).
 
 Le Bail. Le Mare. Le Moigne. Leroy (Modeste). Leygues
@@ -6789,7 +6785,7 @@ Millerand. Mollard. Monjou (de).
 
 | Mais, après vérification, ces nombres ont été rectifiés con_ formément à la liste de scrutin ci-dessus.
 
-1 40
+1
 
 à Sur la première partie de l'ordre du jour de M. Chapuis
 
@@ -6802,7 +6798,7 @@ no es-du-Nord). Baudet (Louis) (Eure-et-Loir). Baudin
 | _ Bizot Bony-Cisternes. Bourrat. Boutard. Braud. Breton
 | r “(Eules-Louis). Brisson (Henri) (Bouches-du-Rhône). Brunard.
 
-Invalidation Syveton de 5
+Invalidation Syveton de
 (Indre-et-Loire). Chautemps(Emile) (Haute-Savoie). Chavoix.
 (Louis). Judet. Jumel. É De
 La Batut (de). Labussière. Lachaud. Lacombe (Louis).
@@ -6816,13 +6812,13 @@ Le Ridouard. Rivet (Gustave). Rouanet. Rouby. Rougier.
 _ (Seine). Beauregard (de) (Indre). Benoist (de) (Meuse).
 
 (Paul) (Vendée). Boury (de). Brice (Jules) (Meürthe-et- nee
-Moselle). Brice (René) (Ille-et-Vilaine). Brindeau. Brisson 4
+Moselle). Brice (René) (Ille-et-Vilaine). Brindeau. Brisson
 (Joseph) (Gironde). Broglie (duc de). Ki
 
 Cachet. Caffarelli (comte). Caraman (comte de). Carnot
 (François). Castellane (comte Stanislas de). Castelnau (de) Lt
 Cavaignac (Godefroy). Chambrun (marquis de). Charles à
-des Essarts. Coutant (Paul) (Marne). ÿ
+des Essarts. Coutant (Paul) (Marne).
 
 Delaune (Marcel). Denis (Théodore). Déribéré-Desgardes. LA
 Derrien. Desjardins (Jules). Dion (marquis de). Drake £
@@ -6832,9 +6828,9 @@ Elva (comte d'). Engerand (Fernand). Ermant. Estourbeillon (marquis de l). À
 Flourens. Fontaines (de). Forest. Fouché. Fouquet (Camille). NM
 
 Gañfier. Gailhard-Bancel (de). Gaillard (Jules). Galot À
-(Jules). Galpin (Gaston). Gauthier (de Clagny). Gautier 4
+(Jules). Galpin (Gaston). Gauthier (de Clagny). Gautier
 et-Moselle). Gévelot. Ginoux-Defermon. Gonidec de Traïssan (comte le). Gontaut-Biron (comte Joseph de). Goujon nn
-(Julien). Gourd. Grandmaison (de). Grosjean. Groussau. ÿ
+(Julien). Gourd. Grandmaison (de). Grosjean. Groussau.
 Guillain. Guilloteaux. Guyot de Villeneuve.
 
 Halgouet (lieutenant-colonel du). Harriague Saint-Martin. ;
@@ -6842,7 +6838,7 @@ Halgouet (lieutenant-colonel du). Harriague Saint-Martin. ;
 Kerjégu (J. de). Krantz (Camille).
 
 La Bourdonnaye (comte de). La Chambre. Lachièze. La à
-Ferronnays (marquis de). Lamy. Laniel (Henri). Lanjuinais ÿ
+Ferronnays (marquis de). Lamy. Laniel (Henri). Lanjuinais
 (comte de). Lannes de Montebello. Largentaye (Rioust de).
 
 Laroche Joubert. La Rochethulon (comte de). Lasies à: er
@@ -6850,7 +6846,7 @@ Laroche Joubert. La Rochethulon (comte de). Lasies à: er
 ! letier (Ed mond). Lerolle. Lespinay (marquis de). Lévis- HÈA
 Mirepoix (comte de). Ludre (comte Ferri de). ; re
 j … Mackau (baron de). Mahy (de). Mando. Marot (Félix). oi
-(marqu s de). Méline. Michel (Adrien) (Haute-Loire). 4
+(marqu s de). Méline. Michel (Adrien) (Haute-Loire).
 … Millevoye. Miossec. Montaigu (comte de). Montalembert
 (com e de). Motte. Moustier (marquis de). Mun (comte (a
 4 _ Pain. Passy (Louis). Paulmier. Périer de Larsan (comte (ES
@@ -6862,14 +6858,14 @@ f _ Raïiber li. Ramel (de). Rauline. Reiïlle (baron Amédée). ce
 Saint-Martin (de). Saint-Pol (de). Savary de Beauregard. |
 Roue (Eugène) (Saône-et-Loire). Sibille. A
 
-Mot Laurençon. Lechevallier. Le Hérissé. Limon. j
+Mot Laurençon. Lechevallier. Le Hérissé. Limon.
 . Pasire. Pelletan (Camille). Piger. Pressensé (Francis de).
 MA TA Babaud-Lacroze. Balitrand. Beharelle. Boyer (An ide). |
-Caillaux. Castellane (comte Boni de). Castillard. Cauvin û
-; (Ernest). Chabert (Justin) (Rhône). Chamerlat. ce noz.. 47
+Caillaux. Castellane (comte Boni de). Castillard. Cauvin
+; (Ernest). Chabert (Justin) (Rhône). Chamerlat. ce noz..
 Es David (Henri) (Loir-et-Cher). Derveloy. Deschanel (Paul). à
 À - Hubert. Hugues (François) (Aisne). LES à
-4 Le Bail. Le Mare. Le Moigne. Leroy (Modeste). Leygues p
+Le Bail. Le Mare. Le Moigne. Leroy (Modeste). Leygues
 QE (Georges) (Lot-et-Garonne). Re
 
 $ Les nombres annoncés en séance avaient été de :
@@ -6882,20 +6878,20 @@ Balandreau. Ballande. Bansard des Bois. Baron (Jules)
 (Charles) (Côtes-du-Nord). Baudet (Louis) (Eure-et-Loir).
 Baudin (Pierre). Baudry d''Asson (de). Beauquier.
 Beauregard (Paul) (Seine). Beauregard (de) (Indre). Bellier.
-2 Benoist (de) (Meuse). Berger (Georges). Berry (Georges).
+Benoist (de) (Meuse). Berger (Georges). Berry (Georges).
 (Marne). Bignon (Paul). Bischoffsheim. Boissieu (baron de).
 
 Bouctot. Bougère (Ferdinand). Bougère (Laurent). Bour geois Et.
-(Paul) (Vendée). Boury (de). Boutard. Brice (Jules) (Meurthe M
+(Paul) (Vendée). Boury (de). Boutard. Brice (Jules) (Meurthe
 et-Moselle). Brice (René) (Ille-et-Vilaine). Brindeau. Brisson
 (Joseph) (Gironde). Broglie (duc de). Brunard. Bussière. | :
 Carnot (François). Carpot. Castellane (comte Stanislas DE
 Castelnau (de). Catalogne. Cavaignac (Godefroy). Cazau:- x :
 Chambon. Chambrun (marquis de). Chanal. ss ne
 Chaumet. Chaussier. Chautemps (Alphonse) (Indre-et
-; Cornudet (vicomte). Coyrart des Essarts. Coutant (Paul). 5 l
-(marquis de). Disleau. Dormoy. Doumer (Paul). Drake 13
-Dupuy (Pierre). Duquesnel. Durand. Dussuel. Duireil. Ne. 1
+; Cornudet (vicomte). Coyrart des Essarts. Coutant (Paul).
+(marquis de). Disleau. Dormoy. Doumer (Paul). Drake
+Dupuy (Pierre). Duquesnel. Durand. Dussuel. Duireil. Ne.
 (Fernand). Ermant. Escanyé. Estourbeillon (marquis de] P) 53)
 Ravarin. Flourens. Fontaines (de). Forest. Fouché. Fouquet EP |
 Gabrielli. Gaflier. Gailhard-Bancel (de). Gaillard Gus). | |
@@ -6930,7 +6926,7 @@ y Perroche. Petit. Peureux. Pichat. Pichery. Pins (marquis de).
 Ragot. Raïberti. Ramel (de). Rauline. Reïlle (baron A
 (Jules) (Ardèche). Roger-Ballu. Rohan (duc de). Roscoat. pe,
 (vicomte du). Rose. Rouby. Rougier. Rouland. Rousé. "M
-Rousset (lieutenant-colonel). Rouvre (Bourlon de). Rozet M
+Rousset (lieutenant-colonel). Rouvre (Bourlon de). Rozet
 Sabaterie. Saint-Martin (de). Saint-Paul (de). Sandrique.
 Sarrazin. Saumande. Savary de Beauregard. Schneider ,
 (Eugène) (Saône-et-Loire). Sibille. Siegfried.
@@ -6947,21 +6943,21 @@ Pajot. Pastre. Pressensé (Francis de). Ge
 
 du-Rhô &). Buisson (Ferdinand) (Seine). Buyat.
 
-| Petitjean. Pierre Poisson. Piger. 4e ss Ds Æ
+| Petitjean. Pierre Poisson. Piger. 4e ss Ds
 Thivrier. Thomson. Trouillot (Georges). Tanigng. ce à
 Caillaux. Castellane (comte Boni de). Castillard. Cauvin
 CR (Ernest). Chabert (Justin) (Rhône). Chamerlat. Chane LE x |
 ! David (Henri) (Loir-et-Cher). Derveloy. Deschanel ( Paul). Es
 = Le Bail. Le Mare. Le Moigne. Leroy (Modeste). Leygues
-‘4 Millerand. Mollard. Montjou (de). : ‘20 5fl
-Sarrien. Suchetet. ne 14
+‘4 Millerand. Mollard. Montjou (de). : ‘20
+Sarrien. Suchetet. ne
 
 Les n ombr es annoncés en séance avaient été de : "a ‘4
 LA Mai s, après vérification, ces nombres ont été rectifiés
 . conformément à la liste de scrutin ci-dessus.
 Sur l'ensemble de l'ordre du jour de M. Chapuis
 res ps « ns) sa Chambre des députés a adopté.
-3 Fe un dreau. Barrois. Barthou. Bartissol. Baudet (Charles)
+Fe un dreau. Barrois. Barthou. Bartissol. Baudet (Charles)
 -…(Côtes-du-Nord). Baudet (Louis) (Eure-et-Loir). Baudin
 ütard. Braud. Brisson (Henri) (Bouches-du-Rhône).
 | _Gaffarelli (comte). Capéran. Caraman (comte de). Cardon.
@@ -6982,17 +6978,17 @@ V  Ragot. Raiberti. Régnier. Renault-Morlière. René Renoult. NE
 (Ardèche). Rouby. Rougier. Rouland. Rousé. Rouvre il
 (ourlon de). Rozet (Albin). Ruau. A
  Vigouroux. Villault-Duchesnoïs. Villejean. Viollette. ne
-ù © Bachim ont. Bagnol, Baron (Gabriel) (Bouches-du-Rhône) : k
+ù © Bachim ont. Bagnol, Baron (Gabriel) (Bouches-du-Rhône)
 | Basly. Bepmale. Berteaux. Bouhey-Allex. Bourrat. Breton
 
-3 Pajot. Pastre. Pressensé (Francis de). 43 ne es +
+Pajot. Pastre. Pressensé (Francis de). 43 ne es +
 Ballande. Bansard des Bois. Baron (Jules) (Maiïne-et-Lo re) : DE
 Baudry d'Asson (de). Beauregard (Paul) (Seine). Bea regard
 (de) (Indre). Begey. Bénézech. Benoist (de) (Meuse). Bérard à
 Bertrand (Paul) (Marne). Bizot. Boissieu (baron. de).
-; Bourgeois (Paul) (Vendée). Boury (de). Bouveri. Brice. 1
+; Bourgeois (Paul) (Vendée). Boury (de). Bouveri. Brice.
 (Jules) (Meurthe-et-Moselle). Brice (René) (Ille-et-Vilaine). … pt
-Brindeau. Brisson (Joseph) (Gironde). Broglie (due de). 7 1
+Brindeau. Brisson (Joseph) (Gironde). Broglie (due de).
 ( Cachet. Cadenat. Cardet. Carpot. Castelnau à (de). |
 (marquis de). Chanal. Charles Benoist (Seine). harles
 
@@ -7030,12 +7026,12 @@ We Millevoye. Miossec. Montaigu (comte de). Montalembert
 : Petitjean. Pichat. Piger. Pins (marquis de). Plichon. P omer EE
 _ - (comte de). Pugliesi-Conti. A
 Rabier (Fernand). Rajon (Claude). Ramel (de). Rauline, :
-Roger-Ballu. Rohan (due de). Roscoat (vicomte du). E ose. 5
+Roger-Ballu. Rohan (due de). Roscoat (vicomte du). E ose.
 Saint-Martin (de). Saint-Pol (de). Savary de Beauregard. | Le
 Schneider (Eugène) (Saône-et-Loire). Sembat.
 > Caillaux. Castellane (comte Boni de). Castillard. C uvin
-2 David (Henri) (Loir-et-Cher). Derveloy. Deschanel _ Sa)
-ae e Flandin (Étienne) (Yonne). : LES 14
+David (Henri) (Loir-et-Cher). Derveloy. Deschanel _ Sa)
+ae e Flandin (Étienne) (Yonne). : LES
 Fe Le Bail. Le Mare. Le Moigne. Leroy (Modeste). Leypues
 Millerand. Mollard. Montjou (de). . |
 je Plissonnier. Poullan. Pourteyron. TES
@@ -7051,24 +7047,24 @@ catégories du scrutin du 7 avril sur l'ensemble de l'ordre
 du jour de M. Chapuis; l'honorable membre s'éfait volontairement abstenu et son nom devait être inserit dans la
 liste des membres n'ayant pas pris part au vote aux lieuet
 place de celui de M. d'Estournelles qui, régulièrement
-excusé, figure d'ailleurs dans la liste des absents par congé. 1
-Dans le scrutin du 7 avril sur les conclusions de la com- E
-mission d'enquête tendant à la validation des opérations 3
-électorales du deuxième arrondissement de Paris : ICE ê
+excusé, figure d'ailleurs dans la liste des absents par congé.
+Dans le scrutin du 7 avril sur les conclusions de la com-
+mission d'enquête tendant à la validation des opérations
+électorales du deuxième arrondissement de Paris : ICE
 M. Capéran, porté comme ayant voté pour, déclare avoir %
 Dans le scrutin du 7 avril, sur la priorité en faveur de
 : l'ordre du jour de MM. Jaurès, Henri Brisson, Jean Codet “4
 M. Jehanin déclare qu'il a été porté par erreur comme *
-ayant voté pour, et qu'en réalité il avait voté contre. $ 6È
+ayant voté pour, et qu'en réalité il avait voté contre. $
 M. Pavie déclare qu'il a été porté par erreur comme à
 n'ayant pas pris part au vote, et qu'en réalité il avait voté |
 M. Paul Meunier déclare qu'il a été porté par erreur ES
 comme ayant voté contre, et qu'en réalité il avait voté nn …
-pour. z EX É
+pour. z EX
 Dans le scrutin du 7 avril, sur la priorité en faveur de en.
 l'ordre du jour de M. Chapuis : =: 20080
 M. Capéran déclare qu'il a été porté par erreur comme
-n'ayant pas pris part au vote, et qu'en réalité it avait voté n
+n'ayant pas pris part au vote, et qu'en réalité it avait voté
 pour. TER
 
 M. Jehanin déclare qu'il a été porté par erreur comme Fo ©
@@ -7077,17 +7073,17 @@ s M Paul Meunier déclare qu'il a été porté par erreur TÈs
 _ comme ayant voté pour et qu'en réalité il avait voté contre. CR
 > _ Dans le scrutin du 7 avril, sur la seconde partie de l'or- :
 _ dre du jour de M. Chapuis : ,
-_ M. Capéran déclare qu'il a été porté par erreur comme s
+_ M. Capéran déclare qu'il a été porté par erreur comme
 … n'ayant pas pris part au vote, et qu'en réalité il avait voté SE -
 % M. Jehanin déclare qu'il a été porté par erreur comme %
 . ayant voté confre, et qu'en réalité il avait voté pour. ns
-SR M. Payie déclare qu'il a été porté par erreur comme 53
+SR M. Payie déclare qu'il a été porté par erreur comme
 … n'ayant pas pris part au vote, et qu'en réalité il avait voté PRE.
-M. Isnard déclare qu'il a été porté par erreur comme e
+M. Isnard déclare qu'il a été porté par erreur comme
 sh yant voté contre, et qu'en réalité il avait voté pour. d! À
 _ _ Dans le scrutin du 7 avril, sur la seconde partie de l'or- FR
 . dre du jour de M. Chapuis : +
-\ … M: Louis Debaune déclare qu'il a été porté par erreur e
+\ … M: Louis Debaune déclare qu'il a été porté par erreur
 comme ayant voté contre, et qu'en réalité il avait voté
 _ Da ns le scrutin du 7 avril, sur l'ensemble de l'ordre du :
 _jou r de M. Chapuis :
@@ -7109,7 +7105,7 @@ M. Lafferre déclare qu'il a été porté par erreur comme |
 n'ayant pas pris part au vote, et qu'en réalité il avait vote |
 M. Decker-David, absent au moment du vote et porté pat
 erreur comme ayant voté pour, déclare que s'il avait été
-présent, il se serait abstenu. É u 4
+présent, il se serait abstenu.
 Dans le scrutin du 7 avril sur l'ensemble de l'ordre du = |
 jour de M. Chapuis : |
 
@@ -7119,18 +7115,18 @@ M. Anthime-Ménard déclare qu'il a également été porté
 par erreur comme ayant voté pour, et qu'en réalité il s'était RU |
 M. Paul Lerolle fait la même déclaration. 23 ns. +
 M. Debaune déclare qu'il a été porté par erreur comme
-ayant voté contre, et qu'en réalité il avait voté pour. F2
+ayant voté contre, et qu'en réalité il avait voté pour.
 M. Cloarec, empêché d'assister à la séance du 7 avril,
 déclare que, s'il avait été présent, contrairement à ce qui dis me.
 été porté par erreur, il aurait voté : 1° contre la priorité en
 faveur de l'ordre du jour de MM. Jaurès, Henri Brisson, A
 Jean Codet et Maujan: » pour la priorité en faveur de l'or
-dre du jour Chapuis; 3° pour la seconde partie du même “E 4
+dre du jour Chapuis; 3° pour la seconde partie du même “E
 ordre du jour. RER 4 | |
 M. Carpot déclare qu'il a été porté par erreur, dans les Fe
 scrutins du 7 avril, comme ayant voté pour la priorité en
 faveur de l'ordre du jour de MM. Jaurès, Henri Brisson, Jean
-Codet et Maujan, comme ayant voté contre la priorité en 5
+Codet et Maujan, comme ayant voté contre la priorité en
 faveur de l'ordre du jour Chapuis, et comme s'étant abstenu
 
 _ sur l'ensemble du même ordre du jour, et qu'en réalité
@@ -7144,12 +7140,12 @@ ni erreur comme n'ayant pas pris part au vote et qu'en réalité ;
 
 _ il avait voté contre. :
 
-à VB : ectifications portées au Journal officiel du samedi L
+à VB : ectifications portées au Journal officiel du samedi
 
 # Dans le scrutin du 7 avril sur la seconde partie de l'ordre ,
 _ du jour de M. Chapuis :
 
-. M: Emmanuel Arène déclare qu'il a été porté par erreur k
+. M: Emmanuel Arène déclare qu'il a été porté par erreur
 comme ayant voté pour, et qu'en réalité il s'était abstenu.
 _ Dans le scrutin du 7 avril sur la priorité en faveur de
 : l'ordre du jour de MM. Jaurès, Henri Brisson, Jean Codet et
@@ -7157,17 +7153,17 @@ _ Dans le scrutin du 7 avril sur la priorité en faveur de
 AE M. Gervais (Seine) déclare qu'il a été porté par erreur
 -— comme ayant voté contre, et qu'en réalité il avait voté
 
-M. Buyat déclare qu'il a été porté, dans les scrutins du 2
+M. Buyat déclare qu'il a été porté, dans les scrutins du
 - 7 avril, comme ayant voté pour la priorité en faveur de
 
-. … lordre du jour de MM. Jaurès, Henri Brisson, Jean Codet et ç
+. … lordre du jour de MM. Jaurès, Henri Brisson, Jean Codet et
 D _M aujan ; comme n'ayant pas pris part au vote sur la seconde
 partie de l'ordre du jour de M. Chapuis; comme ayant voté
 CDI vire la priorité en faveur de l'ordre du jour de M. Chapuis; .
 
 WE comm en'ayant pas pris part au vote sur l'ensemble de l'orPa ap u jour de M. Chapuis, et qu'en réalité il avait eu l'inmt tion de s'abstenir dans le premier et le deuxième scru-
 | tin et de voter pour dans les trois autres.
-5 357
+5
 
 Rectifications portées au Journal officiel du dimanc ke. &
 Dans le scrutin du 7 avril sur la priorité en faveur de D |
@@ -7176,12 +7172,12 @@ M. Saumande déclare qu'il a été porté par erreur comme D |
 ayant voté pour, et qu'en réalité il avait voté contre. LES |
 Dans le scrutin du 7 avril sur l'ensemble de l'ordre dus
 jour de M. Chapuis : FES
-M. Claude Rajon déclare qu'il a été porté par erreur 4
+M. Claude Rajon déclare qu'il a été porté par erreur
 comme n'ayant pas pris part au pote, et qu'en réalité il MM
-avait voté pour. M
+avait voté pour.
 M. Albert Sarraut déclare que, momentanément absent.
 de la salle des séances, il a été porté dans les scrutins du
-7 avril, comme s'étant abstenu sur la priorité en faveur 1
+7 avril, comme s'étant abstenu sur la priorité en faveur
 de l'ordre du jour de M. Chapuis et sur la seconde partie du
 même ordre du jour; comme ayant voté pour l'ensemble.
 du même ordre du jour, et que s'il avait été présent, ir
@@ -7194,7 +7190,7 @@ Henri Brisson, Jean Codet et Maujan. Il s'était abstenu sur à |
 avait voté pour la première partie de cet ordre du jouret ve |
 s'était abstenu sur la seconde partie ainsi que sur Ven-=
 
-; M. Mas, porté dans la séance du 7 avril comme s'élant 1
+; M. Mas, porté dans la séance du 7 avril comme s'élant
  abstenu sur la priorité en faveur de l'ordre du jourde a
 à MM . Jaurès, Henri Brisson, Jean Codet et Maujan, déclare
 qu'il était absent au moment duserutin et que, s'il avait été
@@ -7205,7 +7201,7 @@ qu'il était absent au moment duserutin et que, s'il avait été
 partie de l'ordre du jour de M. Chapuis, il aurait voté ”
 _ Rectifi cations portées au Journal officiel du jeudi ;
 … M. Peureux déclare qu'il avait été empêché d'assister à la ;
-| séance du 7 avril et que, s'il avait été présent, il se serait 7
+| séance du 7 avril et que, s'il avait été présent, il se serait
 | abstenu dans le scrutin sur la validation des opéra-
 —… tions électorales du deuxième arrondissement de Paris.
 « L'honorable membre déclare également qu'il aurait voté

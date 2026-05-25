@@ -114,7 +114,7 @@ surtout dans les comtés du Nord de l'Angleterre et en Écosse, atteint
 Cowes, Hilston Newford Road (Ile de Wight)
 
 Quoique ce soit vous qui me le demandiez, j'hésite
-m'immiscer dans vos affaires intérieures et à donner une k
+m'immiscer dans vos affaires intérieures et à donner une
 
 opinion sur des questions que nos frères de France sont
 
@@ -177,12 +177,12 @@ La Petite République du dimanche 29 octobre publiait ee
 cette réponse : ‘2
 Le chef le plus en vue du parti social-démocrate en Bavière. Dé-
 puté de Munich au Parlement allemand depuis une vingtaine d'années, il a été élu aussi député au Landtag bavaroïis aux élections de
-1893. Son talent d'organisateur et de tacticien parlementaire est re- » Ÿ
+1893. Son talent d'organisateur et de tacticien parlementaire est re- »
 connu par tous, même par ceux des socialistes allemands qui com- ”
 battent ses tendances modérées. Il est, en effet, à la tête de ce qu'on
 peut nommer l'aile droite du parti socialiste de l'Allemagne.
-Si je peux juger d'après les socialistes allemands, il n'y ra x
-aura des divergences d'opinion importantes qu'au sujet de 3;
+Si je peux juger d'après les socialistes allemands, il n'y ra
+aura des divergences d'opinion importantes qu'au sujet de
 votre deuxième question.
 Voici mon avis sur celle-ci. Comme pour beaucoup d'autres questions d'ordre pratique, il ne saurait y avoir de for- si
 mule fixe renfermant d'avance une solution pour tous les
@@ -190,7 +190,7 @@ cas. La politique n'est pas la mathématique. Elle est un art,
 où certaines thèses et règles générales basées sur l'expé-
 rience peuvent bien prétendre à une portée limitée, mais
 où aussi l'action simultanée des forces vives crée des situa- : ‘3e
-tions sans cesse changeantes dont quelques-unes seulement * v
+tions sans cesse changeantes dont quelques-unes seulement
 se ressemblent. C'est pourquoi votre question n'admet pas Wrz
 une réponse générale, mais seulement des réponses parti-
 culières selon les cas particuliers, quel que soit le désir de nov
@@ -202,7 +202,7 @@ bres socialistes d'un ministère bourgeois d'être obligés de
 prendre la responsabilité des actes qui sont étrangers
 l'esprit du socialisme. Mais, d'autre part, le nombre des so-
 cialistes qui croient encore à la théorie des catastrophes
-est en train de diminuer rapidement, tandis que la transfor- 1e
+est en train de diminuer rapidement, tandis que la transfor-
 mation organique de l'état social et la conquête du pouvoir
 politique par étapes successives /die stueckweise Eroberung ‘
 der politischen Macht) sont reconnues de plus en plus
@@ -245,17 +245,17 @@ socialistes français peuvent seuls porter à cet égard un jugement définitif,
 choses et des personnes : et leur vif sens politique saura À ‘à
 assurément voir juste. Quant à moi, observateur du dehors, ti
 qu'il me soit seulement permis de dire que je considérerais He
-déjà comme une justification suffisante de la tactique é
+déjà comme une justification suffisante de la tactique
 adoptée, et féliciterais de tout cœur les camarades français
 de leur succès, si la participation du citoyen Millerand au
 cabinet actuel contribuait à une solution favorable de la
-crise grave que traverse votre pays et qui inquiète tous les l
-amis du peuple français et de la liberté des peuples en $ j
+crise grave que traverse votre pays et qui inquiète tous les
+amis du peuple français et de la liberté des peuples en $
 
 En ce qui concerne votre première question, il est très
 heureux que l'on connaisse l'occasion qui l'a provoquée.
 Sinon, je ne crois pas que je l'aurais comprise.
-Quoi! le socialisme veut affranchir et humaniser le monde s
+Quoi! le socialisme veut affranchir et humaniser le monde
 et il ne devrait cependant pas intervenir, quand il s'agit
 de sauver la liberté politique et de défendre l'humanité?
 En vérité, si le principe de la lutte de classe nous forçait ‘
@@ -266,7 +266,7 @@ le socialisme ne serait jamais le mouvement englobant le
 monde et auquel appartient l'avenir, mais seulement une
 secte étroite et stérile, vite écartée par les flots bruissants
 du fleuve de vie. Mais en réalité le socialisme est très !
-éloigné d'une telle absurdité. x:
+éloigné d'une telle absurdité.
 Rien d'humain ne doit être étranger à la politique de la
 classe ouvrière, elle doit vivre toute la vie de la nation et
 mouvement dans toutes les questions qui agitent le pays. Fe
@@ -334,7 +334,7 @@ positions dans l'état actuel pour mieux mener sa lutte de ,
 classe, sa lutte contre la bourgeoisie et son gouvernement.
 
 Mais les socialistes ne peuvent pénétrer dans le gouvernement bourgeois que dans le cas où ils peuvent le conquérir tout entier en le transformant en un gouvernement
-de la classe ouvrière. Tout essai d'abandon de cette tactique d
+de la classe ouvrière. Tout essai d'abandon de cette tactique
 dans des conditions normales est nuisible au mouvement !
 prolétarien, le dégrade en l'abaissant au niveau d'un mouvement réformiste d'un caractère petit-bourgeois. (
 
@@ -343,7 +343,7 @@ tariat n'est pas encore mûr pour la prise définitive du pouvoir. La liberté, 
 sement menacées. Le gouvernement bourgeois ayant perdu
 tout crédit dans le pays est hors d'état de mener le peuple à ‘
 la bataille sans les représentants de la classe ouvrière. tu
-Alors, dans ce cas spécial, la participation de la classe ou- w
+Alors, dans ce cas spécial, la participation de la classe ou-
 vrière au gouvernement serait peut-être désirable pour une De:
 
 En tous cas, cette décision ne pourrait être prise par les
@@ -399,7 +399,7 @@ de Loubet contre les puissances réactionnaires militaires et
 cléricales, ne faisaient en cela que suivre la ligne historique,
 de même qu'en Italie les démocrates socialistes font agir le ,
 tiers-état contre la monarchie, du moment que celle-ci veut
-sacrifier les droits de la classe moyenne à ses intérêts dynastiques — une répétition de ce qui a eu lieu en France k
+sacrifier les droits de la classe moyenne à ses intérêts dynastiques — une répétition de ce qui a eu lieu en France
 sous le règne de Louis-Philippe.
 Le Kommunistische Manifest a prévu de longue date la
 nécessité de l'intervention du parti prolétaire dans les conflits bourgeois : « La bourgeoisie est continuellement en jo
@@ -460,9 +460,9 @@ prendre part à une agitation en vue d'un but humanitaire
 ferait dénaturer sa lutte grandiose jusqu'à devenir un : bi
 simple acte d'égoiïsme de classe, pareil à l'égoïsme de classe ‘
 de la bourgeoisie.
-Ce qui a fait jusqu'ici la gloire de la classe prolétaire, ù
-c'est que, dans tous les pays où elle se mélait aux questions 4 4
-publiques, elle luttait non seulement pour elle-même, mais ) 5
+Ce qui a fait jusqu'ici la gloire de la classe prolétaire,
+c'est que, dans tous les pays où elle se mélait aux questions
+publiques, elle luttait non seulement pour elle-même, mais )
 aussi pour cet idéal humanitaire qui, négligé par les grands
 de la terre, n'a jamais pu compter que sur l'appui des +48
 petits et des opprimés.
@@ -474,15 +474,15 @@ Le Nihil humani a me alienum puto doit être notre de- “.
 vise; et là où notre doctrine a le mérite de nous apprendre
 à garder une tête solide et un cerveau froid, malgré les
 entraînements du cœur, il peut y avoir des circonstances À À
-où nos sentiments les plus nobles, les plus élevés s'oppo- £ 8
+où nos sentiments les plus nobles, les plus élevés s'oppo- £
 sent si ardemment aux froides conclusions d'une politique
 qui ne voit que l'intérêt de classe, qu'en somme nous pouvons suivre en toute sécurité la voix instinctive de la nature, à
 qui dans un parti prolétarien a encore toute sa fraîcheur.
 La politique a pour base la science, mais n'est pas une “4
-science elle-même. Continuellement mêlée à des sentiments, 72
+science elle-même. Continuellement mêlée à des sentiments,
 des élans purement humains, elle ne peut être étroite- à
 ment renfermée dans le cadre de quelques formules dog- Pit
-matiques. Si on l'y force néanmoins, on sera bien souvent, F
+matiques. Si on l'y force néanmoins, on sera bien souvent,
 devant les surprises du moment, obligé de méconnaître la #.
 nature de l'homme, au lieu de tenir compte de toutes ses
 complications, de ses replis profonds, de ses beaux élans
@@ -491,7 +491,7 @@ notre parti dans l'affaire Dreyfus : ce qui remue un monde
 entier ne peut pas laisser insensible un des partis politiques en France. Si les antisémites veulent assassiner le “a
 juif; si des prêtres bénissent le crime judiciaire; si des gé-
 néraux aux éperons sonnants foulent aux pieds les droits
-de l'homme, l'humanité se réfugie sous l'égide des senti- 1,
+de l'homme, l'humanité se réfugie sous l'égide des senti-
 ments généreux du peuple. Si le parti prolétarien, quel que “
 
 soit son motif, reste insensible à sa voix, tous ceux à qui
@@ -541,7 +541,7 @@ de la classe opprimée dans sa marche ascendante vers le
 
 pouvoir, Le prolétariat est-il appelé à triompher à un moment donné d'un seul coup, sans avoir participé jusque-là
 en aucune manière à la direction des affaires d'État? Va-t-il
-prendre d'un jour à l'autre la place de la classe détrônée, f
+prendre d'un jour à l'autre la place de la classe détrônée,
 ou bien peut-on s'attendre à ce qu'une lente organisation, QE:
 gagnant de jour en jour en force et en puissance, jointe à la
 décadence intellectuelle, politique et morale de la bourgeoisie, oblige les éléments démocrates-socialistes à s'infiltrer
@@ -550,7 +550,7 @@ pour ainsi dire continuellement dans les organes publics ?
 Nous voyons bien ce qui arrive. Non seulement les repré- #U
 sentants de la classe ouvrière pénètrent de plus en plus dans
 les corps législatifs de l'État, de la province, de la commune,
-nous les voyons encore, comme maires, comme échevins, F
+nous les voyons encore, comme maires, comme échevins,
 entrer dans les collèges administratifs. Même il arrive que
 là où les fonctionnaires bourgeois sont élus par le peuple,
 comme en Suisse, ils remplissent des fonctions judiciaires
@@ -559,7 +559,7 @@ pouvoir s'accroît, plus le suffrage universel acquiert de si-
 gaification, plus la bourgeoisie sera obligée de céder en :
 partie son pouvoir au prolétariat. Le grand avantage d'un
 tel état de choses, vu la tâche du prolétariat dans la lutte
-des classes, est que non seulement les hommes, dont il aura ÿ
+des classes, est que non seulement les hommes, dont il aura
 si grand besoin à l'heure définitive de la victoire, feront
 leur apprentissage dans l'école de la pratique, mais que,
 grâce à un contact direct avec l'armée des employés et des
@@ -568,15 +568,15 @@ collaboration de ces éléments également nécessaires.
 Jusqu'à quel point cette participation du prolétariat s0o-
 cialiste au pouvoir devra s'étendre, ceci dépend selon moi
 entièrement du cours des circonstances. Un parti dont la
-lutte consiste à prendre part à tout ce qui touche aux inté- L
+lutte consiste à prendre part à tout ce qui touche aux inté-
 rêts politiques et économiques du peuple est par là même
 obligé de pénétrer partout où ses intérêts pourront être
-sauvegardés. Une grève sur ce terrain-là équivaudrait à une ÿ
+sauvegardés. Une grève sur ce terrain-là équivaudrait à une
 trahison. D'ailleurs, je ne puis m'imaginer pour quelle rai-
 son les conséquences naturelles de nos efforts devraient
 être enfermées dans de certaines limites. Il n'y a que ceux
 qui sont encore entichés des traditions soi-disant révolu-
-tionnaires du mouvement socialiste, dans un temps où il : d
+tionnaires du mouvement socialiste, dans un temps où il
 
 n'était encore qu'une secte agitatrice, qui peuvent raisonner de la sorte. Dans des périodes de troubles populaires,
 où on fait montre d'une force factice, au moyen de véhé-
@@ -710,7 +710,7 @@ tous, Ses discours au Reichstag sont toujours très remarqués par les
 coups adroits et décisifs qu'il porte à la réaction des Junkers et des
 
 Appartenant par sa situation à la classe des riches commerçants,
-il a épousé la cause ouvrière à laquelle il consacre une activité i
+il a épousé la cause ouvrière à laquelle il consacre une activité
 constante et extrêmement féconde.
 
 Vos questions du 29août m'offrent l'occasion voulue de vous
@@ -786,7 +786,7 @@ dire que dans la société bourgeoise le principe de la lutte
 de classes est radicalement et dans tous les cas opposé à la
 Recevez, chers camarades, des saluts fraternels de votre
 La Petite République du dimanche 31 décembre publiait ces deux réponses
-Le citoyen Belfort Bax est un des représentants les plus célèbres l
+Le citoyen Belfort Bax est un des représentants les plus célèbres
 de la Social Democratic Federation et un des théoriciens les plus en
 vue du socialisme international.
 Ayant poursuivi de longues études sur la morale et la philosophie,
@@ -823,7 +823,7 @@ peut concevoir toutes les doctrines et tous les principes,
 quelque vrais qu'ils soient, d'une façon tellement rigide et
 
 abstraite, qu'en fait, ils peuvent tous conduire à des
-erreurs. La vérité concrète ne se trouve que dans une synthèse, et cela est aussi vrai pour l'évolution historique que e
+erreurs. La vérité concrète ne se trouve que dans une synthèse, et cela est aussi vrai pour l'évolution historique que
 pour toute autre chose. Dans les limites de la lutte de
 classes, nous restons quand même des hommes, quoique
 plus ou moins modifiés par la lutte, et dans ce sens la citation très connue de Térence: Homo sum, etc., garde sa
@@ -831,7 +831,7 @@ plus ou moins modifiés par la lutte, et dans ce sens la citation très connue d
 La lutte de classes, quelle que soit sa puissance, ne suffit
 pas à la longue, n'arrive pas à nous dépouiller complètement de nos qualités humaines. Une participation dans
 
-des questions de ce genre ne peut être, dans certains cas, L
+des questions de ce genre ne peut être, dans certains cas,
 qu'utile au parti, elle ne peut nullement lui nuire.
 
 IL. — Pour ce qui est de la deuxième question, je dois d'une

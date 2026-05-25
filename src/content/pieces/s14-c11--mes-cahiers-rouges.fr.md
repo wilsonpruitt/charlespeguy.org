@@ -22,10 +22,10 @@ tution Barbet de la rue des Feuillantines, Moutard (1) et Catalan. (2) Moutard, 
 
 Protot me contait récemment, à la Bibliothèque nationale, les tribulations de Rogeard sous l'Empire. Chaque fois qu'éclatait une manifestation au Quartier Latin, Rogeard était sûr de voir arriver chez lui la
 
-*Combat* et au *Vengeur*, de Félix Pyat. Elu à la Commune le 16 avril, il refuse de siéger, alléguant qu'il n'a pas obtenu la majorité des suffrages. Echappe à la répression. Séjourne en Suisse, puis en Autriche, à Vienne. Proteste, à Vienne, (août 1873) contre l'expulsion de ses amis; doit quitter le territoire autrichien, se réfugie à Pest, d'où il revient en France à l'amnistie de 1880. Meurt à Paris en 1896. — Voir *Cahiers rouges*, III, page 311.
+*Combat* et au *Vengeur*, de Félix Pyat. Elu à la Commune le 16 avril, il refuse de siéger, alléguant qu'il n'a pas obtenu la majorité des suffrages. Echappe à la répression. Séjourne en Suisse, puis en Autriche, à Vienne. Proteste, à Vienne, (août 1873) contre l'expulsion de ses amis; doit quitter le territoire autrichien, se réfugie à Pest, d'où il revient en France à l'amnistie de 1880. Meurt à Paris en 1896. — Voir *Cahiers rouges*, III, page
 (1) Moutard (Théodore). Ingénieur des mines et mathématicien. Répétiteur, puis examinateur à l'Ecole Polytechnique. Professait, sous l'Empire, les mathématiques spéciales à Sainte-Barbe et à l'institution Barbet de la rue des Feuillantines (aujourd'hui disparue). Mort en 1901.
 (2) Catalan (Eugène). Mathématicien. Mêlé au mouvement républicain en 1848. Professait, sous l'Empire, à l'institution Barbet. Plus tard, doyen de l'Université de Liège (Belgique).
-(3) Despois (Eugène), l'auteur du *Vandalisme révolutionnaire* (1868) et des *Lettres et la Liberté* (1865). Mort en 1876. Voir Cahier I, page 9, et Cahier IV, pages 76 et 78.
+(3) Despois (Eugène), l'auteur du *Vandalisme révolutionnaire* (1868) et des *Lettres et la Liberté* (1865). Mort en 1876. Voir Cahier I, page 9, et Cahier IV, pages 76 et
 (4) Vacherot (Etienne), auteur de la *Démocratie* (1859). Maire du cinquième arrondissement après le 4 Septembre. Elu le 8 février 1871 à l'Assemblée nationale.
 
 police, qui bouleversait ses papiers, déjà dix fois explorés. Rogeard était conduit au Dépôt, où le bon Delacour allait le réclamer. Cela dura ainsi jusqu'à l'apparition des *Propos de Labienus,* en 65. Un coup de tonnerre. Rogeard était vengé.
@@ -34,7 +34,7 @@ Voici notre vieil ami. Rogeard a plus de cinquante ans. Il veut que nous, ses fi
 
 La première, datée de Hausen.
 
-                    Hausen, vendredi 12 avril 72.
+                    Hausen, vendredi 12 avril
 Votre bonne lettre d'hier m'a procuré, comme notre entrevue de Zürich, plusieurs heures très agréables, en m'apportant bien des souvenirs et réveillant bien des choses qui sommeillent en moi. Ici je dors enseveli dans un troisième dessous und, qui pis est, dans un troisième dessous allemand. Certainement, cher ami, je vous ferai les quelques pages que vous voulez bien me demander; (1) et cette demande n'est pas ce qui m'a fait le moins de plaisir dans votre lettre; il m'arrive si souvent de me croire mort que je suis tout surpris et tout aise de m'en-
 
 (1) A l'exemple de Vallès, que j'avais vu, pendant deux ans, (1869-70), préparer une *Bataille de Juin* (1848) qu'il n'écrivit jamais, je voulais écrire une *Bataille de Mai* (1871), pour laquelle j'avais demandé une préface à Rogeard. De ma *Bataille de Mai,* il ne parut que les deux premiers chapitres, dans le *Qui-Vive?* que faisait, en 1872, Vermersch, à Londres, et une table des matières, imprimée à Genève comme prospectus.
@@ -53,7 +53,7 @@ Autre lettre de Hausen. Avec quelques amis de Genève, nous avions bâti un proj
 
 (1) Rogeard avait collaboré à la rédaction d'une ou de plusieurs des premières affiches du Comité Central, immédiatement après le 18 Mars.
 
-                    Hausen, dimanche 16 juin 72.
+                    Hausen, dimanche 16 juin
 Je voulais répondre à vos deux dernières, et prévoyant longue la réponse, je l'ai ajournée à un moment de loisir, ainsi que l'assez longue correspondance que j'ai à mettre à jour. Je commence par votre projet de Revue dont je ne vous dirai que deux mots, espérant vous voir le mois prochain, soit ici, soit à Berne, où nous verrions Protot, soit à Genève, où je vous verrais tous. Je ne serai ni affirmatif, ni négatif, faute de compétence; je vous soumets seulement des doutes; il me rappelle que *L'Homme,* de Jersey, n'a pas réussi, que *La Libre Recherche,* de Bruxelles, n'a pas réussi, que le *Bulletin Français* n'a pas réussi; je ne parle pas de *La Rive Gauche.* (1) Je remarque en outre que vos colonnes ne sont pas solides, qu'il n'y a pas là de quoi soutenir l'édifice; parmi vos collaborateurs, vous n'attendez de quelques-uns que le nom sans la collaboration suivie; et quant à moi que vous comptez pour *colonne,* je ne pourrais être qu'un humble moellon, tout au plus. Je suis une réputation surfaite, et je n'ai pas à en rougir, puisque ce n'est pas moi qui me suis surfait, mais bien la réclame, je veux dire la *persécution bonapartiste* qui était une réclame en 1865. Je ne dis pas que pour cela j'en veuille à ce monsieur; il ne pouvait guère faire autrement; mais il ne m'en a pas moins créé une situation difficile, celle d'un homme à qui l'opinion demande plus qu'il ne peut donner; vous y avez été pris vous-même, mon cher Vuillaume; en me demandant de la copie, vous fourrez le doigt jusqu'au coude dans ma plaie; écrire est ma passion, écrire passablement serait mon ambition; le temps m'a toujours manqué, le *gagne-pain* m'a pris tout entier; et je n'ai
 
 (1) Rogeard cite ici divers journaux publiés, après le 2 Décembre, par la proscription. *La Rive Gauche,* de Longuet, avait publié ses *Propos de Labienus* (1865). Quand elle fut supprimée, Longuet tenta, sans succès, de la faire reparaître à Bruxelles.
@@ -87,7 +87,7 @@ A bientôt, cher ami, une lettre, puis, j'espère une entrevue à Berne, ou à G
 
 Rogeard quitte Hausen. Le voici à Vienne, d'où il m'envoie ce mot d'appel :
 
-    Vienne, VII Neubau, Zieglergasse, 2, 4me Stock, Thür, 25,
+    Vienne, VII Neubau, Zieglergasse, 2, 4me Stock, Thür,
 Je suis sur le pavé de *Vienne,* dans la jolie situation dans laquelle vous m'avez vu, en février 71, sur le pavé de Paris, et le *Vengeur* n'est plus là. Voici donc ce que je vous demande, à vous et à Sachs : 1° me trouver des *lettres d'introduction* pour Vienne, si vous connaissez quelqu'un qui ait des amis dans cette ville; 2° m'indiquer *un journal,* n'importe où, qui pourrait me prendre de la copie, si vous en connaissez; 3° m'envoyer *l'adresse de Sachs* et l'envoyer aussi à Elie Reclus, chez qui j'ai laissé, en partant, les deux volumes que Sachs m'avait prêtés. Dites-moi où en sont tous vos projets littéraires.
 
 Prière, pour cette fois, de répondre immédiatement.
@@ -128,7 +128,7 @@ La lettre qui suit n'est plus datée de Vienne. En août, le gouvernement autric
 
 faire sortir, il faudrait un nouvel arrêté d'expulsion. Il va se fixer à Pest, d'où il m'écrit.
 
-    Hongrie, Pest, II, Szechenyi promenade, 3, Ier St. Th. 8
+    Hongrie, Pest, II, Szechenyi promenade, 3, Ier St. Th.
                     (bei Frau Kaufmann).
 J'ai reçu à Vöslau votre lettre du 30 août, cette bonne lettre qui m'a fait tant de plaisir, au milieu de mes petites tribulations; car lorsqu'elle est venue, j'avais déjà l'expulsion avant le recours; maintenant, j'ai l'expulsion après le recours, je suis en règle, j'ai mes papiers, c'est-à-dire mon *exeat,* mon ordre impérial et royal de filer et de passer la frontière; je viens de m'amuser à le traduire très littéralement à votre intention. Ci-joint cette traduction, avec autorisation de la publier si bon vous semble et si quelque journal en veut. Je suis à Pest, attendant des leçons, après annonces faites et qui me coûtent très cher; si dans un mois les leçons ne venaient pas ou si avec elles venait une nouvelle expulsion, il me faudrait alors essayer de Londres que je redoute, parce que je ne sais guère que le fond de la langue dont se contentait Figaro, et cela ne saurait me suffire; et je voudrais bien n'avoir pas à apprendre tous les cinq ans une langue nouvelle.
 
@@ -145,7 +145,7 @@ Vite, vite, mon cher Vuillaume, envoyez-moi livres, nouvelles, et tout ce que vo
 
 J'ai un petit service à vous demander; si vous avez ma photographie, ou si vous pouvez vous la procurer, je vous prie de me l'envoyer tout de suite, pour un journal hongrois qui me la demande depuis un mois; je vous la rendrai avec la reproduction hongroise; je ne me soucie pas de poser, ni de donner 15 francs, ni de me laisser conduire chez le photographe par ce tant bienveillant journaliste. Écrivez-moi longuement; vos lettres comptent pour moi, depuis
 
-(1) De Gerando, petit-neveu du philosophe français. Voir, plus loin, page 34, lettre de Rogeard du 21 juin 77.
+(1) De Gerando, petit-neveu du philosophe français. Voir, plus loin, page 34, lettre de Rogeard du 21 juin
 
                     *lettres et témoignages*
 
@@ -168,7 +168,7 @@ A bientôt plus longuement.
 
 Je vous serre la main bien cordialement.
 
-                                        Pest, jeudi 7 mai 74.
+                                        Pest, jeudi 7 mai
 Reçu un volume (Beslay) et 3 brochures; merci. Je vous donnerai mon adresse à la campagne, dès que je la saurai; en attendant, vous pouvez écrire sous le couvert de M. de Gerando, aldunasor, 32, Pest.
 
 La cinquième chose à souhaiter pour faire des conférences quand on a déjà trouvé un local, un sujet, des livres et un habit, c'est le talent. Vous ne l'aviez donc pas deviné? ou si cela vous amuse, cruel ami, de me le faire dire? — J'espère cet été pouvoir enfin écrire quelques pages à publier en Suisse...
@@ -232,7 +232,6 @@ Protot, qui fut son confident de toute la vie, après avoir été son élève, y
 
                     1820-96
                         —
-                    1865
 
 (1) *La Fausse Amnistie,* par A. Rogeard, auteur des *Propos de Labienus,* 8 pages, Genève, 1879.
 
@@ -410,7 +409,7 @@ Albert Goullé, qui était, au moment de la fusillade, sur la place de l'Hôtel-
     La foule était agitée. Un lieutenant, Dumont, (2) secrétaire
 
 (1) Ce lieutenant d'artillerie de la légion Schœlcher, que ne nomment, ni Vaillant, ni Goullé, était le lieutenant Camille Treillard, (voir Cahier IV, page 91), fils de Treillard, qui fut sous la Commune directeur de l'Assistance publique — fusillé à l'entrée des troupes.
-(2) Voir Cahier VIII, page 53.
+(2) Voir Cahier VIII, page
 
 et ami de Flourens, se hissa sur les épaules de ses voisins pour escalader la grille. Les mobiles bretons regardaient, ébahis.
 
@@ -489,7 +488,7 @@ Une telle polémique ne laisse pas que d'ulcérer profondément ceux qui l'écha
     J'écarte les noms de Delécluze *(sic)* et de Jourdan, (3) tant à cause de leur animosité personnelle contre moi, que parce que nous ne devons pas permettre qu'aucun de nous puisse être attaqué d'une façon quelconque dans sa vie privée.
 
 (1) *La Révolution Démocratique et Sociale* du 30 décembre 1848.
-(2) Cité dans *Mélanges* de Proudhon, I, page 254.
+(2) Cité dans *Mélanges* de Proudhon, I, page
 (3) Jourdan, rédacteur du *Siècle.*
 
 La lettre est datée du 9 mai 1863. Elle a été publiée, l'an dernier, par M. Édouard Droz, professeur à l'Université de Besançon, dans un recueil de vingt-sept lettres inédites de Proudhon à Chaudey. (1)
@@ -677,7 +676,7 @@ Le 1er juin 1871, le journal *le Tricolore* (2) publie un récit de la mort de V
 
     Arrivé rue des Rosiers, l'état-major, ayant son quartier général dans cette rue, s'opposa à l'exécution... Il fallut donc, toujours suivi de cette foule augmentant à chaque pas, reprendre le chemin des Buttes Montmartre... Enfin, le voilà arrivé. On l'adosse au mur, et, pendant que l'officier, etc.
 
-(1) *Convulsions de Paris,* III, page 286.
+(1) *Convulsions de Paris,* III, page
 (2) *Le Tricolore.* Numéro 2. Bibliothèque Nationale. Lc2 3490.
 
                     *lettres et témoignages*
@@ -893,7 +892,7 @@ de Pindy, relative à l'incident de la porte de Vincennes? (1)
 
 — Oui — me dit Vaillant — et je proteste énergiquement contre le récit de Pindy. Je n'ai pas quitté un seul instant Delescluze dans cette après-midi du jeudi, sauf pour aller chercher à la mairie le laissez-passer de Ferré. Je n'ai été témoin d'aucun des incidents racontés par mon ancien collègue. Jamais Delescluze, avant son départ pour Vincennes, n'a proposé à Pindy de le remplacer comme délégué à la Guerre. Ce fut Varlin qui succéda à Delescluze. Le samedi, quand toute direction générale effective avait cessé, Varlin, brisé par la fatigue, remit, rue Haxo, dans la petite maison qui était devenue le centre de la défense, ses pouvoirs au colonel Parent (2) qui fit face avec courage aux difficultés suprêmes. Je n'ai vu Pindy, ni le jeudi à la mairie du onzième, ni rue Haxo, ni ailleurs. Je le vis pour la dernière fois, le mercredi matin, à l'Hôtel de Ville. Vers dix heures, il entra dans la salle où nous étions réunis, quelques membres de la Commune et du Comité de Salut public, et nous annonça qu'il faisait mettre le feu à l'Hôtel de Ville. Comme nous lui reprochions vivement, Eudes et moi, d'avoir pris une résolution si grave, et si désastreuse pour la défense, sans avoir consulté personne, il nous répondit qu'il n'y avait plus à revenir sur ce qui était déjà fait. L'incendie était tout préparé. Nous n'avions plus qu'à quitter l'Hôtel de Ville.
 
-(1) Voir Cahier VIII, page 171.
+(1) Voir Cahier VIII, page
 (2) Parent (Hippolyte), lieutenant-colonel, chef d'état-major du gouverneur de l'Hôtel de Ville, colonel Pindy, membre de la Commune.
 
 Le mercredi 24 mai 1871, Mégy, qui avait commandé le fort d'Issy, se plaçait, en face du mur de ronde, au premier rang du peloton de vingt hommes qui tirèrent sur les otages de la Roquette. (1)
@@ -968,12 +967,12 @@ Tous tressaillirent, car c'était le seul cri vraiment de circonstance, et chacu
 
 Comme tout était fini, les fédérés s'en allèrent, chacun à son affaire, contents d'avoir fusillé les ennemis mortels de la civilisation, suppôts de toutes les monarchies et abrutisseurs de toutes les générations.
 
-(1) Mégy confirme ce que j'ai soutenu, contre la version de Dacosta. Voir Cahier II, note V, page 227.
+(1) Mégy confirme ce que j'ai soutenu, contre la version de Dacosta. Voir Cahier II, note V, page
 (2) L'archevêque et M. Bonjean, minés par de douloureuses affections, affaiblis encore par la prison et par l'angoisse, étaient l'un et l'autre dans un état de santé très précaire.
 
 Aux Archives de la Seine. En feuilletant le dossier du 183e bataillon de la garde nationale, dont faisaient partie Édouard Moreau, le futur membre du Comité Central, et son cousin Charles de Beaufort, (1) fusillé place de la Roquette, le mercredi 24 mai 1871.
 
-Sur l'état nominatif des officiers, sous-officiers et gardes, composant l'effectif de l'état-major, à la date du 13 décembre 1870, figure Édouard Moreau, demeurant 10, rue de Rivoli, secrétaire du commandant (Boudin), avec cette mention : passé à la 3e compagnie de guerre, n° 181.
+Sur l'état nominatif des officiers, sous-officiers et gardes, composant l'effectif de l'état-major, à la date du 13 décembre 1870, figure Édouard Moreau, demeurant 10, rue de Rivoli, secrétaire du commandant (Boudin), avec cette mention : passé à la 3e compagnie de guerre, n°
 
 Le capitaine de cette 3e compagnie de guerre est Charles de Beaufort, (2) passage Saint-Antoine, 6, élu le 11 novembre 1870, par 104 voix sur 109 votants, d'après le procès-verbal de l'élection.
 
@@ -996,7 +995,7 @@ Il s'agit du 19 janvier 1871, où le 183e bataillon eut 8 tués et 30 blessés.
 
 Édouard Moreau a souvent ajouté à son nom, comme nous l'avons signalé précédemment, (1) le nom de Bauvière. Il s'appelait en réalité, comme en témoigne l'extrait de l'état civil qui nous a été récemment communiqué, Édouard-Auguste Moreau, né à Paris, arrondissement de l'ex-cinquième, le 16 juin 1838, fils de Pierre-Emmanuel Moreau et de Alexandrine-Clara de Bauvière. Quand il se maria, à Paris (mairie du sixième arrondissement), le 20 février 1868, avec Mlle de V., il habitait déjà 10, rue de Rivoli, et donnait comme profession : homme de lettres.
 
-(1) Cahier VIII, pages 139 et 143.
+(1) Cahier VIII, pages 139 et
 
                         *Conversation avec Protot*
 
@@ -1069,7 +1068,7 @@ Le soir, nous allons — avec Vallès — dans une brasserie de la rue des Grès
 
 *Mercredi.* Vallès est venu nous rejoindre avec une amie, M... Nous déjeunons, tous quatre, d'une omelette que je fais moi-même, avec des œufs laissés au Collège par l'économe
 
-(1) Édouard Roullier. Voir Cahier V, page 256.
+(1) Édouard Roullier. Voir Cahier V, page
 (2) Voir Cahier III, pages 135 et suivantes, pour le *Bataillon des Enfants du Père Duchêne* et son commandant, Gustave Maître.
 
 des Petits-Ménages... Midi et demie. Une explosion formidable... La fenêtre est comme aspirée... Les vitres tombent en fracas... Nous sortons. Sur la place, Lisbonne, qui vient de la rue Vavin... Il nous dit qu'il a fait sauter, pour protéger sa retraite, la poudrière du Luxembourg.
@@ -1244,7 +1243,7 @@ Il est environ cinq heures, quand un groupe de fédérés, drapeau blanc au bout
 
 Nous ne pouvons tout de même pas rester entre Paris et la barricade prussienne. Mon père profite de ce que les deux officiers supérieurs prussiens se tiennent près de nous pour leur expliquer — ils parlent français — que nous allons retrouver des amis à Joinville-le-Pont, et,
 
-(1) Il s'agit certainement ici de la démarche dont parle Arnold dans le récit qu'il en fit. Accompagné d'un parlementaire, Arnold sortit par la porte de Montreuil. Le parlementaire fut en effet reçu par un officier supérieur bavarois. Voir Cahier VII, page 99.
+(1) Il s'agit certainement ici de la démarche dont parle Arnold dans le récit qu'il en fit. Accompagné d'un parlementaire, Arnold sortit par la porte de Montreuil. Le parlementaire fut en effet reçu par un officier supérieur bavarois. Voir Cahier VII, page
 
                     *lettres et témoignages*
 
@@ -1274,7 +1273,7 @@ Les compagnies sont bientôt au complet. Les officiers et sous-officiers élus a
 
 La réunion eut lieu le 9 septembre, dans la salle des mariages de la mairie, sous la présidence de Ch. Limousin. Réunion curieuse, où des hommes, la
 
-(1) Greppo (Louis), représentant du peuple à la Constituante de 48. Ami de Proudhon. Député à l'Assemblée nationale de 71.
+(1) Greppo (Louis), représentant du peuple à la Constituante de 48. Ami de Proudhon. Député à l'Assemblée nationale de
 
 veille encore inconnus les uns aux autres, vont choisir des chefs, au hasard de la bonne mine ou des déclarations.
 
@@ -1342,7 +1341,7 @@ Le 3 avril, vers une heure après midi, s'engageait, entre les troupes de Versai
 
 Le 136e, dans son élan, déborda un instant ces deux bataillons et se trouva engagé en avant du village, à 300 mètres à peine d'un petit bois, à l'abri duquel les Versaillais dirigeaient sur lui une fusillade nourrie.
 
-Plusieurs gardes furent grièvement blessés. Parmi eux : Moura, cordonnier, deux balles de revolver dans la mâchoire, — Boyer, typographe, balle dans la cuisse, — Rondeau, cocher, balles dans la jambe, — Saunier, 51 ans, blessure grave à la poitrine, mort le 4, — Leffern, typographe, blessure grave à l'abdomen, mort le 4.
+Plusieurs gardes furent grièvement blessés. Parmi eux : Moura, cordonnier, deux balles de revolver dans la mâchoire, — Boyer, typographe, balle dans la cuisse, — Rondeau, cocher, balles dans la jambe, — Saunier, 51 ans, blessure grave à la poitrine, mort le 4, — Leffern, typographe, blessure grave à l'abdomen, mort le
 
 Tous les blessés qui furent transportés au plateau de Châtillon, furent faits prisonniers, le lendemain matin, par les Versaillais, et conduits à l'hôpital militaire de Versailles. Plusieurs succombèrent en cours de route.
 
@@ -1350,7 +1349,7 @@ D'autres blessés du 136e, moins grièvement atteints, rentrèrent à Paris le s
 
 A six heures du soir, l'aide-major Jules Ducrocq, (1) aidé
 
-(1) Le brave petit Ducrocq, que nous appelions tous « le Général ». Voir Cahier V, page 223, et Cahier VII, page 35.
+(1) Le brave petit Ducrocq, que nous appelions tous « le Général ». Voir Cahier V, page 223, et Cahier VII, page
 
 du citoyen Béguin, (1) ramenaient le dernier blessé sur le plateau de Châtillon.
 
@@ -1406,20 +1405,20 @@ L'histoire des bataillons de garde nationale du Siège et de la Commune n'est pa
 
 NOTE *appelée à la page 74.* — (1) *Le Bien Public,* fondé le 5 mars 1871 par Henri Vrignault. Supprimé (19 avril) par la Commune. Reparaît à l'entrée des troupes de Versailles.
 
-DU MÊME AUTEUR en vente à la *librairie des cahiers*  9
-MAXIME VUILLAUME. — mes cahiers rouges...            13
-    I. — Fac-simile de la lettre, inédite, écrite à Jules Ferry par le capitaine Gourlaouen. Lettre communiquée par Mme veuve Gourlaouen.             43
+DU MÊME AUTEUR en vente à la *librairie des cahiers*
+MAXIME VUILLAUME. — mes cahiers rouges...
+    I. — Fac-simile de la lettre, inédite, écrite à Jules Ferry par le capitaine Gourlaouen. Lettre communiquée par Mme veuve Gourlaouen.
 
         *onzième cahier*                *de la quatorzième série*
 
-    II. — Le capitaine Arthur Gourlaouen, commandant la 2e compagnie du 3e bataillon des Mobiles du Finistère, qui commanda le feu sur la place de l'Hôtel-de-Ville, le 22 janvier 1871. Photographie inédite, communiquée par Mme veuve Gourlaouen.          63
+    II. — Le capitaine Arthur Gourlaouen, commandant la 2e compagnie du 3e bataillon des Mobiles du Finistère, qui commanda le feu sur la place de l'Hôtel-de-Ville, le 22 janvier 1871. Photographie inédite, communiquée par Mme veuve Gourlaouen.
 
-    Comment on formait un bataillon                  129
+    Comment on formait un bataillon
 
         *onzième cahier*                *de la quatorzième série*
 
-INDEX *alphabétique général* des notices biographiques individuelles                                    145
-INDEX ALPHABÉTIQUE GÉNÉRAL *des noms propres cités*  147
+INDEX *alphabétique général* des notices biographiques individuelles
+INDEX ALPHABÉTIQUE GÉNÉRAL *des noms propres cités*
 
             Nous avons donné le bon à tirer après corrections
             pour dix-huit cents exemplaires de ce onzième cahier

@@ -30,7 +30,7 @@ nouvelle de librairie et d'édition.
 Ce Coltineur débile ne réussit pas beaucoup auprès
 de certains scientifiques et de plusieurs hommes sé-
 rieux. Pourquoi, nous en causerons plus tard, quand tu
-auras lu /a lumière. Nous essaierons alors de savoir si qÙ k
+auras lu /a lumière. Nous essaierons alors de savoir si qÙ
 
 ces hommes sérieux, scientifiques et difficiles avaient
 raison ou tort. Je crois qu'ils n'avaient pas raison. Mais
@@ -68,7 +68,7 @@ narration n'était pas entrée dans ma mémoire profonde.
 
 — Cela n'est pas étonnant, mon ami.
 
-— Cela n'est pas étonnant. Les concours et les exa- L
+— Cela n'est pas étonnant. Les concours et les exa-
 mens que nous devons subir et où nous contribuons
 envenimer l'antique émulation, toutes les rivalités d'en-
 
@@ -264,7 +264,7 @@ Reminicenses of Athens and Morea, et Sir Gardner
 
 Wilkinson, Dalmatia and Montenegro, et les ordon-
 
-nances d'Édouard premier d'Angleterre, et Caïn, chassé ÿ
+nances d'Édouard premier d'Angleterre, et Caïn, chassé
 
 de son clan après le meurtre d'Abel, dans la Genèse
 Gv, 13, 14). Je passe l'Australien, et Fraser; et les
@@ -459,7 +459,7 @@ ment et le plus sûrement.
 vois quelques heures tous les deux ou trois ans, quand
 il passe à Paris. Car c'est aussi un provincial. Mon ami
 est prêtre.
-— Vous avez un ami qui est prêtre catholique ? i
+— Vous avez un ami qui est prêtre catholique ?
 — J'ai un ami qui est devenu prêtre catholique. Il est
 resté mon ami. C'est une amitié qui, pour aujourd'hui,
 ne vous regarde pas. Si j'étais resté catholique, sans
@@ -566,7 +566,7 @@ assez. Les saints ont leur empire, leur éclat, leur
 victoire, leur lustre, et n'ont nul besoin des grandeurs : À
 charnelles ou spirituelles, où elles n'ont nul rapport,
 car elles n'y ajoutent ni ôtent. Ils sont vus de Dieu
-et des anges, et non des corps, ni des esprits curieux : u
+et des anges, et non des corps, ni des esprits curieux
 Dieu leur suffit. » Archimède, sans éclat, serait en même vénération.
 Il n'a pas donné des batailles pour les yeux, mais il a
 fourni à tous les esprits ses inventions. Oh! qu'il a
@@ -579,7 +579,7 @@ Oh ! qu'il est venu en grande pompe et en une prodigieuse magnificence, aux yeux
 
 « Nous connaissons la vérité, non seulement par la
 raison, mais encore par le cœur. »
-« Ceux que nous voyons chrétiens sans la connais- b
+« Ceux que nous voyons chrétiens sans la connais-
 sance des prophéties et des preuves ne laissent pas d'en ji
 juger aussi bien que ceux qui ont cette connaissance.
 Ils en jugent par le cœur comme les autres en jugent
@@ -594,7 +594,7 @@ Pascal. Vous voyez que Pascal ne l'ignorait pas.
 déplacées. Mais je connais à présent beaucoup d'hommes
 et beaucoup de citoyens : Ceux que nous voyons
 socialistes sans la connaissance des prophéties et des
-preuves ne laissent pas d'en juger aussi bien que ceux l
+preuves ne laissent pas d'en juger aussi bien que ceux
 qui ont cette connaissance. Ils en jugent par le cœur,
 comme les autres en jugent par l'esprit. C'est la solidarité même qui les incline à croire, et ainsi ils sont
 très efficacement persuadés.
@@ -620,7 +620,7 @@ voulue, ainsi connue, ainsi exercée, ainsi profonde et
 libre, la solidarité socialiste jaillit fréquemment au cœur
 des humbles et des pauvres, au cœur des ignorants.
 — C'est bien là ce que j'entendais : nous avons nos
-saints et nous avons nos docteurs. k
+saints et nous avons nos docteurs.
 — Mais nous ne devons pas négliger pour cela le
 raisonnement, le travail patient et le savoir. Il y a des
 saints qui sont des docteurs, il y a eu des saints parmi ed
@@ -632,7 +632,7 @@ ne pouvons la donner que par raisonnement, en attendant que Dieu la leur donne p
 sans quoi la foi n'est qu'humaine, et inutile pour le
 — Je vous entends comme il convient. ,
 « Il eût été inutile à Archimède de faire le prince dans
-ses livres de géométrie, quoiqu'il le fat. Il eût été inutile ) e
+ses livres de géométrie, quoiqu'il le fat. Il eût été inutile )
 à notre Seigneur JÉsus-Curisr, pour éclater dans son
 règne de sainteté, de venir en roi : mais qu'il est bien
 venu avec l'éclat de son ordre! » Il est bien ridicule de se scandaliser de la bassesse
@@ -686,9 +686,9 @@ de juste et beaucoup de convenable fut dit avant nous
 mieux que nous ne le saurions dire.
 — Ce n'est pas moi, mon ami, qui vous en ferai un
 reproche. Moi non plus je ne cours pas après le bizarre
-comme tel. Mais quand le bizarre est juste, vrai, conve- j;
+comme tel. Mais quand le bizarre est juste, vrai, conve-
 nable, harmonieux, j'accueille le bizarre et même je le
-recherche; et quand c'est le connu, le banal qui est juste, 4
+recherche; et quand c'est le connu, le banal qui est juste,
 vrai, convenable, harmonieux, j'accueille ce banal que
 je n'ai pas eu à chercher. Je vous disais seulement que
 le passage que vous m'avez cité est le plus connu. La
@@ -698,16 +698,16 @@ les bons examinateurs l'ont souvent donné à développer
 au baccalauréat : Développer cette pensée de Pascal
 L'homme n'est qu'un roseau, le plus faible de la !
 nature, mais c'est un roseau pensant. Alors il fallait
-redire en six pages de mauvais français tout ce que k
+redire en six pages de mauvais français tout ce que
 le grand Blaise avait si bien dit en douze lignes.
 Cet exercice conférait l'entrée à l'apprentissage des
-arts libéraux, Du baccalauréat il remontait à la licence, dispensait ainsi du service militaire pour deux 4.
+arts libéraux, Du baccalauréat il remontait à la licence, dispensait ainsi du service militaire pour deux
 années, conférait l'entrée universitaire et le droit ofli-
 ciel d'enseigner. Je ne suis pas assuré qu'il ne soit
-remonté plus haut encore, jusqu'à l'auguste agréga- x
+remonté plus haut encore, jusqu'à l'auguste agréga-
 tion, où les bons se distinguent décidément des mau-
 vais. Provisoirement écartés de ces grandeurs, mon
-ami, nous n'avons pas à développer cette pensée de ÿ
+ami, nous n'avons pas à développer cette pensée de
 Pascal. Nous remarquerons seulement qu'elle ne porte
 
 que sur la distance du premier au deuxième ordre,
@@ -742,18 +742,18 @@ solidarité même et ne peut remplacer le sentiment de la ji
 — Nous en causerons, mon ami, quand nous cause- je
 rons de l'enseignement : car la fréquente et heureuse
 introduction de la science à la solidarité, mais parfois
-l'incommunication de la connaissance à l'action, cette ÿ
+l'incommunication de la connaissance à l'action, cette
 contrariété réside au cœur de lenseignement et se
 manifeste surtout au cœur de l'enseignement. Pascal
 avait vivement et profondément senti quel saut il faut
 faire, au moins en théorie, à qui veut passer du deuxième an
-ordre au troisième, aller de la connaissance à l'action, k
+ordre au troisième, aller de la connaissance à l'action,
 qui est la sainteté humaine, Il avait ressenti d'autant )
-plus proprement quel était l'écart intermédiaire qu'il d
+plus proprement quel était l'écart intermédiaire qu'il
 avait été lui-même, et qu'il était demeuré quand même
 un géomètre, ayant abandonné bien plutôt la matière
 que la méthode et que le sens de son ancienne géomé-
-trie. Et c'est ici que nous nous retrouvons. Comme il F8
+trie. Et c'est ici que nous nous retrouvons. Comme il
 demeura ce que nous nommons un mathématicien dans
 l'exercice rigoureusement exact de la charité, ainsi et
 sans doute involontairement il demeurait un arithmé-
@@ -763,7 +763,7 @@ plus ou moins, qu'il en voulût ou qu'il n'en voulût pas.
 Évidemment il considérait son estomac comme une
 simple machine, et non pas comme un organe, c'est-à- ‘
 dire qu'il ne le considérait pas comme une machine
-vivante, pièce d'un vivant, d'une plus grande machine f
+vivante, pièce d'un vivant, d'une plus grande machine
 
 vivante. À conférer avec l'anatomie et la physiologie
 
@@ -822,7 +822,7 @@ veulent bien nous lire patiemment.
 qui sont simples, tous les événements simples, qui sont
 assez nombreux, et tous les devoirs simples, qui sont
 beaucoup plus nombreux. J'admets en particulier que
-l'on essaye d'établir des formules pour la pratique, pour i
+l'on essaye d'établir des formules pour la pratique, pour
 la morale. Mais comment formuler toutes les nuances
 que nous avons tâché de respecter; comment formuler
 toutes les complexités, tous les rebroussements, toutes
@@ -905,26 +905,26 @@ l'heure de la mort. Mais beaucoup de chrétiens sont
 présomptueux. D'ailleurs une certaine épouvante, en
 même temps qu'elle veut échapper à la mort, peut affai-
 blir le malade jusqu'à le livrer inerte, au lieu qu'une
-certaine sécurité, en même temps qu'elle désire la mort, DO: ÿ
-peut réconforter le malade et contribuer à son rétablis- s k
-sement. Vous voyez comme tout cela est toujours compliqué.Ily a toujours des croisements et des bifurcations. k
+certaine sécurité, en même temps qu'elle désire la mort, DO:
+peut réconforter le malade et contribuer à son rétablis-
+sement. Vous voyez comme tout cela est toujours compliqué.Ily a toujours des croisements et des bifurcations.
 — Il y a toujours des croisements et des bifurcations
 dans nos passions et dans nos sentiments. Mais il me :
 paraît incontestable que le christianisme est en parti- LR
 culier compliqué. Il embrasse tant de contradictions
-intérieures ou introduites qu'il peut de soi donner ré- i
-ponse à tout. Il embrasse presque tous les excès, et È f
+intérieures ou introduites qu'il peut de soi donner ré-
+ponse à tout. Il embrasse presque tous les excès, et
 ainsi les excès qui donnent réponse aux excès con- F Re
 traires, et il enveloppe aussi les tempéraments, qui
 donnent réponse à tous les excès, et il embrassait les
 excès, qui donnent réponse même à l'excès du tempé-
 rament. Il paraît à première vue aussi compliqué, aussi Ÿÿ
 riche que la vie. Et c'est pour cela qu'il paraît souvent \4
-se suflire à lui-même. Il ne paraît se suffire à lui-même, 4
+se suflire à lui-même. Il ne paraît se suffire à lui-même,
 citoyen, que par l'insuflisance de son exigence. Beau- )
-coup d'hommes se sont imaginé qu'il était toute une « 4
+coup d'hommes se sont imaginé qu'il était toute une «
 vie. Mais à peine est-il tout un monde. Et il n'est qu'un ‘#4
-semblant de la vie, une image grossière, une étrange Ÿ
+semblant de la vie, une image grossière, une étrange
 combinaison d'infini déraisonnable et de vie assez ma- à
 lade. J'irai jusqu'à dire qu'il est une contrefaçon, une
 malfaçon de la vie. Sous prétexte que ce qui n'est pas
@@ -966,9 +966,9 @@ nous est le plus étranger en elle, et je dirai le mot,ce
 qui nous est le plus odieux, ce qui est barbare, ce à Fe
 quoi nous ne consentirons jamais, ce qui a hanté les
 chrétiens les meilleurs, ce pour quoi les chrétiens les
-meilleurs se sont évadés, ou silencieusement détournés, f
+meilleurs se sont évadés, ou silencieusement détournés,
 mon maître, c'est cela : cette étrange combinaison de
-la vie et de la mort que nous nommons la damnation, 14
+la vie et de la mort que nous nommons la damnation,
 cet étrange renforcement de la présence par l'absence He
 et renfoncement de tout par l'éternité. Ne consentira
 jamais à cela tout homme qui a reçu en partage, ou qui
@@ -982,10 +982,10 @@ Debout ! les forçats de la faim. ds
 
 tout à fait ainsi, et sans nous laisser conduire aux seuls
 mots, mais en nous modelant sur la réalité, nous sommes solidaires des damnés éternels. Nous n'admettons
-pas qu'il y ait des hommes qui soient traités inhumai- É
+pas qu'il y ait des hommes qui soient traités inhumai-
 nement. Nous n'admettons pas qu'il y ait des citoyens 5 ee:
 qui soient traités inciviquement. Nous n'admettons pas e”
-qu'il y ait des hommes qui soient repoussés du seuil q
+qu'il y ait des hommes qui soient repoussés du seuil
 d'aucune cité. Là est le profond mouvement dont nous
 sommes animés, ce grand mouvement d'universalité qui gd
 anime la morale kantienne et qui nous anime en nos
@@ -1025,7 +1025,7 @@ croyais avoir. Il n'y en avait pas. ‘134
 — Je vous demande pardon, docteur, d'avoir été ainsi
 présomptueux. Je croyais bien avoir un Sophocle. Je
 me rappelle celui que j'avais au collège, un vieux bouquin mince cartonné en papier marbré, une vieille et we
-mauvaise édition que je lus passionnément. Depuis j'ai Û 100
+mauvaise édition que je lus passionnément. Depuis j'ai
 un souvenir si présent du texte grec, une représentation E ‘+4
 si nette que je croyais avoir le texte même sur quelque
 planche de ma bibliothèque. 5°
@@ -1036,17 +1036,17 @@ vous irez à Paris vous achèterez pour quelques sous une 110 nt,
 — Je n'y manquerai pas. Ne confondons pas, docteur: ‘20
 avoir une représentation fidèle d'une statue ou d'un WU ”
 texte, avec : pouvoir les reproduire. Ce sont là deux
-opérations distinctes. Les identifier supposerait que la 4 F4
+opérations distinctes. Les identifier supposerait que la
 représentation d'une statue est une petite statue et que
-la représentation d'un texte est un petit texte. Beaucoup v° w
+la représentation d'un texte est un petit texte. Beaucoup v°
 d'anciens se le sont représenté communément. Mais
-nous avons renoncé à ces psychologies un peu enfan- 1 7ER
+nous avons renoncé à ces psychologies un peu enfan-
 tines. Souvent je préfère la représentation que j'ai à ÿ. te
 lobjet lui-même, ce qui revient à dire que je préfère la 2120
 représentation que j'ai dans ma mémoire, l'image où ; .
 tous mes souvenirs ont travaillé, à la nouvelle pré- ! x 1800
 sentation que j'aurais. Mais si vous préférez les textes, 1794
-j'achèterai un petit Sophocle. La première fois que j'irai fé # ÿ
+j'achèterai un petit Sophocle. La première fois que j'irai fé #
 à Paris, j'irai en acheter un à la Société nouvelle de
 librairie et d'édition, 17, rue Cujas.
 
@@ -1235,7 +1235,7 @@ plus commodément qu'il est grand et fort, haut en ?
 épaules, tandis que je suis petit et bas. Il est de son
 — Ouvrier fumiste. Comme le nom l'indique, il travaille à tous les appareils qui produisent de la fumée,
 aux cheminées, poêles, fourneaux et calorifères. II ne us
-vient nullement à Paris, comme un lecteur astucieux l
+vient nullement à Paris, comme un lecteur astucieux
 pourrait l'en soupçonner faussement, pour introduire
 quelque variété en nos débats. Car nous n'avons que
 faire de nous varier, docteur? — Nous ne causons
@@ -1258,7 +1258,7 @@ aime à voir par lui-même. Il devait arriver cette semaine.
 — Justement. Mon cousin prétend que pour bien voir
 ces machines-là il faut les voir avant qu'elles aient com-
 mencé. Une idée à lui.
-— Comment serait-il entré? T0
+— Comment serait-il entré?
 — Il est des accommodements. Quelque camarade en
 fumisterie lui aurait prêté sa carte d'exposant. Mon
 cousin comptait venir cette semaine. Il escomptait l'adoucissement habituel de la température en cette saison.
@@ -1311,7 +1311,7 @@ classé. Il vient me demander compte.
 — Me demander compte. Mon cousin est, vous le
 pensez bien, membre — et membre très actif — du
 
-Groupe d'études sociales d'Orléans, adhérent au Parti l
+Groupe d'études sociales d'Orléans, adhérent au Parti
 ouvrier français. Un vote régulier du groupe, auquel
 mon cousin avait pris part, m'avait institué délégué de
 ce groupe au futur ancien Congrès général des Organi-
@@ -1336,13 +1336,13 @@ Le docteur en allé revint sur ses pas
 n'y pensais plus. Il faut que je le rende avant les vacances de Pâques à la bibliothèque où je l'ai emprunté. .
 Ce sont les Provinciales. Quand votre cousin vous de-
 mandera compte, vous pourrez lui faire quelques citations intéressantes
-« Et si la curiosité me prenait de savoir si ces propositions sont dans Jansénius, son livre n'est pas si h
+« Et si la curiosité me prenait de savoir si ces propositions sont dans Jansénius, son livre n'est pas si
 rare, ni si gros, que je ne le pusse lire tout entier pour
 m'en éclaircir, sans en consulter la Sorbonne. »
-— Ne croyez pas, docteur, que mon grand cousin ni k
+— Ne croyez pas, docteur, que mon grand cousin ni
 ses camarades entendent ces allusions.
 — S'il est ainsi que vous me l'avez dit, je suis assuré
-qu'il entendra au moins ce qui suit : ï
+qu'il entendra au moins ce qui suit
 Il n'y eut jamais de jugement moins juridique, et
 tous les statuts de la Faculté de théologie y furent
 violés. On donna pour commissaires à M. Arnauld ses
@@ -1359,7 +1359,7 @@ c'est-à-dire une horloge de sable, qui était la mesure de
 ce temps; invention non moins odieuse en de pareilles
 occasions que honteuse dans son origine, et qui, au rapport du cardinal Palavicin, ayant été proposée au concile de Trente par quelques-uns, fut rejetée par tout le
 concile. Enfin, dans le dessein d'ôter entièrement la
-liberté des suffrages, le chancelier Séguier, malgré son f
+liberté des suffrages, le chancelier Séguier, malgré son
 grand âge et ses incommodités, eut ordre d'assister
 toutes ces assemblées.
 Près de quatre-vingts des plus célèbres docteurs,
@@ -1393,23 +1393,23 @@ v Ë ment et le pape étaient d'accord, on ne tenait pas
 
 compte de la règle faite contre les moines.
 La Petite République du dimanche 15 octobre publiait s a!
-du Comité d'entente la circulaire préparatoire au "0 ï
+du Comité d'entente la circulaire préparatoire au "0
 Congrès général des Organisations Socialistes Fran- ; Re
 çaises. Cette circulaire de convocation est reproduite à fs
 la page v du Compte rendu sténographique officiel.
 La Petite République du dimanche 22 octobre publiait
 la note suivante : (TER
-Demande a été faite par les délégués du P. O. S. R. de ÿ3 73
+Demande a été faite par les délégués du P. O. S. R. de
 l'inscription au procès-verbal presse du vote contraire à
 l'article 4 du titre B de la circulaire d'invitation au Congrès, ris
-émis par eux à la séance du comité d'entente du 12 octobre. ù 3 k
+émis par eux à la séance du comité d'entente du 12 octobre.
 Néanmoins les délégués du P. O. S. R. ont avec l'unanimité
 des délégués des autres organisations voté l'ensemble de la À LIRE
 circulaire afin de ne pas porter entrave à la réunion du
 La Petite République du vendredi 17; novembre publiait
 la note et la communication suivantes : Ah
 Nous recevons de l'Agglomération bordelaise du Parti
-ouvrier français le document suivant que nous nous em- # e.
+ouvrier français le document suivant que nous nous em- #
 
 pressons d'insérer. Sur la question de l'unité socialiste il
 nous semble qu'on peut sans péril aller dès maintenant un
@@ -1444,16 +1444,16 @@ Si l'adhésion formelle à ce principe fondamental déter-
 mine positivement l'objectif que les socialistes ont le devoir
 primordial de ne jamais perdre ni laisser perdre de vue en
 aucun cas, il ne s'ensuit pas nécessairement que la lutte
-des classes, elle-même, dans ses phases multiples et succes- k
+des classes, elle-même, dans ses phases multiples et succes-
 sives, soit réduite à une forme unique et à une méthode
 immuable. Plus logiquement, on peut penser qu'elle doit
 être adaptée aux conditions successives de milieu et de circonstances, pour sa plus grande eflicacité. .
-Dans le milieu présent et dans les conditions où fonc- ï
+Dans le milieu présent et dans les conditions où fonc-
 tionnent les pouvoirs publics en France par le mécanisme
 actuel du suffrage universel, il est logique d'admettre que
-l'introduction constante et incessante des militants socia- x:
+l'introduction constante et incessante des militants socia-
 listes dans tous les pouvoirs publics sans distinction —
-communaux, départementaux, législatifs ou gouvernemen- F
+communaux, départementaux, législatifs ou gouvernemen-
 taux, — puisse toujours être avantageuse pour la meilleure ‘à
 utilisation de ces pouvoirs au profit de la lutte des classes
 et du mouvement socialiste, soit en atténuant la résistance
@@ -1463,12 +1463,12 @@ encourager le prolétariat dans sa lutte contre la société
 Ce qui importe dans tous les cas, c'est que cette introduction des socialistes dans les pouvoirs publics soit entourée
 de conditions telles qu'elle ne puisse dépendre de la seule
 volonté des hommes en dehors de leur parti, et que tout
-militant détaché dans l'un quelconque des pouvoirs publics s
+militant détaché dans l'un quelconque des pouvoirs publics
 demeure toujours responsable de sa conduite et de ses
 actes devant le parti socialiste, dans des formes à déterminer.
 b}) Il doit être entendu par tous, une fois pour toutes, que
-la conquête des pouvoirs publics n'est pas le but de l'action k
-socialiste, mais seulement un moyen de mettre le parti en 3 10
+la conquête des pouvoirs publics n'est pas le but de l'action
+socialiste, mais seulement un moyen de mettre le parti en
 puissance de réaliser la transformation sociale qui est sa
 Dans le milieu actuel, il est généralement admis que la
 possession du pouvoir est l'unique moyen pratique et infaillible permettant de réaliser cette transformation. Pour la
@@ -1519,7 +1519,7 @@ un devoir au parti socialiste d'intervenir dans les luttes
 bourgeoises en se portant du côté où est le danger le plus
 
 L'affaire Dreyfus avait déterminé une de ces circonstances
-tragiques où le soulèvement de toutes les forces de réaction Ÿ
+tragiques où le soulèvement de toutes les forces de réaction
 coalisées pouvait mettre en péril les libertés acquises par 1]
 la société démocratique et laïque issue de la Révolution
 française et des révolutions successives, et la République
@@ -1594,7 +1594,7 @@ les résolutions du congrès sur les questions à l'ordre
 du jour; et, aux annexes : la liste par départements et
 organisations des groupes représentés au congrès; les
 votes de la commission de résolution, indiquant les
-votes nominatifs des commissaires; les votes du congrès, indiquant les votes nominatifs des délégués; un ÿ
+votes nominatifs des commissaires; les votes du congrès, indiquant les votes nominatifs des délégués; un
 index des matières et un index des orateurs. (1)
 Après le compte rendu de la deuxième séance de la
 troisième journée, mardi 5 décembre, page 210, on doit,
@@ -1638,7 +1638,7 @@ ont demandé que la commission soit saisie de tous les projets : et les nombreux
 suivent se sont associés à cette demande par la protesta- à
 Comme on le voit, ceux qui veulent ôter au Congrès le
 sang-froid nécessaire et le précipiter dans les pires aventures jouent un jeu aussi dangereux pour eux-mêmes que
-pour le socialisme. k
+pour le socialisme.
 Le puissant esprit d'unité socialiste et de loyauté qui
 anime l'immense majorité des délégués saura déjouer ces
 manœuvres : elles se retourneront avec une force terrible

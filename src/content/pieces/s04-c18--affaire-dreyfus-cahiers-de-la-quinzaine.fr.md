@@ -18,19 +18,19 @@ lundi 6 et du mardi 7 avril 1903. J'avais commencé de
 l'écrire en même temps que j'envoyais aux imprimeurs
 la copie du cahier. Mais l'établissement industriel d'un |
 aussi gros Cahier, — 268 pages, — la correction des
-épreuves et le collationnement des textes m'empè- 4
-chèrent de continuer mon avertissement. D'ailleurs, il 1e
+épreuves et le collationnement des textes m'empè-
+chèrent de continuer mon avertissement. D'ailleurs, il
 vaut mieux que le commentaire ne paraisse pas en
-même temps et en même lieu que le texte; il est bon ÿ
+même temps et en même lieu que le texte; il est bon
 que le texte paraisse libre de tout commentaire, que |
-le texte paraisse quelque part et que le commen- ; ï
+le texte paraisse quelque part et que le commen-
 taire paraïsse quelque autre part après; nos abonnés |
 sont des hommes libres, qui savent lire un texte, et se à
 former eux-mêmes, librement, une opinion, personnelle ; .
 nous avons toujours évité rigoureusement, dans ces y
 cahiers, ce qu'on nomme communément de la péda- (4
-gogie et qui est devenu vraiment une des formes les ÿ
-plus dangereuses de l'universelle démagogie; enseigner 4
+gogie et qui est devenu vraiment une des formes les
+plus dangereuses de l'universelle démagogie; enseigner
 à lire, telle serait la seule et la véritable fin d'un (a
 ki enseignement bien entendu ; que le lecteur sache lire, (?
 & et tout est sauvé; rien ne vaut la lecture pure d'un (0e
@@ -45,7 +45,7 @@ Pé ; ordinaire. Enfin est-il pas sage, et n'est-il pas usuel, .
 LA depuis! que la politique a recouvré sur la morale au
 moins tont ÿé terrain qu'elle en avait perdu, qu'un
 | avertissement, comme son nom lPindique, vienne en retard ? N'est-ce pas le triste et le sévère usage, la grise
-e habitude. Reconnaissons la coutume. Suivons le nouveau protocole. Et tous nos avertissements ne sont-ils 4
+e habitude. Reconnaissons la coutume. Suivons le nouveau protocole. Et tous nos avertissements ne sont-ils
 | pas déjà des avertissements en retard ? de
 ,
 Nous avons publié le compte rendu des deux séances
@@ -61,13 +61,13 @@ Nous avons rigoureusement suivi l'Officiel; on ne
 ‘4 ne se serait pas produit dans une assemblée parlemen-
 ñ taire, c'est commencer par lui faire subir Paltération la :
 4 plus profonde qu'il puisse recevoir. À ce compie il |
-is fallait donc en enlever aussi les parties que l'auteury 1
+is fallait donc en enlever aussi les parties que l'auteury
 1 avait mises délibérément pour se concilier ou pour
 s'aliéner tel ou tel parti parlementaire, tel ou tel homme
 de de parti parlementaire. Après avoir débarrassé le
 
-À discours de son parlementarisme extérieur, il fallait Le 0
-Re donc, par une opération beaucoup plus profonde et 2e 00
+À discours de son parlementarisme extérieur, il fallait Le
+Re donc, par une opération beaucoup plus profonde et
 beaucoup plus grave, le débarrasser aussi de son par- an
 lementarisme intérieur. Après avoir, par décantation “ie AE
 du texte officiel, établi un premier texte pur, celui de
@@ -75,29 +75,29 @@ Jaurès député, il fallait donc, par décantation de ce +
 premier texte pur, par une seconde purification beau- ht ee
 K coup plus profonde et beaucoup plus grave, établir “NS
 encore, au deuxième degré, un deuxième, un véritable …
-_ texte pur, celui d'un Jaurès que l'on supposait non A 50
+_ texte pur, celui d'un Jaurès que l'on supposait non A
 % député, généralement non parlementaire. — A ne consi-, sn FA :
-dérer que la quantité, on peut affirmer qu'un bon tiers D
+dérer que la quantité, on peut affirmer qu'un bon tiers
 } du texte fourni par le Journal officiel est de parlemen- ; ue
 1 tarisme extérieur; de ce qui reste au moins les deux pa.
 tiers sont de parlementarisme intérieur. — Mais l'his- : va
 torien s'interdit sévèrement toutes ces opérations, ces Me
-| décantations et ces purifications, — ces prétendues ; 1
-purifications, dirait-il, — parce qu'elles sont pour lui, hs 1
+| décantations et ces purifications, — ces prétendues
+purifications, dirait-il, — parce qu'elles sont pour lui, hs
 S avant tout, des altérations. Nous ne connaissons pas ‘r
 la pensée intérieure de Jaurès ; nous ne savons pas ce pa
-| que serait un Jaurès non député; nous n'avons pas le 3
+| que serait un Jaurès non député; nous n'avons pas le
 droit d'imaginer un Jaurès pur de tout parlementarisme é :
 … extérieur ; nous avons encore moins le droit d'imaginer AAA
 È ce que serait un Jaurès pur des contaminations beau- : dl
 coup plus profondes et beaucoup plus graves d'un FUN
 parlementarisme intérieur. Nous ne connaissons que la es Ne.
 ; pensée extérieure de Jaurès, ou, pour parler exacte- qe
-4 ment, lés manifestations extérieures politiques parle- ï L.
+4 ment, lés manifestations extérieures politiques parle-
 k mentaires de sa pensée; nous ne connaissons qu'un ns
-- Jaurès député, un Jaurès parlementaire, non seulement F
+- Jaurès député, un Jaurès parlementaire, non seulement
 à un Jaurès devenu parlementaire par son entourage, par VA
-# _ ses camaraderies, par ses relations de parti, par son 4
+# _ ses camaraderies, par ses relations de parti, par son
 
 | dix-huitième cahier de la quatrième série
 
@@ -145,30 +145,30 @@ a réduction, de faire autant que nous le pouvons l'opéra-
 
 tion inverse, la restitution du réel. C'est à nous, quand +
 nous avons le compte rendu sténographique, de nous ge:
-représenter autant que nous le pouvons, d'autant mieux 3
+représenter autant que nous le pouvons, d'autant mieux
 que nous aurons nous-mêmes assisté à quelques
 séances, d'autant mieux, encore, au deuxième degré, ; HA”.
 que nous aurons lu les comptes rendus des séances $
-mêmes où nous aurons assisté, d'autant mieux que 6
+mêmes où nous aurons assisté, d'autant mieux que
 
 e _ nous aurons pour ainsi dire fait le collationnement, c'est ts
 à nous, quand nous avons en mains le compte rendu à
 sténographique officiel, de nous représenter autant que à
 
-nous le pouvons, prudemment, les débats parlemen- È
+nous le pouvons, prudemment, les débats parlemen-
 taires eux-mêmes. Cette représentation est imparfaite, |
 
 , forcément, comme toutes les représentations du même
 ordre. Mais tout le monde ne peut assister aux débats di
 parlementaires. Tout le monde ne peut assister à tout. Se
-D'abord si tout le monde voulait assister à tout, par F4
+D'abord si tout le monde voulait assister à tout, par
 définition il ne se ferait jamais rien. Nos abonnés £
 savent que les comptes rendus sténographiques officiels
 sont particulièrement secs, particulièrement restreints,
-particulièrement réduits pour les séances tumultueuses. j
+particulièrement réduits pour les séances tumultueuses.
 Le métier de sténographe est un métier terrible, dans
 une assemblée aussi nombreuse. Comment l'exercer
-assurément dans une assemblée aussi étrangère à toute 4
+assurément dans une assemblée aussi étrangère à toute
 organisation du travail. Il est malheureusement vrai 2008
 que dans une séance de la Chambre les scrutateurs, le Fo
 bureau, les sténographes sont les seuls dont on puisse *
@@ -241,30 +241,30 @@ sr ou d'y faire quelque déclaration sans avoir en lui- .
 Ÿ même arrêté dans le dernier détail son texte et son Ent
 action. Telle n'est pas la question d'art et de méthode A
 oratoire que je veux noter aujourd'hui. Nous traiterons ;
-quelque jour, si nous en avons le temps et les moyens, ÿ
+quelque jour, si nous en avons le temps et les moyens,
 de l'éloquence, de l'éloquence publique, de l'éloquence À
 politique, de l'éloquence populaire, de l'éloquence nou- À
 velle des meetings, de l'éloquence parlementaire; par- de
-lant de Jaurès nous traïiterons de l'éloquence, et, 4
-autant que nous le pourrons, de son éloquence. Aujour- ï
-d'hui, et provisoirement, ce que je veux noter, c'est f
+lant de Jaurès nous traïiterons de l'éloquence, et,
+autant que nous le pourrons, de son éloquence. Aujour-
+d'hui, et provisoirement, ce que je veux noter, c'est
 à qu'à ne considérer que ce discours prononcé en deux nes
 séances particulièrement dures, ce discours manifeste, À
 ce discours acte, il, — ce discours, — s'est présenté aux hi.
 auditeurs attentifs comme un acte fait, préparé, prêt, (
-apporté, où les effets de séance étaient pour la plupart ù
+apporté, où les effets de séance étaient pour la plupart
 escomptés, où les incidents étaient calculés, où les te
 accidents mêmes sont entrés sans disjoindre. Cette !
 impression ne fait que s'accentuer à la lecture de la }
 sténographie. Nos abonnés ont vu que le texte publié |
 au Journal officiel avait une structure fort apparente
-. sous les superficielles broussailles, une structure fort 11
+. sous les superficielles broussailles, une structure fort
 nette sous les fatigues inévitables. C'est dire que si #
-nous nous étions permis l'opération de discernement et É ÿ
+nous nous étions permis l'opération de discernement et
 d'analyse que nous nous sommes justement interdite  « He
 en général, cette opération d'analyse et de discerne- LA
 ment était particulièrement facile dans le discours que
-nous avons publié. Nous continuons à nous l'interdire s
+nous avons publié. Nous continuons à nous l'interdire
 | provisoirement, parce qu'elle serait longue, parce
 qu'elle peut se remettre à plus tard, et, comme gérant, '
 parce qu'elle n'est pas de l'historien. Maïs chacun peut a
@@ -281,7 +281,7 @@ Mais comme gérant, comme historien, comme éditeur,
 cela ne nous regardait pas. Nous avons dû nous en
 À tenir au texte publié dans le Journal officiel.
 Quand nous étudierons Le dépérissement du parlemen-
-; tarisme en France, nous étudierons en particulier le ë
+; tarisme en France, nous étudierons en particulier le
 jeu des assemblées parlementaires, les séances de la
 | Chambre, l'enregistrement analytique et sténographique de ces débats, la fidélité de cet enregistrement.
 ! Ce que nous dirons alors fera un retour, portera sur
@@ -305,29 +305,29 @@ gée, où les lignes se suivent, et au contraire dans la
 réalité il peut y avoir tous les personnages, toute l'assemblée à la fois qui parle; et même quand il y a des pe
 rumeurs nombreuses, collectives ou non, la sténographie ;
 ne peut que leur donner cette forme littéraire et linéaire: \
-à gauche, à l'extrême gauche, forme qui fait du centre, F
+à gauche, à l'extrême gauche, forme qui fait du centre,
 de la gauche, de l'extrême gauche, de la droite, —ily a ni
-beau temps qu'il n'y a plus d'extrême droite, — un per- V4
+beau temps qu'il n'y a plus d'extrême droite, — un per-
 sonnage collectif un peu factice, unique, un, linéaire ; — j À
 en outre les sténographes ne peuvent saisir et enregistrer (
 qu'une image textuelle dans un débat où tout compte,
-l'accent, le ton, le geste, la force de la voix, le timbre, et 1
-non seulement ce qui s'entend, mais les traits, mais le É
+l'accent, le ton, le geste, la force de la voix, le timbre, et
+non seulement ce qui s'entend, mais les traits, mais le
 regard, mais la taille, mais le port de tête, et les épaules,
-textuelle n'est pas une image totale. Une image textuelle É.
+textuelle n'est pas une image totale. Une image textuelle
 n'est qu'une image linéaire textuelle de ce qui s'entend. he
 Elle ne rend ni tout ce qui s'entend, ni ce qui ne s'entend Qi
 pas, ni ce qui accompagne ce qui s'entend, ni ce quise ie
 voit, ni ce qui se fait, ni ce que l'on sent bien, ni ce qui |
 se sent, ni ce qui se devine. ; ‘
 
-C'est pour cela que nous devons nous montrer extrê- ï
+C'est pour cela que nous devons nous montrer extrê-
 mement prudents quand partant d'une image, d'un texte,
 nous essayons de nous représenter une réalité histo- ji
 rique. Ceux qui n'ont jamais fait d'histoire, les politiques et certains sociologues, font, des textes et des
-monuments à la réalité, un transfert immédiat, un pas9 I.
+monuments à la réalité, un transfert immédiat, un pas9
 
-5% 1 dix-huitième cahier de la quatrième série 7
+5% 1 dix-huitième cahier de la quatrième série
 
 fl sage instantané, imprudent, présomptueux ; ils pré-
 
@@ -389,29 +389,28 @@ D tueux, mais inféconds, ne sont pas faits pour le travail
 
 ; dence totale, avec une modestie exacte.
 
-| 4
-A preuve les grosses différences que nous avons pu 4
+A preuve les grosses différences que nous avons pu
 noter entre les impressions reçues de la séance même 15)
 par ceux, d'une part, qui avaient assisté à la séance et #
 par ceux, d'autre part, qui n'en connaissaient que le ii
 Ainsi le discours de Jaurès paraissait beaucoup plus fé
-fort, beaucoup plus solide, plus constant, mieux char- k
+fort, beaucoup plus solide, plus constant, mieux char-
 penté, meilleur, à ceux qui l'avaient entendu qu'à ceux
-qui l'avaient lu seulement ; il paraissait aux premiers Ë
-plus conforme à l'ancienne forme du grand orateur ; 1
+qui l'avaient lu seulement ; il paraissait aux premiers
+plus conforme à l'ancienne forme du grand orateur
 Jaurès, disaient-ils, s'est retrouvé ; ce fut bien le même |
 Jaurès; que nous avons connu; — c'est qu'ayant en
 réalité, comme spectateurs, comme auditeurs, participé à la séance parlementaire, ils avaient eux-mêmes, 1)
 comme l'orateur, comme les députés, subi sans le savoir
 $ l'effet parlementaire d'un grand discours parlemen- dl
 taire ; c'était quelqu'un de très difficile, d'habitude, qui
-; me disait que ce grand discours de Jaurès continuait la 1
-série de ses anciens grands discours: il est loin de Ÿ
-faire, à la sténographie, la même impression; pour :4
-m'en tenir à ce caractère, il me paraît aujourd'hui, à la 3
-sténographie, beaucoup plus factice, beaucoup plus 5
+; me disait que ce grand discours de Jaurès continuait la
+série de ses anciens grands discours: il est loin de
+faire, à la sténographie, la même impression; pour
+m'en tenir à ce caractère, il me paraît aujourd'hui, à la
+sténographie, beaucoup plus factice, beaucoup plus
 théâtral que les anciens grands discours. js
-Je ne veux pas anticiper aujourd'hui sur cette histoire 4
+Je ne veux pas anticiper aujourd'hui sur cette histoire
 \ que nous préparons de la décomposition du dreyfu- ;
 ‘ sisme en France ; nous éditons cette séance, et nous fe
 ne la brisons pas. Je ne veux insister aujourd'hui que jf
@@ -450,28 +449,28 @@ avons lu le texte. Jamais vous ne nous ferez croire
 a qu'avant de monter à la tribune Jaurès ne savait pas
 
 qu'à ce moment de son discours l'honorable M. Brisson à
-interviendrait pour lui apporter son témoignage. Notez, 4
+interviendrait pour lui apporter son témoignage. Notez,
 continuaient-ils, que ce témoignage, comme tel, était #
-parfaitement licite, et que la production de ce témoi- é
+parfaitement licite, et que la production de ce témoi-
 gnage pouvait être opportune; ce que nous regrettons |
 seulement, c'est qu'on ait donné à cette intervention 1"
-sans doute opportune, et qu'on avait le droit de con- 14
+sans doute opportune, et qu'on avait le droit de con-
 certer, la forme d'une improvisation simulée. — Je #
-vous assure, disait encore le dreyfusiste, je vous assure F
-que le ton de M. Brisson me parut profondément sin- p
+vous assure, disait encore le dreyfusiste, je vous assure
+que le ton de M. Brisson me parut profondément sin-
 cère; son émotion me parut de bon aloïi; il ne faut pas ‘4 à
 lui en vouloir; il parle ainsi; n'oublions pas que c'est PA
-un vieux romantique; il pleure facilement; avec abon- \: 194
+un vieux romantique; il pleure facilement; avec abon- \:
 dance; il étend les bras; sa voix larmoie; il fait la qe
-croix, il fait des prosopopées; c'est cela qui est sa É
-nature, ou qui est devenu sa nature; c'est cela qui fait Ë
+croix, il fait des prosopopées; c'est cela qui est sa
+nature, ou qui est devenu sa nature; c'est cela qui fait
 sa sincérité; il est fait ainsi; telle est sa deuxième,
-seconde et seule nature; au contraire ce serait s'il 4
+seconde et seule nature; au contraire ce serait s'il
 n'était pas romantique, s'il ne s'éplorait pas, s'il ne ;
-s'ébrouait pas, s'il ne larmoyaïit pas, que je commence- e
+s'ébrouait pas, s'il ne larmoyaïit pas, que je commence-
 rais à douter de lui; aussi longtemps qu'il est roman-  :
 tique, je crois qu'il est sincère. — Ainsi parlait cet Là
-ancien dreyfusiste, homme jeune. J'ajoutai le témoi- 2
+ancien dreyfusiste, homme jeune. J'ajoutai le témoi-
 gnage personnel que j'avais reçu d'Anatole France, à %
 qui javais demandé, le jeudi matin suivant, son |
 impression personnelle de la séance. France nous avait ;
@@ -503,7 +502,7 @@ M discours aussi bien préparé que l'était évidemment le
 
 sut texte et le geste, l'action oratoire, mais, autant qu'on
 
-: le pouvait, l'accueil attendu, non seulement la contexM ture intérieure, mais la contexture extérieure, la sub- È
+: le pouvait, l'accueil attendu, non seulement la contexM ture intérieure, mais la contexture extérieure, la sub-
 “a structure, lesinterventions subsidiaires, les subventions
 
 Fa prévues. Et surtout, disaient-ils, nous avons lu le texte,
@@ -544,23 +543,23 @@ f EAU au cimetière Montmartre, dans un vrai cimetière, et
 jamais vous ne nous ferez croire que cet homme se à
 demande pour de bon si du vrai bronze va s'animer, si Re.
 un bras de bronze va balancer en l'air une plume de ‘4
-$ bronze et une palme de bronze, ou une épée. Il y a eu 2
+$ bronze et une palme de bronze, ou une épée. Il y a eu
 j des civilisations qui ont cru que le bronze pouvait Ke
 s'animer sous le coup de la colère et sous le souffle de ‘1
 
 lindignation; des civilisations de sauvages, mais des ‘11
 “À civilisations aussi qui furent de beaucoup supérieures à À
 k la culture, pour ainsi dire, d'un député radical moyen. De
-Il y a eu des civilisations très poussées, artistes, philo- 2e
-4 sophes, assez parfaites, assez harmonieuses, qui ont 1
-* cru que des statues s'animaient. Ces âges n'étaient 4
+Il y a eu des civilisations très poussées, artistes, philo-
+4 sophes, assez parfaites, assez harmonieuses, qui ont
+* cru que des statues s'animaient. Ces âges n'étaient
 ê peut-être pas moins habitables que ceux que l'honorable nt
-M. Brisson veut nous faire. Mais depuis la mort des | 5
+M. Brisson veut nous faire. Mais depuis la mort des
 | mythologies, depuis qu'on a brisé les seules images qui 43%
 | aient jamais vécu, depuis les iconoclastes, après la mort N 4 sd
 des mythes, après la mort des dieux, après le triomphe A
-de tant d'idolâtrie chrétienne sur l'idolâtrie païenne, 03
-| après l'éviction, après l'éversion commencée de cette 4
+de tant d'idolâtrie chrétienne sur l'idolâtrie païenne,
+| après l'éviction, après l'éversion commencée de cette
 idolâtrie chrétienne, aujourd'hui positivistes, en ce \4
 sens, même quand nous essayons de passer les positi- V :
 è vistes, littéralement nous ne croyons pas que les statues : LS
@@ -569,9 +568,9 @@ de bronze vont s'animer. Quelqu'un qui le croirait “4 À
 cimetière. Si M. Brisson croit qu'une statue de bronze ; LE
 __ vase mettre à écrire avec un porte-plume pour embêter 1; Re
 | M. Cavaignac, M. Brisson est parmi nous un fou dan- pe
-Ë _ gereux. Si M. Brisson ne Le croit pas, gardons-nous du 7ù
+Ë _ gereux. Si M. Brisson ne Le croit pas, gardons-nous du
 | malin, et Au langage figuré. IL est extrêmement dange- enr
-j reux de dire ce que l'on ne croit pas. | 1
+j reux de dire ce que l'on ne croit pas.
 3 — Même par figure de rhétorique romantique ? : “
 
 ë dix-huitième cahier de la quatrième série
@@ -588,7 +587,7 @@ par cœur dans le train :
 
 Depuis de longs jours, hélas! je passe au cimetière
 Montmartre devant sa statue et je salue tristement ce
-bronze. Eh bien ! je me demande à cette heure où retentit à cette tribune la révélation que vous venez d'en- 7
+bronze. Eh bien ! je me demande à cette heure où retentit à cette tribune la révélation que vous venez d'en-
 tendre, si ce bronze ne va pas se dresser et, tenant entre
 
 , ses doigis crispés la plume et l'épée que Rude y avait
@@ -612,7 +611,7 @@ Pr demandez un peu au concierge, au fossoyeur, au jardinier, si une statue de br
 doigts, et crier. Qu'est-ce qui vous arriverait, si vous
 teniez de tels propos au modeste fonctionnaire ?
 
-Ainsi parlaient ces provinciaux, parce qu'ils étaient 1
+Ainsi parlaient ces provinciaux, parce qu'ils étaient
 Les véritables historiens, ceux qui ont fait de l'his- ga
 toire ou tâché d'en faire, non pas ceux qui ont fait sur
 l'histoire des discours de distribution de prix, sont unanimes à ne prendre les textes, les témoignages, les \
@@ -624,7 +623,7 @@ Ainsi, et beaucoup plus encore, dans l'altercation
 Cavaignac, née de l'intervention Brisson, qui fut comme
 la continuation de cette première intervention, l'impres- '
 sion reçue par ceux, d'une part, qui avaient assisté à la
-séance différait de l'impression reçue par ceux, d'autre f
+séance différait de l'impression reçue par ceux, d'autre
 part, qui s'en tenaient à la connaissance textuelle. Pour
 tous ceux qui avaient assisté à la séance, il n'y avait %
 qu'une impression, une opinion, un jugement : Cavai- “À
@@ -636,7 +635,6 @@ président du conseil, convaincu de tous ses crimes,
 renié par tous ses anciens amis, mal soutenu par les
 nouveaux, pliant sous la colère et sous les huées vengeresses des gauches, abandonné du centre, soutenu
 des seuls nationalistes, étranger à la droite, c'était l'exé-
-| 17
 
 Fs dix-huitième cahier de la quatrième série
 Fe Au contraire ceux qui n'avaient reçu de l'altercation
@@ -647,10 +645,10 @@ us que M. Cavaignac en était sorti victorieux. Je ne parle
 À phrases mouillées de M. Brisson ne rendent pas à la sté-
 & nographie. Les phrases sèches et dures de M. CavaiLa gnac avaient gardé toute leur dureté.
 À Il n'a pas craint de dire que sur la question du faux
-4 Henry ma conviction était faite le 14 août, cela n'est à
+Henry ma conviction était faite le 14 août, cela n'est à
 S pas vrai.
 ; Ma conviction n'a été faite sur le faux Henry que le
-4 Ÿ jour où, après étre sorti volontairement des procédures
+Ÿ jour où, après étre sorti volontairement des procédures
 À régulières, j'ai fait venir devant moi l'homme qui avait
 # commis cet acte et où, par la force de ma résolution et
 4 de ma volonté, j'ai obtenu de lui un aveu que personne
@@ -668,35 +666,35 @@ Se garanties pour l'accusé à tel point qu'il n'en reste plus
 ti divers bancs au centre et à droite. — Exclamations à
 Me l'extrême-gauche)
 
-_ [line s'agit ici, bien entendu, que de la tenue, du ton, : 04
+_ [line s'agit ici, bien entendu, que de la tenue, du ton,
 du maintien : nous n'endossons nullement les affirma- “5
-tions de M. Cavaignac; dans sa rage antidreyfusiste, 1,
-l'ancien ministre de la guerre attribue à l'honorable Fà d
-M. Brisson des vertus que celui-ci n'a jamais eues ; il 530
-fait l'honorable M. Brisson beaucoup plus dreyfusiste : 0
+tions de M. Cavaignac; dans sa rage antidreyfusiste,
+l'ancien ministre de la guerre attribue à l'honorable Fà
+M. Brisson des vertus que celui-ci n'a jamais eues ; il
+fait l'honorable M. Brisson beaucoup plus dreyfusiste
 que celui-ci ne l'a jamais été, — ou plutôt il fait l'hono- ‘4
-rable M. Brisson dreyfusiste et celui-ci ne l'a jamais 55
-été. L'ancien président du Conseil ressemble beaucoup ; 141
-plus à l'ancien ministre de la guerre que celui-ci ne le N:
+rable M. Brisson dreyfusiste et celui-ci ne l'a jamais
+été. L'ancien président du Conseil ressemble beaucoup
+plus à l'ancien ministre de la guerre que celui-ci ne le
 croit. Rien ne ressemble à un homme de gouvernement, ni
-. | comme un homme de gouvernement. Ils sont tous deux 250
-hommes de pouvoir, hommes d'État, hommes d'auto- 2
+. | comme un homme de gouvernement. Ils sont tous deux
+hommes de pouvoir, hommes d'État, hommes d'auto-
 rité, hommes de raison d'État. Quand M. Brisson fait PU
-ou fait faire des instructions judiciaires, il n'est mal- 4 j;
+ou fait faire des instructions judiciaires, il n'est mal-
 < heureusement pas vrai qu'il ait su y accumuler les A
-garanties pour l'accusé à tel point qu'il n'en reste plus :50
-pour la recherche de la vérité. (Applaudissements sur 470
-Accumuler pour des accusés politiques puissants les * 4
+garanties pour l'accusé à tel point qu'il n'en reste plus
+pour la recherche de la vérité. (Applaudissements sur
+Accumuler pour des accusés politiques puissants les
 faveurs d'impunité d'État, ce n'est nullement accumuler Wie
-pour l'accusé les garanties juridiques; c'est même le 5
+pour l'accusé les garanties juridiques; c'est même le
 contraire, s'il est vrai que les faibles paient toujours “
-; pour les.forts, et que les accusés faibles ne sont nulle 41
-part autant exposés que dans les sociétés où les accu- Fe i
+; pour les.forts, et que les accusés faibles ne sont nulle
+part autant exposés que dans les sociétés où les accu- Fe
 sés forts sont le plus outrageusement favorisés. es
 M. Henri Brisson aussi croit différer beaucoup de Wa
 M. Godefroy Cavaignac. M. Godefroy Cavaignac est te
 un homme de coup d'État. Il paraît acquis aujourd'hui fat
-qu'il eut au cœur de l'affaire, étant ministre de l'armée, D.
+qu'il eut au cœur de l'affaire, étant ministre de l'armée,
 la tentation d'en finir par un coup de violence, de aix
 meurtre et d'extermination ; il paraît acquis désormais mn)
 
@@ -712,7 +710,7 @@ qu'ils se croient éternellement les plus forts, depuis
 qu'ils ont remis la main sur l'État, depuis qu'ils ont
 l'État, depuis qu'ils sont l'État, depuis qu'ils fournissent
 tout le personnel d'État, depuis qu'ils ont accaparé les
-avantages d'État, depuis qu'ils ont recouvré la puissance ét l'autorité d'État, M. Henri Brisson, et les 2
+avantages d'État, depuis qu'ils ont recouvré la puissance ét l'autorité d'État, M. Henri Brisson, et les
 
 partisans politiques de M. Henri Brisson, forcenés et
 redevenus audacieux, le danger passé, oratoires, mais
@@ -736,25 +734,25 @@ Qu'est-ce qu'un coup d'État, sinon de la raison d'État
 discontinue ? et qu'est-ce que la raison d'État, sinon un
 
 coup d'État continu ? Qu'est-ce qu'un coup d'État, sinon Ÿ ‘À
-de la raison d'État condensée, une application critique ù
-de la raison d'État? et qu'est-ce que la raison d'État, 5
-sinon une explication, diluée, d'un coup d'État? Qu''est- 1
-ce qu'un coup d'État, sinon de la raison d'État intense ? ù
-et la raison d'État, sinon un coup d'État étendu. Quand 04
-on est sorti de la justice, que ce soit pour la violence É
+de la raison d'État condensée, une application critique
+de la raison d'État? et qu'est-ce que la raison d'État,
+sinon une explication, diluée, d'un coup d'État? Qu''est-
+ce qu'un coup d'État, sinon de la raison d'État intense ?
+et la raison d'État, sinon un coup d'État étendu. Quand
+on est sorti de la justice, que ce soit pour la violence
 continue ou pour la violence discontinue, il n'y a plus à
 que l'ordre de l'injustice et du fait. |
 Les appels au meurtre que poussaient les amis de Ne
 M. Cavaignac, les amis politiques de M. Brisson les Fi
-poussent aujourd'hui ; et les bannissements que M. Cavaignac, dans son imagination haineuse et malsaine, 74
+poussent aujourd'hui ; et les bannissements que M. Cavaignac, dans son imagination haineuse et malsaine,
 rêvait, ce sont les amis politiques de M. Brisson qui les je
 ont réalisés. ” à
-M. Brisson est aussi étranger que M. Cavaignac à ï
-l'ordre du droit; et quand M. Cavaignac intente à 174
+M. Brisson est aussi étranger que M. Cavaignac à
+l'ordre du droit; et quand M. Cavaignac intente à
 M. Brisson une accusation de dreyfusisme, cette accu- ji
 sation est injuste pour l'honorable M. Brisson, injuste fr
 et injurieuse pour le dreyfusisme. Non, monsieur Cavai- Le
-gnac, l'honorable M. Brisson est parfaitement innocent 4
+gnac, l'honorable M. Brisson est parfaitement innocent
 des crimes que nous avons commis, que nous commet- Isa
 tons, que nous commettrons contre la domination de la ti
 Ceci pour montrer que M. Brisson n'a pas autant is
@@ -765,7 +763,7 @@ accusés honnêtes, pour les accusés ordinaires, pour les
 accusés pauvres, pour lés accusés faibles.
 
 à dix-huitième cahier _ de la quatrième série ee
-fe > M. Goprrroy CAvVAIGNAC. — Peut-être aussi, monsieuür Henri Brisson, à quelqu'une de ces enquêtes par- è
+fe > M. Goprrroy CAvVAIGNAC. — Peut-être aussi, monsieuür Henri Brisson, à quelqu'une de ces enquêtes par-
 : lementaires dont on nous parle aujourd'hui, dont vous |
 ù avez dirigé l'une et où vous savez si bien combien la
 vérité échappe facilement à ceux qui la cherchent.
@@ -779,7 +777,7 @@ Eh bien, non! je suis sorti volontairement des voies
 1 régulières; j'ai fait venir le coupable devant moi.
 k, De l'aveu de tous ceux qui ont lu le texte, le coup A
 | droit porté aux anciens panamismes était irréparable. |
-É .… Et j'ai obtenu de lui ce que des voix sorties de vos x
+É .… Et j'ai obtenu de lui ce que des voix sorties de vos
 rangs ont appelé un jour, dans un accès de franchise, le
 : seul atome de vérité prouvée qu'il y ait dans cette
 1 affaire; j'ai arraché de lui par ma résolution et par ma
@@ -798,26 +796,26 @@ j a gulièrement imprudent de porter ici, monsieur Henri Hs:
 | pièce dont a parlé M. Jaurès, je n'ai jamais, quant à F #3
 moi, connu cette pièce ; aucune des personnes avec qui ‘4
 
-a jamais soufflé un seul mot. 1
-Mais s'il s'agit de la lettre du général de Pellieux, en 14
+a jamais soufflé un seul mot.
+Mais s'il s'agit de la lettre du général de Pellieux, en
 quoi cette lettre était-elle une pièce du dossier ? (Excla- À de
-_ mations à gauche et à l'extrême gauche) : 13
+_ mations à gauche et à l'extrême gauche)
 
 à .… Je demande en quoi une appréciation produite, for- Me
-._  mulée par M. le général de Pellieux — vous ne savez 0
-pas même s'il l'a maintenue dans son esprit, (Exclama- 1e
+._  mulée par M. le général de Pellieux — vous ne savez
+pas même s'il l'a maintenue dans son esprit, (Exclama-
 
 _ tions à l'extrême gauche) et je crois savoir qu'il l'a ri
-regrettée aussitôt après l'avoir écrite — je demande en 2 Ê
+regrettée aussitôt après l'avoir écrite — je demande en
 - quoi cette lettre de M. le général de Pellieux consti- di:
 tuait une pièce du dossier ? (Interruptions à gauche) ‘à
 
-Je répète que tout le dossier a été mis à la disposition 4 4
+Je répète que tout le dossier a été mis à la disposition
 de M. Henri Brisson, qui l'a reconnu lui-même à cette Si
 tribune, dans la séance du 18 décembre. ‘5
 
 | Enfin M. Brisson avait dit, avant le bronze: ‘3
-| Parmi ceux qui faisaient votre éloge, j'ai le droit de F4:
+| Parmi ceux qui faisaient votre éloge, j'ai le droit de
 Ce n'était pas ce qu'il avait fait de mieux. Mais cela 1 Et
 confirme ce que nous espérons pouvoir montrer quelque ne
 jour, que tous les dangers de la République sont tou- l he
@@ -863,39 +861,39 @@ appelât ici, les hommes qui ont fondé autrefois la
 { République contre les régimes de corruption de jadis ;
 Je voudrais bien qu'on les appelât ici.
 
-J'ai peut-être plus de droits que M. Henri Brisson de Ÿ b
+J'ai peut-être plus de droits que M. Henri Brisson de
 parler au nom de ceux qu'il a eu l'audace d'évoquer no
 tout à l'heure. Oui, je voudrais qu'on rappelât ici les ie
-hommes qui ont fondé la République autrefois en face 4
+hommes qui ont fondé la République autrefois en face
 des monarchies et qui ont créé ce parti d'honnéteté poli- ‘4
-tique et de fierté nationale qu'était le parti républicain. F
+tique et de fierté nationale qu'était le parti républicain.
 Je voudrais bien qu'on rappelât ici... (Interruptions et AT:
-bruit à l'extrême gauche et à gauche) d
+bruit à l'extrême gauche et à gauche)
 .… ceux qui ont fondé le parti.républicain en face de “4
 la monarchie parlementaire de Juillet, je voudrais qu'on ue
 pât leur demander si le régime d'aujourd'hui ressemble ee
-plus à celui qu'ils avaient révé qu'à ceux qu'ils ont 5
-combattus et renversés.(Applaudissements au centre) 13
+plus à celui qu'ils avaient révé qu'à ceux qu'ils ont
+combattus et renversés.(Applaudissements au centre)
 Ceux qui n'avaient de l'altercation que la connais- Ne:
-sance textuelle étaient unanimes à juger que l'avantage 4
-du ton demeurait entier à M. Godefroy Cavaignac. ñ 2
+sance textuelle étaient unanimes à juger que l'avantage
+du ton demeurait entier à M. Godefroy Cavaignac.
 Ceux qui avaient assisté à la séance en rapportaient au à
 
-contraire que cç'avait été l'effondrement de Cavaignac, 4
+contraire que cç'avait été l'effondrement de Cavaignac,
 un effondrement total, brutal: il n'en reste rien, disaient- ls
-ils communément, il n'en reviendra pas. Vous ne pou- d
+ils communément, il n'en reviendra pas. Vous ne pou-
 vez pas vous représenter, me disait un dreyfusiste an- Ke
 cien, vous n'étiez pas à la séance, vous ne pouvez pas LA
-4 vous représenter cette voix misérable, cet aspect mina- 4
+4 vous représenter cette voix misérable, cet aspect mina-
 ble, cette tournure gauche, hâve, ces épaules voûtées, de
 cette face creuse, laide, jaune, cette tête d'oiseau et (0
 surtout ce crâne allongé; il a un crâne en bonnet de
 coton; il faut avoir vu ce bonnet de coton en os, un |
-microcrâne pointu; son effondrement, continuait ce Ë
-dreyfusiste ancien, juste, son effondrement, sous la 1
-vague de ses ennemis, devant la face muette et lâche de j
+microcrâne pointu; son effondrement, continuait ce
+dreyfusiste ancien, juste, son effondrement, sous la
+vague de ses ennemis, devant la face muette et lâche de
 
-ses amis, son effondrement était si total que le malheu- j
+ses amis, son effondrement était si total que le malheu-
 
 dix-huitième cahier de la quatrième série
 je j. reux faisait pitié. Vous savez si nous avons réprouvé
@@ -948,38 +946,38 @@ ES parlementaires, qu'un aflleurement, une surface, une
 115 manifestation superficielle, presque toujours truquée, :
 Re une superficie factice, une représentation en surface,
 
-| presque toujours fausse, le masque d'un mouvement 1e
-profond, de couches profondes géologiques, d'une agi- fe ÿ
-{ation sourde, souterraine, obscure, d'un travail dérobé 1 4
+| presque toujours fausse, le masque d'un mouvement
+profond, de couches profondes géologiques, d'une agi- fe
+{ation sourde, souterraine, obscure, d'un travail dérobé
 aux regards. Les vrais discours ne se prononcent pas à DE:
-la tribune. Les discours ministres, que nous payons 4
-pour lire affichés dessus nos murs, ne sont pas les dis- 11
+la tribune. Les discours ministres, que nous payons
+pour lire affichés dessus nos murs, ne sont pas les dis-
 __ Cours vraiment capitaux. Telle conversation de couloir, Ra
 > inentendue, éternellement ignorée, a beaucoup plus ‘24
-é: d'importance pour le gouvernement de ce pays que les ne 4
+é: d'importance pour le gouvernement de ce pays que les ne
 # manifestations solennelles des partis qualifiés. Non seu- 1500
-: lement nous sommes gouvernés par un gouvernement 14
+: lement nous sommes gouvernés par un gouvernement
 | politique parlementaire. Mais c'est notre avantage à #4
-\ nous, simples citoyens, perpétuels gouvernés, perpé- 4
-À tuels imposés, perpétuels payeurs, que le gouvernement 5
-| qui nous gouverne échappe non seulement, comme étant 7
-un gouvernement politique parlementaire, à notre admi- 10
+\ nous, simples citoyens, perpétuels gouvernés, perpé-
+À tuels imposés, perpétuels payeurs, que le gouvernement
+| qui nous gouverne échappe non seulement, comme étant
+un gouvernement politique parlementaire, à notre admi-
 nistration, mais comme étant un gouvernement occulte, ‘4
 à notre simple contrôle. Toutes les manifestations _{
 v des séances politiques parlementaires ne sont qué des |
 manifestations de surface faites. Elles ne représentent ss
 pas plus la réalité de la politique parlementaire que les -#
-…_ discours de l'honorable M. Loubet aux petites filles des M
+…_ discours de l'honorable M. Loubet aux petites filles des
 “  chefs-lieux d'arrondissement ne représentent la réalité 0 hi
-‘4 . de la politique présidentielle. Tout le gouvernement D
+‘4 . de la politique présidentielle. Tout le gouvernement
 à - politique parlementaire s'exerce ailleurs que dans les ne
-séances parlementaires publiques; il s'exerce dans les 0
-commissions, dans les comités, dans les groupes, dans 3
-les compagnies, dans les camaraderies, dans les amitiés 00
+séances parlementaires publiques; il s'exerce dans les
+commissions, dans les comités, dans les groupes, dans
+les compagnies, dans les camaraderies, dans les amitiés
 politiques, dans les relations privées, dans les népo- ‘4
 * tismes et dans les flatteries, dans les haïnes et dans les pe de
 faveurs, et dans ce que M. Combes a nommé si heu- A
-_ reusement les faveurs gouvernementales, dans les rela- ; 1
+_ reusement les faveurs gouvernementales, dans les rela-
 
 dix-huitième cahier de la quatrième série
 
@@ -1011,36 +1009,36 @@ totale, exacte, épuisée, de la réalité dont elles sont des
 représentations, mais elles sont des images truquées,
 falsifiées, faussées pour les besoins de la politique
 
-même; outre les imperfections essentielles de toutes b:
-les images, outre leurs imperfections naturelles, outre L4
+même; outre les imperfections essentielles de toutes
+les images, outre leurs imperfections naturelles, outre
 la difficulté, la complexité, la mouvance du réel repré- + à
 senté, les séances politiques parlementaires sont, parmi ni)
 les images, des images déformées incessamment exprès ; :
 c'est l'intérêt des intéressés politiques, c'est l'intérêt de , ; à
-tout le monde que la séance parlementaire soit une k
+tout le monde que la séance parlementaire soit une
 image fausse; non seulement c'est l'intérêt des politi- ie
-ciens, qui aiment à jouer le peuple et qui ont besoin de Û
+ciens, qui aiment à jouer le peuple et qui ont besoin de
 jouer le peuple; maïs c'est l'intérêt, la joie, le plaisir et %
 la réjouissance du peuple, qui aime à être joué, quia #2
 | besoin d'être joué par les politiques parlementaires, "à
-comme il a besoin de tous ses vices. 2:
+comme il a besoin de tous ses vices.
 Le peuple ne demande pas qu'il y ait des séances de ii
 travail. Le peuple, qui veut s'amuser, s'intéresser, se À
 passionner, s'enthousiasmer, s'éntraîner, demande qu'il vs
 y ait des séances de représentation théâtrale, des |
-séances polémiques, des grandes séances, comme on F
-les nomme, et, comme on les nomme aussi, des séances j;
+séances polémiques, des grandes séances, comme on
+les nomme, et, comme on les nomme aussi, des séances
 historiques. Ainsi le peuple demande qu'il y ait des
 fêtes officielles, des rois qui passent, des cuirassiers, ba
 des courses, des illuminations et des galas. Des séances #4
 de travail seraient obscures, modestes, sans gloire, Su
 - mémoire et victoire. e "
 Encore si les séances politiques parlementaires pu- 5e |
-bliques, dont nous lisons et dont nous publions les, | É
+bliques, dont nous lisons et dont nous publions les,
 comptes rendus sténographiques dans et d'après le |
 Journal officiel, ne comportaient que l'insuflisance na- à
 turelle des images, et, en outre, la falsification voulue |
-des images politiques, si cette falsification même avait ù
+des images politiques, si cette falsification même avait
 gardé quelque constance, au moins une interprétation
 de l'image obtenue, c'est-à-dire déjà une reconstitution
 
@@ -1057,7 +1055,7 @@ l'image, mais la relation de l'image au réel imaginé. Ce
 ù n'est pas seulement du mensonge et de la feinte. C'est
 | du mensonge mensongèrement feint. C'est au mensonge
 au deuxième degré. Aussi tout ce que l'on peut à peu
-‘ près dire est que dans l'interprétation de pareils Z
+‘ près dire est que dans l'interprétation de pareils
 | textes, quand on n'est pas d'une prudence extrême on
 a _ est sûr de se tromper, et qu'au retour quand on est
 | d'une prudence extrême, on n'est jamais sûr de ne pas
@@ -1075,15 +1073,15 @@ Ce n'est pas seulement parce qu'elles étaient des
 | séances historiques, des grandes séances, des séances
 
 éclatantes et tumultueuses, passionnantes, émouvantes, è 1 |
-| entraïnantes, que nous en avons publié dans ces cahiers 1
+| entraïnantes, que nous en avons publié dans ces cahiers
 le compte rendu sténographique in extenso d'après le ‘14
 Journal officiel ; mais c'est aussi parce qu'elles étaient ee
-des séances capitales. Nos cahiers sont des cahiers M
+des séances capitales. Nos cahiers sont des cahiers
 oublie moins que personne. Trois abonnés de Tou- ‘4
 ï louse veulent bien me demander pourquoi ils ne trou- h. La
 vent pas dans la quatrième série de nos cahiers ces #4
 TA renseignements, ces documents, ces textes sur le mou- he
-vement socialiste français qui passèrent si nombreux \. 718
+vement socialiste français qui passèrent si nombreux \.
 _ dans la deuxième série. La diminution de la place Fi Le
 occupée dans nos cahiers par les renseignements, les ) ‘1
 documents et les textes afférents au mouvement poli- Ar
@@ -1093,18 +1091,18 @@ même et dans le pays. Quand nous produisions des ‘4
 _ renseignements, des documents et des textes abondants si
 sur le mouvement socialiste français, dans la première ‘À
 et dans la deuxième série de nos cahiers, c'est que ce ‘4
-mouvement existait, et promettait beaucoup. Aujour- 4
-d'hui si nous ne mettons rien, c'est qu'il n'y a rien. Ces 13
-congrès de Paris, tumultueux, violents, politiques déjà, M
+mouvement existait, et promettait beaucoup. Aujour-
+d'hui si nous ne mettons rien, c'est qu'il n'y a rien. Ces
+congrès de Paris, tumultueux, violents, politiques déjà,
 existaient pourtant. Le dernier congrès dont nous ayons KP
 : donné un compte rendu fut le congrès de Lyon, — Ce
-compte rendu analytique non officiel de notre collabo- ne 1
-rateur mademoiselle Louise Lévi dans le quatorzième 54 4
+compte rendu analytique non officiel de notre collabo- ne
+rateur mademoiselle Louise Lévi dans le quatorzième
 cahier de la deuxième série. Nous avons fait pour le F ‘4
 ; congrès socialiste international de Paris 1900 un travail RUE
-et des frais que le socialisme international avait négligé 4
-à de faire. Comment pourrions-nous publier des rensei- 3
-È gnements, des documents et des textes sur ce congrès a 1
+et des frais que le socialisme international avait négligé
+à de faire. Comment pourrions-nous publier des rensei-
+È gnements, des documents et des textes sur ce congrès a
 
 | dix-huitième cahier de la quatrième série
 ) de Bordeaux, qui n'existe pas. Aussitôt qu'il existera
@@ -1125,42 +1123,42 @@ commencement de la deuxième, le travail parlementaire était tout entier au dis
 d'orateur, d'homme politique démocratique, et moitié
 habileté politique, — tout l'intérêt, tout le travail parle-
 À mentaire était au discours de Jaurès. Les ennemis du
-attendaient impatiemment les coups qu'ils allaient recevoir. Et malgré les intermèdes, malgré l'intermède Brisson-Cavaignac, malgré la rupture des incidents et lem- î
+attendaient impatiemment les coups qu'ils allaient recevoir. Et malgré les intermèdes, malgré l'intermède Brisson-Cavaignac, malgré la rupture des incidents et lem-
 ; broussaillement du débat, cetintérêt se maintint jusqu'à
 laccomplissement du discours. Les amis du grand orateur, quelques socialistes, les radicaux-socialistes et les
 radicaux attendaient impatiemment qu'il échouât. Ses
 
-paire, parti socialiste de France, continuaient la vieille 5
+paire, parti socialiste de France, continuaient la vieille
 parlementaires, parmi lesquels M. de Pressensé, quel- Ni
-ques radicaux-socialistes, parmi lesquels M. Vazeille et e
-rement qu'il réussit. Aussitôt que le discours de Jaurès É
+ques radicaux-socialistes, parmi lesquels M. Vazeille et
+rement qu'il réussit. Aussitôt que le discours de Jaurès
 fut accompli, tout l'intérêt politique et parlementaire \ &
 s'en retira, s'en détacha. Il y eut une brusque détente, hi
-une aisance, un soulagement et comme une réjouissance à 4
+une aisance, un soulagement et comme une réjouissance à
 commune, un bien-être général, un élargissement de À
 bonne camaraderie. Les nationalistes se réjouissaient :
 ouvertement, premièrement parce qu'ils avaient reçu KA
 les coups qu'ils attendaient. C'est toujours un soula- ;
 
-. gement pour un lâche, quand on a escompté un certain 1
-nombre de coups à recevoir, que d'en avoir effectué k
+. gement pour un lâche, quand on a escompté un certain
+nombre de coups à recevoir, que d'en avoir effectué
 l'encaissement. La bravoure aime les coups à recevoir \
-et à donner. La faiblesse aime les coups reçus. Deuxiè- 5
-mement, quand le discours de Jaurès fut consommé, les k
+et à donner. La faiblesse aime les coups reçus. Deuxiè-
+mement, quand le discours de Jaurès fut consommé, les
 nationalistes se réjouissaient ouvertement parce qu'ils
 
-_ n'avaient pas reçu, à beaucoup près, les coups qu'ils Û
+_ n'avaient pas reçu, à beaucoup près, les coups qu'ils
 attendaient et que des dreyfusistes inconsidérés leur {
 avaient promis. Pour la même raison les radicaux se À
 réjouissaient dans leur cœur, car dès lors ils pouvaient à ji
-espérer, de ce que le discours de Jaurès n'avait pas été ÿ F
+espérer, de ce que le discours de Jaurès n'avait pas été
 monstrueusement et scandaleusement péremptoire, mais de.
-seulement rationnel et concluant, que la grande trahison radicale, préparée de longue main, pourrait s'exer- s
-cer une fois de plus et qu'elle réussirait. Qu'on relise 4
+seulement rationnel et concluant, que la grande trahison radicale, préparée de longue main, pourrait s'exer-
+cer une fois de plus et qu'elle réussirait. Qu'on relise
 attentivement le texte que nous avons publié. Nous à
 savons qu'avant le commencement de la séance tout le
-grand jeu politique et parlementaire avait travaillé 3
-contre Jaurès. Pendant toute la première séance et pen- N
+grand jeu politique et parlementaire avait travaillé
+contre Jaurès. Pendant toute la première séance et pen-
 
 J dix-huitième cahier de la quatrième série
 < dant tout le commencement de la deuxième le grand
@@ -1190,47 +1188,47 @@ cavernes ; il fore, il taille, il creuse et il abat ; il geint; et
 Et tout le monde voit qu'il travaille au grand jour, et
 : que les cheminements laissent des monceaux de rem-
 | blais. Cheminements de taupe ou de caporal sapeur. Lui
-1 34
+1
 
-seul il croit qu'il fait des combinaisons puissantes. Tant 1
+seul il croit qu'il fait des combinaisons puissantes. Tant
 
  d'innocence est le seul honneur, je dirai la seule excuse, ‘à
 de tant de politique. 4:10
 
-Mais aussitôt que le discours de Jaurès fut consommé, 2
+Mais aussitôt que le discours de Jaurès fut consommé,
 tout lé grand jeu politique et parlementaire cessa de RS
-figurer à la tribune. Qu'on relise attentivement le texte 1 k
+figurer à la tribune. Qu'on relise attentivement le texte
 que nous avons publié. On verra très nettement à partir ‘4
-de quel moment il devient évident que l'éloquence de la 14
+de quel moment il devient évident que l'éloquence de la
 
-tribune, les discours, les interruptions, les réponses, les 1
+tribune, les discours, les interruptions, les réponses, les
 
 personnalités, les violences ne servent plus qu'à mas- À
 quer la réalité du travail parlementaire, et ne servent #44
 nullement à la représenter. Cela est particulièrement %
 sensible pendant le discours de M. Lasies, ou plutôt he.
-pendant ses morceaux de discours. Ce discours ne fut 30
+pendant ses morceaux de discours. Ce discours ne fut
 nullement, comme on l'a dit, une contre-attaque, une ‘ #40
-vigoureuse et violente contre-attaque menée par un 74
+vigoureuse et violente contre-attaque menée par un
 ancien lieutenant de cavalerie pour couvrir un mouve- me
 ment de retraite, pour empêcher la retraite, comme on #4
 
-_ dit, de dégénérer en déroute, en débâcle. Ce fut, ce qui 4
+_ dit, de dégénérer en déroute, en débâcle. Ce fut, ce qui
 est beaucoup plus fort, — je parle de force politique et. ne
-parlementaire, — ce fut une fausse contre-attaque, des- 1
-tinée à faire croire qu'en effet il y avait retraite, qu'en & E
+parlementaire, — ce fut une fausse contre-attaque, des-
+tinée à faire croire qu'en effet il y avait retraite, qu'en &
 
-effet il y avait menace de débâcle ou de déroute, qu'en D.
+effet il y avait menace de débâcle ou de déroute, qu'en
 
 … effet il y avait retraite à couvrir, — destinée à masquer Re
-ainsi non pas même un mouvement tournant, mais un ù M
-mouvement saxon. Pendant que M. Francis de Pressensé D
+ainsi non pas même un mouvement tournant, mais un
+mouvement saxon. Pendant que M. Francis de Pressensé
 triomphait de M. Lasies, les radicaux triomphaient enfin MORE |
 
-Qu'on relise attentivement le texte. On sent très bien % 4
+Qu'on relise attentivement le texte. On sent très bien %
 le moment où l'éloquence de la tribune devint de parade FA
 
-réalité du jeu. Visiblement les orateurs nationalistes et 4
+réalité du jeu. Visiblement les orateurs nationalistes et
 
 ME Ti vers
 
@@ -1264,45 +1262,45 @@ oratoire pendant les deux derniers tiers de la deuxième
 ; rable conclusion de la deuxième et dernière séance,
 aucun de ceux qui firent les scrutins et qui en sont res36
 
-ponsables, et moins que tout autre l'ancien vice-roi È
+ponsables, et moins que tout autre l'ancien vice-roi
 
-soleil levant, ne prit la parole pour prononcer un véri- # 1
+soleil levant, ne prit la parole pour prononcer un véri- #
 
 Les honnêtes lecteurs, les honnêtes électeurs, —ily en à
 
-a beaucoup plus qu'on ne le croit, — ne peuvent ima- Le Ë
-giner à quel point de perversion, de corruption, de x.
-renversement les combinaisons, les insinuations, les x
+a beaucoup plus qu'on ne le croit, — ne peuvent ima- Le
+giner à quel point de perversion, de corruption, de
+renversement les combinaisons, les insinuations, les
 évaluations, les diplomaties parlementaires travaillent ‘4
 dans une séance aussi capitale. Un ami, honnête, mais ‘4e
 
-. intelligent, me disait : On a invalidé M. Syveton parce « 4
+. intelligent, me disait : On a invalidé M. Syveton parce «
 qu'on était, alors, à peu près assuré de sa réélection ; “4
 
 __ mais on a validé M. Congy parce qu'on n'était pas sûr be.
-de sa réélection. Je ne vais pas aussi loin, bien qu'il y É
-ait eu, depuis le commencement de la présente législa- 4
+de sa réélection. Je ne vais pas aussi loin, bien qu'il y
+ait eu, depuis le commencement de la présente législa-
 ture, des validations non moins scandaleuses que ne ‘4
-Vétaient certaines invalidations. Maïs il me paraît indé- 534
+Vétaient certaines invalidations. Maïs il me paraît indé-
 niable qu'on a invalidé M. Syveton pour pouvoir voter * #
-ensuite contre les résolutions Jaurès. Et dans linter- 4
-valle on a validé M. Congy parce qu'on avait invalidé 1
+ensuite contre les résolutions Jaurès. Et dans linter-
+valle on a validé M. Congy parce qu'on avait invalidé
 M. Syveton. C'est du moins la seule raison que jen ?
 
-_ puisse trouver. Les deux élections se valaient. Mais les v
+_ puisse trouver. Les deux élections se valaient. Mais les
 partis politiques parlementaires ont de ces balance- #
 
 _ menis et de ces équivoques équivalences. <i
 
 Pres plus fougueux socialistes révolutionnaires, les #4
-purs professionnels et tous ces incorruptibles de parti 5,
-donnent les mains à ces combinaisons quand c'est 54
-dans les assemblées politiques parlementaires qu'ils É
+purs professionnels et tous ces incorruptibles de parti
+donnent les mains à ces combinaisons quand c'est
+dans les assemblées politiques parlementaires qu'ils
 exercent leur prétendue incorruptibilité. Nos abonnés
-ont lu dans le compte rendu sténographique le 4
-compte rendu sténographié de l'incident Walter. Cet 4
+ont lu dans le compte rendu sténographique le
+compte rendu sténographié de l'incident Walter. Cet
 incident est particulièrement caractéristique. Les jour- {
-naux du lendemain matin, de tous les partis, étaient 14
+naux du lendemain matin, de tous les partis, étaient
 
 a dix-huitième cahier de la quatrième série
 ji à peu près unanimes à rapporter l'incident. Il est à
@@ -1333,21 +1331,21 @@ méthode, le procédé, la politique, — et la grossièrement
 | moment précis, à quel point stratégique de la séance,
 à quel point parlementaire, à quel point politique il se
 
-produisit, au moment où la droite avait besoin de toutes l 5
-ses forces, au moment où il fallait achever le descel- D
+produisit, au moment où la droite avait besoin de toutes
+ses forces, au moment où il fallait achever le descel-
 lement, la dislocation du ‘bloc, déterminer, précipiter ji
 _ la trahison des radicaux et la défection de certains ñà
-radicaux-socialistes. Qu'on pense à la grossièreté de 4
-l'interruption. Qu'on examine attentivement à quel 4
-moment et comment elle fournit un prétexte à la droite, | 19
-comment elle souleva, tout aussitôt, des huées vite 74
+radicaux-socialistes. Qu'on pense à la grossièreté de
+l'interruption. Qu'on examine attentivement à quel
+moment et comment elle fournit un prétexte à la droite,
+comment elle souleva, tout aussitôt, des huées vite
 apprêtées, et comme reconnaissantes, comment elle is
 fournit à M. le lieutenant-colonel Rousset le prétexte, 4 ‘à
-attendu, escompté, d'une manifestation facile, et à 1
+attendu, escompté, d'une manifestation facile, et à
 M. Ribot, qui tenait alors la tribune, et qui avait di.
 achevé son discours, l'occasion d'une générosité facile ‘a
 
-et d'une condescendance envers M. le président de la 4
+et d'une condescendance envers M. le président de la
 séance. Qu'on se reporte aux votes de M. Walter à la "
 
 fin de la même séance. Qu'après l'interruption même Ni:
@@ -1355,13 +1353,13 @@ on remarque l'intervention gratuite, la réparation vi
 gauche de Jaurès. Qu'on se rappelle non seulement Ad
 
 _ certaines séances parlementaires des assemblées bour- ‘4
-geoises ou des congrès socialistes, mais un assez grand D
-nombre d'élections où par de telles surenchères les 4
+geoises ou des congrès socialistes, mais un assez grand
+nombre d'élections où par de telles surenchères les
 coalisés guesdo-blanquistes faisaient le jeu de la réaction nationaliste et cléricale. Qu'on retrouve le ton de st
 cette surenchère politique dans l'incident soulevé par “4
-M. Walter. Et il est presque impossible de ne pas croire, à T0
-sur le vu du texte, que cet incident constitue propre- Ÿ f:
-ment un coup parlementaire. Un socialiste révolution- ; 11
+M. Walter. Et il est presque impossible de ne pas croire, à
+sur le vu du texte, que cet incident constitue propre-
+ment un coup parlementaire. Un socialiste révolution-
 naire me disait : Walter est si brutc qu'il est incapable :
 
 d'avoir imaginé un tel coup. Il n'en a pas cherché si
@@ -1400,31 +1398,31 @@ He scènes artificielles théâtrales parlementaires que les
 ; opérée avec tant d'apparat pour le public des spectateurs, que nous pouvons être assurés qu'elle constituait littéralement une représentation théâtrale. Et c'est
 parce qu'elle constituait une représentation théâtrale
 
-que l'honorable M. Brisson éprouva le vieux besoin d'y 3 n
-parler un langage romantique. Réciproquement et 114
+que l'honorable M. Brisson éprouva le vieux besoin d'y
+parler un langage romantique. Réciproquement et
 généralement, c'est parce que M. Brisson parle un Dr,
-langage romantique et théâtral qu'il organise des 4
-représentations théâtrales parlementaires ou qu'il y 4 Î
-participe. Ce n'est point par hasard, mais c'est par 0
+langage romantique et théâtral qu'il organise des
+représentations théâtrales parlementaires ou qu'il y
+participe. Ce n'est point par hasard, mais c'est par
 une logique intérieure inévitable que M. Brisson parla N |
 un langage romantique outré dans une représentation ‘il
 Les honnêtes gens, les simples gens n'ont pas de ces ‘4
 _ indignations concertées, théâtrales, scéniques. C'est n Ÿ |
-que leurs indignations ne sont point parlementaires, et ; 2
+que leurs indignations ne sont point parlementaires, et
 qu'elles ne sont point politiques. La grande exécution #4
 de M. Cavaignac, agencée pour tromper le public, pour ‘4
 tromper le peuple, pour nous tromper, nous les anciens ke
-et les véritables dreyfusistes, n'était, vulgairement, « 4
-qu'un coup de politique parlementaire, le coup le plus 1
+et les véritables dreyfusistes, n'était, vulgairement, «
+qu'un coup de politique parlementaire, le coup le plus
 retentissant, et, en ce sens, l'incident culminant de ces |
 deux journées. C'est sur cet incident que nous nous à
-arrêterons. Jaurès avait besoin de frapper un grand H.
+arrêterons. Jaurès avait besoin de frapper un grand
 | Coup pour appuyer son discours un peu creux parvenu bl.
-à peu près à la première moitié de son développement. 1
+à peu près à la première moitié de son développement.
 _ Il fallait frapper un de ces grands coups de justice et Ré
 de vérité, qui recouvrent des talions, mais dont on s'est A
 assuré un peu pompeusement le monopole d'État. Il Be
-fallait faire un exemple, foncer, épouvanter l'ennemi, 1
+fallait faire un exemple, foncer, épouvanter l'ennemi,
 terrasser quelqu'un. Il fallait passer de la défensive à & ‘1
 loffensive, et que l'offensive, ainsi localisée, fût vigou- à
 reuse, théâtrale, répandit la terreur, emportât la posi- À
@@ -1465,21 +1463,21 @@ génie de Jaurès fut, pour donner à l'injustice une
 À iapression de terreur salutaire et d'isolement, de faire
 exercer une épouvantable sanction de justice par des
 
-injustes professionnels. Car Jaurès ne s'est pas seule- 2h
+injustes professionnels. Car Jaurès ne s'est pas seule-
 ment permis, Jaurès ne s'est pas seulement attribué le ‘4
 droit de nous imposer une odieuse amnistie, qui, au- #4
 jourd'hui plus que jamais, pèse écrasante sur notre +
 action de justice, écrase notre action de vérité; il n'a Ro:
 pas seulement détourné ainsi, globalement, le dreyfu Le
-sisme à des fins politiques; mais, par la plus singulière 1
-et la plus inquiétante, par la plus dangereuse des pré- 3
+sisme à des fins politiques; mais, par la plus singulière
+et la plus inquiétante, par la plus dangereuse des pré-
 tentions, il s'est permis, sous prétexte que cette amnistie | Fe
 est de lui, qu'elle est son œuvre, qu'il en est l'auteur, et ‘12
 comme le propriétaire, de s'en faire le dispensateur:; il #4
 s'attribue le droit de conférer à sa volonté ou de refuser ‘15
 aux coupables qu'il a sauvés les avantages de lam- He
-nistie qu'il à faite; il donne aux uns et retire aux 4
-autres les avantages d'une amnistie qui fut commune; car 0
+nistie qu'il à faite; il donne aux uns et retire aux
+autres les avantages d'une amnistie qui fut commune; car
 cette amnistie fut le bien commun, demeure la propriété *&
 indivise des criminels et du crime. Jaurès la divise, la 3 ‘4
 __ dispense, la partage, la donne et la retire. Au même ‘7
@@ -1487,15 +1485,15 @@ coupable, au même individu, Jaurès la donne ou la À
 retire, selon qu'on est bien sage ou qu'on n'est pas |
 sage. Quiconque peut servir, contribuer à la politique SA. &
 radicale de Jaurès, qu'il soit amnistié, au moins pour, ©"
-le temps de son utilisation. Quiconque ne sert pas, D:
+le temps de son utilisation. Quiconque ne sert pas,
 quiconque nuit, qu'il soit exterminé, au moins pour ce DE (3
 temps. Cette amnistie est devenue aux mains de #4
-M: Jaurès exactement ce qu'est devenue l'absolution 7 d
-aux mains des mauvais prêtres catholiques. Elle fonc- Get 4
+M: Jaurès exactement ce qu'est devenue l'absolution
+aux mains des mauvais prêtres catholiques. Elle fonc- Get
 tionne à volonté; par éclipses; elle joue à la volonté, &s
-au gré, à la fantaisie du dispensaieur. Elle sert com- x.
+au gré, à la fantaisie du dispensaieur. Elle sert com-
 munément à garantir des menaces politiques sous a
-condition. Pour qui sait bien ce que c'est qu'une mani- ; 3
+condition. Pour qui sait bien ce que c'est qu'une mani-
 festation religieuse, pour qui sait retrouver la réalité : ;
 
 à dix-huitième cahier de la quatrième série
@@ -1615,8 +1613,8 @@ px se prononcer, de prendre parti, de se compromettre
 
 par un acte, par le peu d'acte qu'est un vote parlemen- FOR
 taire. On sait quelle était la teneur de cet ordre du |
-jour en sa seconde partie : La Chambre... et résolue à Ù
-ne pas laisser sortir l'affaire Dreyfus du domaine judi- l
+jour en sa seconde partie : La Chambre... et résolue à
+ne pas laisser sortir l'affaire Dreyfus du domaine judi-
 ciaire, passe à l'ordre du jour. Jaurès nous déclarait,
 le lendemain du vote, que cet ordre du jour ne le gênait
 nullement. Il nous déclarait hier que cet ordre du jour
@@ -1634,7 +1632,7 @@ M. Cavaignac du Paradis gouvernemental, quand on
 en fut au scrutin, quand il s'agit de voter, quand il ;
 ; fallut se prononcer entre M. Jaurès et les ennemis
 sournois ou déclarés de M. Jaurès, quand Fheure vint
-d'un acte, si facile que fût cet acte, si peu coûteux de 5
+d'un acte, si facile que fût cet acte, si peu coûteux de
 courage et de droiture, l'honorable M. Brisson (Henri) ;
 (Bouches-du-Rhône) se réfugia dans l'abstention. N'a
 pas pris part au vote. Page 245. Mais ce n'est rien ee
@@ -1654,7 +1652,7 @@ ne Dreyfus. Il importe que le pays le sache. La voix de
 ‘à M. Brisson n'était pas parmi ces 75 voix, et au dernier
 7 moment, elle fut contre.
 #4 [Le nom de M. Brisson n'est pas le seul nom qui
-' laisse une grande tristesse à qui dépouille ces scrutins. é
+' laisse une grande tristesse à qui dépouille ces scrutins.
 d Mais le nom que j'ai en vue concerne plus particulièrement le dreyfusisme.]
 7'EPR L'honorable M. Brisson a éminemment ce vice
 de radical, d'être perpétuellement en retard quand ïül
@@ -1694,7 +1692,7 @@ nés et devenus beaucoup plus forts que lui en politique,
 parce qu'ils ne sont pas gênés par d'anciennes habitudes d'honnêteté, mais parce qu'ils étaient foule et qu'il
 était seul, parce qu'ils étaient masse et qu'il était
 homme. Jaurès put croire, aux deux tiers de la pre-
-| mière séance, quand il vit les radicaux entrer si tumultueusement dans l'exécution de M. Cavaignac, il put 5
+| mière séance, quand il vit les radicaux entrer si tumultueusement dans l'exécution de M. Cavaignac, il put
 j croire qu'ils donnaient ainsi des gages, qu'ils entraient
 
 n dix-huitième cahier de la quatrième série
@@ -1735,10 +1733,10 @@ affaire Dreyfus elle-même et le recommencement que
 l'on vient d'en essayer par les moyens politiques parlementaires.
 En dehors de tout commentaire, et sans interrompre
 le travail normal de nos cahiers, nous avons résolu de :
-publier un dossier de l'affaire Dreyfus, textes et docu- ù
+publier un dossier de l'affaire Dreyfus, textes et docu-
 ments officiels, à mesure qu'ils se présenteront. La
-sténographie des récents débats parlementaires ouvrait Ÿ
-\ ce dossier. Nous publions aujourd'hui la lettre de M.
+sténographie des récents débats parlementaires ouvrait
+\ ce dossier. Nous publions aujourd'hui la lettre de
 \ Alfred Dreyfus au ministre de la guerre :
 
 Le Temps daté du jeudi 23 avril publiait le texte
@@ -1757,7 +1755,6 @@ A la date du 9 avril dernier, M. Ferlet de Bourbonne
 | a envoyé à M. le député Jaurès la lettre ci-après:
 # Puisque dans les deux dernières séances de la Chambre
 des députés, vous avez cru devoir me citer à plusieurs
-| 53
 
 Ne: reprises, comme un des plus actifs propagateurs de l'anno-
 # tation par l'empereur d'Allemagne du bordereau de Drey4 ï fus, je viens aujourd'hui vous répondre au nom de la
@@ -1812,7 +1809,7 @@ La prétendue légende a donc des bases solides et pro- |
 bantes, surtout si j'ajoute que je tiens de l'ami intime de
 | M. de Münster, du colonel Stoffel (qui m'en a lui-même
 dieté la traduction dans son propre cabinet, rue de Mon-
-| ceau), Fannotation écrite par Guillaume I sur le bordereau qu'il renvoyait à Schwarzkoppen : 3
+| ceau), Fannotation écrite par Guillaume I sur le bordereau qu'il renvoyait à Schwarzkoppen
 « Envoyez-moi au plus tôt les pièces désignées. Faites en
 } sorte que cette canaille de Dreyfus se dépêche. — WILHEM. »
 , _ C'est le voile jeté sur ces deux courtes phrases qui a fait
@@ -1822,7 +1819,7 @@ Dites-moi, monsieur, si une âme française et patriote
 pouvait rester calme et inactive en face de données si pré-
 cises, recueillies à une source qui venait de l'adversaire.
 Oui, j'ai parlé; oui, j'ai agi; oui, j'ai voulu divulguer ce
-que je considérais comme une sorte de réhabilitation de ë
+que je considérais comme une sorte de réhabilitation de
 mon pays vis-à-vis de l'étranger mal renseigné...
 À L'empereur d'Allemagne aime sa patrie, je l'admire. :
 ét Quant à moi, je me fais gloire d'être patriote aussi, d'aimer
@@ -1830,16 +1827,16 @@ mon pays vis-à-vis de l'étranger mal renseigné...
 Du: Que Dieu la protège!
 
 Let Il résulte des déclarations contenues dans la lettrede .
-000 M. Ferlet de Bourbonne qu'il a existé une pièce portant
+M. Ferlet de Bourbonne qu'il a existé une pièce portant
 Re une soi-disant annotation de l'empereur d'Allemagne et
 dans laquelle je serais signalé comme ayant fourni des
 5 documents à l'étranger.
-4 L'existence de cette pièce est donc maintenant dé-
+L'existence de cette pièce est donc maintenant dé-
 nt montrée d'une manière irréfutable et définitive, et la
 D démonstration est d'autant plus probante qu'elle émane
 4 î d'un adversaire qui affirme l'authenticité de l'annotation
 71808 attribuée à l'empereur Guillaume II.
-4 L'influence de cette pièce est manifeste dans toutes
+L'influence de cette pièce est manifeste dans toutes
 te k les phases de la lutte engagée contre moi parles ennemis
 à : pour la revision, en vue de m'aliéner l'opinion publique,
 El la Libre Parole raconte que la pièce produite devant le
@@ -1856,7 +1853,7 @@ L supérieur lui dit: « En ce qui concerne Dreyfus, je
 % documents absolument probants.…, lorsque le moE. ment sera venu, on les servira... » Le 13 décembre
 . suivant, M. Rochefort publiait un article où il révé-
 mi. lait l'existence de prétendues lettres de l'empereur d'AId ÿ. lemagne.
-# M. Paléologue, dans sa déposition à la Cour de cas2e 56
+# M. Paléologue, dans sa déposition à la Cour de cas2e
 
 sation, dit que le lieutenant-colonel Henry, le 2 ou
 3 novembre 1897, a fait allusion à une lettre de l'empereur d'Allemagne.
@@ -1905,7 +1902,7 @@ ge. qu'il avait joué au procès de Rennes.
 du 25 décembre 1900 sous la signature de M. Rochefort,
 à non explicite il est vrai, sur la question de communiF cation, indiquait aussi comme la raison détermi76 nante de ma condamnation le prétendu bordereau
 kr annoté, sur lequel il fournit des explications circonstan1 ciées.
-5 Enfin, un juge titulaire du conseil de guerre de
+Enfin, un juge titulaire du conseil de guerre de
 k À Rennes, le commandant Merle, a fait une déclaration
 170 plus explicite encore. Au docteur Dumas qui se déclarait
 Ë stupéfait d'une condamnation après de tels débats, le
@@ -2119,23 +2116,23 @@ nous reproduisons ci-après fait éminemment partie
 _  comple rendu des récents débats parlementaires :
 
 La Dépêche, de Toulouse, datée du samedi 11 avril,
-publiait l'article suivant : L J
+publiait l'article suivant
 La clôture de la session a été en même temps la clôture :
 de la « reprise » de l'affaire Dreyfus.
 Cette « reprise » avait été annoncée, non sans fracas,
 commé un des événements sensationnels de la politique |
-Sans doute, beaucoup d'excellents républicains se demandaient quelle utilité pouvait bien avoir, quelques jours H
+Sans doute, beaucoup d'excellents républicains se demandaient quelle utilité pouvait bien avoir, quelques jours
 avant l'application difficile et délicate de la loi de rgor, la
 réouverture de débats qu'avaient clos, tant bien que mal, |
 la grâce de Dreyfus et l''amnistie de Mercier. {
-Politiquement, il était à craindre qu'une pareille reprise 1
+Politiquement, il était à craindre qu'une pareille reprise
 ne tendît à séparer de nouveau l'Armée et la République, ANT AE
 dans un moment où la République doit compter sur :
 FArmée pour exécuter les lois contre les Congrégations ht
 Socialement, l'on pouvait aussi se demander si la VA ER
 « reprise » n'aurait pas pour conséquence de reculer indé-
 \ finiment l'examen des problèmes économiques, tels que !
-l'impôt sur le revenu et les retraites ouvrières, qui passionnent à juste titre le prolétariat tout entier. ù
+l'impôt sur le revenu et les retraites ouvrières, qui passionnent à juste titre le prolétariat tout entier.
 se) L'heure paraissait donc assez mal choisie, à tous les
 
 dt points de vue, pour reporter la bataille sur des terrains
@@ -2172,40 +2169,40 @@ ns et politique. Mais cette communication n'est rien moins
 ; Alors, la Chambre, à une énorme majorité, s'est prononcée
 
 contre toute reprise politique de l'Affaire. Elle a laissé le à
-général André parfaitement libre d'ordonner toutes en- x
-quêtes administratives qui lui paraîtraient utiles sur les S
-points de détail signalés par les uns et les autres. Mais, en Ÿ
+général André parfaitement libre d'ordonner toutes en-
+quêtes administratives qui lui paraîtraient utiles sur les
+points de détail signalés par les uns et les autres. Mais, en
 affirmant sa confiance dans le gouvernement, elle a tenu à
-signifier que rien ne la détournerait de la mission à elle j
+signifier que rien ne la détournerait de la mission à elle
 confiée par le suffrage universel, je veux dire la dispersion ,
-des congrégations, l'abrogation de la loi Falloux et l'établissement de l'impôt sur le revenu. ÿ
-La Chambre, en faisant cela, a fait d'excellente politique f
+des congrégations, l'abrogation de la loi Falloux et l'établissement de l'impôt sur le revenu.
+La Chambre, en faisant cela, a fait d'excellente politique
 républicaine et sociale. D'ailleurs, fille de l'amnistie, pou- ;
 vait-elle renier sa mère ? } :
 Assurément, les débats sur la « reprise » ont eu quelques ïS
 heureux effets. L'intervention courageuse de M. Henri he
-Brisson a permis d'exécuter définitivement le criminel ÿ
+Brisson a permis d'exécuter définitivement le criminel
 imbécile qui ne mérite même plus de porter le nom des
-Cavaignac. Et la remise en lumière des faux « patrio- 4
+Cavaignac. Et la remise en lumière des faux « patrio-
 tiques » sur lesquels s'étaya la « Patrie française » n'a pas
 peu contribué à faire invalider son trésorier général :
-Mais, en dehors de cela, il faut bien convenir que la x
-« reprise », insuffisamment amorcée, pouvait présenter les ; F
-plus graves désavantages pour la République laïque. L è
+Mais, en dehors de cela, il faut bien convenir que la
+« reprise », insuffisamment amorcée, pouvait présenter les
+plus graves désavantages pour la République laïque.
 Il ne faut pas essayer de faire revivre après coup les
 époques héroïques. On n'en évoque plus que la caricature
-L'intérêt de la vie s'est porté ailleurs, sur des problèmes ÿ
-d'une humanité plus large. ÿ
-jurisprudence, ce que la France veut maintenant savoir, 33
-c'est si le mouvement de libre pensée anticléricale et sociale, 572
+L'intérêt de la vie s'est porté ailleurs, sur des problèmes
+d'une humanité plus large.
+jurisprudence, ce que la France veut maintenant savoir,
+c'est si le mouvement de libre pensée anticléricale et sociale,
 né d'ailleurs bien avant l'Affaire, et qui la dépasse comme “
 le fleuve dépasse un aflluent, continuera de s'accroître, de \g
 s'étendre, de gagner toute la conscience humaine, ou si, il
 au contraire, cet admirable mouvement d''émancipation du a
-Peuple par la Raison sera rétréci, canalisé, finalement 5
+Peuple par la Raison sera rétréci, canalisé, finalement
 | amorti sous l'Église et sous la Ploutocratie.
 La « reprise » de l'Affaire ne pouvait guère être qu'un +
-. épisode rétrospectif et même une déviation assez dange- Ÿ
+. épisode rétrospectif et même une déviation assez dange-
 
  rense de la politique générale qui triompha aux élections
 
@@ -2221,9 +2218,9 @@ ts FE | suivante, que je gardais pour le premier cahier de
 _: 1108 courriers, mais dont je ne puis ajourner plus longtemps
 Ùù_ la publication:
 
-Reçu le cahier de courriers. J'ai lu le courrier 5e
+Reçu le cahier de courriers. J'ai lu le courrier
 
-Page 48. — Ce n'est pas Tirman qui s'est appuyé sur 4
+Page 48. — Ce n'est pas Tirman qui s'est appuyé sur
 
 le parti radical et a organisé l'antisémitisme algérien, #
 
@@ -2231,37 +2228,37 @@ c'est Cambon. * #
 
 Page 49. — L'influence des consistoires a été très À
 
-grande sur les juifs pauvres et ils ont opprimé forte- 4
+grande sur les juifs pauvres et ils ont opprimé forte-
 
 ment les malheureux, mais c'est une erreur de repré- ;
 
 senter leur oppression comme cléricale, elle a été
 
-purement capitaliste, et les laïques qui sont membres Ë
+purement capitaliste, et les laïques qui sont membres
 
-des consistoires juifs sont généralement peu religieux À d
+des consistoires juifs sont généralement peu religieux À
 
 et encore moins cléricaux. à
 
-Page 50. — Il faudrait mentionner la masse proléta- ï
+Page 50. — Il faudrait mentionner la masse proléta-
 
 rienne juive, se référer au livre de Durieu sur les Juifs rs
-algériens, dont /a Revue Socialiste a publié de nom- N
+algériens, dont /a Revue Socialiste a publié de nom-
 
 Page 54. — Sur la question de l'usure algérienne. À
 
 D'abord l'usurier juif prête rarement au colon, il prête i ;
 
-plus souvent à l'arabe. Il faut savoir en outre qu'aux 4
+plus souvent à l'arabe. Il faut savoir en outre qu'aux
 
-débuts de l'agitation antisémitique le gouverneur géné- s
+débuts de l'agitation antisémitique le gouverneur géné-
 
 ral Cambon ouvrit une enquête sur l'usure, dont on TX
 
 annonça la publication, qui devait fournir contre les nn
 
-juifs des armes terribles. On ne la publia jamais. î
-Pourquoi ? Parce qu'elle montra : É
+juifs des armes terribles. On ne la publia jamais.
+Pourquoi ? Parce qu'elle montra
 
 1° Que les usuriers juifs étaient bien moins nombreux |
 
@@ -2281,4 +2278,3 @@ ER Kahina, l'héroïne berbère qui défendit l'Algérie contre
 7a l'invasion arabe, était à la tête d'une de ces tribus
 174 : judaïsées : elle était juive; — et ce ne sont pas eux qui
 Ê a ont envahi le sol des Français d'Algérie, mais bien le
-34

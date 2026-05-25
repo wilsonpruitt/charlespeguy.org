@@ -24,7 +24,7 @@ six cahiers de la deuxième et de la troisième série.
 Nous mettons ce cahier dans le commerce; nous le
 
 vendons un franc
-1 7
+1
 
 introduction à la métaphysique
 
@@ -152,7 +152,7 @@ IV. Les difficultés inhérentes à la métaphysique,
 les antinomies qu'elle soulève, les contradictions
 où elle tombe, la division en écoles antagonistes et
 les oppositions irréductibles entre systèmes, viennent en grande partie de ce que nous appliquons à
-la connaissance désintéressée du réel les procédés 4
+la connaissance désintéressée du réel les procédés
 dont nous nous servons couramment dans un bui
 
 d'utilité pratique. Elles viennent de ce que nous
@@ -665,7 +665,7 @@ Congrès international de Philosophie
 L Philosophie générale et Métaphysique
 
 II. Logique et Histoire des Sciences /paru). 25 fr.
-IV. Histoire de la Philosophie /paru/. . . . 42fr. 50
+IV. Histoire de la Philosophie /paru/. . . . 42fr.
 
 Envoi franco, sur demande, d'une circulaire donnant les titres des
 Mémoires communiqués au Congrès et dont la réunion formera les
@@ -740,7 +740,7 @@ groupes et d'universités populaires; plus il y aura de
 vrai peuple qui lira ce livre, plus il y aura de vrai
 peuple d'averti et peut-être de gardé contre la corruption.
 
-Contribuons tant que nous pouvons, s'il en est temps i
+Contribuons tant que nous pouvons, s'il en est temps
 encore, à l'éducation de la démocratie; et d'abord, sincèrement, par l'histoire de la démocratie,
 
 Vient de paraître chez Calmann-Lévy, en vente à la ;
@@ -808,7 +808,7 @@ comprendre réellement le caractère de l'action sociale, il
 
 à faut en étudier les modes à la lumière du caractère de ceux
 qui les mettent en œuvre, et des conditions sociales et
-politiques où leurs volontés se forment et se manifestent. K
+politiques où leurs volontés se forment et se manifestent.
 C'est seulement ainsi comprise que l'étude des méthodes
 politiques aura, en même temps qu'une portée philoso32
 
@@ -952,9 +952,9 @@ j'apparais à mon tour comme un témoin devant le public.
 Je reconnais la responsabilité qui m'incombe et je l'assume
 pleine et entière. Ce que je viens de dire se rapporte natu- |
 rellement aussi à la partie américaine de mon enquête, que |
-j'ai entreprise après avoir épuisé mon sujet en Angleterre. F:
+j'ai entreprise après avoir épuisé mon sujet en Angleterre.
 Maître de la méthode que j'avais éprouvée au cours de mes
-investigations anglaises, j'ai repris sur nouveaux frais 3
+investigations anglaises, j'ai repris sur nouveaux frais
 l'enquête américaine, et je l'ai poursuivie selon cette
 Ainsi je suis arrivé à élever un ensemble qui, sous la :
 forme d'une étude scientifique, historique et critique du
@@ -1314,8 +1314,6 @@ manque de courage civique chez les hommes publics ;
 ce ne sont plus des conducteurs d'hommes; le leadership est exercé par d'autres qu'eux, d'une manière
 irrégulière et spasmodique. Comment la responsa-
 
-| 47
-
 bilité des hommes publics est d'autant moins réelle
 que la sanction d'un contrôle lui fait défaut; indifférence du public; le mérite n'est pas plus remarqué
 que le démérite. Comment l'action des hommes
@@ -1551,7 +1549,7 @@ développait le respect grossier de la puissance du
 nombre, et abaïssait le caractère de la crainte qu''inspire la force de l'opinion, en la maintenant à l'état
 de force brutale.
 
-3 VI. Comment la notion conventionnelle de parti entravait
+VI. Comment la notion conventionnelle de parti entravait
 la libre aflirmation des opinions individuelles qui
 
 d = tempère le despotisme du gouvernement de l'opinion
@@ -1638,8 +1636,8 @@ générale, conçues par les hommes du dix-huitième
 siècle sous la forme métaphysique de l'unité, et
 comment il annule les inconséquences auxquelles |
 ces doctrines aboutissent chez Rousseau aussi bien
-que celles que leurs critiques ont cherché à leur ÿ
-56 4
+que celles que leurs critiques ont cherché à leur
+56
 
 XIII. Examen des principales objections contre la nouvelle
 méthode d'action politique : l'existence de plusieurs
@@ -1716,7 +1714,7 @@ repoussée. Comment la responsabilité individuelle
 des ministres, substituée à leur responsabilité collective, renouvellera le régime parlementaire, établira
 la stabilité dans le gouvernement et la responsabi-
 
-! lité réelle des gouvernants, permettra un meilleur Ç
+! lité réelle des gouvernants, permettra un meilleur
 recrutement des ministres, et, tout en assurant aux
 ministres et aux députés leur indépendance, rendra
 leur collaboration plus utile. Changements qu'amè-
@@ -1745,8 +1743,6 @@ déjà réalisée et à la liberté morale qu'il reste à conquérir. Comment le
 3 l'esprit et de la conscience civiques doit avoir pour
 complément le changement des méthodes politiques
 dans le sens de l'action libre, fondée sur la respon-
-
-| 59
 
 sabilité individuelle. Comment ces trois facteurs individualistes de la rénovation politique se présentent
 
@@ -1835,7 +1831,7 @@ mal entendus ; pour la première fois ils ont à séance
 ouverte sacrifié les intérêts féconds aux intérêts sté- :
 riles; pour la première fois ils ont avec une sorte d'apparat, une solennelle unanimité, sacrifié le droit aux
 intérêts, la justice aux faveurs, la raison, la sagesse
-aux fureurs et aux insanités. 1
+aux fureurs et aux insanités.
 On sait de quoiil s'agissait. Il ne s'agissait nullement, |
 comme on pourrait le croire, d'un grand débat ouvert,
 
@@ -1861,7 +1857,7 @@ monde civilisé.
 Dans le pays nous luttons d'arrache-pied, nous luttons
 désespérément contre les progrès, contre le maintien
 de cet empoisonnement, contre l'envahissement de ce
-poison; que nous soyons momentanément battus et j
+poison; que nous soyons momentanément battus et
 refoulés, nous n'en lutterons que plus vigoureusement ;
 nous n'accepterons pas que la France, —un tel morceau
 d'humanité, — sombre dans l'abrutissement, dans la
@@ -1870,7 +1866,7 @@ folie et dans le crime.
 Ainsi dans le pays nous luttons. Nous luttons et les
 
 _  empoisonneurs n'auront pas la bataille aussi aisée qu'ils
-4 Dans le pays nous simples citoyens nous luttons pour
+Dans le pays nous simples citoyens nous luttons pour
 et contre l'envahissement et le maintien de l'empoison63
 
 douzième cahier de la quatrième série
@@ -2141,14 +2137,14 @@ n'avait pu faire ni la vérité, ni la justice, ni Le droit ;
 ni la tolérance, ni la bonté, ni la facilité ; ni les grèves,
 ni les retraites ouvrières ; ni la liberté de la culture et ;
 ja liberté de l'enseignement; ni la démagogie cléricale
-ni la démagogie anticléricale; ni les congrégations ni è
+ni la démagogie anticléricale; ni les congrégations ni
 les associations : balancer le gouvernement, faire
 ajourner un budget qu'on nous disait si pressé,
 rendre inévitable au moins un nouveau douzième
 provisoire, tout cela s'est fait, aisément, comme
 allant de soi, tout aussitôt que l'on eut connu qu'il
 s'agissait en effet de l'empoisonnement électoral. |
-72 1
+72
 
 Je veux noter encore en bref un exemple éclatant
 de la distinction que je reconnais entre l'État et nous
@@ -2200,11 +2196,11 @@ l''empoisonnement; il escomptait le mécontentement |
 produit chez les bouilleurs de cru par la suppression de
 leur privilège; le jeu était simple, au moins sur l'échiquier parlementaire : premièrement vous anéantissiez
 les bouilleurs de cru; deuxièmement les bouilleurs
-de cru, furieux d'avoir été anéantis, se disaient : 4
+de cru, furieux d'avoir été anéantis, se disaient
 Puisque c'est ça la vie, anéantissons aussi les grands
 distillateurs du Nord et votons le monopole de M. Jaurès.
 
-74 4
+74
 
 Et par cet anéantissement mutuel et volontaire, par
 ce beau coup de suicide à la tribune, le monopole
@@ -2300,11 +2296,11 @@ République des articles de M. Blum qu'un article,
 
 comme il nous advint ce mois-ci, de M. Alexandre !
 
-Zévaès. Les articles de M. Blum roulaient aussi sur les 4
+Zévaès. Les articles de M. Blum roulaient aussi sur les
 
 monopoles avantageux. Les étatistes sont si pénétrés à
 
-de l'État qu'ils en sont à le sous-entendre dans leur dis- 4
+de l'État qu'ils en sont à le sous-entendre dans leur dis-
 
 cours même; quand ils ne parlent de rien, c'est de
 _ VÉtat qu'ils parlent; quand ils ne parlent de personne,
@@ -2358,18 +2354,18 @@ rente; nous serons les ennemis de l'État; l'État nous
 traitera-t-il en ennemis ? Malheur à l'État qui traîte en
 ennemis les meilleurs citoyens. Et l'État lui-même, comment se conduira-t-il envers sa propre marchandise ?
 Comment l'État enseignant, comment l'État policier,
-comment l'État judiciaire traitera-t-il cet État empoi- 1
+comment l'État judiciaire traitera-t-il cet État empoi-
 sonneur? Comment les instituteurs d'État parleront-ils à
-aux enfants des distilleries nationales ? 3
+aux enfants des distilleries nationales ?
 En d'autres termes, est-ce pour exterminer l'alcoo- |
-lisme, ou est-ce au contraire pour l'exploiter que vous 3
+lisme, ou est-ce au contraire pour l'exploiter que vous
 établirez le monopole de l'État ? Si c'est pour extermi- À
 ner l'alcoolisme, ne nous dites pas que vous fondez À
 sérieusement un budget sur des ressources. dont ;
-vous voulez anéantir la source même. Si au contraire 4
-c'est pour exploiter l'alcoolisme, vous êtes des finan- 1
-ciers sérieux, mais ne nous dites pas que vous êtes î
-antialcoolistes, et ne nous parlez pas de morale. Et ne 4
+vous voulez anéantir la source même. Si au contraire
+c'est pour exploiter l'alcoolisme, vous êtes des finan-
+ciers sérieux, mais ne nous dites pas que vous êtes
+antialcoolistes, et ne nous parlez pas de morale. Et ne
 nous parlant pas de morale, ne nous parlez pas de justice. Et ne nous parlant pas de justice, ne nous parlez £
 
 pas de justice sociale, et de révolution sociale, et ne
@@ -2414,7 +2410,7 @@ Les annonces des cahiers sont gratuites. Nous annon-
 et les volumes qui peuvent devenir pour eux, ou pour
 certains d'entre eux, des moyens de travail et de culture, sans demander aux éditeurs ni leur avis, ni leur {
 — Sur les annonces des cahiers publiées dans les trois ;
-premières séries des cahiers, se référer au i
-Sixième cahier de la quatrième série, cahier de É
-courrier, inventaire des cahiers, en forme de cata- 4
+premières séries des cahiers, se référer au
+Sixième cahier de la quatrième série, cahier de
+courrier, inventaire des cahiers, en forme de cata-
 logue, un cahier de 72 pages, un franc ie

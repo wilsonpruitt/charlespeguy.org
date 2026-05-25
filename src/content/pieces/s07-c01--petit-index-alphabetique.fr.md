@@ -13,10 +13,10 @@ _et table analytique très sommaire
 
 De 8, rue de la Sorbonne, au rez-de-chaussée
 
-10 LE qui ne vifitent les Tables des liures, qu'affin d'y choi- ni
-4 ifir les matieres qu'ils veulent voir, & de s'exempter de la 6
+LE qui ne vifitent les Tables des liures, qu'affin d'y choi- ni
+4 ifir les matieres qu'ils veulent voir, & de s'exempter de la
 > . peine de lire le refte, ne tireront aucune fatisfaétion de celle qu
-h cy : Car l'explication des queftions qui y sont marquées de- 20
+h cy : Car l'explication des queftions qui y sont marquées de-
 …_ pond quafi toufiours ji expreffement de ce qui les precede, &
 __  fouuent auffy de ce qui les fuit, qu'on ne la fcauroit entendre
 … parfaitement fi on ne lift auec attention tout le liure. Mais
@@ -24,29 +24,29 @@ __  fouuent auffy de ce qui les fuit, qu'on ne la fcauroit entendre
 ÿ chofes les plus generales qu'il contient, cette Table leur pourra
 __  feruir; tant a les faire fouuentr des endroits où il eft parle des
 À plus particulieres qui feront efchappées de leur. memoire; que |
-…._  Jouuent auffy à leur faire prendre garde a celles qu'ils auront 3
+…._  Jouuent auffy à leur faire prendre garde a celles qu'ils auront
 _  peuteftre paffées fans les remarquer.
 
 Nous avons publié dans nos éditions antérieures et
-dans nos cinq premières séries, 1900-190/, un si 48
+dans nos cinq premières séries, 1900-190/, un si
 grand nombre de documents, de textes formant dos NN
 siers, de renseignements et de commentaires; — un
 si grand nombre de cahiers de lettres, — nouvelles, D :
 romans, drames, dialogues, poèmes et contes; — un Ty
-k si grand nombre de cahiers d'histoire et de philoso- 0
-phie ; et ces documents, renseignements, textes, dos- -: 58
+k si grand nombre de cahiers d'histoire et de philoso-
+phie ; et ces documents, renseignements, textes, dos- -:
 | siers et commentaires, ces cahiers de lettres, d'histoire 2 <PAP
-i et de philosophie étaient si considérables que nous ne - F4
+i et de philosophie étaient si considérables que nous ne
 pouvons pas songer à en donner ici l'énoncé méme le . à
 plus succinct; pour savoir ce qui a paru dans les cinq
 premières séries des cahiers, il suffit d'envoyer un man- 4 fi.
 dat de cinq francs à M. André Bourgeois, administra- :°e
-teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, } 20
+teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, }
 Paris, cinquième arrondissement ; on recevra enretour ….
-le catalogue analytique sommaire, rg00-190£, de nos - 30
+le catalogue analytique sommaire, rg00-190£, de nos
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci, …
-une idée, abrégée, mais complète, de nos éditions anté- 14
+une idée, abrégée, mais complète, de nos éditions anté-
 
 4 44 .
 
@@ -102,7 +102,7 @@ L Î un cahier qui étant tout entier de ma main m'appartienne
 E: cahiers, qu'ils sont respectivement autonomes, libres
 1 entre eux, mutuellement libres, libres les uns des autres,
 N. que chacun d'eux naît, vit et se meut dans une libre
-D" compagnie de cahiers libres; ce principe est un de ceux È
+D" compagnie de cahiers libres; ce principe est un de ceux
 
 J qui ont fait la force de notre institution, et aujourd'hui
 
@@ -136,7 +136,7 @@ vieux peuple, certes, un peuple ancien, le père du monde
 moderne et de la liberté, un grand peuple encore, et,
 somme toute, le premier des peuples, tout un peuple
 
-4 4
+4
 ‘ tenu pendant plusieurs mois sous la plus brutale des
 US. menaces militaires; un nouveau duc de Brunswick,
 1 sorti de la même race allemande, menaçant ce même
@@ -155,7 +155,7 @@ fl autant : que le spectacle offert, que l'événement apporté
 À fait un bon spectacle de comédie, s'il était permis de
 ti rire d'aussi graves événements ; événement pitoyable,
 FE s'il était permis d'avoir quelque pitié pour tant de basse
-14 Hervé traître. Le traître Hervé. Spectacle pitoyable,
+Hervé traître. Le traître Hervé. Spectacle pitoyable,
 4 si on osait, spectacle assurément grotesque, événement
 EM comique, si l'on voulait, que de voir l'embarras de tous
 ‘4 ces gens de plume devant la trahison du traître Hervé ;
@@ -189,7 +189,7 @@ jamais plus, — et en retrouverons-nous jamais une qui lui
 soitmême comparable? — dans la situation morale singulièrement enchantée où nous avons vécu plusieurs années
 au cœur de la première, de l'ancienne affaire Dreyfus.
 
-4 Hervé traître. Le traître Hervé. Oublions pour un
+Hervé traître. Le traître Hervé. Oublions pour un
 | instant la maladie, la corruption et la mort ultérieures
 Fi de cette affaire éternellement célèbre. Oublions toute
 pi * cette pourriture politique parlementaire. Oublions les
@@ -206,7 +206,7 @@ K ancienne affaire propre est tombée, où nous la voyons
 4 même et enfin toutes ces singulières maladies qui
 ‘} successivement et comme par hasard, brusquement
 N frappent tous les conseillers rapporteurs à la Cour de
-É Cassation peu de temps après qu'ils ont été désignés 5
+É Cassation peu de temps après qu'ils ont été désignés
 N pour faire le rapport définitif de cette malheureuse
 i affaire. Oublions ces misères et ces souillures con-
 ‘M séquentes. Par un effort de mémoire, par la pensée
@@ -220,7 +220,7 @@ k le demande à tous ces anciens et purs dreyfusistes, qui
 réalisée, je le demande à ces pauvres gens, à ces anciens
 
 moralistes, à ces anciens dreyfusistes, armée trahie,
-armée vendue, armée livrée, anciennement la meïlleure i
+armée vendue, armée livrée, anciennement la meïlleure
 armée du monde, si l'on avait su, ou si l'on avait seulement voulu, non pas des lions conduits par des ânes,
 mais de très honnêtes gens dépouillés par des politiciens, je le demande à mes confrères les justiciards
 et les véritards anciens, risée des guesdistes et proie
@@ -228,10 +228,10 @@ escomptée de la démagogie nationaliste ancienne, je
 le demande à tous ces pauvres gens, mes confrères
 en ridicule, à toutes ces simples gens qui peu à peu
 se sont ralliés aux cahiers, et autour des cahiers, je dis
-aux cahiers et nulle part aïlleurs, je le demande, et d
+aux cahiers et nulle part aïlleurs, je le demande, et
 sous cette forme je défie bien qu'on élude la demande,
 qu'on esquive la réponse, qu'on glisse par un biais;
-je le demande en bref à toute personne de bonne i
+je le demande en bref à toute personne de bonne
 foi. Je dis: Si au cœur de l'affaire Dreyfus on nous
 avait démontré par des preuves scientifiques, historiques, techniques, juridiques exactes que M. Dreyfus dr
 (Alfred), — je fais ici une supposition très désagréable, ;
@@ -250,7 +250,7 @@ avait ainsi démontré que M. Dreyfus avait livré le graphique de cette partie 
 ‘4 par qui s'opère la mobilisation des régiments de la ;
 “ réserve et de l'armée territoriale fournis par les réser-
 ‘1 vistes et par les territoriaux du département de l'Yonne, :
-‘4 comme par hasard, lui-même empêchant ainsi ou comMr promettant nommément cette partie de la mobilisation c
+‘4 comme par hasard, lui-même empêchant ainsi ou comMr promettant nommément cette partie de la mobilisation
 14 générale, qu'eussions-nous dit immédiatement qu'il °
 ‘U était, Dreyfus ?
 
@@ -258,7 +258,7 @@ J Alors Hervé, qu'est-ce qu'il est?
 
 .
 
-| Ce petit index alphabétique de notre catalogue analytique sommaire est naturellement, comme ce catalogue, s
+| Ce petit index alphabétique de notre catalogue analytique sommaire est naturellement, comme ce catalogue,
 valable pour nos éditions antérieures et pour nos cinq
 Il sera constamment tenu à jour, c'est-à-dire que
 jusqu'à la publication du catalogue analytique sommaire
@@ -273,17 +273,17 @@ Ainsi pour la sixième série, 1904-1905, se reporter
 | du présent cahier; |
 Les prix marqués ici sont les prix, simplement repor-
 
-, tés, du catalogue analytique sommaire; ces prix ne u
+, tés, du catalogue analytique sommaire; ces prix ne
 peuvent naturellement diminuer; ils augmenteront à ;
 mesure que les cahiers non épuisés viendront en voie
 
 Les pages marquées ici sont fixes; ce sont les pages
 du catalogue analytique sommaire où l'on trouvera ‘
 tous les renseignements que nous avons pu y mettre :
-sur la teneur des cahiers correspondants. 1
+sur la teneur des cahiers correspondants.
 
 10 re 1 du catalogue analytique sommaire Di
-19 Cahier d'annonces, — un cahier en voie d'épuisement, OUEN
+Cahier d'annonces, — un cahier en voie d'épuisement, OUEN
  Aulard, — Histoire politique de la Révolution fran- RUE
 _  çaise, — extrait de l'avertissement, — un cahier en é ‘e
 M larcel et Pierre Baudouin, — Jeanne d'Arc, — drame DS ta
@@ -296,30 +296,30 @@ Henry Bérenger (non point à titre de coliaborateur,
 mais en citation dans l'affaire Dreyfus), — clôture !..
 Henri Bergson, — introduction à la métaphysique, —
 conclusion, — d'après la Revue de Métaphysique et de
-Bernard-Lazare, — l'oppression des Juifs dans l'EuFA rope orientale, — les Juifs en Roumanie, deux francs 114
+Bernard-Lazare, — l'oppression des Juifs dans l'EuFA rope orientale, — les Juifs en Roumanie, deux francs
 Æ — une lettre adressée à monsieur Th. Delcassé, ministre des affaires étrangères, — de Budapest, le 23 maï 1902-....:.:.:.:...0 44. CURE
 ï —  — la loi et les congrégations, — consultation-.:............1..,0..2... trois francs {Cmquante en
-_ _ Juifs de Roumanie, — une lettre à monsieur Anatole Leroy-Beaulieu............... un franc 230
+_ _ Juifs de Roumanie, — une lettre à monsieur Anatole Leroy-Beaulieu............... un franc
 | Bernard-Lazare et Trarieux, une communication de
 Edmond Bernus, — la Russie vue de La Vistule, — his-
 Berthelot, sénateur, membre de l'Académie française,
 secrétaire perpétuel de l'Académie des sciences, —
 discours prononcé à l'inauguration du monument
-Bibliothèque ouvrière socialiste, une annonce, un france 35
-Le Bloc de Clemenceau, indications de librairie complètes, relevé numérique, catalogue analytique sommaire, numéros et collections........... deux francs 299
+Bibliothèque ouvrière socialiste, une annonce, un france
+Le Bloc de Clemenceau, indications de librairie complètes, relevé numérique, catalogue analytique sommaire, numéros et collections........... deux francs
 
 …__ Maurice Bouchor, — une Lettre sur ce que l'on peut
-jouer dans une représentation populaire... un franc 113 : S
+jouer dans une représentation populaire... un franc
 _ André Bourgeois, — quatre jours à Montceau, — un \
-‘14 Émile Boutroux, président du Conseil de direction, — h k
+‘14 Émile Boutroux, président du Conseil de direction,
 14 discours lu pour l'inauguration des locaux et pour Dé:
 D l'ouverture des cours à l'École des Hautes Études hi
-… Sociales, — un cahier en voie d'épuisement......... 4
+… Sociales, — un cahier en voie d'épuisement.........
 4 — traduction et notes de L. Lévi : première partie, ;
 : Maximilien Robespierre jusqu'à son entrée dans ; }
-14 Cahiers nivernais, une annonce .............. un franc 8 ‘
+Cahiers nivernais, une annonce .............. un franc 8 ‘
 “_ le comité catholique pour la Défense du Droit, une
- … Léon Chaine, — les Catholiques français et leurs difji- k
+ … Léon Chaine, — les Catholiques français et leurs difji-
 ‘0 n'est plus mis en vente que dans les collections com4 Piées della troisième série 0 TS
 ‘1 —  — la Russie vue de Vladivostock, journal £
 1:10 Éexpulsé "ph Re un france 0143 %
@@ -333,7 +333,7 @@ Ve ) —  — Discours prononcé à l'inauguration du
 de : Georges Clemenceau, — Discours pour la liberté; —
 ses ET: dossier Clemenceau-Pressensé, Clemenceau-Jaurès.…..
 dl —  — Avant-Propos à : Gabriel Trarieux, Les
-de trois francs 348
+de trois francs
 LS Collège libre des Sciences sociales, — une annonce, un
 h Pour et contre les congrégalions, — dossier...........
 + La préparation du congrès socialiste national, — un :
@@ -343,30 +343,30 @@ h Pour et contre les congrégalions, — dossier...........
 fa française du cinquième congrès socialiste internatio4 nal tenu à Paris du 23 au 27 septembre 1900 .........
 
 & La Consultation internationale ouverte à la Petite Ré- TS de
-# _ publique sur l'affaire Dreyfus et le cas Millerand, — û 1h
+# _ publique sur l'affaire Dreyfus et le cas Millerand,
 | un cahier en voie d'épuisement ......... huit francs 14 1 SAR
 F __ —  —  uncahier épuisé, n'est plus mis en vente CARE
 #4 5 que dans les collections complètes de la première .
 . Henri Dagan, — l'Oppression des juifs dans l'Europe FOR
 À AS orientale, — les massacres de Kichinef et la situation Li |
-…_ des prolétaires juifs en Russie.......... deux francs 962 1
+…_ des prolétaires juifs en Russie.......... deux francs
 W _ François Dagen, — cahier de courriers, — courrier LS
 _ d'Algérie, — considérations sur les causes de la gran- “y A
 __ deur et de la décadence de l'antisémitisme en Algérie FRE
-} si é Jean Deck, — cahier de courriers, — courrier de Fin- à M 1
+} si é Jean Deck, — cahier de courriers, — courrier de Fin- à
 me V lande, — en particulier sur les troubles des 17 et ; ME
 _ —  — Pour la Finlande, mémoire et documents NU
 _ Daniel Delafarge, — M. Brunetière historien, — un ca- x %
-4 ‘#3 Pierre Deloire, — de la Gité Socialiste... dix centimes 1 4
+4 ‘#3 Pierre Deloire, — de la Gité Socialiste... dix centimes
 _ Léon Deshairs, — Boecklin ches les Français, un france 35 4 fe,
 
 Pour et contre Diderot, — confrontation, — un cahier
-épuisé, n'est plus mis en vente que dans les collections complètes de la deuxième série................. 929.
-Textes et documents, — le congrès de Dresde, — septembre 1903, — édition Gaston Raphaël, quatre francs 360
+épuisé, n'est plus mis en vente que dans les collections complètes de la deuxième série.................
+Textes et documents, — le congrès de Dresde, — septembre 1903, — édition Gaston Raphaël, quatre francs
 L'Affaire Dreyfus, — textes et documents, — un cahier
 ! — — Contribution aux Preuves, — un cahier
 — — docteur Oyon,— précis de l'affaire DreyJus, lettre à un ami qui ne sait pas, préface d'Anatole |
-France, éditions de Pages libres, annonce, un franc 231
+France, éditions de Pages libres, annonce, un franc
 Affaire Dreyfus, — Débats parlementaires, — Intervention Jaurès; docteur Oyon, — précis de l'Affaire
 trois francs cinquante... 235 et 9237
 Cahiers de la Quinzaine, — Débats parlementaires;
@@ -387,25 +387,25 @@ fé Émile Duclaux, directeur de l'École, — allocution prononcée pour l'inau
 ee Édouard Dujardin, — la question budgétaire, — dans
 1 le cahier les Universités Populaires, 1900-1901, — I. —
 NP Parisietibanliene!. 1140042107). un franc 6138
-LA Paul Dupuy, — La vie d''Évariste Galois ... deux francs 269
+LA Paul Dupuy, — La vie d''Évariste Galois ... deux francs
 M École des Hautes Études Sociales, — école de morale,
 di école sociale, école de journalisme, 1900-1901, — un
-3 École socialiste, — une annonce, — un cahier en voie
+École socialiste, — une annonce, — un cahier en voie
 Lt Travail des enfants, — discussion à la Chambre de la
 Le proposition de loi portant nouvelle réglementation
 (4 du travail des enfants, des filles mineures et des
 li femmes dans les établissements industriels, — un
 Vs —  — un cahier en voie d'épuisement........
-ont douze francs 11
+ont douze francs
 © — — un cahier en voie d'épuisement........
 
 À Mémoires et dossiers pour les libertés du personnel : +
 , enseignant en France, — un cahier en voie d'épui1 Rement Lei sa red cius de ce0 NEUTRE
 
 ! —  — épuisé, n'est plus mis en vente que dans
-à les collections complètes de la troisième série....... 113
-3 Pierre Félix, — une contribution aux Preuves, — un
-à Fradet, — élections dans l'Yonne, — dossier... un franc 152
+à les collections complètes de la troisième série.......
+Pierre Félix, — une contribution aux Preuves, — un
+à Fradet, — élections dans l'Yonne, — dossier... un franc
 Anatole France, — Pour et contre le socialisme; la
 à liberté par l'étude ; histoire contemporaine, Clopinel,
 7 après Clopinel, spectacle consolant, — un cahier en
@@ -420,13 +420,12 @@ l'étude; histoire contemporaine : la loi est morte,
 intègres ; pensées de Riquet; discours pour la liberté
 x ; — — L'affaire Crainquebille, — édition com-
 ‘ plète, — un cahier retiré du commerce, n'est mis en
-| 5
 
 ._ vente que dans les collections complètes de la qua- : le
-13 __ —  — préface au docteur Oyon, précis de A1
+13 __ —  — préface au docteur Oyon, précis de
 RU: l'affaire Dreyfus, lettre à un ami qui ne sait pas, édi- 1 USM
 à tions de Pages libres, annonce............. un franc 931 : fe
-* sieurs annonces d'Anatole France; l'affaire Crain- 50
+* sieurs annonces d'Anatole France; l'affaire Crain-
 "  quebille, administration.................... un franc 233 RER
 D: —  — Discours prononcé à l'inauguration du re
 __  Gallouédec, une lettre portant témoignage dans la ie
@@ -438,12 +437,12 @@ F les, — dans le premier Cahier de Noël...... un frane 200 ‘
 _ Urbain Gohier, — unelettre de rectification au dossier Ho
 Di: Jean Grave et Urbain Gohier, — un cahier en voie Au,
 3 + — — dossier comment il a quitté l'Aurore... LR
-‘2  —  — une rectification, dans le cahier Émile 41
+‘2  —  — une rectification, dans le cahier Émile
 ns. AU — — annonce du Vieux Cordelier.. un france 216 F4 -
 
 Charles Guieysse, — /ntellectuels et socialisme, — contribution, — un cahier en voie d'épuisement ..........
 — — les Universités Populaires et le mouvement ouvrier niet en Me iiee *eNUIL ITA RES
-—  — édition du cahier les Universités Populaires, 1900-1901, — I. — Paris et banlieue.. un france 130
+—  — édition du cahier les Universités Populaires, 1900-1901, — I. — Paris et banlieue.. un france
 —  — annonce, préface au cahier les Universités populaires 1900-1901. — IL. — Départements;
 Paul Guieysse, député du Morbihan, — discours pour
 la remise du monument de Renan au maire de Tré-
@@ -461,12 +460,12 @@ Yonne, — un cahier en voie d'épuisement ..........
 —  — un cahier épuisé, n'est plus mis en
 vente que dans les collections complètes de la troi- :
 \ Gustave Hervé, — le droit des fonctionnaires. .........
-1 George Jacob Holyoake, — introduction au monde sans
+George Jacob Holyoake, — introduction au monde sans
 é 1 Dieu, un cahier non mis dans le commerce, n'est plus
 \, mis en vente que dans les collections complètes de
 j George Jacob Holyoake, — introduction au monde sans
-Le Dieu, — édition Cornély........ un franc cinquante 334
-ie Jean Hugues, — la Grève, — trois actes...... un franc 1x
+Le Dieu, — édition Cornély........ un franc cinquante
+ie Jean Hugues, — la Grève, — trois actes...... un franc
 Hi Pour et contre les libertés internationales, — dossier
 jh Clemenceau-de Pressensé, Clemenceau-Jaurès, débat
 * pour et contre les libertés internationales ...........
@@ -475,15 +474,15 @@ jh Clemenceau-de Pressensé, Clemenceau-Jaurès, débat
 1.1 Jean Jaurès, — Vérité, un article, — un cahier en voie k Rte
 nr —  — Études Socialistes, — un cahier non mis EAUX
 nn dans le commerce, n'est mis en vente que dans les ‘4 ,
-‘à LATE collections complètes de la troisième série ......... 99
+‘à LATE collections complètes de la troisième série .........
 ti er, —  — le comité catholique pour la Défense du
 fé 4 À Droit, une lettre à Jaurès, à laquelle Jaurès n'a point Le
 À # —  — dossier Clemenceau-Jaurès pour et ES se
-y contre les libertés internationales ...... deux francs 998
+y contre les libertés internationales ...... deux francs
 5 sans compter un très grand nombre de citations et de réfé-
 L'on rences, articles de journaux et discours, pour lesquels on
-42 ne peut que se reporter au catalogue analytique sommaire F
-#FA lui-même, — citations et références portant particulière- 14
+42 ne peut que se reporter au catalogue analytique sommaire
+#FA lui-même, — citations et références portant particulière-
 A ii ment sur l'Affaire Dreyfus, la consultation internationale :
 440 ouverté à la Petite République sur l'Affaire Dreyfus et Le “
 ne É cas Millerand, l'unité socialiste, la préparation et la tenue pt,
@@ -504,50 +503,50 @@ Louis Lamaud, — librairie et bibliographie du Bloc, à
 : numéros et collections.................. deux francs 299 #
 ù ÿ Adolphe Landry, — annonce d'un article, La supersti- :
 1] Lionel Landry, — courrier de Chine, du temps de
-14 l'expédition de Chine, — un cahier en voie d'épuisefé ARR UE PLAN A Re Et huit irancs 128
+14 l'expédition de Chine, — un cahier en voie d'épuisefé ARR UE PLAN A Re Et huit irancs
 fl —  — Bacchus, — drame en trois actes, — un
 ‘à —  — courrier de Chine, même temps........ <
 À Antonin Lavergne, — Jean Coste ou l'instituteur de :
 Fe village, — un cahier épuisé, n'est plus mis en vente
-1 que dans les collections complètes de la deuxième d
+1 que dans les collections complètes de la deuxième
 À _  Interpellation Lavertujon, — mémoires et dossiers pour .
-i les libertés du personnel enseignant en France, — j
-$ un cahier en voie d'épuisement ......... huit francs 36
+i les libertés du personnel enseignant en France,
+$ un cahier en voie d'épuisement ......... huit francs
 
-À. Lavy, — l'œuvre de Millerand, table....... un franc 139
+À. Lavy, — l'œuvre de Millerand, table....... un franc
 Henri Lebeau, Jérôme et Jean Tharaud, — Moines de
-Edmond Lebret,— courrier de Bretagne...... un franc 215
+Edmond Lebret,— courrier de Bretagne...... un franc
 : Jean le Clerc, — introduction à courrier de France,
 grève générale des mineurs, du Bulletin de l'Office du
 —  — du même Bulletin, présentation de :
 Louise Lévi, — Congrès de Lyon, — compte-rendu
-analytique non officiel..................... un franc 35
+analytique non officiel..................... un franc
 : —  — Maximilien Robespierre, — un livre du
 Dr. Karl Brunnemann, — traduction et notes de
 L. Lévi; première partie : Maximilien Robespierre
 jusqu'à son entrée dans l'Assemblée nationale, 1758-
 L'affaire Liebknecht, — un cahier en voie d'épuisement
 y René Litalien, — professeur au lycée de Brest, — la
-crise religieuse de Renan, une étude .... deux francs 275
-Le Livre pour tous, — une circulaire, — un commentaire à cette circulaire........ trois francs cinquante 171
+crise religieuse de Renan, une étude .... deux francs
+Le Livre pour tous, — une circulaire, — un commentaire à cette circulaire........ trois francs cinquante
 gious Society of Chicago, — le,Monde sans Dieu, —
 a new catechism, — iraduit avec l'autorisation de
 
 l'auteur par Le Clerc de Pulligny, — un cahier non
-mis dans le commerce, n'est mis en vente que dans les 4
-côllections complètes de la cinquième série.......... 396
-M. M. Mangasarian, lecturer of the Independent Religious Society of Chicago, — le Monde sans Dieu, — s
-a new catechism, — traduit avec l'autorisation de 1
+mis dans le commerce, n'est mis en vente que dans les
+côllections complètes de la cinquième série..........
+M. M. Mangasarian, lecturer of the Independent Religious Society of Chicago, — le Monde sans Dieu,
+a new catechism, — traduit avec l'autorisation de
 l'auteur par Le Clerc de Pulligny, préface par Emile
 Cornélye 2 SP l'un franc cinquante 033/
 Paul Mantoux, — Jntellectuels et socialisme, — une
 contribution, — un cahier en voie d'épuisement.....
 Ludovic Marchand, — Jean Grave et Urbain Gohier,
-} Clément Marot, — une réponse à L. Maillard ......... é
+} Clément Marot, — une réponse à L. Maillard .........
 Louis Ménard, — Prologue d'une Révolution, — réim-
 ( Revue de Métaphysique et de Morale, — annonce...
 \ Henri Michel, — cahier de courriers, — Notes sur la
-à Hollande et sur l'intimité............... deux francs 304
+à Hollande et sur l'intimité............... deux francs
 ï Le monde sans Dieu, de M.M. Mangasarian, — averlis-
 À sement de Charles Péguy, — introduction de George
 | Jacob Holyoake, — traduction Jean le Clerc de Pulli-
@@ -557,47 +556,47 @@ Le monde sans Dieu, de M.M. Mangasarian, — introduclion de George Jacob Holyoa
 
 le Clerc de Pulligny, — préface par Émile Vander- :
 ‘4 Émile Moselly, — l'aube fraternelle, arrivée, au camp, 4188 Fa,
-BUS, au fort, — un cahier épuisé, n'est plus mis en vente Es) 6:
+BUS, au fort, — un cahier épuisé, n'est plus mis en vente Es)
 que dans les collections complètes de la quatrième a j EUR ne
 4) — — Jean des Brebis ou le livre de la misère he 4 PER
 hs. ; NE trois francs cinquante 357. ne
 _ Le Mowement Socialiste, — une annonce dans le cahier REA hi, Le)
 4: ie d'annonces, — un cahier en voie d'épuisement ...... At er LE
 BORN, une citation du Mouvement Socialiste, incident Vliegen na Se As
-_ du Mouvement Socialiste; au Mouvement Socialiste ...… : RS x
-de 4 le Mouvement Socialiste, annonces........... un frane 180 a AL D.
+_ du Mouvement Socialiste; au Mouvement Socialiste ...… : RS
+de 4 le Mouvement Socialiste, annonces........... un frane 180 a AL
 __ Cahier de Noël; Villon; Tolstoi ; Jérôme et Jean Tha- . AUSEE
 à FA Bulletin de l'Office du travail, — courrier de France, — "Y
-77 en grève générale des mineurs ....... un franc... 204 ét 905 7
+77 en grève générale des mineurs ....... un franc... 204 ét
 Ph ee M. Ostrogorski, — la Démocratie et l'organisation des ‘4
-e 10 } partis politiques ; avant-propos ; table des titres des à } HJ L
+e 10 } partis politiques ; avant-propos ; table des titres des à } HJ
 
-; chapitres ; table des bilan de l'Angleterre, bilan des É
+; chapitres ; table des bilan de l'Angleterre, bilan des
 Américains, conclusion, qui est pour ainsi dire un fl
 Docteur Oyon, — précis de l'affaire Dreyfus, lettre à un 1%
-ami qui ne sait pas, préface d'Anatole France, édi- 3
-tions de Pages libres, annonce ............ un franc 931 g
+ami qui ne sait pas, préface d'Anatole France, édi-
+tions de Pages libres, annonce ............ un franc
 —  — précis de l''Affaire Dreyfus, — deuxième &
-— — annonce, une couverture, un dessin de d
+— — annonce, une couverture, un dessin de
 i Christophe, — un cahier en voie d'épuisement......
 fl = _ édition du docteur Oyon, précis de l'af-
 À faire Dreyfus, lettre à un ami qui ne sait pas, pré-
-ÿ face d'Anatole France, annonce ............ un franc 931 Ë
+ÿ face d'Anatole France, annonce ............ un franc
 —  — deuxième annonce du même...........
-Le Palais du Peuple, dossier................. un franc 34
+Le Palais du Peuple, dossier................. un franc
 ÿ Expulsion de Nicolas Paouli, — dossier ..... un franc 35 fe
 ï Gaston Paris, — avec un portrait de Gaston Paris ; — à
 ; Gaston Paris, Jaufré Rudel, une étymologie ......... |
-à Charles Péguy, — Lettre du Provincial; réponse au È
-L Provincial ; le « Triomphe de la République » ; l'afA - faire Liebknecht ; avant la première quinzaine; — un Ë
-cahier en voie d'épuisement ...... dix francs... 6et 7
+à Charles Péguy, — Lettre du Provincial; réponse au
+L Provincial ; le « Triomphe de la République » ; l'afA - faire Liebknecht ; avant la première quinzaine; — un
+cahier en voie d'épuisement ...... dix francs...
 
 Charles Péguy,— du second Provincial; réponse provisoire ; la préparation du congrès socialiste national;
 travail des enfants ; quinzaine ; — un cahier en voie
 à — _— la préparation du congrès socialiste nalional; travail des enfants ; — un cahier en voie
 — — de la grippe ; la préparation du congrès
 socialiste national ; travail des enfants ; — un cahier
-en voie d'épuisement............ huit francs... 12 et 13
+en voie d'épuisement............ huit francs... 12 et
 _— — la Consultation internationale ouverte
 à La Petite République sur l'affaire Dreyfus et le cas
 Millerand ; — un cahier en voie d'épuisement.......
@@ -623,7 +622,7 @@ un cahier épuisé, n'est plus mis en vente que dans
 les collections complètes de la première série, quand
 
 —  —  Ajournement; nouvelles communications; nos annonces, nos comptes rendus, École des
-Hautes Études Sociales; — un cahier en voie d'épuiSRE ri Neue CN douze TANCSi 22
+Hautes Études Sociales; — un cahier en voie d'épuiSRE ri Neue CN douze TANCSi
 libres; rectifications; le théâtre social, matinéeconférence de Jaurès; couverture; — un cahier en
 voté d'épuisement ...1..2/02%, "huit francs Le
 —  —  oùily a des renseignements et des avis
@@ -641,7 +640,7 @@ Visiteurs; le Mouvement Socialiste; la Revue d'Art :
 j dramatique; Société nouvelle de librairie et d'édi-
 { tion; école socialiste; annonces des cahiers; — un
 
-4 Charles Péguy,—Compte rendu de mandat; librairie des ;
+Charles Péguy,—Compte rendu de mandat; librairie des ;
 \ cahiers; Collège libre des Sciences sociales; la révo- $
 ù lution sociale sera morale ou elle ne sera pas; — un LE
 Fs —  — une préface de l'éditeur au Jean Coste
@@ -657,24 +656,24 @@ Av Delafarge, M. Branetière historien; attentats dans
 } l'Yonne, le Pioupiou de l'Yonne; une rectification au
 à) dossier Jean Grave et Urbain Gohier; sanglante
 d bataille socialiste; un cahier en voie d'épuisement..
-ji huit francs... 36 et 37
+ji huit francs... 36 et
 \ ciel de la version française du cinquième congrès
 { socialiste international tenu à Paris du 23 au 27 sep- $
-de tembre 1900; présentation. ... trois francs cinquante 37 1
+de tembre 1900; présentation. ... trois francs cinquante
 à —  — Compte rendu de Congrès; bilan; atten-
 | tats dans l'Yonne; Cahiers nivernais; librairie des
 — = de la raison, avertissement au cahier
 | Jaurès, Etudes Socialistes; — un cahier non mis dans
-\ le commerce, n'est mis en vente que dans les collections complètes de la troisième série................ 102
+\ le commerce, n'est mis en vente que dans les collections complètes de la troisième série................
 
 Charles Péguy, — introduction du gérant au cahier : pt
-Georges Delahache, Juifs; l'affaire Hervé; lettre à 19
+Georges Delahache, Juifs; l'affaire Hervé; lettre à
 ï —  — introduction du gérant au cahier : Jean à
 \ Hugues, la Grève; Racine; une lettre de Maurice HA
 Bouchor; l'affaire Téry ; une lettre à M. Gustave Téry Je
 —  — M. Gustave Téry, —'polémiques et dos- fn:
 | siers; une réponse de Gustave Téry; réponses particu- à
-4 la Grève ; — un cahier épuisé, n'est plus mis en vente 1
+4 la Grève ; — un cahier épuisé, n'est plus mis en vente
 ) que dans les collections complètes de la troisième pr
 ï —  — un avertissement à une lettre inédite de
 à Tolstoi, adressée à Romain Rolland........ un franc 127 BA
@@ -682,24 +681,24 @@ Bouchor; l'affaire Téry ; une lettre à M. Gustave Téry Je
 N incident Vliegen ; papeterie des cahiers .............. |
 # —  — les élections; emprunt des cahiers... PO
 40 —  — cahier de courriers; courriers des ea- À
-À — — Personnalités, — Monographies ; M. Urc bain Gohier, dossier comment il a quitté l'Aurore; v
+À — — Personnalités, — Monographies ; M. Urc bain Gohier, dossier comment il a quitté l'Aurore;
 ; Ligue française pour la défense des Droits de l'Homme
 F et du Citoyen; élection Beauregard, dossier préparé y
 } par M. Emile Terquem; élections dans l'Yonne, dosf sier préparé par M. Fradet ; du Mouvement Socialiste;
 1 au Mouvement Socialiste; René Salomé, courrier de
 | Belgique; éditions d'art Édouard Pelletan ; reliures :
 
-Charles Péguy, — Annonces de librairie, deux francs 167
+Charles Péguy, — Annonces de librairie, deux francs
 —  — Annoncedelibrairie; Le Livre pour tous;
 pour et contre les congrégaticns, dossier ............
-| trois francs cinquante... 191 et 172
+| trois francs cinquante... 191 et
 —  — un mot de citation devant Anatole
 France, l'affaire Crainquebille ; éditions d'art Edouard
 Pelletan, plusieurs annonces, — cahier retiré du commerce, n'est plus mis en vente que dans les collections
 complètes de la quatrième série............... 1794 et 1%
 —  — Cahiers de la Quinzaine; subventionné;
 M.Henry Bérenger; le Mouvement Socialiste; M. André
-Colomb; désabonnements.................. un franc 180
+Colomb; désabonnements.................. un franc
 ; —  — Textes et commentaires, — Émile Zola;
 les récentes œuvres de Zola ; édition critique de la
 Lettre au Président de la République ; bibliographie
@@ -708,13 +707,13 @@ rectification de M. Urbain Gohier ...................
 — — Cahier de Courrier, courrier de Paris, —
 inventaire des cahiers, — en forme de catalogue...
 — — présentation des trois lettres de Tolstoi;
-présentation de la légende de la Vierge dans le premier Cahier de Noël.............. un franc... 194 et 196
+présentation de la légende de la Vierge dans le premier Cahier de Noël.............. un franc... 194 et
 — — Almanach des Cahiers pour l'an 1903;
-courrier de Montfaucon ; courrier de France; courrier de barbarie: tunifranc-t 10e
+courrier de Montfaucon ; courrier de France; courrier de barbarie: tunifranc-t
 _—  — une page devant Édouard Berth, la
 politique anticléricale et le socialisme; une page
 devant Edmond Lebret, courrier de Bretagne ;
-annonce du Vieux Cordelier, un franc... 212, 215, et 216
+annonce du Vieux Cordelier, un franc... 212, 215, et
 — — vient de paraître; une page devant:
 Henri Bergson, /ntroduction à la métaphysique, con24
 
@@ -740,13 +739,13 @@ L Charles Péguy, — cahier de courriers; couverture, an-
 
 ji lettre à un ami qui ne sait pas, préface d'Anatole
 
-A France, éditions de Pages libres..,........ un franc 931
+A France, éditions de Pages libres..,........ un franc
 *? sieurs annonces d'Anatole France; l'affaire Crainquefs bille, administration ....................... un franc 9233
 
 h ton ; — textes et documents ; — deuxième annonce
 
 4 de : docteur Oyon, précis de l'Affaire Dreyfus........
-1 trois francs cinquante... 235 et 237
+1 trois francs cinquante... 235 et
 i —  — Affaire Dreyfus, — Cahiers de la Quin-
 
 \ d'enquête, lettre adressée au ministre de la guerre
@@ -754,13 +753,13 @@ i —  — Affaire Dreyfus, — Cahiers de la Quin-
 # par M. Alfred Dreyfus; brefs commentaires; un |
 ï article de M. Henry Bérenger, clôture! ..............
 “ —  — Affaire Dreyfus, — Cahiers de La Quinii zaine, — reprise politique parlementaire; — dossier
-} de l'affaire Dreyfus depuis son recommencement, k
+} de l'affaire Dreyfus depuis son recommencement,
 ï le comité catholique pour la Défense du Droit; une
 
 L: page devant: Léon Chaine, Les Catholiques français el
 à) leurs difficultés actuelles ; un mot devant: Lieutenant-
 ‘11 colonel Picquart, l'afjaire Henry-Reinach; une an-
-ï nonce; quelques commentaires ; emprunt des cahiers d
+ï nonce; quelques commentaires ; emprunt des cahiers
 
 Charles Péguy,— Georges Clemenceau, — Discours pour
 « la liberté; — le droit des fonctionnaires, avertisse-
@@ -773,28 +772,28 @@ Quinzaine; nos cahiers sont édités par des souscrip-
 | tions mensuelles régulières et par des souscriptions
 ; extraordinaires ; la souscription ne confère aucune
 Ù autorité sur la rédaction ni sur l'administration : ces |
-; des cahiers; du socialiste de l'espèce dite universi- 7
+; des cahiers; du socialiste de l'espèce dite universi-
 taire ; du collectivisme normalien ; de l'entraînement |
 1 le monde sans Dieu, non mis dans le commerce, n'est |
 mis en vente que dans les collections complètes de la |
-—  — dans le cahier petites garnisons un 1
+—  — dans le cahier petites garnisons un
 avertissement avant Félicien Challaye, La France eue
 de Laval; Orléans vu de Montargis, un avertissement
-et trois comptes rendus; Cahiers de la Quinzaine : 5
+et trois comptes rendus; Cahiers de la Quinzaine
 Georges Clemenceau, discours pour la liberté; Cahiers À
-\ de la Quinzaine, souscriptions mensuelles, souscrip- ù
+\ de la Quinzaine, souscriptions mensuelles, souscrip-
 —  — un avertissement au cahier : Gabriel
-Trarieux, — les Vaincus, — Hypatie.... trois francs 346
+Trarieux, — les Vaincus, — Hypatie.... trois francs
 —  — un avant-propos au cahier Le congrès de
 Dresde, — textes et documents, — septembre 1903...
 
 | à Charles Péguy, — réédition et présentation de : Louis ;
-| Ménard, Prologue d'une Révolution ; vacances, distrine butions de prix.............. quatre francs... 381 et 595 4
+| Ménard, Prologue d'une Révolution ; vacances, distrine butions de prix.............. quatre francs... 381 et
 4 sans compter tout ce qui concerne la fondation, l'institution,
 l Le la tenue, le maintien et la présentation de tous ces \
 | cahiers, leur correction, leur établissement typographique, :
 
-‘1 Éditions d'art Édouard Pelletan, — annonces, un franc 154
+‘1 Éditions d'art Édouard Pelletan, — annonces, un franc
 
 A, —  —, plusieurs annonces dans l'affaire Crain-
 | | quebille, cahier retiré du commerce, n'est plus mis en
@@ -802,19 +801,19 @@ A, —  —, plusieurs annonces dans l'affaire Crain-
 
 “ — — annonces de deux éditions d'Anatole
 
-D. France dans le cahier Emile Zola ..... deux francs 193
+D. France dans le cahier Emile Zola ..... deux francs
 " 1 —  — plusieurs annonces d'Anatole France L À
 
 | de * après la chanson du roi Dagobert ........ un franc 9233
 ‘4 —  — irois annonces d'éditions de Tharaud
 
-| di We dans le cahier Les hobereaux............... un franc 397
+| di We dans le cahier Les hobereaux............... un franc
 
-604 Jean Perrin, — annonce d'un article le principe d'équi-
+Jean Perrin, — annonce d'un article le principe d'équi-
 
 Di valence et la notion d'énergie, annonce du livre Les
 
-| : _ Petites garnisons, — Laval, Orléans, Paris, deux francs 338
+| : _ Petites garnisons, — Laval, Orléans, Paris, deux francs
 \Pr. 4 Bibliothèque du Congrès international de Philosophie,
 
 “_ Bulletin de la Société française de Philosophie, — ,
@@ -824,10 +823,10 @@ M: Lieutenant-colonel Picquart, — l'affaire Henry-Reinach
 Î 4 î François Porché, — à chaque jour, — poèmes.........
 
 Francis de Pressensé, — dossier Clemenceau-Pressensé
-pour et contre les libertés internationales, deux francs 298
+pour et contre les libertés internationales, deux francs
 | La Propagande socialiste, — dans le cahier d'annonces,
-un cahier en voie d'épuisement....... douze franes 3x
-Proudhon, — références par Georges Sorel... un franc 34
+un cahier en voie d'épuisement....... douze franes
+Proudhon, — références par Georges Sorel... un franc
 Jean Psichari, gendre d'Ernest Renan, parle au nom de
 la famille à l'inauguration du monument de Renan .….
 Jean le Clerc de Pulligny, — traduction de : M. M. Mangasarian, a new catechism, en : le monde sans Dieu;
@@ -835,84 +834,84 @@ note; — un cahier non mis dans le commerce, n'est
 plus mis en vente que dans les collections complètes
 —  — traduction de: M. M. Mangasarian, a new
 catechism, en : le monde sans Dieu; notes; préface par
-édition Cornély.................. un franc cinquante 334
+édition Cornély.................. un franc cinquante
 Pierre Quillard, — Pour l'Arménie, mémoire et dossier
 Edgar Quinet, — avec un portrait au crayon par Flora
 Géraldy; quelques textes, choisis et présentés par
 Gaston Raphaël, — le Rhin allemand........ un franc 23%
 —  — édition du congrès de Dresde, — textes
-x et documents, — septembre 1903...... quatre francs 360
+x et documents, — septembre 1903...... quatre francs
 
 Textes et commentaires, — le monument de Renan, —
 cahier de l'inauguration du monument de Renan à
 Tréguier le dimanche treize septembre dix-neuf cent
 trois; dans le même cahier, Ernest Renan, — Prière
-que je fis sur l'Acropole quand je fus arrivé à en comprendre la parfaite beauté.............. deux francs 272
+que je fis sur l'Acropole quand je fus arrivé à en comprendre la parfaite beauté.............. deux francs
 La Revue d'Art dramatique, — une annonce, — dans
 le cahier d'annonces, un cahier en voie d'épuisement
 Romain Rolland, — Aërt, — trois actes, — ûn volume
 — —_ le Triomphe de la Raison, — trois actes,
-— un volume en voie d'épuisement ..... sept francs 2
+— un volume en voie d'épuisement ..... sept francs
 — _— Danton, — trois actes, — un volume
 —  — une introduction à une lettre inédite de
-$ Tolstoi, adressée à Romain Rolland........ un franc 123
+$ Tolstoi, adressée à Romain Rolland........ un franc
 î —  — Le 14 juillet, action populaire, — trois
 We " — — Vies des hommes illustres, — Beethoven,
 avec le masque de Beethoven, — un cahier épuisé,
 west plus mis en vente que dans les collections compiéleside lfquatrième séries AE". :02072-00200
 — — Vies des hommes illustres,— Beethoven,
-| — deuxième édition, sans le masque... deux francs 212
+| — deuxième édition, sans le masque... deux francs
 —  — Le temps viendra; — trois actes........
 le Theatre du Peuple:
 
-s4 Romain Rolland, — Jean-Christophe. — I. — L'aube, 4
+s4 Romain Rolland, — Jean-Christophe. — I. — L'aube,
 ne k deux francs 319 qRe
 à —  — Jean-Christophe. — II. — Le matin; la
-, mort de Jean-Michel ; Otto; Minna...... deux francs 324
-—  — Jean-Christophe. — IL — Le matin, — Ÿ
-RQ Pour les étudiants russes, — un cahier en voie d'épui- ÿ
-René Salomé, — Vers l'action, — un cahier en voie f
+, mort de Jean-Michel ; Otto; Minna...... deux francs
+—  — Jean-Christophe. — IL — Le matin,
+RQ Pour les étudiants russes, — un cahier en voie d'épui-
+René Salomé, — Vers l'action, — un cahier en voie
 1 — — courrier de Belgique......... un franc 153 |
-| —  — Monsieur Matou et les circonstances de 1
-L sa vie, avec le portrait authentique de M. Matou.... d
-Gabriel Séailles, — introduction au cahier les Universi- J
-tés Populaires, 1900-1907, 1. — Paris et banlieue... Ê
-Le Socialisme et les intellectuels, une conférence du 4
-citoyen Lafargue, — un cahier en voie d'épuisement F
+| —  — Monsieur Matou et les circonstances de
+L sa vie, avec le portrait authentique de M. Matou....
+Gabriel Séailles, — introduction au cahier les Universi-
+tés Populaires, 1900-1907, 1. — Paris et banlieue...
+Le Socialisme et les intellectuels, une conférence du
+citoyen Lafargue, — un cahier en voie d'épuisement
 Ha ts documents, — un cahier épuisé, n'est {
-3 plus mis en vente que dans les collections complètes Ÿ
+3 plus mis en vente que dans les collections complètes
 Société nouvelle de librairie et d'édition, une annonce
 dans le cahier d'annonces, — un cahier en voie d'é-
 
 L'al Société des Visiteurs, une annonce dans le cahier d'anD: nonces, — un cahier en voie d'épuisement ...........
 Î Nr. Georges Sorel, — quelques mots sur Proudhon; réfé- ‘
 | 4 — — de l'Église et de l'État, — fragments. ‘
-DE —  — Jean Coste, — étude brève, deux francs 117
-ps —  — Socialismes nationaux........ un france 142
+DE —  — Jean Coste, — étude brève, deux francs
+ps —  — Socialismes nationaux........ un france
 bi b: Laurent Taïlhade (en citation, et non point à titre de
 110 collaborateur), — courrier de barbarie, — lettre fami- \
-V1 lière à M. Joseph Viollet, ratichon ......... un frane 905
+V1 lière à M. Joseph Viollet, ratichon ......... un frane
 ‘ Jules Tannery, sous-directeur de YÉcole normale supé- pu
-: "0 rieure, — un avertissement à la vie d'Évariste Galois ÿ
-ne: deux francs 267 f
+: "0 rieure, — un avertissement à la vie d'Évariste Galois
+ne: deux francs
 | : 1 Les Petits Teigneux, — documents, — un cahier en voie à à
 LA e Émile Terquem, — dossier de l'élection Beauregard … ju
 \R Gustave Téry (non point à titre de collaborateur, mais À
-‘0 en citation), — polémiques et dossiers, une réponse à 1e
+‘0 en citation), — polémiques et dossiers, une réponse à
 D: M. Charles Péguy, —‘un cahier épuisé, n'est plus mis dl
-1118 en vente que dans les collections complètes de la ÿ
+1118 en vente que dans les collections complètes de la
 
 Jérôme et Jean Tharaud, — Le Coltineur débile :
 l'Echafaudage, la Merveille, sur les routes, la
 — — la Lumière : le navire, le magicien,
-Himor, les ténèbres 5 720026 PR RUE 2
-—  — Dingley, l'illustre écrivain ... un franc 140
+Himor, les ténèbres 5 720026 PR RUE
+—  — Dingley, l'illustre écrivain ... un franc
 —  — la légende de la Vierge, dans le
 premier Cahier de Noël; cinq contes : du moine
 qui voulut voir Notre Dame; l'image; les trois
 roses de Notre Dame Sainte Marie; du cierge qui
 vint se poser sur la viole de Pierre de Syglar; du
-clerc qui priait Notre Dame pour sa luxure, un franc 196
+clerc qui priait Notre Dame pour sa luxure, un franc
 | Henri Lebeau, Jérôme et Jean Tharaud, — Moines de
 Jérôme et Jean Tharaud, — Les hobereaux, — histoire
 vraie; — et trois annonces d'éditions chez Pelletan.….
@@ -929,19 +928,19 @@ Les Universités populaires 1900-1901. — I. — Dépar-
 Textes et documents, — congrès des U. P. mai 1904...
 Albert Valès, — une bibliographie pour le cahier
 Émile Vandervelde, — Socialisme et collectivisme, —
-} un cahier en voie d'épuisement.......... huit francs 0
+} un cahier en voie d'épuisement.......... huit francs
 Émile Vandervelde, député au Parlement belge, — une
 j préface au Monde sans Dieu de M. M. Mangasarian,
 ÿ traduction Le Clerc de Pulligny, édition Cornély..…
-UN un franc cinquante... 334 et 335
+UN un franc cinquante... 334 et
 À Maistre Françoys Villon, — Ballade qve Villon feit a la
 reqveste de sa mere povr prier Nostre Dame, — dans
 le premier Cahier de Noël .......:......... un franc 19%
 Attentats dans l'Yonne, affaire Hervé, affaire du Pioupiou de l'Yonne, — un cahier en voie d'épuisement.….
-huit francs... 36et 37
+huit francs... 36et
 
- Attentais dans l'Yonne, — suite.............. un franc 850
-‘ARR — —  plusieurs'articles de Hervé... un franc 105
+ Attentais dans l'Yonne, — suite.............. un franc
+‘ARR — —  plusieurs'articles de Hervé... un franc
 PE 4 : —  — Hervé,l'Anniversaire de Wagram, ânos nn
 7 fe à amis de l'Yonne, — un cahier épuisé, n'est plus mis ne.
 LE * en vente que dans les collections complètes de la
@@ -953,7 +952,7 @@ beaucoup trop succinct de notre sixième série, 1904-1905; $ |
 elle sera remplacée par un exposé un peu moins insufji- \
 : sant dans le catalogue analytique moins sommaire de ;
 
-* nos deuxièmes cinq séries; S
+* nos deuxièmes cinq séries;
 
 Elle sera constamment tenue à jour, c'est-à-dire que
 Jusqu'à la publication de ce deuxième catalogue analytique sommaire, le premier cahier de toute série nou- ;
@@ -965,23 +964,23 @@ cahiers mêmes; on peut compter que ces prix marqués
 forment, pour l'ensemble de la sixième série, un prix )
 marqué total de soixante-douze francs cinquante ; et en À
 effet, à dater du premier janvier 1906, nos collections |
-complètes de la sixième série, s'il en reste, seront J
+complètes de la sixième série, s'il en reste, seront
 vendues soixante-treize francs; mais jusqu'au 31 dé-
 cembre 1905 inclus, et conformément à une règle qui
 n'a point cessé de fonctionner depuis le commencement ;
 de notre institution, toute personne qui commandera à
-une collection complète de la sixième série à M. Bour- 4
-geois pourra la commander pour le prix d'un abonne- j
+une collection complète de la sixième série à M. Bour-
+geois pourra la commander pour le prix d'un abonne-
 ment ordinaire, qui est de vingt francs pour Paris, les $
-départements, l'Alsace-Lorraine, l'Algérie et la Tuni- 1
+départements, l'Alsace-Lorraine, l'Algérie et la Tuni-
 sie, et de vingt-cinq francs pour les autres pays de À
-l'Union postale universelle ; ces personnes seront donc 8
-traitées comme si elles souscrivaient, dans Le courant de k
-la même année civile, un abonnement ordinaire à la Ë
+l'Union postale universelle ; ces personnes seront donc
+traitées comme si elles souscrivaient, dans Le courant de
+la même année civile, un abonnement ordinaire à la
 sixième série de nos cahiers; |
 
-Les prix marqués ici pour les cahiers vendus séparé- 1
-ment ne peuvent naturellement pas diminuer ; ils aug- 4
+Les prix marqués ici pour les cahiers vendus séparé-
+ment ne peuvent naturellement pas diminuer ; ils aug-
 menteront à mesure que ces cahiers viendront en voie :
 
 | de notre sixième série
@@ -992,10 +991,10 @@ CHARLES PÉGuYx. — Texte sans commentaires. — Catalogue analytique sommaire,
 - nos cinq premières séries;
 Charles Péguy, — quelques mots; éditions des cal hiers antérieures à la fondation des cahiers; première
 Deuxième cahier de la sixième série, un cahier jaune
-de XXXVI —+ 152 pages, in-18 grand jésus, bon à tirer 1
+de XXXVI —+ 152 pages, in-18 grand jésus, bon à tirer
 ALEXIS BERTRAND.— L'égalité devant l'instruction,
 — crise de l'enseignement :
-La gratuité dans l'enseignement secondaire; l'Enseid 37 3
+La gratuité dans l'enseignement secondaire; l'Enseid
 
 table analytique très sommaire :
 gnement intégralet les Humanités scientifiques ; l'organisation rationnelle des Universités populaires ; annexes, où inclus un tableau de la correspondance
@@ -1014,11 +1013,11 @@ ISRAËL ZANGwiIzz. — Chad Gadya! — traduit de |
 l'anglais par Mathilde Salomon, — avec une note de |
 mademoiselle Mathilde Salomon sur Zangwill; |
 
-dans le même cahier : 6
+dans le même cahier
 
 Quatrième cahier de la sixième série, un cahier
 jaune de LII + 180 pages, in-18 grand jésus, bon à tirer À
-du mardi 8 novembre 1904...... trois francs cinquante l
+du mardi 8 novembre 1904...... trois francs cinquante
 
 Raouz ALLIER. — L'enseignement primaire des
 indigènes à Madagascar; une erreur; vieillerie condamnée; alarme inutile; une originale tentative; changement de front; l'art des statistiques; enfants à la rue;
@@ -1061,12 +1060,12 @@ Introduction; la population juive de la Russie : la
 bourgeoisie, la classe ouvrière, les petits marchands et
 les agriculteurs ; les causes historiques, psychologiques
 et morales du mouvement révolutionnaire parmi les !
-Juifs russes; le mouvement ouvrier juif avant la création du « Bund »; le « Bund » et son activité, ses rap- 0
-ports avec le parti Social-Démocratique russe; le Sio- 4
-traduit par Élie Éberlin; Élie Éberlin, Vladimir Korolenko ; 1
+Juifs russes; le mouvement ouvrier juif avant la création du « Bund »; le « Bund » et son activité, ses rap-
+ports avec le parti Social-Démocratique russe; le Sio-
+traduit par Élie Éberlin; Élie Éberlin, Vladimir Korolenko
 dans le même cahier : ;
 CuarLes PÉGuY. — Cahiers de la Quinzaine; Raoul
-Allier, l'enseignement primaire des indigènes à Mada- 4
+Allier, l'enseignement primaire des indigènes à Mada-
 - gascar; le cours de notre collaborateur M. Romain ;
 
 Septième cahier, cahier de Noël de la sixième série,
@@ -1094,34 +1093,34 @@ et l'enfant, par Jean Malouel, collection de M. Ed.
 - Aynard, Lyon; le cardinal Pierre de Luxembourg en »  extase, école d'Avignon, vers 1440, musée Calvet, Aviie A
 
 table analytique très sommaire fS
-gnon; portraits du roi René et de la reine Jeanne de S
+gnon; portraits du roi René et de la reine Jeanne de
 Laval, par Nicolas Froment, musée du Louvre; saint ;
-Siffrein, par Nicolas Froment (?), Grand Séminaire, k
+Siffrein, par Nicolas Froment (?), Grand Séminaire,
 deuxième moitié du quinzième siècle, musée du Louvre; à
 Vierge portant l'enfant, deuxième moitié du quinzième à
-l'enfant Jésus adoré par la Vierge, un chevalier et un 1
+l'enfant Jésus adoré par la Vierge, un chevalier et un
 évêque, école provençale, vers 1500, musée Calwet,
 Avignon; la Vierge et l'enfant Jésus, par Jean Fouquet,
 musée royal, Anvers; Étienne Chevalier, trésorier des
 finances du roi Charles VII, présenté par saint Étienne,
 son patron, — par Jean Fouquet, — musée royal,
 Berlin; Jean Fouquet, — portrait de Guillaume Jouvenel de
-des Ursins, vers 1460, bois, peinture à l'huile, musée du i
-Louvre; portrait d'homme, par Jean Fouquet, collection f
+des Ursins, vers 1460, bois, peinture à l'huile, musée du
+Louvre; portrait d'homme, par Jean Fouquet, collection
 du comte Wilezeck, Vienne; portrait de jeune homme,
-par Jean Fouquet, galerie du prince de Liechtenstein, s
+par Jean Fouquet, galerie du prince de Liechtenstein,
 Vienne; la nativité de l'enfant Jésus, par le « maître de “
 Moulins », palais épiscopal, Autun; un donateur avec a
 un saint guerrier, attribué au « maître de Moulins », ;
-musée de Glasgow; Pierre II, sire de Beaujeu, accom- Ë
+musée de Glasgow; Pierre II, sire de Beaujeu, accom-
 pagné de saint Pierre, école du Centre, 1488, musée du #
-Louvre; Anne de France, femme de Pierre sire de L
+Louvre; Anne de France, femme de Pierre sire de
 Beaujeu, accompagnée de saint Jean l'Évangéliste, à
 école du Centre, 1488, musée du Louvre; portrait du $
 dauphin Charles-Orlant, attribué au « maître de Mou- LA
 lins », collection de M. Charles Ayr, Londres; assemblée À
-de saintes, miniature des Heures d'Anne de Bretagne, F
-par Bourdichon, Bibliothèque Nationale, Paris; portrait 4
+de saintes, miniature des Heures d'Anne de Bretagne,
+par Bourdichon, Bibliothèque Nationale, Paris; portrait
 présumé de Claude d'Urfé, par Jean Clouet, collection |
 de Sa Majesté le roi d'Angleterre; portrait présumé de \
 
@@ -1158,12 +1157,12 @@ Librairie des cahiers;
 
 | table analytique très sommaire #
 ï Neuvième cahier de la sixième série, un cahier jaune %
-de XLIV+124 pages, in-18 grand jésus, bon à tirer du 3
-Textes formant dossier. — La délation aux Droits Ê
-| de l'Homme: À é
+de XLIV+124 pages, in-18 grand jésus, bon à tirer du
+Textes formant dossier. — La délation aux Droits
+| de l'Homme: À
 une lettre de M. Ferdinand Buisson; |
 ! - la délation aux Droits de l'Homme ; textes formant
-| dossier; origine du mouvement; Journal officiel, k
+| dossier; origine du mouvement; Journal officiel,
 numéro du vendredi 8 novembre 1901, Sénat, session
 extraordinaire de 1901, compte rendu in extenso, qua- |
 trième séance, séance du jeudi 7 novembre, question de
@@ -1198,25 +1197,25 @@ Triclinium de Sylla; le camp des gladiateurs; le Vain-
 dans le même cahier :
 Cahiers de la Quinzaine. — Yves Madec ;
 
-table analytique très sommaire ñ
+table analytique très sommaire
 _ Treizième cahier de la sixième série, un cahier jaune |
 de 72 pages, in-18 grand jésus, bon à tirer du mardi À
 Torsror. — l'Église et l'État; les événements à
-actuels en Russie; — traduction J.-W. Bienstock; le ï
-premier, introduit par P. Birukov; É
+actuels en Russie; — traduction J.-W. Bienstock; le
+premier, introduit par P. Birukov;
 dans le même cahier :
-Cahiers de la Quinzaine, — les œuvres de Tolstoi; l
+Cahiers de la Quinzaine, — les œuvres de Tolstoi;
 Quatorzième cahier de la sixième série, un cahier le
-jaune de h + XXIV + 576 pages, in-18 grand jésus, k
-bon à tirer du mardi 4 avril 1905.......... six francs Ÿ
+jaune de h + XXIV + 576 pages, in-18 grand jésus,
+bon à tirer du mardi 4 avril 1905.......... six francs
 séparation des Eglises et de l'Etat; — l'enquête du à
 Siècle ; — préface de Henri Brisson ; — résultats et con- #
-clusions de cette enquête, par J.-L. de Lanessan; 4
+clusions de cette enquête, par J.-L. de Lanessan;
 
 Charles Péguy, — Notre bon collaborateur. À
-la Séparation des Églises et de l'État ; 4
+la Séparation des Églises et de l'État
 = Raoul Allier. — Trois projets de loi; une négation $
-de l'histoire ; la question des synodes ; un amendement k
+de l'histoire ; la question des synodes ; un amendement
 malheureux ; la précaution inutile; une correction à ;
 préciser; associations cultuelles; encore les associa- '
 
@@ -1251,24 +1250,24 @@ Rameaux de la sixième série et cahier pour le dimanche
 _ de Pâques, un cahier vert de XVI--176 pages, in octavo
 grand jésus, bon à tirer du mardi 18, fini d'imprimer
 
-table analytique très sommaire 3
+table analytique très sommaire
 | Enpy Marx. — La tragédie de Tristan et Iseut; À
 cinq actes ; une salle dans le palais de Weisefort, en E. |
 Irlande ; une tente sur le pont d'un navire; la nuit, à
 devant le château de Tintagel ; une grotte dans la forêt;
-une salle dans le château de Tintagel; une tempête sur s
-{ la grève de Penmarch ; e
+une salle dans le château de Tintagel; une tempête sur
+{ la grève de Penmarch
 j dans le même cahier : ]
 , Éditions d'art Édouard Pelletan, — Jérôme et Jean À
-| Tharaud, — /'Ami de l'Ordre ; î
-Charles Péguy, — librairie des cahiers, — Joseph 1
-Bédier, — le roman de Tristan et Iseut ; ï
-ñ Seizième cahier de la sixième série, un cahier blanc F
-| de XII-360 pages, in-18 grand jésus, bon à tirer du L
+| Tharaud, — /'Ami de l'Ordre
+Charles Péguy, — librairie des cahiers, — Joseph
+Bédier, — le roman de Tristan et Iseut
+ñ Seizième cahier de la sixième série, un cahier blanc
+| de XII-360 pages, in-18 grand jésus, bon à tirer du
 g Rosert DREYFUS. — La vie et les prophéties du +
 ô comte de Gobineau; au lecteur ; la morale aristocra- |
-D tique du comte de Gobineau ; années de jeunesse (1816- 4
-1855), l'Essai sur l'inégalité ; méthode historique, inefi- 4
+D tique du comte de Gobineau ; années de jeunesse (1816-
+1855), l'Essai sur l'inégalité ; méthode historique, inefi-
 ei cacité des mœurs, des lois, du climat, des croyances, $
 k efficacité du « mérite relatif des races »; théorie des .
 d races, Gobinisme et Antisémitisme ; synthèse historique, :
@@ -1288,22 +1287,22 @@ Dix-septième et dernier cahier de la sixième série,
 un cahier jaune de XÏI+-136 pages, in-18 grand jésus,
 bon à tirer du mardi 23 mai 1905.......... deux francs
 Pau DEsrARDINS. — Catholicisme et critique. —
-Réflexions d'un profane sur l'affaire Loisy ; è
-dans le même cahier : 5
+Réflexions d'un profane sur l'affaire Loisy
+dans le même cahier
 Cahiers de la Quinzaine. — Bibliothèques publiques.
 
-En résumé, à la date du dimanche premier octobre 1
-1905, où paraît le présent cahier : 4
-4 La première série de nos cahiers, année 1900, est en- À
+En résumé, à la date du dimanche premier octobre
+1905, où paraît le présent cahier
+La première série de nos cahiers, année 1900, est en- À
 tièrement épuisée; nous ne pourrons en remettre en !
 È vente que si nous réussissons, cahier par cahier, à en }
-: La deuxième série, année 1900-1901, en voie d'épui- 4
-| sement, se vend cent francs; 3
+: La deuxième série, année 1900-1901, en voie d'épui-
+| sement, se vend cent francs;
 La troisième série, année 1901-1902, se vend trente-
 La quatrième série, année 1902-1903, se vend trente- #
 La cinquième série, année 1903-1904, se vend ?
 | quarante-sept francs ; L'
-Jusqu'au 31 décembre 1905, inclus, et sauf épuisement, un abonnement à la sixième série, année 19041905, se vend vingt francs; È
+Jusqu'au 31 décembre 1905, inclus, et sauf épuisement, un abonnement à la sixième série, année 19041905, se vend vingt francs;
 Jusqu'au 31 décembre 1906, inclus, et sauf épui- &
 sement, un abonnement à la septième série, année #
 
@@ -1327,8 +1326,8 @@ J'avais dit depuis plusieurs semaïnes aux quelques
 abonnés qui venaient voir et causer le jeudi aux
 cahiers que le premier cahier de la septième série, le
 
-premier cahier à paraître après ce long intervalle, serait É L.
-tout entier de ma main; je vis bien qu'ils entendaient 4
+premier cahier à paraître après ce long intervalle, serait
+tout entier de ma main; je vis bien qu'ils entendaient
 que ce serait de la prose; on croit généralement et
 parmi tout le monde nos abonnés communément croient
 que d'écrire, c'est écrire de la prose ou des vers, ou, ;
@@ -1337,28 +1336,28 @@ vers comme nos jeunes gens ont imaginé d'en inventer; \
 car le temps est passé où quiconque ne faisait point
 des vers, il était contraint de faire de la prose; et :
 M. Jourdain, s'il revenait au monde, retour dont il se bi
-: gardera, ne s'y reconnaîtrait plus; on croit généra- Ë
+: gardera, ne s'y reconnaîtrait plus; on croit généra-
 lement et parmi tout le monde nos abonnés commu- ,
 | nément croient que, en fait d'écriture, il n'y a que la à
 prose, les vers, et ces entre-deux qui comptent, pour de ;
-l'écriture; le reste ne vaut pas l'honneur d'être compté; 4
+l'écriture; le reste ne vaut pas l'honneur d'être compté;
 les tables des matières, sommaires, catalogues plus ou À
-moins analytiques, index plus ou moins alphabétiques 4
-deviennent les innocentes victimes de plaisanteries 4
+moins analytiques, index plus ou moins alphabétiques
+deviennent les innocentes victimes de plaisanteries
 presque toujours spirituelles.
 
-L'année dernière j'avais passé tout ce que l'on veut Ê
-bien nommer les loisirs des vacances à établir cet 4
-très denses, in-18 grand jésus, marqué cinq francs; ce M
+L'année dernière j'avais passé tout ce que l'on veut
+bien nommer les loisirs des vacances à établir cet
+très denses, in-18 grand jésus, marqué cinq francs; ce
 ne fut pas une petite affaire que d'aboutir, comme je
-l'avais promis, l'ayant annoncé, pour le dimanche Ê
+l'avais promis, l'ayant annoncé, pour le dimanche
 2 octobre, commencement de l'année ouvrière et scolaire,
 commencement de la sixième série; je crus bien un
-moment que je m'étais trop avancé en l'annonçant 4
-depuis si longtemps pour cette date, et que j'avais M
+moment que je m'étais trop avancé en l'annonçant
+depuis si longtemps pour cette date, et que j'avais
 commis le péché le plus grave, quiest sans aucun doute
-le péché de présomption; en fin de compte il se trouva j
-que je n'avais pas été présomptueux; mais je fus 4
+le péché de présomption; en fin de compte il se trouva
+que je n'avais pas été présomptueux; mais je fus
 
 j malheureux, d'inquiétude, un assez long temps, et
 d'anticipation de remords; en fin de compte le cahier
@@ -1441,7 +1440,7 @@ di méro d'inscription qui deviendra automatiquement le
 k l'édition sur whatman sera strictement limitée au
 
 ‘is Pour tout changement d'adresse envoyer soixante
-. centimes, quatre timbres de quinze centimes. l
+. centimes, quatre timbres de quinze centimes.
 Nous engageons nos abonnés de certains pays à nous
 demander un abonnement recommandé ; tous les cahiers
 - de l'abonnement recommandé sont empaquetés à part et
@@ -1455,7 +1454,7 @@ i. _ recommandés à la poste ; la recommandation postale,
 chaque série au plus tard le 31 décembre qui suit
 | l'achèvement de cette série; ainsi du premier octobre
 “ au 31 décembre 1905, et sauf épuisement de.la sixième
-F série, on peut encore avoir pour vingt francs les dix-sept ë
+F série, on peut encore avoir pour vingt francs les dix-sept
 ‘ cahiers de cette sixième série complète.
 ‘ A partir du premier janvier qui suit l'achèvement
 F1 d'une série, le prix de cette série est porté au moins

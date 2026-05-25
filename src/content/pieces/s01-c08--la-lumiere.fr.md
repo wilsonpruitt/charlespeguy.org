@@ -87,7 +87,7 @@ Clément était à l'avant. L'embrun ruisselait sur
 
 sa casaque goudronnée. Abrité par le mâtet penché ; À
 sur le nez du bateau, il tendait la tête au vent. Sa
-respiration était coupée et ses yeux pleuraient. Ses ; k
+respiration était coupée et ses yeux pleuraient. Ses
 lèvres étaient brûlées par le sel. Son oreille appli- +2
 quée contre le bordage percevait les voix rageuses de
 l'eau contre la quille. Il avait le sentiment de la vie
@@ -135,7 +135,7 @@ garde tout mon cœur.
 
 L'abbé Reims se tut. Il aurait voulu parler de sa
 foi. Mais il hésitait; car il redoutait de n'être pas
-compris. Il se décida enfin : K
+compris. Il se décida enfin
 .. — Pourquoi n'aimes-tu plus que la beauté? Pourquoi t'es-tu éloigné de Dieu? Ma foi te semblerait
 désirable si elle était morte depuis mille ans. Aime- À
 rais-tu les dieux païens si tu les savais vivants
@@ -147,10 +147,10 @@ lui a toujours été inconnue. Il n'a jamais eu de re-
 mords et n'a jamais voulu avoir de pitié. C'est lui
 le véritable, le seul aveugle. Clément, je t'en prie, Fi
 ne sois pas cet aveugle.
-— Je ne puis croire aux promesses divines. k
-— Le Christianisme est une vie. Si tes pensées et 4 1
+— Je ne puis croire aux promesses divines.
+— Le Christianisme est une vie. Si tes pensées et
 tes actes sont chrétiens ton Espérance deviendra pe
-Un jour, Majorel dit à Clément: V
+Un jour, Majorel dit à Clément:
 — Quittons cette ville. Je veux t''emmener dans
 un pays où il reste des vestiges merveilleux de Ja
 L'abbé s'opposa à ce voyage.
@@ -159,10 +159,10 @@ confié comme à vous.
 — Clément est aveugle, mais il a des oreilles pour +4
 entendre, des jambes pour marcher — une poitrine
 solide pour respirer l'air des grandes étendues —
-une intelligence pour penser. La vie et le rève k
+une intelligence pour penser. La vie et le rève
 ouvrent leurs doubles routes devant lui : elles traversent des champs fleuris par toutes les passions
 des hommes. Il se penchera pour couper les tiges
-des lys et cueillir les roses du désir. k
+des lys et cueillir les roses du désir.
 Reims l'interrompit.
 — Éveiller des tentations dans une âme d'enfant
 est le plus irrémissible des péchés.
@@ -290,7 +290,7 @@ réalité suprème de l'Univers — 4 fut juste — 7 fut
 sacré — l'octave fut l'accord parfait.
 É — Les astres, en tournant, donnaient une note.
 
-Mais si personne n'entend l'harmonie des Sphères, "OP i
+Mais si personne n'entend l'harmonie des Sphères, "OP
 c'est que leur musique est continue. 4 Re
 — Ce fut lui qui créa, sous une discipline austère,
 ce collège de savants qu'une brutalité ignorant.
@@ -391,7 +391,7 @@ le désespoir. Des notes éclatantes se perdirent dans
 l'onde des sonorités noires qui poussaient vers des
 grèves tragiques leurs flots de plus en plus
 assourdis : insensiblement la marée d'amertume se
-retirait; des rayons, par les nuages déchirés, faisaient luire des sables. Une immense baie, où k
+retirait; des rayons, par les nuages déchirés, faisaient luire des sables. Une immense baie, où
 scintillaient des écailles, des coquillages, des
 varechs, apparaissait glacée d'argent et miroïtante
 sous le soleil.
@@ -400,7 +400,7 @@ Debout près de Majorel, les mains sur ses épaules,
 il ramena sa tête contre la sienne.
 — Maître vous ne m'aviez jamais joué cette symphonie. Comme elle est belle !
 — Et son histoire est aussi belle. Écoute-la.
-Beethoven était devenu complètement sourd, L
+Beethoven était devenu complètement sourd,
 sourd à ne pas entendre un camion qui passe sur
 des pavés, un grondement de tonnerre, un cri de
 cochon qu'on égorge, sourd comme tu es aveugle.
@@ -432,13 +432,13 @@ préviendrez-vous pas sa mère?
 écrivait : Réjouissez-vous, si vous m'aimez. Je suis
 pareil à un homme qui sortirait d'un sépulcre où on
 l'aurait enfermé vivant. Je n'avais jamais entendu
-un son, senti une fleur, tâté une forme heureuse. — 1e
+un son, senti une fleur, tâté une forme heureuse.
 Tous mes sens s'ouvrent à la vie : ilme sembleque
 Zachée : Vous voyez bien. La nature l'enveloppe :
 de ses maléfices. Reims écrivit à madame Saint-Adjutory : « Revenez vite. La foi de Clément chancelle à
 comme une église où l'on ne dit plus la messe depuis
 des siècles. »
-Majorel et Clément durent revenir. : 000
+Majorel et Clément durent revenir.
 ÿ — Clément, ta mère arrive ce soir par le paques
 bot des Indes, : FR
 
@@ -488,12 +488,12 @@ descendaient, il sentit autour de son cou la forte
 étreinte de deux bras. Des larmes jaillies d'une +138
 source profonde sortirent de ses yeux. Il rendit à sa
 mère tous ses baisers.
-— Montre tes yeux. Ils sont toujours beaux. Si tu À 48
+— Montre tes yeux. Ils sont toujours beaux. Si tu À
 savais comme j'ai désiré les revoir, souvent ils me To
 sont apparus dans leur sérénité vraie, mais parfois 24008
 ils m'ont regardée avec mélancolie, et il y a des jours ‘402
 où ils m'ont regardée avec haine. M'as-tu souvent Ne.
-reproché, en toi-même, det'avoir abandonné? \ 14
+reproché, en toi-même, det'avoir abandonné? \
 
 la lumière
 — Mère, n'évoquez pas les anciens souvenirs.
@@ -510,12 +510,12 @@ l — Mère, vous êtes rassurée maintenant.
 jamais été séparés. Tu es l'enfant que j'ai laissé,
 mon véritable enfant, n'est-ce pas l'abbé ?
 Reims répondit après une seconde d'hésitation
-— N'est-ce pas Majorel ? j
+— N'est-ce pas Majorel ?
 Majorel ne répondit pas.
 — Pourquoi mentir ! Vous l'abbé par des paroles
 et vous maître par du silence ! Vous savez bien l'un
 et l'autre que je ne suis plus chrétien.
-— L'abbé me l'avait écrit; mais je ne pouvais, je Ÿ
+— L'abbé me l'avait écrit; mais je ne pouvais, je
 ne puis pas le penser. Tu es mon fils!
 Des cloches sonnèrent au loin.
 — Écoute sonner les cloches qui t'ont baptisé.
@@ -528,11 +528,11 @@ moi les prières du matin et du soir. Laissez-nous
 tous les deux, vous, qui n'avez pas su défendre
 l'âme que je vous avais confiée, et vous, qui me “al
 l'avez volée. Vous m'avez trompée tous les deux. Ma
-— Mère, ne soyez pas injuste pour ces deux hommes. Ils m'aiment de tout leur cœur. Ils m'ont peut- ï
-Reims et Majorel s'éloignèrent ensemble, et pour f.
+— Mère, ne soyez pas injuste pour ces deux hommes. Ils m'aiment de tout leur cœur. Ils m'ont peut-
+Reims et Majorel s'éloignèrent ensemble, et pour
 la première fois depuis le temps lointain où ils
 vivaient à l'Université, ils se sentirent l'un pour
-l'autre des sentiments fraternels. : 100
+l'autre des sentiments fraternels.
 
 fl: la lumière
 Il ouvrait les yeux pour essayer de voir par
@@ -554,7 +554,7 @@ s . mon cœur trop de souvenirs et trop d'oublis.
 -n'irait pas jusqu'à lui. Et il ne peut pas voir le geste
 de mon bras.
 Les trilles de la clarinette se perdirent peu à peu
-‘ dans les sillements des goélands et des mouettes f
+‘ dans les sillements des goélands et des mouettes
 tourbillonnantes autour du bateau. .
 s — Voit-on encore la terre?
 — On la voit toujours.
@@ -613,7 +613,7 @@ ment et l'établissement des six pre- 5000)
 Nos recettes montaient donc à environ
 64°, d2 nos dépenses. 2%
 Nous avions donc à cette date un Aie
-égal à environ 36 °/, de nos dépenses. +198 4
+égal à environ 36 °/, de nos dépenses. +198
 la méme date vingt-huit étudiants et anciens étu-
 diants avaient décidé d'attribuer aux cahiers les sommes
 qu'ils avaient contribuées depuis le 1° mai 1897 et dont

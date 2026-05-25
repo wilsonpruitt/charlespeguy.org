@@ -108,23 +108,23 @@ F la non-résistance au mal. (4)
 44. Demande. — Que disait-il à ceux qui pleuraient et
 ; souffraient, et qui étaient persécutés et dépouillés de
 leurs libertés et de leurs droits?
-Réponse. — I] leur disait de se réjouir et d'exulter de L
+Réponse. — I] leur disait de se réjouir et d'exulter de
 À joie, car ils auraient leur dédommagement dans l'autre
 (1) On peut voir par le passage suivant de quelle manière l'Église
 a interprété cet enseignement de Jésus : « Si quelqu'un dit que l'état
-: de mariage doit être préféré à l'état de virginité ou de célibat, qu'il l
+: de mariage doit être préféré à l'état de virginité ou de célibat, qu'il
 soit anathème... » (Canon du concile de Trente.)
 à (2) Dans l'un des évangiles apocryphes une femme demande à |
 Jésus pendant combien de temps ce monde de péché durera. À quoi
 fl Jésus répond : « Aussi longtemps que vous, femmes, vous vous
-te marierez et porterez des enfants. » \ j
+te marierez et porterez des enfants. » \
 | () Il est curieux que les catholiques, qui croient au célibat des
 Ê prêtres, font de saint Pierre, — un homme marié, — leur apôtre
 fl préféré, tandis que les protestants, qui croient au mariage, montrent
 \ une préférence marquée pour saint Paul, le célibataire. }
 Ÿ (4) « Et si quelqu'un t'ôte ton manteau, ne l'empêche point de
 à prendre aussi l'habit de dessous. Donne à tout homme qui te
-| demande. Et si quelqu'un t'ôte ce qui est à toi, ne le redemande pas. » j
+| demande. Et si quelqu'un t'ôte ce qui est à toi, ne le redemande pas. »
 :(# (Luc, VI, 29-30.) — « Ne résiste pas au mal ; et à celui qui te frappe à A
 1 une joue présente lui aussi l'autre. » (Luc, VI, 29.)
 # (5) Matthieu, V, 12; et aussi : « Heureux ceux qui sont dans l'afflic-
@@ -159,21 +159,21 @@ Réponse. — Ce serait une trahison envers nos semblables d'encourager ces maux
 bienheureux vous qui avez faim maintenant, parce que vous serez ja
 rassasiés. Vous êtes bienheureux vous qui pleurez maintenant, parce
 “ que vous serez dans la joie. » (Luc, VI, 20-21.) — « Maïs malheur
-Ê à vous, riches, parce que vous avez déjà reçu votre consolation. » d
+Ê à vous, riches, parce que vous avez déjà reçu votre consolation. »
 (1) Comparer à la parabole du blé et de l'ivraie qui grandissent
 ensemble jusqu'au jour de la moisson.
 
 Y le monde sans Dieu...
 à 49. Demande. — Est-ce une bénédiction d'être pauvre, #
 nr faible et misérable ?
-40 Réponse. — C'est un grand malheur.
+Réponse. — C'est un grand malheur.
 M 50. Demande. — Que devons-nous faire alors ?
 pr) Réponse. — Faire tout au monde pour améliorer
 oi: notre condition, dès à présent et ici-bas. ;
 Br 51. Demande. — Résumez les vues de Jésus au sujet
-1 Réponse. — Ceux qui possèdent leur récompense
+Réponse. — Ceux qui possèdent leur récompense
 . maintenant, comme le Riche, par exemple, rouvriront
-71 les yeux en enfer; tandis que ceux qui, comme Lazare, ï
+71 les yeux en enfer; tandis que ceux qui, comme Lazare,
 EL souffrent ici-bas, iront dans le sein d'Abraham. (1) *
 : À » NP 52. Demande. — Jésus n'a-t-il pas blämé ceux qui :
 11 font le mal ?
@@ -210,21 +210,21 @@ nienne et Nestorienne ; et les églises modernes sont les
 Réponse. — Les églises libérales, — savoir l'église
 
 LUS le monde! sans Dieu MNPANONPARARNNES
-174 Unitarienne, Universaliste, et Non-Sectarienne,— Unseca \ tarian.
+Unitarienne, Universaliste, et Non-Sectarienne,— Unseca \ tarian.
 1 5. Demande. — Fraternisent-elles entre elles ?
 Ki Les progrès des sciences ont arrêté toutes les persécu-
 à ; tions de secte à secte qui ont jadis déshonoré l'humajh nité.
 1 6. Demande. — Coopèrent-elles quelquefois sur le
 51 terrain de la charité et de la réforme des âmes ?
-1 Réponse. — Plus dans ce pays (1) que dans aucun |
+Réponse. — Plus dans ce pays (1) que dans aucun |
 M autre, ce qui est un symptôme plein d'espoir, car il
 
 PE, montre que l'esprit de tolérance gagne du terrain.
 1 7. Demande. — Quelles causes contribuent à cette
 “. Réponse.— L'instruction et le commerce; et aussi les à
 ne efforts et les exemples d'hommes et de femmes coura- À
-Le 8. Demande. — Quelle est l'Église Chrétienne la plus 6
-ji: Réponse. — L'Église Catholique. 3
+Le 8. Demande. — Quelle est l'Église Chrétienne la plus
+ji: Réponse. — L'Église Catholique.
 ‘à « 9. Demande. — Comment l'Eglise Catholique est-elle |
 AN: Réponse. — Elle fut organisée à peu près à l'époque |
 RU où l'Empire romain a été converti au christianisme.
@@ -254,9 +254,9 @@ que l'Empire romain.
 44. Demande. — Quel usage l'Église fit-elle de cette
 Réponse. — Elle ajouta sans cesse à ses ressources à
 pécuniaires et politiques, domina la conscience des
-peuples, mit à mort tous les hérétiques, et proclama é
+peuples, mit à mort tous les hérétiques, et proclama
 (4) Constantin, dans sa robe de soie brodée d'or, a présidé le A
-_ Concile de Nicée, réuni pour procéder contre l'hérésie d'Arius. Au F
+_ Concile de Nicée, réuni pour procéder contre l'hérésie d'Arius. Au
 concile de Chalcédoine, les prêtres présentèrent l'adresse suivante |
 à l'empereur : « Vous avez établi la Foi, exterminé les hérétiques. à
 Que le roi du ciel garde le roi de la terre, telle est la prière de
@@ -267,18 +267,18 @@ l'Eglise et du clergé », etc.
 nt | n'acceptât aussi l'Église pour mère. (1)
 AVS 15. Demande. — Quel est le verdict de l'histoire sur
 ‘1 les persécutions de l'Église Catholique ?
-47 Réponse. — Qu'elle a causé plus de souffrance inutile
-1 sur la terre qu'aucune autre institution. (2) ÿ
+Réponse. — Qu'elle a causé plus de souffrance inutile
+1 sur la terre qu'aucune autre institution. (2)
 él 16. Demande. — L'Église Catholique regrette-t-elle
 ‘1 son passé ?
 # Réponse. — L'Eglise Catholique croit qu'elle ne peut
 di: jamais se tromper, et en conséquence elle n'a pas de
 Al 17. Demande. — Pourquoi ne persécute-t-elle plus
-18 Réponse. — L'État ne le permet pas.
+Réponse. — L'État ne le permet pas.
 " (3) Cf. Jules Simon sur le massacre de la Saint-Barthélemy, Liberté
 Fe de conscience, pages 43-84. Dans son Histoire de France, Henri Martin
 WA cite ces terribles mots d'un prêtre catholique en réponse aux sol4 dats qui se plaignaient de ne pas reconnaître les catholiques des
-{1 hérétiques : « Tuez, tuez tout », réponditle prêtre, « Dieu reconnaîtra 2
+{1 hérétiques : « Tuez, tuez tout », réponditle prêtre, « Dieu reconnaîtra
 A les siens. » La joie de l'Europe catholique lors du massacre de la
 4 hi: Saint-Barthélemy fut si grande que le Parlement français décida
 A] qu'une procession annuelle serait instituée à Paris pour commé-
@@ -290,7 +290,7 @@ A hérétiques, Le même pape commanda aussi une fresque représen- !
 LE on peut la voir encore aujourd'hui à la Chapelle Sixtine. Dans un
 1 sermon prêché devant ce pape, quelques jours seulement après le
 et massacre, Muret, le prédicateur, disait : « O nuit mémorable! O la ;
-# tt plus glorieuse de toutes les solennités de l'Eglise! Dans cette nuit 4
+# tt plus glorieuse de toutes les solennités de l'Eglise! Dans cette nuit
 A les étoiles elles-mêmes ont lui plus brillantes », etc... Le sermon se
 Ru) terminait en déclarant que Charles IX, Catherine sa mère, et le
 ‘ Pape étaient bénis entre tous les hommes d'avoir été choisis pour
@@ -334,7 +334,7 @@ romaine de croyance et de pratique. Cf. Mosheim, Ecclesiastical
 history. On dit que Charles V, parent de la Reine d'Angleterre, usa
 
 ue le monde sans Dieu PNR
-Ne 23. Demande. — Que fit alors le roi? 4
+Ne 23. Demande. — Que fit alors le roi?
 ut : Réponse. — Il fonda une nouvelle Église, dont il
 k. devint le maître absolu, et qui lui laissa faire ce qui
 ï 24. Demande. — Quel est le nom de l'Église, d'Amé-
@@ -349,13 +349,13 @@ a 25. Demande. — Toutes les Églises y sont-elles tolé-
 ; Réponse. — Non. L'Église, qui jadis gouvernait à la
 : fois les rois et les peuples, est maïintenant partout
 4 subordonnée à l'Etat. ‘À
-is de son influence pour empêcher le pape d'accorder le divorce. È
+is de son influence pour empêcher le pape d'accorder le divorce.
 "a Henri se maria six fois, envoya trois femmes à l'échafaud, et fit
 ' aussi décapiter sir Thomas Moore pour avoir refusé de le recon-
-ÿ naître comme le chef suprême de l'Église. Léon X a appelé M
+ÿ naître comme le chef suprême de l'Église. Léon X a appelé
 % Henri VII « le Défenseur de la Foi » pour avoirécrit contre Luther. À
-qu @) Henri VIII changea la formule du serment du couronnement É
-à qui devint comme il suit: « Le roi jurera alors de mainténiret M
+qu @) Henri VIII changea la formule du serment du couronnement
+à qui devint comme il suit: « Le roi jurera alors de mainténiret
 :q garder les droits légaux et libertés du temps jadis accordées par les {k
 qu très justés Rois Chrétiens d'Angleterre à la Sainte Église d'AngleMt terre, sans préjudice à ses juridiction et dignité royales. » Nous
 mue avons ici la première affirmalion formelle de la suprématie de |
@@ -400,7 +400,7 @@ feu que par des arguments. L'Eglise dans ce temps-là revendiquait
 
 le droit de tuer tous ceux qu'elle ne pouvait pas convertir. Cf. Story
 
-À le monde sans Dieu 4
+À le monde sans Dieu
 31. Demande. — Pourquoi l'hérésie n'est-elle pas
 4 dénoncée de nos jours avec autant de véhémence qu'au
 | Réponse. — Parce que nous avons appris qu'un doute
@@ -430,7 +430,7 @@ libérales soumettent dans une certaine mesure les doctrines de la religion au j
 2. Demande. — Les orthodoxes ne font-ils pas de
 même ?
 
-_ Réponse. — Pas au même degré, car ils croient que k
+_ Réponse. — Pas au même degré, car ils croient que
 la Révélation est une autorité plus haute que la raison.
 
 3. Demande. — Quelles sont les croyances des
@@ -441,7 +441,7 @@ peu par toutes deux. '
 
 Fà le monde sans Dieu VPN
 1 \ 4. Demande.— La Révélation ne peut-elle se concilier
-1 avec la raison? 4
+1 avec la raison?
 à Réponse. — Quand la Révélation s'accorde avec la
 Le raison, il n'y a que de la raison. C'est seulement quand
 à elle est en désaccord avec la raison, qu'il existe, ou
@@ -455,10 +455,10 @@ MAC a été créé parfait, elle enseigne ce qui est contraire à |
 ù prend le caractère de révélation. |
 | 6. Demande. — Quelles sont quelques-unes des doc-
 À trines orthodoxes que l'Église libérale rejette ?
-14 Réponse. — L'expiation, la damnation éternelle;
+Réponse. — L'expiation, la damnation éternelle;
 de l'inspiration plénière de la Bible; un diable personnel;
 4 la dépravation totale, etc. |
-il 7. Demande. — Citez quelques-unes des doctrines M
+il 7. Demande. — Citez quelques-unes des doctrines
 4 orthodoxes que l'Église libérale accepte. ki
 ï Réponse. — Un Dieu personnel; Jésus sans péché;
 il l'immortalité de l'âme: le devoir de la prière; la supé-
@@ -483,7 +483,7 @@ le service inestimable de l'arracher aux dialectiques
 existent dans ce pays ? (1)
 À Réponse. — Le Spiritisme, la Théosophie, la Science
 … 413. Demande. — Quelle est la doctrine spirite ?
-… Réponse. — Elle enseigne que nous pouvons commu- F
+… Réponse. — Elle enseigne que nous pouvons commu-
 ï niquer avec les esprits des morts.
 4 14. Demande. — Comment essaye-t-on de prouver
 … cette assertion ?
@@ -491,7 +491,7 @@ existent dans ce pays ? (1)
 
 le monde sans Dieu
 témoignage d'hommes et de femmes actuellement « vivants. À
-45. Demande. — Qui sont ceux-ci ? Î
+45. Demande. — Qui sont ceux-ci ?
 Réponse. — Généralement des mediüms, qui gagnent
 leur vie en donnant des consultations ou en organisant
 des séances. |
@@ -661,13 +661,11 @@ d'une aussi grande obscurité que celle de l'origine des
 
 (2) Hérésie vient d'un mot grec et signifie « examiner », « choisir ».
 
-| 99
-
 110 le monde isans Diet NON
 le. 411. Demande. — Quels sont les points fondamentaux
 Li de ce credo ?
 
-00 Réponse. — La croyance dans la Trinité, l'Immaculée
+Réponse. — La croyance dans la Trinité, l'Immaculée
 2 : Conception de Jésus et la résurrection de la chair.
 
 4 12. Demande. — Quelles preuves donne-t-on à l'appui
@@ -682,7 +680,7 @@ Un. Réponse. — Non, ils acceptent également les leurs.
 
 de % 14. Demande. — Comment pouvons-nous savoir
 Dee laquelle de ces doctrines admises est la vérité ?
-40 Réponse. — La coutume générale a été d'admettre
+Réponse. — La coutume générale a été d'admettre
 1° que le credo du pays dans lequel on est né est le vrai.
 4 15. Demande. — Est-ce une bonne coutume ?
 ‘08 Réponse. — C'est une très mauvaise coutume, car
@@ -783,7 +781,7 @@ cités à comparaître et poursuivis par le pouvoir sécu- \
 lier. » Et le verset 109 du catéchisme porte que les
 
 (1) Les calvinistes modernes admettent la probabilité de salut
-pour tous les enfants. — Schaff, volume I, page 795.
+pour tous les enfants. — Schaff, volume I, page
 
 | (2) Le péché originel était considéré comme si grand qu'un des
 clergymen déclara : « Si un homme n'était jamais né, il serait
@@ -834,9 +832,9 @@ des connaissances grandissantes de l'homme.
 
 4 | ment ; l'un ne peut être accepté que sous des conditions
 
-1 inadmissibles pour la raison, l'autre accueilie toutes È
+1 inadmissibles pour la raison, l'autre accueilie toutes
 
-ne (1) « Non seulement il est permis de punir par la mort ceux qui F
+ne (1) « Non seulement il est permis de punir par la mort ceux qui
 
 CA travaillent à renverser la vraie religion, mais les magistrats et le
 
@@ -853,7 +851,7 @@ credo qui interdit la liberté de pensée et de parole ?
 Réponse. — Non. La dignité de l'homme est dans sa
 raison, la dignité de la raison est dans la liberté;
 détruire la liberté est détruire la raison et sans raison
-nous cesserions d'être des humains. ù
+nous cesserions d'être des humains.
 
 35. Demande. — Pourquoi la liberté de parole estelle indispensable ?
 
@@ -935,7 +933,7 @@ car l'absolution lui était refusée jusqu'à l'heure de sa mort.
 Mn . le. monde sans Dieu) MINES
 44 10. Demande. — Quel usage les membres du clergé
 1 ont-ils fait de ces privilèges ?
-4 Réponse. — Dans l'ensemble ils en ont abusé et c'est
+Réponse. — Dans l'ensemble ils en ont abusé et c'est
 2 ' pourquoi ils ont été dépouillés de presque tous. ;
 We 11. Demande. — Comment un homme devient-il
 de membre d'un clergé aujourd'hui ?
@@ -948,7 +946,7 @@ We. Réponse. — En passant un examen pour prouver
 M % candidats Fe ordres sacrés pratiquent ce qu'on appelle
 4 des « restrictions mentales ». -
 nn. 13. Demande. — Qu'est-ce que cela ?
-4 Réponse. — C'est la faculté, tout en souscrivant au
+Réponse. — C'est la faculté, tout en souscrivant au
 au credo tel qu'ilest, d'y lire le sens qu'on lui attribue per2e . sonnellement, — de l'accepter comme vrai au point de
 11 vue théologique seulement et non au point de vue
 De philosophique également. Le candidat peut répondre à
@@ -984,12 +982,12 @@ Réponse. — Oui, si son intention est de suivre ses
 fidèles, mais non, s'il désire être un éducateur et un
 
 (1) James Martineau cite la louange suivante déversée par un
-Français sur cette catégorie de prêtres : « Notre clergé, bien certainement, est tout entier parjure ; mais aussi, comme il est délicieusement libéral. » — Essays and Reviews, volume II, page 187.
+Français sur cette catégorie de prêtres : « Notre clergé, bien certainement, est tout entier parjure ; mais aussi, comme il est délicieusement libéral. » — Essays and Reviews, volume II, page
 
 ju Prière et Salut
 
 (x 1. Demande. — Qu'est-ce que la prière ?
-1 Réponse. — C'est une supplication adressée à Dieu
+Réponse. — C'est une supplication adressée à Dieu
 ‘1 ou un désir d'être en communion avec lui.
 ‘on 2. Demande. — Les gens prient-ils quelquefois aussi
 114 les lois de la nature ?
@@ -1000,11 +998,11 @@ SN Réponse. — Non; la prière est toujours adressée à
 Ur: 4. Demande. — Tous ceux qui prient croient-ils en un
 ner Réponse. — Ils le devraient; car si Dieu n'est pas une
 Re personne il ne doit pas être distinct des lois de la nature |
-Je ou des idéals de notre esprit. î
+Je ou des idéals de notre esprit.
 43 5. Demande. — Qu'est-ce qu'une personne ?
 ‘ht Réponse. — Un être qui sait qu'il est lui-même et non
 PA un autre.
-14 110
+14
 
 6. Demande. — Dieu peut-il être une personne ?
 
@@ -1039,8 +1037,8 @@ permis la sécheresse et peut être induit à la faire
 Réponse. — Oui, parce qu'une sécheresse ne peut pas
 durer toujours. : À
 
-le monde sans Dieu 1
-12. Demande. — N'arrive-t-il pas fréquemment que 1
+le monde sans Dieu
+12. Demande. — N'arrive-t-il pas fréquemment que
 tandis que les uns prient pour une chose les autres À
 prient aussi ardemment pour le contraire ? \
 Réponse. — Oui. Les uns demandent à Dieu dans un

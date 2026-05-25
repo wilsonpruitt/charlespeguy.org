@@ -44,9 +44,9 @@ wen sommes que plus reconnaissants à M. Sarrasin
 
 Thurneysen de l'exquise bonne grâce avec laquelle il a
 
-mis à notre disposition la photographie des trois s4
+mis à notre disposition la photographie des trois
 fresques dont Boecklin, en 1869, décora un pavillon de
-son hôtel et que les connaisseurs les plus délicats F3 34
+son hôtel et que les connaisseurs les plus délicats
 mettent au premier rang dans l'œuvre si complexe du
 maître. Ne nous étonnons plus que l'œuvre du grand
 peintre suisse ainsi cadenassée n'ait pu pénétrer davan-
@@ -56,7 +56,7 @@ en a un groupe assez considérable au musée de Bâle, À
 un autre à la galerie de Schack à Munich; le reste est
 dispersé dans les collections publiques ou particulières
 de Berlin, Baden-Baden, Brême, Breslau, Darmstadt, .
-Dresde, Francfort, Munich, Vienne, Zurich... Pour les * 2
+Dresde, Francfort, Munich, Vienne, Zurich... Pour les
 connaître, il faudrait avoir fait plusieurs séjours dans
 la Suisse allemande et en Allemagne. Dire que nous
 les ignorons, c'est répéter sous une autre forme que
@@ -116,7 +116,7 @@ de cinq reproductions ({'Ile de la Mort — Idylle Marine
 de Printemps). Or, il n'est pas dans les habitudes de la
 Gazette des Beaux-Arts de publier des monographies
 d'artistes vivants. Elle laisse d'ordinaire ce soin à la
-Revue de l'Art ancien et moderne — qui, moins prudente, 4
+Revue de l'Art ancien et moderne — qui, moins prudente,
 se fait chaque mois autant d'ennemis que d'amis, — et
 ne l'assume que par exception, pour consacrer une noto- à
 riété et faire une véritable manifestation sur un nom.
@@ -130,7 +130,7 @@ journal (26 octobre}une correspondance et (2 novembre)
 une causerie artistique très pénétrante d'André Michel,
 — j'en ai cité quelques lignes —; dans le Temps
 (3 novembre) un article de Thiébault Sisson; dans la
-revue l'Art Décoratif (octobre) l'étude de Will-Ritter à c
+revue l'Art Décoratif (octobre) l'étude de Will-Ritter à
 laquelle j'ai déjà fait allusion, — les trois reproductions
 qui l'accompagnaiïent étaient : la Fuite en Égypte,
 David, les Pèlerins d'Emmaüs —; dans la Nouvelle.
@@ -214,7 +214,7 @@ pas nommé ce peintre, avec le docteur Max Lehrs « le
 Botticelli du dix-neuvième siècle comme Botticelli est
 le Boecklin du quinzième ». Ils n'ont pas écrit comme
 
-telautre de ses dévots cité par André Michel qu' « ilré- Ë
+telautre de ses dévots cité par André Michel qu' « ilré-
 sume posthumement en plein dix-neuvième siècle toutes
 les tendances, les croyances, les rêves, les sciences, les
 lettres, les arts, l'esprit en un mot du Saint-Empire romain germanique ». Mais sans réaliser par la seule
@@ -241,7 +241,7 @@ joue le plus souvent dans ce monde mythologique avec
 une joie dont la toile est comme illuminée. Son mérite
 fut bien moins de s'ètre montré un peintre penseur que
 d'avoir trouvé dans les robes des Centaures aux croupes
-luisantes, dans les écailles irisées, dans l'éclat des n
+luisantes, dans les écailles irisées, dans l'éclat des
 chaïrs roses et les profondeurs glauques de l'eau, dans
 l'agitation tumultueuse des vagues autour des récifs, À
 des motifs où contenter son amour de la couleur, du

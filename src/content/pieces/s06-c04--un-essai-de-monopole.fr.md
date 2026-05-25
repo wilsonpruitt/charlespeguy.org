@@ -37,7 +37,7 @@ le catalogue analytique sommaire, 1900-1904, de
 _ nos cinq premières séries.
 
 . Ce catalogue a été justement établi pour donner,
-autant qu'il se pouvait, une image en bref, un raccourci, une idée, abrégée, mais complète, de nos édi- È
+autant qu'il se pouvait, une image en bref, un raccourci, une idée, abrégée, mais complète, de nos édi-
 tions antérieures et de nos cinq premières séries ; tout y
 est classé dans l'ordre; il suffit de le lire pour trouver,
 
@@ -46,9 +46,9 @@ F Ce catalogue, in-18 grand-jésus, forme un cahier
 
 très épais de XII1+/408 pages très denses, marqué
 cing francs; ce cahier comptait comme premier cahier
-de la sixième série et nos abonnés l'ont reçu à sa date, F
+de la sixième série et nos abonnés l'ont reçu à sa date,
 le 2 octobre, comme premier cahier de la sixième
-série; toute personne qui s'abonne à la sixième série Ë
+série; toute personne qui s'abonne à la sixième série
 le reçoit, par le fait même de son abonnement, en tête
 de la série; nous l'envoyons contre un mandat de
 cinq francs à toute personne qui nous en fait la
@@ -124,7 +124,7 @@ les uns; et en un autre sens les autres; la vérité est
 _ comme un lieu géométrique où se coupent un très |
 grand nombre de regards et de sens, d'actions et de
 . directions; et c'est parce que nos cahiers sont essentiellement des cahiers de vérités qu'ils sont eux-mêmes
-comme un grand pays géométrique où se coupent un s
+comme un grand pays géométrique où se coupent un
 grand nombre de regards et de sens, d'actions et de
 directions; qu'en un sens ils apportent des renseignements, qu'en un autre sens ils apportent des enseignements; sans compter tous les autres sens; que si l'on
 veut ils sont tout courriers, et, si l'on veut, tout
@@ -133,7 +133,7 @@ des cahiers nos anciens abonnés connaissent bien, nos
 nouveaux abonnés apercevront bientôt ces deux grandes
 . familles dynastiques, les cahiers de courriers, les
 cahiers de l'enseignement; en ce sens restreint, en ce
-sens particulier, le cahier que l'on va lire présente un x
+sens particulier, le cahier que l'on va lire présente un
 ‘intérêt singulier, car il appartient également à ces deux
 
 | grandes familles, il est à la jonction de ces deux races,
@@ -201,7 +201,7 @@ comme un cahier de courrier; comme un cahier de l'enseignement.
 
 Pour tout travail, pour toute œuvre, la bonne lec-
 : ture consiste à lire l'œuvre en elle-même, par ellemême, pour elle-même.
-Je me hâte d'ajouter, pour dégager toute sa responsabilité, que cette lecture est la lecture de l'auteur; et 3
+Je me hâte d'ajouter, pour dégager toute sa responsabilité, que cette lecture est la lecture de l'auteur; et
 il est bien qu'il en soit ainsi; car il faut que l'auteur
 soit innocent; il suflit que nous lecteurs nous soyons
 | coupables; M. Raoul Allier a écrit ce cahier comme un
@@ -352,7 +352,7 @@ style, politiques parlementaires, ouvriers de la cent
 soixante-et-onzième heure, mais qui ne surprendra
 point tous ceux qui connaissent M. Raoul Allier. Plus
 
-| « Ce n'est pas le général Gallieni qui avait inventé 4
+| « Ce n'est pas le général Gallieni qui avait inventé
 \ ce régime. J'ajouterai même qu'il ne faut pas, non plus,
 | en rendre responsable le ministre d'alors, M. André
 : M. André Lebon, quel nom sinistre, évocateur de
@@ -424,7 +424,7 @@ monde.
 
 Le ton de ce cahier paraîtra beaucoup trop mesuré à
 un très grand nombre de personnes; un très honnête
-homme, ancien élève de l'ancienne École Normale, supérieure, — les deux sont compatibles, — agrégé de ù
+homme, ancien élève de l'ancienne École Normale, supérieure, — les deux sont compatibles, — agrégé de
 philosophie, chargé d'un cours de l'enseignement
 
 $ supérieur, un historien de la philosophie, un philosophe, un véritable ancien dreyfusiste, homme
@@ -455,13 +455,13 @@ cette Madagascar, nous représente assez bien ce que
 sera le gouvernement de cette France quand le commandement de M. Jaurès nous aura tous courbés; il
 fera bon vivre dans la satrapie du satrape Jaurès ; on
 croirait y être ; il sera loisible à Jaurès et à ses subordonnés de rendre la vie impossible aux individus ou aux
-collectivités qui s'exposent à des rancunes de l'adminis- F
+collectivités qui s'exposent à des rancunes de l'adminis-
 tration ; d'autre part, les enquêtes sont presque impossibles dans la colonie; les Français sont si aplatis que les
 victimes d'un abus de pouvoir refuseront de déposer
 contre le fonctionnaire oppresseur: et comme le dit
 Jaurès, périssent mes principes, et vive ma colonie.
 
-> Conclusion du chapitre IV : x
+> Conclusion du chapitre IV
 .… € D'aucuns diront sans doute que le principe de
 
 la laïcité absolue de l'État ne permet pas à celui-ci
@@ -471,15 +471,15 @@ qu'il ne s'agit que d'enseignement industriel et agricole.
 La thèse est soutenable. Mais, si le régime de l'école
 | congréganiste officielle était contraire à tous les prin-
 | cipes de notre démocratie, la suppression du régime
-des subventions conditionnelles ne choque aucun de ë
+des subventions conditionnelles ne choque aucun de
 ces principes. Quelques-uns, dont je suis, peuvent
 mettre en doute l'utilité pratique de cette suppression
 | subite. Personne n'en saurait contester la parfaite léga-
 . lité, la complète conformité avec l'esprit et la lettre de
-notre droit public. » 3
+notre droit public. »
 Un homme qui parle encore de principes, de thèses,
 | de régimes, de principes encore, de principes toujours;
-| de parfaite légalité, de complète conformité avec l'esprit j
+| de parfaite légalité, de complète conformité avec l'esprit
 | et la lettre de notre droit public ;
 Aussitôt après, au commencement du chapitre V : ;
 .… « Ce secours étant toujours révocable, le régime
@@ -536,7 +536,7 @@ Même chapitre, en note; sur une école tenue par les
 | Frères de la Doctrine chrétienne : à
 | Journal Officiel de Madagascar du 11 mai 1901, à propos
 | de l'école d'Andohalo, tenue par les Frères de la Doctrine
-| chrétienne : « Le programme des classes est surtout x
+| chrétienne : « Le programme des classes est surtout
 en vue de l'enseignement professionnel et parfois est
 | À partie intégrante ; c'est ainsi que les élèves font d'abord le
 | croquis du travail qu'ils doivent exécuter à l'atelier. La forge
@@ -583,13 +583,13 @@ où l'on prescrit que les élèves apprennent à faire de la
 menuiserie, mais où l'on défend que ce soit de la
 menuiserie qui serve à faire des tables; je cite la
 
-« Le plus souvent, au lieu de passer sous la direction de x
+« Le plus souvent, au lieu de passer sous la direction de
 leurs maîtres par toutes les phases » …
 
 .… (d'un enseignement professionnel donné, les élèves sont, non pas instruits,
 mais simplement utilisés à la fabrication courante du mobilier et du matériel nécessaires aux missions. On les spé-
 
-| . cialise ainsi, non pas dans un métier, mais dans un certain 4
+| . cialise ainsi, non pas dans un métier, mais dans un certain
 détail de métier, suivant le principe de la division ‘du LA
 | 8 travail, qui est sans doute le plus avantageux au point de
 vue du rendement industriel dans une usine ou un grand
@@ -599,7 +599,7 @@ vue du rendement industriel dans une usine ou un grand
 « C'est ainsi que le but à atteindre a été perdu de vue dans |
 É certaines écoles privées et que j'ai été amené à diverses -
 MS reprises, notamment au mois de janvier dernier, à rappeler à
-: ; quelques-unes d'entre elles » … : Î
+: ; quelques-unes d'entre elles » …
 Î On entend ce langage officiel; d'une part le gouveri peur général prescrit que les écoles privées, libres,
 | donnent un enseignement professionnel; mais d'autre - =
 | part il faut que cet enseignement professionnel ne fasse
@@ -609,8 +609,8 @@ MS reprises, notamment au mois de janvier dernier, à rappeler à
 il n'est plus un métier universitaire, un métier noble,
 ‘ un métier gouvernemental, un métier scolaire, un mé-
 tier que l'on peut mettre sur les programmes et que les
-Nous avons ici un avant-goût de ce que sera dans 5
-nos écoles primaires et dans nos lycées l'enseignement ï
+Nous avons ici un avant-goût de ce que sera dans
+nos écoles primaires et dans nos lycées l'enseignement
 du travail manuel quand les grandes révolutions jaurésistes auront fait pénétrer le socialisme gouverneF mental dans le monopole de l'enseignement ; on ne fera
 | point du travail vrai, à rendement industriel et social;
 È mais on fera du beau faux travail réglementé, du beau,
@@ -731,7 +731,7 @@ G toujours agréable d'apprendre. »
 A écoles oflicielles et laïques ; pour faire croire au public,
 us au bon populaire, au lecteur, qu'elles réussissent, on
 ke FR fera des apparences, on travaillera les statistiques ;
-6 É: mais enfin, pour donner au moins un point d'appui à ce
+É: mais enfin, pour donner au moins un point d'appui à ce
 ; ra : travail même, il faut bien qu'il y ait quelqu'un dans les
 ‘ à écoles du gouvernement; alors le gouvernement fait des
 
@@ -754,7 +754,7 @@ du Matin; je vois très bien venir le jour en France où
 tout citoyen qui ne sera point jaurésiste professionnel
 __ ne pourra point devenir instituteur; et à ceux qui, étant
 jaurésistes professionnels, auront pu devenir instituteurs, le gouvernement jaurésiste décernera un bel uniforme magnifiquement galonné ; et quiconque aura con-
-| tredit un instituteur, dans l'exercice ou hors de l'exer_cice de ses fonctions, sera passible, quiconque aura nié 4
+| tredit un instituteur, dans l'exercice ou hors de l'exer_cice de ses fonctions, sera passible, quiconque aura nié
 devant un instituteur la thèse de la réalité du monde
 sensible sera passible d'un emprisonnement de six
 mois à trois ans, et d'une amende de six mille à vingt
@@ -848,7 +848,7 @@ NT France, garçons et filles; cinquante mille instituteurs,
 aligneront et leur feront faire un immense par file à
 “ gauche, aux accents de l'Internationale; ce sera l''Apothéose de la Délation; cinq millions d'élèves peuvent
 Fa donner vingt-quatre millions, neuf cent quatre-vingt4 dix-neuf mille, neuf cent quatre-vingt-quinze unités de
-ASE millions de délations. f
+ASE millions de délations.
 à Je vois plus grand enfin : cinquante millions de Fran4e çais, hommes, femmes, enfants, réunis au camp de
 (7 Châlons, le Champ-de-Mars ne suflisant plus ; réunis
 
@@ -979,7 +979,7 @@ TA la tête d'une école libre était pour celle-ci la première
 4 condition pour obtenir certains privilèges. Dès qu'elles
 4 _ remplissaient cette condition, les écoles étaient « clasDe sées », et, si elles donnaient l'instruction industrielle et
 …_ agricole, elles pouvaient recevoir quelques secours.
-1 T A celles qui sont dans ce cas, et à celles-là seulement
+T A celles qui sont dans ce cas, et à celles-là seulement
 2 le siatisticien de Za Nouvelle Revue accorde la faveur
 ….. de reconnaître leur existence. »
 
@@ -1002,7 +1002,7 @@ monopole était purement et simplement de la compta-
 _ école officielle, créée il y a quelques mois à Tananarive,
 É dans le quartier de Faravohitra, a déjà enlevé aux
 écoles libres de ce quartier plus de deux cents élèves.
-3 La nouvelle rend rêveur quiconque est un peu au cou4 rant de ce qui se passe dans la capitale de Madagascar.
+La nouvelle rend rêveur quiconque est un peu au cou4 rant de ce qui se passe dans la capitale de Madagascar.
 Ce qui a été fait par l'administration à Faravohitra
 + est tout différent. à
 
@@ -1020,7 +1020,7 @@ fi mission protestante française. Il a été repris par l'admibf nistration; et
 k , une école pour enfants malgaches. Mais cette école
 fe n'était pas ouverte au premier mai dernier. Elle ne l'est
 P sans doute pas encore. (1) Voilà tout ce qui a été fait à
-5 Faravohitra. Non seulement on n'a pas enlevé deux
+Faravohitra. Non seulement on n'a pas enlevé deux
 ji x cents élèves aux établissements libres de ce quartier;
 Le mais encore, à cause de la fermeture d'une des écoles
 4 ; de Frères (celle que l'on a transformée à l'usage des
@@ -1034,7 +1034,7 @@ général Gallieni a raison d'y tenir et de lui donner tous
 TES une évidente injustice à se dissimuler l'importance de
 ce que le Gouverneur général de la Colonie, avec un
 134 () D'après le Journal Officiel de Madagascar du 7 mai,
-4 elle devait être ouverte le 16.
+4 elle devait être ouverte le
 
 budget difficilement équilibré, a su réaliser. Mais il
 n'est vraiment pas nécessaire que des études tendancieuses, comme celle de Za Nouvelle Revue, donnent au
@@ -1067,7 +1067,7 @@ trouver la confirmation détaillée de ce que j'ai dit :
 « À la suite de la résiliation du contrat des Frères des
 écoles chrétiennes, les immeubles qui avaient été mis à la
 disposition de ces derniers furent repris par la Colonie, en
-vue de l'installation de nouvelles écoles officielles dans 4
+vue de l'installation de nouvelles écoles officielles dans
 plusieurs quartiers de la ville ; ils reçurent la destination
 
 « 1. — Une école primaire officielle, dirigée par des insti-
@@ -1392,7 +1392,7 @@ imposer aux écoles de l'enseignement privé l'obligation de :
 Vu les instructions ministérielles en date du 8 dé-
 
 fi Sur la proposition du chef du service de l'enseignement;
-NS Le conseil d'administration entendu, 3
+NS Le conseil d'administration entendu,
 { V ARTICLE PREMIER. — L'arrêté du 15 juin 1903 est abrogé et
 ul : remplacé par les dispositions suivantes :
 k| 4 ARTICLE 2. — l'enseignement est donné à Madagascar
@@ -1414,9 +1414,9 @@ conseil de l'enseignement composé ainsi qu'il suit :
 à Le Secrétaire Général, président ; 4 à
 Le chef du service de l'enseignement, vice-président ; “4
 Un chef de province ; À
-F L'inspecteur des écoles ; e.
-Le directeur de l'école « Le-Myre-de-Vilers » ; 4
-PE Le sous-directeur de l'école professionnelle ; 02
+F L'inspecteur des écoles
+Le directeur de l'école « Le-Myre-de-Vilers »
+PE Le sous-directeur de l'école professionnelle
 
 Le directeur de l'école d'agriculture ;
 È Deux membres de la chambre consultative de TananaM rive.
@@ -1428,7 +1428,7 @@ De l'enseignement officiel
 ARTICLE 6. — L'enseignement officiel à Madagascar est
 donné dans les écoles supérieures, les écoles régionales
 | d'apprentissage et les écoles primaires rurales.
-4 Le but poursuivi dans ces établissements est :
+Le but poursuivi dans ces établissements est :
 1° De développer chez les jeunes Malgaches les sentiments
 de fidélité envers la France et de Les initier à nos idées et à
 nos coutumes ;
@@ -1450,7 +1450,7 @@ fe Le temps nécessaire sera laissé aux élèves pour pratiquer,
 
 pr ARTICLE 8. — Les écoles supérieures sont :
 
-14 L'école de médecine indigène de Tananarive ;
+L'école de médecine indigène de Tananarive ;
 
 [ile Les écoles administratives et commerciales de Tananarive,
 
@@ -1460,7 +1460,7 @@ Fil : L'école professionnelle de Tananarive ; ;
 
 { t L'école d'agriculture de Tananarive.
 
-162 ARTICLE 9. — L'école professionnelle reste organisée à
+ARTICLE 9. — L'école professionnelle reste organisée à
 
 AE Tananarive conformément aux dispositions de l'arrêté en
 
@@ -1484,7 +1484,7 @@ Hs actuellement en vigueur. Elle relève du directeur du service
 
 ‘il de santé.
 
-1 ARTICLE 12. — Les écoles administratives et commerciales
+ARTICLE 12. — Les écoles administratives et commerciales
 
 | 2 de Tananarive, Mahanoro et Analalava, restent organisées
 conformément aux dispositions de l'arrêté du 5 juillet 1903.
@@ -1530,7 +1530,7 @@ aménagement intérieur et extérieur, l'hygiène de l'établissement; il soumet
 | visés par l'article 27 ci-après, qui doivent toujours être
 
 établis en tenant compte de la situation économique parti: .
-culière de la région. j
+culière de la région.
 ARTICLE 19. — La durée des études dans chacune des sec-
 | tions des écoles régionales est de trois ans.
 ARTICLE 20. — Tous les ans, le chef du service de l'ensei- |
@@ -1551,7 +1551,7 @@ candidats se compose de l'inspecteur de la circonscription,
 d'un fonctionnaire délégué par le chef de la province, du
 directeur et des professeurs de l'école.
 
-71 ARTICLE 23. — A leur entrée à l'école régionale, les élèves
+ARTICLE 23. — A leur entrée à l'école régionale, les élèves
 
 À signent l'engagement d'y terminer leurs études. De plus,
 
@@ -1561,24 +1561,24 @@ consacrer à l'enseignement public pendant 6 ans à compter
 | de leur sortie de l'école.
 
 à ARTICLE 24. — Des bourses de 120 francs par an, dont le
-nombre est fixé par arrêté du Gouverneur Général, sur la 4
+nombre est fixé par arrêté du Gouverneur Général, sur la
 proposition du chef du service de l'enseignement, sont
 attribuées par les chefs de province et sur l'avis des direc-
 
 teurs des écoles régionales aux élèves les plus méritants et
-les plus nécessiteux de ces écoles. F
+les plus nécessiteux de ces écoles.
 .
 
 ARTICLE 95, — Tout élève qui quitte volontairement l'école à
-ou qui en est exclu, tout instituteur qui ne réalise pas l'en- 4
+ou qui en est exclu, tout instituteur qui ne réalise pas l'en-
 gagement qu'il a souscrit, est tenu de restituer :
 
-1° Le montant de ses frais d'études de 2 ans au plus, cal- 4
+1° Le montant de ses frais d'études de 2 ans au plus, cal-
 
-f culés à raison de 10 francs par mois; F
-134 2
+f culés à raison de 10 francs par mois;
+134
 
-2 Le montant des allocations dont il aura pu jouir en
+Le montant des allocations dont il aura pu jouir en
 qualité de boursier.
 
 ARTICLE 26. — Toutefois, sur la proposition du chef de la
@@ -1610,20 +1610,20 @@ Les plus méritants et les plus nécessiteux d'entre eux,
 âgés de plus de seize ans, pourront recevoir des allocations
 annuelles, dont le taux est fixé comme suit :
 
-IS ARTICLE 32. — Les professeurs assistants des écoles régio- 2
-LC nales sont répartis en cinq classes, dont le traitement 4
+IS ARTICLE 32. — Les professeurs assistants des écoles régio-
+LC nales sont répartis en cinq classes, dont le traitement
 re + mensuel est fixé ainsi qu'il suit : À à
-ARE Les professeurs assistants originaires de l'Imérina ou du É
+ARE Les professeurs assistants originaires de l'Imérina ou du
 A Betsiléo, en service dans les régions excentriques, pourront
 | (tE recevoir un supplément de traitement de 15 à 30 francs
 54 par mois, variable suivant les circonstances et les localités.
 LE Le montant de ce supplément sera fixé par arrêté pour les Fe
-PE ARTICLE 33. — Les professeurs assistants sont choisis par h
-Le voie de concours. 54
-Pi Sont admis à concourir : Hg È
+PE ARTICLE 33. — Les professeurs assistants sont choisis par
+Le voie de concours.
+Pi Sont admis à concourir : Hg
 REA. Les instituteurs officiels pourvus du certificat d'aptitude
 HA à l'enseignement, ayant au moins trois années d'exercice
-LS et agréés par le chef du service de l'enseignement. x.
+LS et agréés par le chef du service de l'enseignement.
 | ER Le concours pour l'emploi de professeur assistant comLT ES prend des épreuves écrites, des épreuves pratiques et des
 
 Deux problèmes d'arithmétique et de système métrique.
@@ -1695,7 +1695,7 @@ de Madagascar étudiées sous Le rapport des relations commerciales que ces pays
 monde ;
 
 Des leçons de choses s'appliquant à l'agriculture et à
-l'hygiène ; i
+l'hygiène
 
 Le dessin dans ses rapports avec les métiers usuels;
 
@@ -1735,7 +1735,7 @@ Bee 3° Une composition malgache, dont le sujet pourra porter
 {pas ie 5 Une version.
 
 | \17NCRS ARTICLE 54. — Les épreuves d'enseignement pratique !
-1 D : 1° Une leçon sur une des matières du programme, faite
+D : 1° Une leçon sur une des matières du programme, faite
 FLE à l'école annexe de la section normale ou dans toute autre
 HIER école de la localité désignée à cet effet;
 et 2 L'exécution d'un travail simple, bois ou fer, à l'atelier
@@ -1861,20 +1861,20 @@ Deux problèmes d'arithmétique et de système métrique.
 
 l Ke : Relevé au sur l'ag une éco CRE
 it ENS Interrogation classe dans î QUE
-11 TAN Une tion d'un les alci a
+TAN Une tion d'un les alci a
 j ‘Hu L'inspec ipreuves orale , la langue Bt Eu
 
-{ 1 ions sur stème m
+{ 1 ions sur stème
 l “I jte l'arithmétiqu s sont répa insi
 ji ‘1 lasses, 5 francs (un
 | toi aus RARE HAS UE 115 nue À
 ‘1 nl nue érinaet du |
 A0 LE originair triques pote ns
-fi 18 s indigènes égions excen les condition: V4
-A fau cevo 'artic indigè | tous 5
+fi 18 s indigènes égions excen les condition:
+A fau cevo 'artic indigè | tous
 li ÉRTSE par l inspecteurs débutent LUE
 
-1 HAE 5* classe. cteurs indig ébuient à la èsdeux
+HAE 5* classe. cteurs indig ébuient à la èsdeux
 NE Les inspe ssistants “ nier cadre. choix, A infé- Ne
 
 NPA fesseu. ns ce ivemen édiatem “104

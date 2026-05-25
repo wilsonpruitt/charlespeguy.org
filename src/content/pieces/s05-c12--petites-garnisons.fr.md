@@ -573,7 +573,7 @@ des attaques qui deviennent de plus en plus fréquentes et violentes.
 
 la ville contre l'Université Populaire
 
-Dès le début, les catholiques se sont montrés résolument hostiles à l'U. P. C'est une œuvre de pensée libre, de libre critique religieuse et sociale. Et c'est peut-être aussi le premier groupement qui se constitue à Laval en dehors de toute influence catholique. Sans se rattacher à aucun mouvement d'anticléricalisme verbal, la fondation de l'U. P. est un acte d'anticléricalisme réel. — On ne détruit que ce qu'on remplace ; ou plutôt on ne détruit qu'en créant ; on ne peut détruire efficacement qu'après avoir créé. On ne détruit l'Église qu'en satisfaisant par des œuvres nouvelles les besoins profonds que l'Église satisfait encore. Le besoin religieux essentiel, qui cherchent à apaiser toutes les religions, théistes, panthéistes ou athées, c'est le besoin qu'ont tous les hommes d'éprouver en commun des émotions désintéressées et fortifiantes, de communier dans l'intelligence et l'amour de la Vie Universelle. Une inclination puissante nous pousse à partager avec d'autres hommes les idées qui résument notre expérience, les croyances qui dirigent notre action, les rêves dont la beauté console notre misère. Comme l'Église catholique, orientée vers le passé, l'Université Populaire socialiste, orientée vers l'avenir, satisfait ce besoin profond. (1) A l'U. P.
+Dès le début, les catholiques se sont montrés résolument hostiles à l'U. P. C'est une œuvre de pensée libre, de libre critique religieuse et sociale. Et c'est peut-être aussi le premier groupement qui se constitue à Laval en dehors de toute influence catholique. Sans se rattacher à aucun mouvement d'anticléricalisme verbal, la fondation de l'U. P. est un acte d'anticléricalisme réel. — On ne détruit que ce qu'on remplace ; ou plutôt on ne détruit qu'en créant ; on ne peut détruire efficacement qu'après avoir créé. On ne détruit l'Église qu'en satisfaisant par des œuvres nouvelles les besoins profonds que l'Église satisfait encore. Le besoin religieux essentiel, qui cherchent à apaiser toutes les religions, théistes, panthéistes ou athées, c'est le besoin qu'ont tous les hommes d'éprouver en commun des émotions désintéressées et fortifiantes, de communier dans l'intelligence et l'amour de la Vie Universelle. Une inclination puissante nous pousse à partager avec d'autres hommes les idées qui résument notre expérience, les croyances qui dirigent notre action, les rêves dont la beauté console notre misère. Comme l'Église catholique, orientée vers le passé, l'Université Populaire socialiste, orientée vers l'avenir, satisfait ce besoin profond. (1) A l'U.
 
 (1) Au congrès tenu en novembre 1902 à Rennes, par la Fédération socialiste de Bretagne, à laquelle se rattachent les socialistes lavalois, un délégué de Rennes propose « de s'appuyer sur le sentiment religieux qui est en chaque homme pour répandre la pensée socialiste ». — Pages libres, 15 novembre 1902.
 
@@ -603,7 +603,7 @@ Malheureux ouvriers auxquels on veut faire renier l'Évangile du Christ, et impo
 
 (Courrier du Maine, 9 mars 1902)
 
-Un dimanche, à la suite d'une fête terminée par la Marseillaise, quelques membres de l'U. P., la séance levée, chantent l'Internationale. Le bruit s'en répand dans Laval ; les bourgeois s'alarment. Le préfet fait appeler le professeur président du Comité de l'U. P. ; il lui déclare qu'il ne connaît pas l'Internationale, mais qu'il sait que c'est un chant séditieux : si on la chante à nouveau, il interdira aux fonctionnaires d'aller à l'U. P.
+Un dimanche, à la suite d'une fête terminée par la Marseillaise, quelques membres de l'U. P., la séance levée, chantent l'Internationale. Le bruit s'en répand dans Laval ; les bourgeois s'alarment. Le préfet fait appeler le professeur président du Comité de l'U. P. ; il lui déclare qu'il ne connaît pas l'Internationale, mais qu'il sait que c'est un chant séditieux : si on la chante à nouveau, il interdira aux fonctionnaires d'aller à l'U.
 
 — Les journaux réactionnaires exploitent l'incident. Le maire ayant autorisé l'U. P. à se réunir dans un local municipal, destiné à être démoli quelques mois après, la Mayenne écrit :
 
@@ -611,7 +611,7 @@ Nous nous étions laissé dire que le Conseil municipal de Laval comptait encore
 
 Redoutant les effets de cette habile campagne de presse sur les timides Lavalois, les républicains modérés commencent à témoigner à l'U. P. quelque froideur. La puissance des journaux réactionnaires est faite de la lâcheté des politiciens républicains.
 
-Le dimanche 27 avril, quand est proclamé le résultat des élections, quelques socialistes, présents à la mairie, y chantent l'Internationale. Comme ils sont membres de l'U. P., les journaux réactionnaires rendent l'U. P. responsable de la manifestation. L'incident paraît très grave. Sous la pression des autorités, plusieurs maîtresses de l'École Normale et le mari d'une institutrice envoient leur démission d'adhérents ; l'avocat envoie sa démission de membre du Comité et cesse de faire des conférences. Le parti modéré, tout autant que le parti clérical, commence à souhaiter la disparition de l'U. P.
+Le dimanche 27 avril, quand est proclamé le résultat des élections, quelques socialistes, présents à la mairie, y chantent l'Internationale. Comme ils sont membres de l'U. P., les journaux réactionnaires rendent l'U. P. responsable de la manifestation. L'incident paraît très grave. Sous la pression des autorités, plusieurs maîtresses de l'École Normale et le mari d'une institutrice envoient leur démission d'adhérents ; l'avocat envoie sa démission de membre du Comité et cesse de faire des conférences. Le parti modéré, tout autant que le parti clérical, commence à souhaiter la disparition de l'U.
 
 Cependant l'U. P. cherche à résister à la tourmente.
 
@@ -1433,27 +1433,27 @@ Nous avons reçu, nous, ce contact immédiat et glacial de la tyrannie ; j'ai vu
 
 la respiration de la liberté a du bon ; que la France est un bon pays, et Paris une bonne ville ; qu'il ne fallait pas que l'effort de tant de générations fût perdu ; car nos aïeux n'ont pas tant souffert et tant lutté, tant vécu et ils ne sont pas morts seulement pour assurer la multiplication des palmes académiques ; mais ils ont peiné, lutté, souffert leur vie et leur mort pour que ce peuple devînt un peuple libre, pour que ce coin de terre devînt le chaud foyer de la liberté dans le monde, pour que Paris devînt ce qu'il est, littéralement la capitale de la liberté dans le monde.
 
-*Notre catalogue analytique sommaire* . . . . . . . 2
+*Notre catalogue analytique sommaire* . . . . . .
 
-FÉLICIEN CHALLAYE. — *La France vue de Laval* . . . 13
+FÉLICIEN CHALLAYE. — *La France vue de Laval* . .
 
-  la vie administrative, l'enseignement . . . . 43
-  la vie politique ; les élections . . . . . . 51
-  la classe ouvrière ; le mouvement syndical . . 59
-  la ville contre l'Université Populaire . . . . 73
-  conclusion ; — le socialisme à Laval . . . . 83
+  la vie administrative, l'enseignement . . .
+  la vie politique ; les élections . . . . .
+  la classe ouvrière ; le mouvement syndical .
+  la ville contre l'Université Populaire . . .
+  conclusion ; — le socialisme à Laval . . .
 
-*Le Progrès du Loiret*, numéro daté du vendredi 29 janvier 1904. — *Obsèques du docteur Gebaüer* . . . . 105
+*Le Progrès du Loiret*, numéro daté du vendredi 29 janvier 1904. — *Obsèques du docteur Gebaüer* . . .
 
 *douzième cahier* *de la cinquième série*
 
-*Le Progrès du Loiret*, numéro daté du jeudi 21 janvier 1904. — *Nouvelles du département* ; — *arrondissement d'Orléans* ; — *Sandillon* ; — *obsèques de M. Amédée Bonhaume* . . . . . . . . . . 110
+*Le Progrès du Loiret*, numéro daté du jeudi 21 janvier 1904. — *Nouvelles du département* ; — *arrondissement d'Orléans* ; — *Sandillon* ; — *obsèques de M. Amédée Bonhaume* . . . . . . . . .
 
-*Le Progrès du Loiret*, numéro daté du samedi 19 décembre 1903. — *Arrondissement de Montargis ; cérémonie laïque et républicaine* . . . . . . . 116
+*Le Progrès du Loiret*, numéro daté du samedi 19 décembre 1903. — *Arrondissement de Montargis ; cérémonie laïque et républicaine* . . . . . .
 
-*Georges Clemenceau ;* — *discours pour la liberté* . . 127
+*Georges Clemenceau ;* — *discours pour la liberté* .
 
-*Cahiers de la Quinzaine ; souscriptions mensuelles* . . 155
+*Cahiers de la Quinzaine ; souscriptions mensuelles* .
 
   *Nous avons donné le bon à tirer après corrections pour deux mille exemplaires de ce douzième cahier le mardi 15 mars 1904.*
 

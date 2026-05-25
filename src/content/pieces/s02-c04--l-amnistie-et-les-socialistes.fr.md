@@ -185,7 +185,7 @@ intrigues parlementaires et les exigences momentanées de la politique n'auraien
 grand élan donné au début de l'Affaire.
 
 De quelque côté que l'on se tourne, quelque point
-qu'on envisage, on retrouve toujours plus impé- s
+qu'on envisage, on retrouve toujours plus impé-
 rieuse la nécessité de l'unité prochaine. Pendantque
 les uns exagèrent leur point de vue révolution- ]
 naire, voilà que les autres se laissent fasciner par

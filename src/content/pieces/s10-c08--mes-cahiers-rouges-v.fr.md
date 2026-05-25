@@ -23,7 +23,7 @@ au dossiers et commentaires, ces cahiers de lettres,
 1e d'histoire et de philosophie étaient si considérables
 AS que nous ne pouvons pas songer à en donner ic
 d _ l'énoncé même le plus succinct; pour savoir ce qua
-See paru dans les cinq premières séries des cahiers, il 1
+See paru dans les cinq premières séries des cahiers, il
 fi suffit d'envoyer un mandat de cinq francs à M. André
 se Bourgeois, administrateur des cahiers, 8, rue de la Sor- EU
 s bonne, rez-de-chaussée, Paris, cinquième arrondisseD ment; on recevra en retour le catalogue analytique HE
@@ -97,9 +97,9 @@ par la ville révoltée we nl
 quelle heure vont-ils entrer? Et nous écoutons. Nous Al
 tendons nos oreilles. nl
 Sonnerie lointaine de clairon…. Serait-ce déjà le
-signal? Autre sonnerie plus rapprochée. Plus de doute. j
+signal? Autre sonnerie plus rapprochée. Plus de doute.
 Ce sont eux! |
-Et il nous semble entendre le galop des chevaux qui ï
+Et il nous semble entendre le galop des chevaux qui
 se rapprochent. La porte va s'ouvrir. Ils vont faire {
 Nous redescendons la longue avenue.
 La foule de l'arc de l'Étoile s'est dispersée. Seuls,
@@ -161,7 +161,7 @@ l'autre côté — le côté prussien.
 Le soldat nous inspecte rapidement du regard. Il est
 sévèrement interdit de conserver un vestige quelconque
 
-i par la ville révoltée 100
+i par la ville révoltée
 J'ai gardé, par habitude, mon ceinturon, un bean -
 f ceinturon d'officier, dont la plaque au coq gaulois brille fi |
 au bas de mon gilet. el
@@ -194,7 +194,7 @@ le sûmes plus tard, les galeries du Louvre, les Tuile160
 | ries, qui ne garderont pas longtemps — châtiment ;
 ee mérité — les traces des pas des vainqueurs.
 
-_ Près de la fontaine, un officier à casquette plate cara- L
+_ Près de la fontaine, un officier à casquette plate cara-
 k ? cole, montrant du doigt les têtes enveloppées de crêpe
 des statues, les chevaux de Marly qu'on a renfermés,
 1 dès l'annonce du bombardement, dans des caisses.
@@ -207,7 +207,7 @@ Le groupe se rapproche du quai. Là, c'est le magnifique spectacle de Paris dans
 les clochers, les tours. Notre-Dame, la Sainte-Chapelle,
 , le Palais de Justice, la tour Saint-Jacques. Tout cela
 c'est le mystère. La barricade défend d'aller plus loin. ;
-— Ah! Parisse! Parisse! s'exclament les soldats avec L
+— Ah! Parisse! Parisse! s'exclament les soldats avec
 leur accent germain. Parisse !
 Et ils tendent leurs bras vers l'horizon comme s'ils
 voulaient saisir et emporter avec eux toutes ces merveilles et toutes ces richesses qu'ils ne font qu'entrevoir, .
@@ -228,11 +228,11 @@ les soldats prussiens mangeaient tranquillement la :
 soupe derrière leurs batteries. Nos projectiles ne les ;
 atteignaient pas. Aussi, ce qu'on les regarde, ces |
 canons! Les chevaux sont liés aux arbres. Souvenir des Fe
-Cosaques et de l'Invasion. Près des pièces, les soldats Ÿ
+Cosaques et de l'Invasion. Près des pièces, les soldats
 causent, rient, fument leurs longues pipes. En voici un,
 à figure placide, aux grands yeux bleus, qui porte, |
-accrochée à un bouton de sa veste, sa blague à tabac. F4
-Un gamir l'approche. Il touche la blague, la fait sauter k
+accrochée à un bouton de sa veste, sa blague à tabac.
+Un gamir l'approche. Il touche la blague, la fait sauter
 d'une chiquenaude. Le Prussien ne bronche pas. Le
 .galopin s'enbardit, ricane au nez du colosse. me
 — Toi Prussien. Mangeur de saucisses.
@@ -384,7 +384,7 @@ Duclhiéne! Nous allons reparaître ce soir. (1) Cette
 temps que le Cri du Peuple (Vallès), le Vengeur (Félix Pyat), la
 Bouche de Fer (Paschal Grousset), et la Caricature (Pilotell).
 
-fois, mon vieux, ça y est! Boucle ton ceinturon et cou- é
+fois, mon vieux, ça y est! Boucle ton ceinturon et cou-
 rons à la victoire!
 En un clin d'œil, l'ami a enfilé son pantalon, boutonné
 ) sa vareuse, coiffé son képi. Nous sommes dans la rue,
@@ -413,7 +413,7 @@ contre les maisons pour ne pas être entraînés par le
 
 ve par la ville révoltée Û \ IE
 
-— Les gendarmes! Les gendarmes! A bas les 112
+— Les gendarmes! Les gendarmes! A bas les
 
 Derrière ce troupeau fuyant, nous voyons surgir les
 képis bleus à bande blanche des gendarmes et étin- Pris
@@ -423,16 +423,16 @@ celer l'acier des sabres nus. A
 des chasseurs à cheval, qui repoussent cette foule au
 petit pas.
 
-Nous sommes au boulevard extérieur. c
+Nous sommes au boulevard extérieur.
 
 Sur trois rangs la gendarmerie occupe la chaussée et ,
 le trottoir. L'avenue de Clichy est barrée, ainsi que
 les rues avoisinantes. Il nous faut manœuvrer avec |“.
-des miracles de prudence pour ne pas être écrasés 0
+des miracles de prudence pour ne pas être écrasés
 par les chevaux qui piaffent, affolés par les clameurs, ;
 immobiles depuis les premières heures du jour.
 
-La place Moncey est gardée militairement. La chaus- 4
+La place Moncey est gardée militairement. La chaus-
 sée est déblayée. Pas un bruit, hors le cliquetis-des
 fourreaux sur les sellés des cavaliers.
 
@@ -525,17 +525,17 @@ rue Houdon avec nos gardes nationaux, ce sont les
 
 | Nord, les camarades des soldats campés au Luxem- ne: AT
 19 __ Les canons que nous avons vus passer sont les seuls a
-quon ait emmenés. Ceux qu'on a voulu descendre M
+quon ait emmenés. Ceux qu'on a voulu descendre
 _ ensuite, on les a arrêtés rue Lepic. Les hommes cou
 ‘ paient les traits des attelages, les femmes se pendaient ; A WT
-au bras des artilleurs.. F1
+au bras des artilleurs..
 ‘a | — Laissez-nous nos canons, messieurs les artilleurs. nt -
 à Et les artilleurs se sont laissé faire, comme s'étaient
 _ Jaissé faire les soldats de là-haut. L 1 "1 RE
-4 Nous entrâmes, Gill, Sornet, que nous avions retrouvé, AR
-ot moi, chez un marchand de vin de la rue Lepic, qui KE x
+Nous entrâmes, Gill, Sornet, que nous avions retrouvé, AR
+ot moi, chez un marchand de vin de la rue Lepic, qui KE
 ï peut se vanter d'avoir eu ce jour-là son apothéose. N .
-| Devant sa porte, on avait arrêté le matin l'un des 10
+| Devant sa porte, on avait arrêté le matin l'un des
 _ canons des Buttes. Et ce canon, on le fleurissait comme
 un dieu. On l'enrubannait. On trinquait sur son dos SAR
 “ de bronze. Il était à lui seul l'autel de la Patrie. : "M
@@ -566,7 +566,7 @@ chantés d'une voix retentissante, pendant que nous,
 les jeunes, applaudissions ?
 
 Sanglé dans sa gigantesque redingote bleu indigo,
-Courbet nous accoste. F
+Courbet nous accoste.
 
 — Tu viens place Vendôme, lui dit Vermersch?
 
@@ -624,7 +624,7 @@ Courbet finit par en rire avec nous. Il semble com- +
 plètement rassuré quand nous arrivons place de rs
 l'Opéra.
 
-Une foule énorme emplit la rue de la Paix. Au-dessus Ù
+Une foule énorme emplit la rue de la Paix. Au-dessus
 d'elle, droite dans le ciel d'une pureté superbe — un
 ciel de Floréal — la colonne se dresse. Le drapeau
 rouge, fixé à la balustrade, caresse mollement la face de +
@@ -656,9 +656,9 @@ _ place. Nous présentons nos cartes à la sentinelle. (1) Lun
 _  J'examine à mon aise le cabestan, retenu au sol par af.
 : une ancre, et les deux poulies sur lesquelles s'enroulent #
 les cordages fixés au sommet. de
-pi _ Quant à la colonne elle-même, j'ai grimpé la veille È
+pi _ Quant à la colonne elle-même, j'ai grimpé la veille
 _ encore sur son piédestal. Le projet des entrepreneurs de sh
-la démolition est fort simple. La colonne coupée « en t
+la démolition est fort simple. La colonne coupée « en
 _ sifllet » au ras du fût, du côté de la rue de la Paix, a Ki
 été sciée du côté opposé. L'entaille et la partie sciée À
 représentent chacune un tiers de l'épaisseur du tube de
@@ -666,7 +666,7 @@ pierre — et non de bronze, le bronze ne formant qu'un
 mince revêtement. Par la manœuvre du cabestan, la
 colonne doit céder à sa base, et son sommet tomber le Le
 premier sur le lit de fascines et de fumier qui a été pré- |
-paré au-dessous d'elle. La colonne, n'ayant que trentequatre mètres de hauteur, ne peut, renversée, atteindre Ù
+paré au-dessous d'elle. La colonne, n'ayant que trentequatre mètres de hauteur, ne peut, renversée, atteindre
 l'entrée de la rue de la Paix.
 La barricade traversée, nous nous dirigeons vers le
 ministère de la justice. Nous avons là nos meilleurs
@@ -675,16 +675,16 @@ couvert est mis dans la salle du premier étage qui
 s'éclaire sur la place, et dont je me rappelle un détail,
 une toile de Daubigny, (2) un champ d'épis mûrs que
 (G) Voir la reproduction de cette carte dans l'album Guerre,
-Invasion et Commune, d'Armand Dayot, page 283.
+Invasion et Commune, d'Armand Dayot, page
 (2) Ce tableau de Daubigny, les Hlés mûrs, figure aujourd'hui au
 Louvre, où il a été transporté en 1907.
 
 ns pañ\la' ville répoltée "0471
 | sarcle une belle fille, avec un ciel très bas et un bouquet ne à
 
-porterai, disais-je en riant "à Protot, qui présidait la R
+porterai, disais-je en riant "à Protot, qui présidait la
 
-Il y a foule dans la grande salle du ministère. Le 104
+Il y a foule dans la grande salle du ministère. Le
 
 balcon est déjà tout occupé. Par les fenêtres largement
 
@@ -761,14 +761,14 @@ Devant mes yeux passe subitement comme le batte- *
 monstrueux... Ah! je ne l'oublierai jamais, cette ombre
 colossale qui traversa ma prunelle !.…
 
-Un nuage de poussière. e
+Un nuage de poussière.
 
 Tout est fini.
 
 La colonne est à terre, ouverte, ses entrailles de
 pierres au vent... César est couché sur le dos, décapité.
 
-La tête, couronnée de lauriers, a roulé, comme un 4
+La tête, couronnée de lauriers, a roulé, comme un
 
 potiron, jusqu'à la bordure du trottoir. La Victoire de …
 
@@ -800,12 +800,12 @@ f? parmi les objets trouvés sur la voie publique et non LÉ
 ! ture, M. Boyenval, pour la minime somme de 32 francs.
 j Fier à bon droit de sa trouvaille, l'heureux possesseur de la Victoire la fit monter sur socle, et il jouit
 _ pendant trente ans de la vue de l'œuvre d'art, mise en
-bonne place sur la cheminée de son salon. i
+bonne place sur la cheminée de son salon.
 M. Boyenval mourut. Louis-Napoléon, président de la
 République, acheta la Victoire et la paya plusieurs
 milliers de francs aux héritiers de l'employé.
 Quand Louis-Napoléon fut empereur, la statue de \
-| Napoléon qui trônait, par la grâce de Louis-Philippe, 14
+| Napoléon qui trônait, par la grâce de Louis-Philippe,
 au faîte de la colonne, était celle de la redingote grise. |
 Ce n'est qu'en 1863 que le sculpteur Dumont reçut
 l'ordre d'exécuter une statue nouvelle en César romain,
@@ -828,8 +828,8 @@ _ tout petit morceau du monument brisé le 16 mai. Je
 i connais deux autres échantillons, dont l'un est une
 tête de soldat arrachée aux frises. L'aut:e, plus considérable, est l'un des quatre énormes boulons qui vis
 saient, sur la calotte supérieure, le César jeté bas par |
-Un jour de mai 1875, j'étais allé voir Élisée Reclus (2) 7
-à Vevey. Le savant m'avait retenu à sa table. Les dé- 1
+Un jour de mai 1875, j'étais allé voir Élisée Reclus (2)
+à Vevey. Le savant m'avait retenu à sa table. Les dé-
 74 jeuners ne se prolongeaient guère chez lui. Une demi- .
 heure de causerie rapide. Une bonne poignée de main,
 et au large. Dans la salle du bas on büûchaït ferme. La
@@ -844,13 +844,13 @@ Nous filons sur la Tour de Peiïlz, où s'est réfugié le
 (:) Ce boulon, qui était, en 1895, entre les mains de mon ami
 J.-B. D..., fut scié par lui en trois morceaux. l'un de ces trois
 morceaux me sert de presse-papier.
-(2) Reclus (Elisée), géographe. Auteur de la Géographie Univer- 4
+(2) Reclus (Elisée), géographe. Auteur de la Géographie Univer-
 selle. Simple garde national, il fut fait prisonnier au plateau de
 Châtillon (4 avril). Condamné à la déportation. Commué en bannissement. Né en 1830. Mort en 1905. — Son frère Reclus (Elie), auteur
 des Primitifs, nommé par la Commune directeur de la Bibliothèque nationale (30 avril). Né en 1827. Mort en 1904.
 
 grand artiste, que poursuivent à Paris des haines
-| — Ohé! déboulonneur! lui crie Slom dès que nous 3 î
+| — Ohé! déboulonneur! lui crie Slom dès que nous
 eûmes passé la porte du jardin de la petite maison de
 la Tour de Peilz.
 _- Courbet ne se retourne pas. Il se contente de jeter
@@ -866,7 +866,7 @@ Courbet faisait ici allusion à la pétition qu'il adressait, le 14 septembre 18
 Défense nationale, émettant le vœu — nous tenons à
 reproduire intégralement ce texte — que le gouvernement de la Défense nationale veuille bien l'autoriser « à
 déboulonner la colonne, ou qu'il veuille bien lui-même
-en prendre l'initiative, en chargeant de ce soin l'administration du Musée d'artillerie, et en faisant transporter les matériaux à l'hôtel de la Monnaie ». (1) R
+en prendre l'initiative, en chargeant de ce soin l'administration du Musée d'artillerie, et en faisant transporter les matériaux à l'hôtel de la Monnaie ». (1)
 — La déboulonner! continue Courbet. Est-ce que
 vous ne croyiez pas alors comme moi, et comme tout
 le monde, que la colonne n'était qu'un gigantesque tuyau
@@ -880,7 +880,7 @@ canons d'Austerlitz! Ah bien oui! tout en bronze! Vous …
 l'avez bien vue, quand elle a été par terre. Il n'y en
 avait pas l'épaisseur d'un ongle. A tel point que les nez
 des grenadiers laissaient percer la pierre. Douze cents
-canons pour une méchante feuille de métal! Ù
+canons pour une méchante feuille de métal!
 
 Et Courbet, après un moment de silence, nous ra-
 
@@ -933,7 +933,7 @@ françaises avaient gardé leurs longs voiles de deuil.
 Strasbourg avait été fleurie de drapeaux rouges et
 d'immortelles. Elle se profilait, comme une borne
 sanglante, rappelant la ville tombée, le Rhin troublé
-- par les cavaliers teutons, l'Alsace et la Lorraine cap- F
+- par les cavaliers teutons, l'Alsace et la Lorraine cap-
 tives, Metz violée — toute l'œuvre infâme, résumée
 dans ce seul mot : Versailles.
 Les généraux vaincus étaient à Versailles. À Versailles ceux qui avaient applaudi à la capitulation, à la
@@ -1050,7 +1050,7 @@ barricade, l''envoya avec un juron aux Versaillais.
 
 par la ville répoltée k qu
 — Si voisins. Mais à une cinquantaine de pas. Avec
-de la bonne volonté, nous pourrions, dans les moments 5
+de la bonne volonté, nous pourrions, dans les moments
 de tranquillité, tailler ensemble quelques bavettes…
 — Tu es resté longtemps rue Perronet?
 — Nous y sommes restés huit jours. Au fait, nous ;
@@ -1058,10 +1058,10 @@ de tranquillité, tailler ensemble quelques bavettes…
 Le commandant m'a dit cela. Même que tu n'étais
 pas encore bien fait aux obus.
 — Allons, allons. Tu me feras des compliments plus
-— Eh! parbleu! mes hommes aussi ont eu du mal à 5
+— Eh! parbleu! mes hommes aussi ont eu du mal à
 s'accoutumer. Je n'ai pas pour mon compte de gloire à
 me bien tenir. Les obus et les balles, il y a longtemps
-que nous avons fait connaissance ensemble. Au Mexique, ë
+que nous avons fait connaissance ensemble. Au Mexique,
 pour la première fois. Les balles, c'est comme pour tout,
 il faut savoir s'entendre avec elles, ne pas faire comme
 ce brave caporal que j'ai perdu à la barricade, deux .
@@ -1113,7 +1113,7 @@ phrases de la conversation, du côté de Neuilly ou d'Issy.
 
 — Quand reviennent-ils ?
 
-— Dans huit jours — ou plus tard. Ë
+— Dans huit jours — ou plus tard.
 
 Au nombre de nos typos, figure un brave garçon, un
 colosse au cou musclé, aux biceps bombant comme
@@ -1187,11 +1187,11 @@ Fe dès le matin, je serai là, à votre porte. | + LU nn.
 Mon planton a introduit les deux gardes. Il est resté
 # avec eux. 10 SES
 Mes deux visiteurs me content qu'ils viennent du
-: Moulin-Saquet, où ils se sont crânement battus. Eux ont 04
+: Moulin-Saquet, où ils se sont crânement battus. Eux ont
 — Eh bien! qu'est-ce qui vous amène? STE
 rs Hésitations. Celui qui tient le foulard noué aux cornes Ne
 a le passe d'une main à l'autre. Le re
-ne — Parle. Voyons. 4
+ne — Parle. Voyons.
 Mais, tous deux à la fois, ils ont jeté un regard sur se
 le planton, comme si sa présence les gênait. de A
 J'envoie le planton m'acheter du tabac. ù A
@@ -1222,7 +1222,7 @@ qu'on nous troue la peau... Peut-être même bien qu'ils
 nous tirent dessus.
 L'argument était sans réplique. Inutile de discuter. Je
 tentai quelques timides observations... Le bien d'au- |
-Ab! ils s'en foutaient, du bien d'autrui... Ils en reve- i
+Ab! ils s'en foutaient, du bien d'autrui... Ils en reve-
 naient toujours là:
 — Est-ce que nous ne risquons pas tous les jours
 notre peau ?
@@ -1290,7 +1290,7 @@ aussi, à Issy. Nous y sommes restés presque tous.
 (1) Levraud (Edmond). Blanquiste. Sous le Siège, chef du 204° bataillon (révoqué après le 31 octobre). A la Préfecture de police
 sous la Commune. Frère du député de Paris, Léonce Levraud.
 
-à par la ville révoltée ï
+à par la ville révoltée
 Lorsque je suis arrivé, après maints dangers, de l'autre
 | côté du mur qui clôt le parc, j'entendais encore les cris
 de ceux qu'on fusillait... Mais il n'y avait plus moyen
@@ -1301,7 +1301,7 @@ par les créneaux...
 reprit Levraud. Nous étions là, dans la première quinzaine de mai, une demi-douzaine de bataillons. Je me
 que commandait Lisbonne, un fier lapin celui-là, je vous
 assure. Il y en avait qui étaient là depuis vingt et trente
-jours. Ils grognaient bien un brin... É 3
+jours. Ils grognaient bien un brin...
 
 — J'y suis resté plus de trois semaines, et avec joie,
 interrompit de nouveau avec un sourire d'orgueil, le ca
@@ -1328,8 +1328,8 @@ soir par sa garnison. Le délégué à la guerre : Rossel. »
 Le même jour, Rossel, démissionnaire, était remplacé par
 
 4 _ des feuillages et des fleurs. Une vraie chasse, sans un
-cri, sans une parole, Un temps de silence, puis une dé- 5
-_ tonation partant d'un buisson, d'un rayon de soleil qui e
+cri, sans une parole, Un temps de silence, puis une dé-
+_ tonation partant d'un buisson, d'un rayon de soleil qui
 _  coupait la muraille, d'une lucarne dont on avait oublié :
 de repérer la position. Un homme tombait. Une guerre
 _ de guerillas, sans trêve ni merci... à
@@ -1506,7 +1506,7 @@ trousses 2... Mais non. J'ai reconnu, moi, une figure
 de brave homme, un surveillant des carrières qui s'était
 mis à notre recherche... Par exemple, il ne faut pas
 traîner... Marchons vite... En route, il nous raconte
-qu'il a déjà découvert nos compagnons. Ils sont libres, x
+qu'il a déjà découvert nos compagnons. Ils sont libres,
 sous les étoiles qu'ils ne croyaient jamais revoir.
 Le lendemain, nous étions sur la chaussée du Maine, à
 la revue de la 14° légion. Et, ce qu'on nous fêtait,
@@ -1515,7 +1515,7 @@ avions échappé à la plus affreuse des morts!
 
 TS Quelqu'un causait à Versailles avec des soldats.
 Fa 1” — D'où venez-vous ? EN Se
-RS TER — D'Issy, où nous avons eu bien du mal é
+RS TER — D'Issy, où nous avons eu bien du mal
 — Ces insurgés se battent-ils bien? Pre
 Es D'autres qu'il faut tuer pour avoir leur fusil. L'autre
 re < jour nous en tenions un qui, lardé de coups de baïon-@2>
@@ -1528,15 +1528,15 @@ TE Un général versaillais, revenant de Paris, après la
 | bataille de la semaine sanglante, interrogé par un
 à membre du Gouvernement sur la résistance des insurgés. Es
 ne . — C'est de la canaïille héroïque, répondait-il. (2)
-LE (1) Indépendance Belge. Correspondance de Versailles du a 7
-Ta d (2) Indépendance Belge. Correspondance du 31 mai 1871. Le mot É
+LE (1) Indépendance Belge. Correspondance de Versailles du a
+Ta d (2) Indépendance Belge. Correspondance du 31 mai 1871. Le mot
 = a été attribué au général Le Fl6, alors ministre de la Guerres A
 
 | les beaux brigands!
 C'était en chantant qu'ils partaient au combat. Ils en
 revenaient également joyeux, prêts à retourner à la
 - mort, l'âme pleine d'allégresse et de foi.
-4 Sur la place de l'Hôtel-de-Ville, c'était, chaque jour,
+Sur la place de l'Hôtel-de-Ville, c'était, chaque jour,
 de nouvelles acclamations, de nouveaux serments de :
 vaincre et de mourir.
 Je n'oublierai jamais le bataillon que j'y rencontrai
@@ -1548,9 +1548,9 @@ Point d'uniformes. Parfois point de képis. Des vareuses
 du siège, usées, loqueteuses, des pantalons serrés dans
 la botte, eflilochés sur de vieux godillots, des bérets, ]
 des bonnets fourrés, des casquettes.
-D'où sortaient-ils ? Quels étaient leurs chefs? É
+D'où sortaient-ils ? Quels étaient leurs chefs?
 Et comme ils hurlaïent, sous les fenêtres de la Commune, des « Vive la Sociale » retentissants, à faire
-À leurs acclamations, deux ou trois de l'assemblée d
+À leurs acclamations, deux ou trois de l'assemblée
 - communale descendent, viennent donner l'accolade aux :
 ( — Allez, amis, combattez pour le droit, pour la
 _ justice, pour ceux qui viendront après nous!
@@ -1616,14 +1616,14 @@ la Commune.
 Camélinat me conte les difficultés qu'il rencontre pour
 se faire livrer des lingots d'argent par la Banque. Ce
 n'est qu'après engagements sur engagements que M. de
-Plœuc a consenti à lui donner, par lots de cent mille k
+Plœuc a consenti à lui donner, par lots de cent mille
 francs, deux millions d'argent destinés à la frappe.
 
 : — Mais la Commune ne pouvait-elle pas, tout simplement, envoyer un bataillon!
 
 Camélinat lève les bras au ciel.
 
-Et après un silence : F
+Et après un silence
 
 — Enfin, j'ai tout de même mes lingots. Je vous apporterai ma pièce nouvelle quelque jour.
 
@@ -1641,7 +1641,7 @@ porte de la rue Guénégaud, deux fourgons sortaient,
 : chargés de pièces, exactement pour 153.000 francs.
 
 Après mille détours, arrêtés à tout instant par les
-barricades qu'il fallait franchir, les deux fourgons arrivèrent place Voltaire, à la mairie du onzième, où s'était 5
+barricades qu'il fallait franchir, les deux fourgons arrivèrent place Voltaire, à la mairie du onzième, où s'était
 transportée la Commune.
 
 Longtemps après la défaite, un témoin me raconta la
@@ -1661,7 +1661,7 @@ type connu, celui que l'on peut voir dans les vitrines du
 musée Carnavalet, où ont été rangés une série de
 menus objets et de médailles se rapportant à la période
 
-Pourquoi ces pièces, frappées au nombre de quatre 2
+Pourquoi ces pièces, frappées au nombre de quatre
 cent mille par Camélinat, sont-elles devenues si rares”?
 Simplement parce que, par ordre supérieur, elles ont
 été immédiatement retirées de la circulation. Celles
@@ -1673,17 +1673,17 @@ qui étaient restées en stock à la Monnaie ont été reje- Lx
 __ tées au creuset. Les grosses maisons de banque ont k |
 soigneusement écarté celles qu'elles recevaient. La ;
 direction des finances les a échangées contre des pièces mise
-moins subversives. Ce n'est que par le plus grandetle 7
+moins subversives. Ce n'est que par le plus grandetle
 | plus heureux des hasards qu'une de ces pièces peut SE
 î encore être découverte dans la circulation quotidienne. |
 E La pièce de cinq francs frappée par la Commune
 ne diffère pas, à première vue, des pièces de la
-République de 1848, dites à l'Hercule, gravées par x
-Dupré. Une seule marque distinctive, le déférent, les 3
+République de 1848, dites à l'Hercule, gravées par
+Dupré. Une seule marque distinctive, le déférent, les
 fait reconnaître. Le déférent est la marque spéciale à
 chaque directeur de la Monnaie. Il est placé au revers, ;
 à gauche, à la partie inférieure de la pièce. Sur les
-pièces frappées par la Commune, ce déférent est un 2x
+pièces frappées par la Commune, ce déférent est un
 Étrangeté de ces pièces. La fameuse légende Dieu :
 protège la France court en exergue tout autour. £
 Un jour que je blaguais Camélinat à ce sujet :
@@ -1700,7 +1700,7 @@ par la ville révoltée me
 monuments, possédaient de métaux précieux, sous
 forme d'ustensiles ou d'œuvres d'art de valeur douteuse.
 
-Certains ministères (1) envoyèrent de la vaisselle aux 6
+Certains ministères (1) envoyèrent de la vaisselle aux
 armes royales ou impériales. Les trésors des églises ne
 furent guère inquiétés. Des patriotes zélés, probablement très peu au courant de la pacotille du culte,
 venaient à tout instant dénoncer à la Monnaie des
@@ -1759,7 +1759,7 @@ Fin avril. — Les journaux sont pleins de récits extra- À
 ordinaires. On a fait d'horribles découvertes dans
 l'église Saint-Laurent. En fouillant la crypte, on a mis À
 au jour des squelettes. D'abord un. Puis, tout un tas. ;
-Ces squelettes appartiendraient à des individus dont la S
+Ces squelettes appartiendraient à des individus dont la
 mort serait plutôt récente. Au crâne de l'un adhèrent …
 des cheveux blonds. On a trouvé, dans la terre remuée, |
 un peigne d'écaille.. Des cheveux de femme... Un peigne à
@@ -1769,7 +1769,7 @@ _ sont tout contorsionnés.… Les infortunés auraient-ils donc À
 été enterrés quand ils vivaient encore! Ne
 Par toute la ville, les camelots crient une feuille, un
 placard, qui montre la crypte et les squelettes. A
-— Achetez les Cadavres de Saint-Laurent ! 1
+— Achetez les Cadavres de Saint-Laurent !
 
 Et la foule arrache des mains des vendeurs la feuille
 J'ai conservé ce placard. Le même que j'ai acheté rue |
@@ -1806,21 +1806,21 @@ On parlait de morts, de mortes surtout, enterrés clandestinement, d'ossements q
 souterrains de l'église.
 
 DU 0 par Woile ro,
-ie Pas de squelettes au dehors, ni dans les nefs. Il faut è
+ie Pas de squelettes au dehors, ni dans les nefs. Il faut
 Sur la terre fraichement remuée, rougeâtre, des sque
 |. lettes en morceaux. Un ou deux complets. Les autres
 _ décapités. Ils sont recouverts de cette horrible rouille
 23 des os enterrés depuis longtemps. Au mur, deux lampes
 __ — Où, la chevelure blonde ? Où, le peigne?
-Fe Je demande à mes voisins. Et peus 7
+Fe Je demande à mes voisins. Et peus
 FREE Au bas de l'escalier, un garde national assis, fume se "à
 Ë pipe. Il semble le gardien de ce cauchemar. FC
-— Où est la femme aux cheveux blonds? EX 1
+— Où est la femme aux cheveux blonds? EX
 — Vous l'avez vue ? < Fe a |
 < Et le garde, philosophiquement, tire de sa pipe me |
 / bouffée de fumée. 2 ETES
-L'odeur fade de nécropole fraîchement remuée me. S È
-poursuivit jusqu'au porche de l'église, où les camelots e 73
+L'odeur fade de nécropole fraîchement remuée me.
+poursuivit jusqu'au porche de l'église, où les camelots
 _ criaient le fameux placard. ï US
 — Achetez les Cadavres de Saint-Laurent! (LR CPS
 _ Je sus, quelques jours plus tard, comment les cadavres
@@ -1832,19 +1832,19 @@ disait dans le quartier que les curés y cachaïent des a
 armes. Le capitaine ne trouva rien. Ë ee ‘3
 Huit jours après, nouvelle perquisition. Cette fois plus à
 
-à | sérieuse. L'église est cernée. Deux commissaires de po- 4
-Se lice. Celui du quartier du Temple, nommé Blond. Celui c
+à | sérieuse. L'église est cernée. Deux commissaires de po-
+Se lice. Celui du quartier du Temple, nommé Blond. Celui
 _ du quartier de Saint-Laurent, Vinchon. Le juge d'in-
 
 ; struction Moiré. (1) Trois délégués de la mairie du
 
-: dixième. La force armée est commandée par le capi- e
+: dixième. La force armée est commandée par le capi-
 
 x Que cherche tout ce monde? LS
 
 € ne Les cadavres dont on parle tout haut dans le quartier.
 
-23 Commissaire de police, juge d'instruction, délégués
+Commissaire de police, juge d'instruction, délégués
 
 _ de la mairie, capitaine, descendent dans la crypte.
 
@@ -1941,21 +1941,21 @@ les chopes. FRA
 
 — Et G...? lui demandai-je. Toujours là-bas? =
 
-— G...? Il se fera crever un jour comme un soldat de L.
+— G...? Il se fera crever un jour comme un soldat de
 cible. Figure-toi que son plaisir est de s'asseoir sur le ee
 bastion, les jambes pendantes en dehors... Et pendant À
 que la mitraille pleut, lui, il fume sa pipe... Il s'en fout... %
 
-5 L'ordonnance interrompt sans façon son chef. TS
+L'ordonnance interrompt sans façon son chef. TS
 
 — Allons, Général. Ii faut filer. Tu sais bien que la : à
-voiture qui nous conduit là-bas nous atcend depuis déjà 3
+voiture qui nous conduit là-bas nous atcend depuis déjà
 une heure. AS :
 
 : A regret, le Général se décide. Il boucle son ceinturon, à.
 coiffe son képi. Je les regarde partir, l'un derrière l'autre, :
 
-Me voilà seul. Maïs la porte du café s'ouvre. Le visi- 1
+Me voilà seul. Maïs la porte du café s'ouvre. Le visi-
 teur jetie, comme je l'ai fait tout à l'heure, un regard :
 désappointé sur la salie vide. Il m'a aperçu. C'est Gül.
 
@@ -1965,7 +1965,7 @@ désappointé sur la salie vide. Il m'a aperçu. C'est Gül.
 
 — Oui. C'est la fin. Nous sommes foutus. Et qu'est-ce
 qui va nous arriver ? La déportation ? L'exil, tout au
-moins 2... Ah! c'est gai! Sale Commune, va... Quelqu'un ÿ
+moins 2... Ah! c'est gai! Sale Commune, va... Quelqu'un
 qui revient de Versailles est venu me voir tout à l'heure, :
 
 chez Laveur. Il m'a dit que, dans huit jours — tu entends,
@@ -2124,12 +2124,12 @@ Vermersch me pousse du coude. Et, entre ses
 Vermersch, retenu aux avant-postes pendant les mois ;
 du siège — il était aide-chirurgien aux ambulances de
 monseigneur Bauer — ne faisait que de rares apparitions à notre brasserie de la rue Saint-Séverin. Il ne
-connaît pas son Régère. è
+connaît pas son Régère.
 Et je lui conte, toujours mezzo voce — nous sommes
 à la table voisine — qu'après le 31 octobre, Régère, qui
 était poursuivi, et qui prenait son rôle très au sérieux,
 en était arrivé à changer presque chaque jour de cos
-Un soir, nous vîimes s'avancer vers la table où nous î
+Un soir, nous vîimes s'avancer vers la table où nous
 Frémine, d'autres, un citoyen que nous ne reconnûmes  ,
 pas tout d'abord, sanglé qu'il était dans un impeccable |
 uniforme de tambour de la garde nationale, passepoils
@@ -2142,7 +2142,7 @@ ses lèvres. TS
 Mais Roullier est déjà saisi d'un fou rire. se
 Le tambour, c'était Régère. ke
 — Attendons qu'ils partent, me glisse Vermersch à
-l'oreille. Je veux voir de quelle façon guerrière il va ï
+l'oreille. Je veux voir de quelle façon guerrière il va
 recevoir & son épée » des mains de l'officieux.
 
 Ils ont fini. Le garçon distribue les képis et les
@@ -2156,7 +2156,7 @@ fait autre chose de sa vie.
 
 Rp à Mai. — Dix heures du soir. Jardin réservé des Tu ES
 ie _léries, qu'on appelait toujours le Jardin du Petit Prme 2e à
-: DR Nous nous promenons, Vermersch et moi. Foule énorme. \ e
+: DR Nous nous promenons, Vermersch et moi. Foule énorme. \
 Les massifs illuminés par des lanternes rouges accro-
 . _ chées aux arbustes. Des lampions rouges en borduredes …
 ES corbeilles et des pelouses. Des draperies rouges àles-.
@@ -2169,7 +2169,7 @@ mere _ Par les fenêtres, ruisselantes de lumières, du Palais,
 es Nous franchissons le portique du pavillon FE Ke
 pavillon de l'Horloge. A gauche, deux fédérés, le co de
 FS appuyé sur le fusil, gardent l'entrée d'une vaste salle …
-ts où tout le monde entre sans la moindre difficulté. Nous 2
+ts où tout le monde entre sans la moindre difficulté. Nous
 as entrons. Sur toute la longueur, une table longue,
 # longue. Des verres à la centaine, des bouteilles, des …
 # canettes pleines de bière blonde, des montagnes de
@@ -2187,7 +2187,7 @@ _  cantinières tendent une bourse.
 ; — Pour nos blessés, citoyens! :
 Nous montons. La porte de la salle des Maréchaux.
 ._ Une buée de chaleur brûlante. Les lustres énormes,
-suspendus à la coupole, resplendissent. A l'entrée, une L
+suspendus à la coupole, resplendissent. A l'entrée, une
 _ impénétrable masse humaine. Vingt fois, nous risquons
 d'être aplatis contre les murs. Près de nous, des femmes,
 emprisonnées dans un flot de citoyens, halètent et ;
@@ -2208,7 +2208,7 @@ les bras. Il parle. On n'entend rien
 re Le rideau se lève. Silence. PE
 Sur la scène est apparue une forte femme. Peplum
 “Fes blanc traînant derrière elle. Ceinture rouge à la taille.
-Cris. Hurlements. On trépigne. On bat des mains. D,
+Cris. Hurlements. On trépigne. On bat des mains.
 . La femme chante. Son nom vole sur les banquettes.
 C'est la Bordas. (1) Elle dit, elle mugit le chant qui l'a.
 _ déjà rendue célèbre. Au refrain, c'est le délire. Toute la
@@ -2224,7 +2224,7 @@ se vont vers la Bordas. Tous les cœurs battent, sûrement,
 0) * (1) Rosalie Bordas, s'était rendue populaire en interprétant la rer
 “AGE, chanson la Canaille, écrite par Alexis Bouvier au lendemain du OS
 à * meurtre de Victor Noir par le prince Pierre Bonaparte. Après la  ”
-LÉ déclaration de guerre, elle chanta avec grand succès La Marseillaise. M
+LÉ déclaration de guerre, elle chanta avec grand succès La Marseillaise.
 “4 à la Scala. Née en 1841 à Monteux (Vaucluse). Morte vers 1896. " “ :
 
 É- Je n'oublierai jamais cette apparition. Sur le blanc
@@ -2242,7 +2242,7 @@ _ cette canaïlle héroïque qui se bat là-bas, par delà les
 Des trépignements et des acclamations coupent ma
 rêverie.. La scène est de nouveau déserte. La première
 _ partie du concert est achevée. C'est l'entr'acte.
-É — Sortons, me dit Vermersch. Agar doit venir tout à l
+É — Sortons, me dit Vermersch. Agar doit venir tout à
 l'heure. Je vais tâcher de la voir. Je te retrouverai ici.
 | Resté seul, je fais des yeux le tour de la salle magnifique, vidée en un clin d'œil, abandonnée pour la longue
 table chargée de bouteilles et de verres que j'ai vue tout
@@ -2261,9 +2261,9 @@ ir __ Si nous allions respirer, tout de même... VERTE
 Se _ Une petite porte. Un escalier étroit qui grimpe dans
 re le noir. Lissagaray me conduit. L'escalier mène, paraït:il, PRE
 tin aux combles, d'où nous aurons la vue sur les jardins,
-ET et la fraîcheur. Nous sommes arrivés. Par une lucarne | J
+ET et la fraîcheur. Nous sommes arrivés. Par une lucarne
 Se ouverte, le ciel plein d'étoiles. Mais il ne fait pas clai ss
-FA là-dedans ! Si peu clair, que nous ne retrouvons plus W
+FA là-dedans ! Si peu clair, que nous ne retrouvons plus
 notre point de départ. Ce n'est qu'après une demi-heure …
 £ de recherches que nous remettons Le pied sur les marches A
 Ke de l'escalier. Nous sommes vite en bas. Agar venaitde
@@ -2276,7 +2276,7 @@ DR — Citoyens, pour les orphelins de la Commune! EN
 bien excusable, a fait son œuvre. Bouteilles, canettes
 | et verres sont vides. La montagne de brioches a été à
 nivelée au ras de la toile cirée. SPAS)
-A Les lampions rouges du jardin fument et s'éteignent. 4
+A Les lampions rouges du jardin fument et s'éteignent.
 D Quelques jours encore, et les Tuileries elles-mêmes
 Le Quelqu'un m'a raconté que, dans cette nuit sinistre Re
 ; où, dans Paris en flammes, le ciel semblait un gigantesque voile de pourpre et d'or, dans la nuit du mardi
@@ -2324,20 +2324,20 @@ Je jette un regard rapide sur la ligne des chaises.
 
 Elles sont vides.
 
-Une seule occupée. Le liseur m'est bien connu. Je me 4
+Une seule occupée. Le liseur m'est bien connu. Je me
 suis approché. Il interrompt sa lecture. j |
 
-— Eh bien! Je vous l'avais bien dit... C'est la É
+— Eh bien! Je vous l'avais bien dit... C'est la
 
 Et son regard est plein de commisération. IL me dit,
-ce regard, que je suis foutu, que l'heure n'est plus à 4
-l'enthousiasme et à la folie. Et que la seule chose qu'il ÿ
+ce regard, que je suis foutu, que l'heure n'est plus à
+l'enthousiasme et à la folie. Et que la seule chose qu'il
 me reste à faire, c'est de chercher un coïn où ne mat
 teignent point les représailles, toutes proches.
 
 La fusillade crépite à quelques centaines de pas.
 Ma foi, j'ai le cœur serré. Je ne songe certes pas à fuir. |
-Mais, tout de même, j'ai un rude poids sur la poitrine.… 4
+Mais, tout de même, j'ai un rude poids sur la poitrine.…
 
 Je ne réponds rien. Le liseur me tend la main, se ras- À
 sied, reprend son journal. Moi, je file vers la rue |
@@ -2358,7 +2358,7 @@ Onze heures. Je suis allé voir mon vieil ami PagetLupicin à l'Hôtel-Dieu. Me 
 _— Allons, citoyen, votre pavé... à
 C'est une belle fille brune, en caraco noir et jupe rose AXES
 __ d'indienne, qui n''interpelle. Se
-_ En grande hâte, on achève la barricade qui défend RE Ù
+_ En grande hâte, on achève la barricade qui défend RE
 _ à la fois l'entrée du quai et le Pont au Change. Dre
 | Je prends mon pavé. Je le dépose sur le tas. :
 — Allons, citoyen, un pavé. Fe
@@ -2367,8 +2367,8 @@ _ à la fois l'entrée du quai et le Pont au Change. Dre
 vieux bohème, dont je revois, dans le souvenir, la face
 _ bouflie, couturée de rouge... Bouton d'Or! L'ami de ,
 Paragot, l'auteur de la fameuse complainte sur la ‘
-mort de lArchevêque de Paris. Celui qui fut tué en é
-Ah! c'était pourtant un bien brave homme, 5
+mort de lArchevêque de Paris. Celui qui fut tué en
+Ah! c'était pourtant un bien brave homme,
 Que Monseigneur l'archevêque de Paris.
 
 Pauvre Bouton d'Or! On raconte qu'il a occupé une
@@ -2393,18 +2393,18 @@ _qui leur donnait asile : l'Académie de la rue Saint-
 Jacques, à quelques pas de la rue Soufllot. Adossés aux
 
 tonneaux de décoctions alcooliques qui garpissaient le
-pourtour de la salle, nous écoutions les discussions 6
+pourtour de la salle, nous écoutions les discussions
 étranges et animées des pauvres bougres. Politique, RS.
 art, littérature! Parmi eux, un petit homme à l'œil fou,
 aux cheveux grisonnants, qui se proclamait avec #.
-orgueil secrétaire de Vallès. Nous emmenâmes un jour 4
-Vallès avec nous. Il ne le connaissait pas. Mais il le fit 4
-asseoir près de lui. Il doit l'avoir croqué dans quelque 4
+orgueil secrétaire de Vallès. Nous emmenâmes un jour
+Vallès avec nous. Il ne le connaissait pas. Mais il le fit
+asseoir près de lui. Il doit l'avoir croqué dans quelque
 article. Le petit homme était saoul de joie et d'orgueil.
-Le soir, ses camarades de bohème l'élevèrent sur leurs 4
-épaules, et lui posèrent sur le crâne une couronne de 4
-papier vert, en le proclamant membre de l'Académie...  « Bouton d'Or m'avait reconnu. 4
-— Oui, je n'y vois plus clair... Qu'est-ce que je vais 4
+Le soir, ses camarades de bohème l'élevèrent sur leurs
+épaules, et lui posèrent sur le crâne une couronne de
+papier vert, en le proclamant membre de l'Académie...  « Bouton d'Or m'avait reconnu.
+— Oui, je n'y vois plus clair... Qu'est-ce que je vais
 devenir, au milieu de tout cela... $ ;
 À Et le pauvre bohème, essuyant ses yeux d'un revers
 de main, comme pour les éclaircir, remonta le boulevard Michel... 25e)
@@ -2420,7 +2420,7 @@ près, là sur le quai, au coin de la rue de Savoiïe, chez À
 Lapeyrouse, c'est le restaurant où il m'arrive de
 temps à autre de déjeuner. Rigault y vient, avec des
 
-2 s amis de la préfecture. Levraud, Sornet, Giffault, Da & 2
+2 s amis de la préfecture. Levraud, Sornet, Giffault, Da &
 PE J'entre. Cinq ou six tables sont occupées. ne
 A l'une d'elles, Cavalier — que nous appelons familièrement Pipe-en-Bois. Cavalier occupe le poste de di- ee
 : recteur des promenades et plantations, ou des voies AU
@@ -2428,7 +2428,7 @@ __ publiques, on ne sait trop. Bref, il est, comme on l'a . “À
 : appelé plus tard, l''Ailphand de la Commune. Quand il A
 passa devant le conseil de guerre, Aiphand vint dé- Re
 _ poser en sa faveur. Tandis que d'autres tentaient de es
-charger ce brave et honnête Cavalier, Ailphand déclara s
+charger ce brave et honnête Cavalier, Ailphand déclara
 $ qu'il avait dirigé ses services avec une irréprochable fe
 ke Deux officiers fédérés ont abordé Cavalier, qui s'est TEA
 £ levé brusquement. Sur son facies allongé, taillé à coups Le
@@ -2490,13 +2490,13 @@ aguets. Ici, contre la grille du Luxembourg, un peu
 - avant l'École des Mines, une tente blanche, lambu- s.3
 * lance. Les aïdes-majors sont assis à l'entrée. A leurs re
 Fa _ pieds, les trousses de chirurgie, les paquets de charpie. F Etui
-- Je reconnais mon ami A... Nous nous serrons les mains F
-5 _ sans mot dire. Rue Gay-Lussac, sur le seuil de la porte F
-Be. d'un café, une femme, que nous connaissons tous au 4
+- Je reconnais mon ami A... Nous nous serrons les mains
+5 _ sans mot dire. Rue Gay-Lussac, sur le seuil de la porte
+Be. d'un café, une femme, que nous connaissons tous au
 _ Quartier. La patronne de l'ancien Cochon Fidèle, de ee
 È la rue des Cordiers. Le vieux cabaret, aux murailles
 ….  peinturlurées par les habitués — on montrait une
-1 esquisse de Couture — a émigré rue Gay-Lussac de- d
+1 esquisse de Couture — a émigré rue Gay-Lussac de-
 __ puis une année, sans y retrouver sa vogue d'autrefois.
 -_ Vermersch y vient parfois déjeuner. Rigolette — ainsi
 - on la nomme — me fait un signe de la tête. Elle nous a
@@ -2506,14 +2506,14 @@ __ puis une année, sans y retrouver sa vogue d'autrefois.
 __ ques heures, couché, la tête fracassée, à vingt pas de
 £ là, c'est Rigolette, la bonne fille, qui, affrontant les
 4 huées des lâches, ira jeter sur le mort une couverture...
-3 Coin de la rue Royer-Collard. Une barricade ferme la $
+Coin de la rue Royer-Collard. Une barricade ferme la $
 ÿ rue à son entrée sur la rue Gay-Lussac. Je m'y arrête -
-…_ un instant. Deux hommes, prêts à combattre. Mon É
+…_ un instant. Deux hommes, prêts à combattre. Mon
 __ regard, instinctivement, va aux fenêtres du troisième -
 _ étage de la maison d'encoignure. Là, demeure un de
 mes anciens maîtres. Joseph Moutier, qui sera plus tard
 __  répétiteur à l'École Polytechnique. Il a été mon profes_  seur de physique à l'Institution Barbet de la rue des
-4 Feuillantines, et, ensuite, mon « colleur » à Sainte-Barbe,
+Feuillantines, et, ensuite, mon « colleur » à Sainte-Barbe,
 - avec le père de Da Costa, colleur de mathématiques.
 Bon « papa » Moutier ! comme nous l'appelions. Il me
 _  tutoie familièrement comme il le fait avec ses élèves de
@@ -2526,13 +2526,13 @@ souvent pendant le siège, et aussi pendant ces deux LL
 attendrissement, à ce brave papa Moutier. Si je montais Fe
 chez lui... Mais non... Il faut rester. Ça serait lâche de
 se cacher, de foutre le camp... Jamais. ‘4
-Rigault avait été, comme moi, élève de Moutier. Ou 4 S
+Rigault avait été, comme moi, élève de Moutier. Ou
 bien, il l'avait connu à la Sorbonne. Car, détail cer- # ne
 tainement ignoré de bien des gens, Rigauit, qui s'intitu- AE
 lait professeur de mathématiques, avait quelque droità
 ce titre. C'est lui qui rédigeait ce qu'on appelait de ce
-temps-là les feuilles du bachot, où se donnaient, chaque 4
-jour de la session des examens, les solutions des pro- 3
+temps-là les feuilles du bachot, où se donnaient, chaque
+jour de la session des examens, les solutions des pro-
 blèmes posés aux candidats. Détail encore plus ignoré, "4
 il avait, pour la rédaction de ses feuilles lithographiées,
 vendues par les libraires de la rue de la Sorbonne, un
@@ -2547,17 +2547,17 @@ nos actes. Mais Moutier était un brave cœur. Il souffrit
 cruellement d'être contraint de subir, pendant deux  :
 jours, le lugubre spectacle. LE
 le Panthéon va sauter! |
-Midi et demi. — Allons à la Mairie. Je redescends g
+Midi et demi. — Allons à la Mairie. Je redescends
 du côté de la fontaine de Médicis. Dans la vasque, mise
 
 ; à sec, deux combattants se sont installés, Les paquets ir
 _ de cartouches rangés au milieu. Je leur fais observer ; a
 qu'ils sont à découvert de tous les côtés. Sox
-_—_  — Qu'ést-ce que ça nous fout? Nous tirerons couchés. S
-% Sur le balcon de la maison qui fait l'angle du boule- Ë
+_—_  — Qu'ést-ce que ça nous fout? Nous tirerons couchés.
+% Sur le balcon de la maison qui fait l'angle du boule-
 - vard et de la rue Soufllot, une demi-douzaine de jeunes °
 : gens, le fusil en bandoulière. J'en reconnais quelques-
-._ uns. Maroteau, avec sa figure de Christ. Larochette, du 2
+._ uns. Maroteau, avec sa figure de Christ. Larochette, du
 | Vengeur, de Pyat. D'autres. aan
 Voici Vallès. Malade, me dit-il, éreinté. Trois nuits ete
 2 sans dormir. Il est en pantoufles de feutre, au bras
@@ -2584,17 +2584,17 @@ des enfants. D'autres avec des paquets. L'une a sous
 Y le bras sa pendule... Et toujours ce cri : A)
 248°, Henri Régère, le fils du membre de la Commune, à
 qui attache son cheval aux grilles d'une fenêtre. Nous %
-Là-haut, c'est le brouhaha de la dernière heure. Assis M
-à des tables, des employés assaillis de demandes de S
+Là-haut, c'est le brouhaha de la dernière heure. Assis
+à des tables, des employés assaillis de demandes de
 réquisitions. Signatures de bons de vivres, d'argent à
-6 pour la paye. Je cherche des yeux les membres de la 4
-à la lutte. k
+6 pour la paye. Je cherche des yeux les membres de la
+à la lutte.
 En bas, la place pleine de combattants. Il y en a sur $
 les marches du Panthéon, derrière les colonnes du ;
 portique. Partout. IL y en a même au-dessous du dôme, ‘
-sur la plate-forme circulaire, qu'entoure la colonnade. 2
-Ce sont ceux-là, qui luttant jusqu'à la dernière minute, 4
-n'ayant plus le temps de descendre et de fuir, furent É
+sur la plate-forme circulaire, qu'entoure la colonnade.
+Ce sont ceux-là, qui luttant jusqu'à la dernière minute,
+n'ayant plus le temps de descendre et de fuir, furent
 fusillés à la place même où ils furent faits prisonniers.
 | Longtemps, derrière cette colonnade, on put voir, n'a
 assuré un témoin sûr, de larges flaques de sang.
@@ -2654,7 +2654,7 @@ prend le chemin que je voulais prendre. :
 Non. N'allons pas par là. |
 
 (1) Voir le premier cahier rouge, — une journée à La Cour martiale
-du Luxembourg, page 55.
+du Luxembourg, page
 
 J'ai comme un pressentiment que l'on conduit les !
 deux hommes quelque part où ils vont être interrogés,
@@ -2708,13 +2708,13 @@ m'avait dit vingt fois: « J'y resterai. C'est ma dernière
 bataille. » Il ne s'était pas donné la peine de raser sa
 vieille barbe blanche. Il habitait, à cent pas, une sou- +
 
-Nous marchions côte à côte. L
+Nous marchions côte à côte.
 
 Encore des coups de feu. ;
 
 — C'est dans la cour de Cluny, me dit le vieux. On y
 
-: a fusillé toute la nuit. Je viens d'en voir abattre un 3
+: a fusillé toute la nuit. Je viens d'en voir abattre un
 contre le mur de la façade. On l'a poussé au bas du |
 
 Je suis retourné souvent, depuis ces jours sinistres,  :
@@ -2734,28 +2734,28 @@ pierres énormes accumulées pour la construction de la
 nouvelle Sorbonne. Derrière chacune de ces pierres,
 formidables moellons, dressés comme des dolmens, un
 ou deux combattants. Plus tard, quand on relèvera ces
-pierres, quelques-unes jetées bas par les obus, on trou- 4
+pierres, quelques-unes jetées bas par les obus, on trou-
 
 _ vera sous l'une d'elles, écrasé, le cadavre — le squelette Fi
-__— encore vêtu, d'un fédéré. Ê
+__— encore vêtu, d'un fédéré.
 | Tout près, la boutique à Roullier. ce
-% Cette boutique, qui existe encore maintenant, dépen- 2e
+% Cette boutique, qui existe encore maintenant, dépen-
 _ dance du Collège de France, (1) est un morceau, un LE
 grain de poussière de la tragique histoire.
 | Édouard Roullier, cordonnier — il signe avec orgueil Ta
-« Roullier, savetier » — combattant de Juin, proscrit de d
+« Roullier, savetier » — combattant de Juin, proscrit de
 ie Sous la Commune, Roullier a fait partie de la com- ;
 _ mission du travail et de l'échange à la délégation au
-4 Vallès, par blague, l'a pris avec lui, aux premiers
+Vallès, par blague, l'a pris avec lui, aux premiers
 _ jours, à l'Instruction publique. AE
-— Roullier, assieds-toi là. Dans le fauteuil de Jules L
+— Roullier, assieds-toi là. Dans le fauteuil de Jules
 , Roullier — est-il besoin de le dire? — ignore l'or- #
-thographe. Et il s'en fait gloire. e
-— Je ne suis pas comme vous, sales petits bourgeois, F
+thographe. Et il s'en fait gloire.
+— Je ne suis pas comme vous, sales petits bourgeois,
 qui avez eu des parents pour vous faire donner de
-l'instruction! clame-t-il dans sa longue barbe d'insurgé. È
+l'instruction! clame-t-il dans sa longue barbe d'insurgé.
 Un jour de Février 1870, quand je faisais, avec Passe_  douet, mort en Calédonie, un petit brülot, la Misère, (2)
-(1) La « boutique à Roullier » occupait les locaux du rez-dechaussée, aujourd'hui dépendance du Collège de France, numéro ÿ
+(1) La « boutique à Roullier » occupait les locaux du rez-dechaussée, aujourd'hui dépendance du Collège de France, numéro
 de la place Marcellin-Berthelot. ;
 (2) La Misère, petite feuille in-quarto. Sept numéros, du 6 au
 32-80, boulevard Montparnasse. La Misère mit en vente la brochure
@@ -2800,10 +2800,10 @@ Roullier' n'est pas que proudhonien. Il teinte son
 ‘4 admiration pour Proudhon d'une violente couleur d'a- +
 4 narchie. (1) Avec quelques amis de la Montagne Saïnte-
 à Geneviève, il a fondé la Ligue des Antiproprios. Tout
-> membre de la Ligue s'engage à ne jamais payer ë
+> membre de la Ligue s'engage à ne jamais payer
 a son terme. Le déménagenrent à la cloche de bois est
 à de rigueur. Chaque membre doit son aide au cama-
-; rade menacé par Monsieur Vautour. De temps à autre, j
+; rade menacé par Monsieur Vautour. De temps à autre,
 Roullier arrive nous rejoindre au café — à l'un des
 5 cinq ou six cafés qui possédèrent, l'un après l'autre, ,
 . l'honneur de notre clientèle, depuis le café Huber de la
@@ -2827,20 +2827,20 @@ Quand vint le Quatre-Septembre, il se rappela qu'il
 (1) On ne disait pas encore, de ce temps-là, à la vérité, anarchiste. On se contentait d'être révolutionnaire.
 
 par la ville révoltée Du
-chausser ses concitoyens. Il se rendit adjudicataire de 1
+chausser ses concitoyens. Il se rendit adjudicataire de
 la fourniture des chaussures pour plusieurs bataillons re
 
-Pour installer son atelier, on lui concéda une boutique 1
-inoccupée, en bordure du Collège de France. : 3
+Pour installer son atelier, on lui concéda une boutique
+inoccupée, en bordure du Collège de France.
 
-Nous ne vimes plus alors ce brave Roullier que revêtu 4
-d'une ample et bourgeoïse redingote. La blouse bleue, È
+Nous ne vimes plus alors ce brave Roullier que revêtu
+d'une ample et bourgeoïse redingote. La blouse bleue,
 qu'il affichait jadis comme un symbole, était reléguée à $
 la blanchisserie de la citoyenne Roullier. : Fr
 
 Par ci par là, j'allais à la boutique serrer la maïn du
 
-Ah! ce qu'il les menaït, ses « collaborateurs »! 4
+Ah! ce qu'il les menaït, ses « collaborateurs »!
 
 Debout dans sa haute taille, sur le seuil de la porte, …
 l'œil en arrêt, la barbe en bataille, Roullier les attendait,
@@ -2852,7 +2852,7 @@ Roullier, quand vint la Commune, garda son « ate- ;
 
 lier ». Je crois bien qu'il garda aussi ses fournitures de
 
-Dans la matinée de mercredi, avant l'attaque du Pan- É
+Dans la matinée de mercredi, avant l'attaque du Pan-
 théon, passant rue des Écoles, j'entrai à la boutique.
 
 Une dizaine de femmes y cousaient des sacs à terre pour
@@ -2869,7 +2869,7 @@ pour les souliers. À
 Je ne devais revoir Roullier que longtemps, longtemps
 après la chute de la Commune.
 
-260 6 5
+260
 
 La barbe blonde à fils d'argent du vieil insurgé était Pé
 devenue toute blanche. Il avait plus de soixante-dix ans.
@@ -2911,14 +2911,14 @@ Longuet, qui logeait à côté, au coin de la rue des Carmes et de
 la rue du Sommerard, y venait tailler de longues bavettes avec le
 
 à par la ville répoltée
-Quelques jours après, on m'apprenait la fin de 4
+Quelques jours après, on m'apprenait la fin de
 Le vieil insurgé avait été, un matin, trouvé mort dans
 son étroite chambrette de la rue Beaubourg, où Papoplexie, clémente, l'avait terrassé. DE
 Il avait quatre-vingts ans. |
 — J'ai déjà couru tout le quartier, reprit le vieux |
 : garde. Il y a tout un tas de morts à Saint-Séverin. On À,
-dit qu'ils ont été tués dans l'église où ils s'étaient enfermés quand ils se sont vus cernés. Ils sont alignés sur b
-la petite place, derrière l'abside, en face la rue Galande. c
+dit qu'ils ont été tués dans l'église où ils s'étaient enfermés quand ils se sont vus cernés. Ils sont alignés sur
+la petite place, derrière l'abside, en face la rue Galande.
 Nous étions rue de la Harpe. Le vieux s'était tu. Brusquement, il me saisit le bras. :
 — Ils auraient bien dû me tuer aussi... Je n'ai personne
 au monde... Mieux aurait valu pour moi crever au bas :
@@ -2937,7 +2937,7 @@ enthousiasmes et vu s'effondrer tous ses rêves...
 Où vais-je ?
 
 à Je songe à Flotte, qui demeure rue de la Huchette. _
-KE Flotte est en sécurité. Il a servi d'intermédiaire pour 2e
+KE Flotte est en sécurité. Il a servi d'intermédiaire pour
 ri le projet d'échange des otages. On sait à Versailles — DU
 la Commune. Je lui ai remis, l'avant-veille, les lettres de
 l'archevêque. Il doit certainement être chez lui. des
@@ -2946,12 +2946,12 @@ peur de bon. Je marche vite. L'hôtel du Mont-Blanc, où
 demeure Flotte, au 16 de la rue, n'est plus qu'à quelques  _
 pas de moi. Une lourde voiture est arrêtée devant la RE
 _ *: porte. Je vais mettre Le pied sur le seuil, quand un frisson me secoue des pieds à la tête. Un effroyable tableau, |
-- que m'avait caché le véhicule... 3
+- que m'avait caché le véhicule...
 Dans un renfoncement de la rue, formé par le retrait Es
 du nouvel alignement, trois femmes étendues, à demi SE
 recouvertes de paille. Je détourne mon regard. Je fuis,
 n'ayant eu que le temps de voir une flaque de sang noï-
-râtre, et la jupe rouge de l'une des infortunées. e
+râtre, et la jupe rouge de l'une des infortunées.
 Je fuis, sans plus songer à Flotte, sans plus songer à
 rien, jusqu'à la place Saint-Michel.
 Neuf heures tintaient au clocher de Saint-Séverin.
@@ -3004,9 +3004,9 @@ j deuxième exemplaire de souche, exemplaire de l'ad-
 
 troisième exemplaire de souche, exemplaire de lim-
 
-168 dix exemplaires d'abonnement, numérotés de 1 à 10
+168 dix exemplaires d'abonnement, numérotés de 1 à
 
-et sept exemplaires d'auteur numérotés a, b, €, d,
+et sept exemplaires d'auteur numérotés a, b, €,
 
 Tous nos exemplaires sur whatman sont numérotés
 
@@ -3015,14 +3015,14 @@ Tous nos exemplaires sur whatman sont numérotés
 . tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque instant souscrits; nous ne vendons point d'exemplaires
 sur whatman en dehors de l'abonnement; l'abonnement
 sur whatman à cette dixième série est de deux cents
-francs pour tous pays. É
+francs pour tous pays.
 
 Les Cahiers de la Quinzaine sont composés à la main,
 
 en caractères fin dix-huitième siècle (Didot) de la fonderie Mayeur (Allainguillaume, J. Saling et compagnie
 successeurs), 21,rue du Montparnasse, à Paris, sixième
 
-6 Pour savoir ce que sont les Cahiers de la Quinzaine,
+Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs'cinquante
 à M. André Bourgeois, administrateur des cahiers,
 k 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
@@ -3068,11 +3068,11 @@ naturellement aux premières inscriptions; c'est ce numéro d'inscription qui de
 numéro du tirage réservé à chacun des souscripteurs;
 l'édition sur whatman est strictement limitée au
 
-Pour tout changement d'adresse envoyer soixante Ë
-centimes, six timbres de dix centimes. sr o
+Pour tout changement d'adresse envoyer soixante
+centimes, six timbres de dix centimes. sr
 Nous engageons nos abonnés de certains ps ànous
 _ demander ur abonnement recommandé ; tous les cahiers ce er
-; de l'abonnement recommandé sont empaquetés à part e
+; de l'abonnement recommandé sont empaquetés à part
 _ recommandés à la poste; la recommandation postale, .
 comportant une transmission de signature, garantit le Fi
 destinataire contre certains abus: pour cette recom se

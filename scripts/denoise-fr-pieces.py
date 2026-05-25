@@ -79,6 +79,11 @@ def is_noise(line: str) -> bool:
     # Strip OCR splice markers — they belong in the raw OCR, not rendered output.
     if stripped.startswith(("[leaf", "[COLOPHON", "[BACK-MATTER", "[GUIEYSSE", "[p.")):
         return True
+    # Pure digits 1-4 chars (e.g. "145", "7", "1110008" handled by length) =
+    # margin page numbers. Drop. Longer digit-only strings could be years,
+    # statistics — keep them.
+    if re.fullmatch(r"\d{1,4}", stripped):
+        return True
     if re.fullmatch(r"[\d\s.,\-–—]+", stripped):
         return False  # pure digit/price/dash line
 
@@ -123,6 +128,57 @@ def is_noise(line: str) -> bool:
     return True
 
 
+# Strip trailing OCR margin artifacts from a line: standalone 1-3 char
+# token after sentence-ending punctuation or whitespace. Catches page-sig
+# marks like " 4", " k", " 1e", " * 1", " — 1.", " ; 2" embedded in prose.
+# Repeats until the tail stabilizes — handles multi-token cruft like " . 4".
+TRAILING_NOISE_RE = re.compile(
+    r"\s+[*\-–—|:;,.]?\s*[A-Za-z0-9]{1,3}[.,;:!?]?\s*$"
+)
+
+
+def strip_leading_marginalia(line: str) -> str:
+    """Strip leading pure-digit margin artifacts like '7 On apporte...'.
+
+    Only acts on pure-digit heads followed by space + capital letter. Leaves
+    alpha heads alone (too easy to clobber "Je", "Il", "On", "À", "Y", etc.).
+    """
+    m = re.match(r"^(\d{1,3})\s+([A-ZÀÂÇÉÈÊËÎÏÔÛÙÜŸÑÆŒ])", line)
+    if m:
+        return line[m.start(2):]
+    return line
+
+
+def strip_trailing_marginalia(line: str) -> str:
+    """Strip trailing OCR margin junk: digits, digit-containing fragments, or
+    single letters preceded by whitespace/punctuation.
+
+    Avoids stripping real French short words by requiring the tail to either
+    contain a digit or be exactly one alpha character (excluding 'à', 'y').
+    """
+    stripped = line.rstrip()
+    if not stripped:
+        return line
+    for _ in range(4):
+        m = re.search(
+            r"(\s+[*\-–—|:;,.]?\s*)([A-Za-z0-9àâçéèêëîïôûùüÿñæœÀÂÇÉÈÊËÎÏÔÛÙÜŸÑÆŒ]{1,3})([.,;:!?]?)\s*$",
+            stripped,
+        )
+        if not m:
+            break
+        tail = m.group(2)
+        is_noise_tail = (
+            tail.isdigit()
+            or any(c.isdigit() for c in tail)
+            or (len(tail) == 1 and tail not in ("à", "y", "À", "Y", "a", "A"))
+        )
+        if is_noise_tail:
+            stripped = stripped[: m.start()].rstrip()
+            continue
+        break
+    return stripped
+
+
 def denoise_text(text: str) -> tuple[str, int, int]:
     """Return (cleaned_text, lines_kept, lines_dropped)."""
     # Preserve frontmatter block verbatim.
@@ -144,6 +200,9 @@ def denoise_text(text: str) -> tuple[str, int, int]:
         if is_noise(line):
             dropped += 1
             continue
+        # Trim leading + trailing OCR margin artifacts (page numbers, sig marks).
+        line = strip_leading_marginalia(line)
+        line = strip_trailing_marginalia(line)
         # collapse runs of blank lines to at most 1
         if not line.strip():
             if blank_run >= 1:

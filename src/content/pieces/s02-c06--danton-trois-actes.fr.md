@@ -188,7 +188,7 @@ Plus une chose est simple, plus elle échappe aux hommes. On prétend que les ho
 
 Tu es amer. Il faut faire le bien aux hommes malgré eux.
 Tout le monde s'en mêle aujourd'hui, le résultat est médiocre.
-Pauvre République! Qu'ont-ils fait de toi? — O
+Pauvre République! Qu'ont-ils fait de toi?
 campagnes fleuries, terre rajeunie, dont l'air est plus léger et la lumière plus limpide, depuis que la claire raison a de son souflle frais chassé du ciel français les tristes superstitions et les vieux saints gothiques, — rondes de jeunes gens dansant dans les prairies, — héroïques armées, poitrines fraternelles, mur d'airain où les lances de l'Europe se brisent, — joie de la beauté, des formes harmonieuses, entretiens du Portique,nobles Panathénées, où les filles aux bras blancs passent, enveloppées de souples draperies, — liberté de vivre, plaisir vainqueur de tout ce qui est laid, hypocrite ou morose, — République d'Aspasie et du bel Alcibiade, qu'es-tu devenue? — Un bonnet rouge, une chemise sale, une voix enrouée, les idées fixes d'un maniaque, la férule pédante d'un magister d'Arras !
 Tu es un Athénien chez les barbares, Ovide parmi les Scythes. Tu ne les réformeras pas.
 
@@ -428,7 +428,7 @@ ma générosité. Mais le souci de la République
 
 l'emporte : elle a besoin de mon énergie et de tes vertus. Si mon énergie te répugne, songe quetes vertus me sont odieuses : nous sommes quittes.
 
-Fais comme moi, bouche-toi le nez, et sauvons la Ÿ
+Fais comme moi, bouche-toi le nez, et sauvons la
 Je ne ‘crois point un homme indispensable à la patrie.
 C'est le mot de tous les envieux. Avec ce beau raisonnement, ils châtrent la nation de tout ce qui fait sa force.
 Point de force où manque la confiance.
@@ -634,7 +634,7 @@ Tu outrages la grandeur de la guerre.
 Buse trouve : soldats, ouvriers, législateurs, la Répu- l blique l'honore. Mais que les criminels tremblent!
 
 Rien ne les protège de ses coups, ni leurs titres, ni leurs épées.
-C'est moi que tu menaces ? i
+C'est moi que tu menaces ?
 Je n'ai nommé personne. Malheur à qui se désigne lui-même !
 Tonnerre! — Il regarde, hors de lui, avec des gestes menaçants, Robespierre impassible; il tremble convulsivement de tous ses membres, et va pour sortir d'un pas égaré. Se retournant. — Prends
 
@@ -767,7 +767,7 @@ Voici Billaud-Varenne et Vadier.
 
 Billaud-Varenne, tête baissée, sombre, l'air écrasé de fatigue, les yeux un peu hagards. Vadier, lèvres i à pincées, ricaneur, amer. (1) — Robespierre et SaintJust se lèvent très froidement. Ils se saluent de la tête, d'un petit signe bref et sec, sans se donner la main.
 Salut et fraternité.
-Saint-Just. Allons, ça ira. Nous rattraperons le temps perdu. i
+Saint-Just. Allons, ça ira. Nous rattraperons le temps perdu.
 Billaud et Vadier s'asseyent sans façon. SaintJust se promène. Robespierre reste debout, appuyé contre la fenêtre. — Après un silence
 
 La guillotine! Tu as trop attendu, Robespierre: nous sommes en danger. Si Danton existe encore j demain, la liberté est perdue.
@@ -899,7 +899,7 @@ Non, mais pour Dumouriez, pour les généraux ses complices. Les Jacobins l'accu
 
 - Robespierre. Quand tu fus accusé, dit-il un mot pour toi ?
 
-Non; mais me voyant seul, en butte aux calomnies e
+Non; mais me voyant seul, en butte aux calomnies
 - de la Gironde, il dit à ses amis : « Puisqu''il veut se
 
 perdre, qu'il se perde! Nous ne partagerons point son sort! » — Mais il ne s'agit pas de moi.
@@ -1111,9 +1111,9 @@ Ce n'est rien, j'ai eu une hallucination, j'ai vu...
 Je me suis vu brusquement à sa place, assistant au procès des Girondins, mes victimes, — oh!
 Pendant ce temps, la pièce dite falsifiée par Fabre a passé sous les yeux du jury.
 
-Fabre, persistez-vous dans vos dénégations? a) ç
+Fabre, persistez-vous dans vos dénégations? a)
 
-Il est inutile que je recommence à m'expliquer : F
+Il est inutile que je recommence à m'expliquer
 
 vous ne m'écoutez point, votre siège est fait. J'ai montré tout à l'heure que sur le projet régulier de décret que j'avais rédigé, des traîtres ont introduit des additions et suppressions, qui en changent le caractère. Cela est clair à qui veut regarder les
 
@@ -1151,20 +1151,20 @@ Plan mal fait, intrigue confuse; trop de personnages ; on ne sait d'où ils vien
 Accusé, vos noms et qualités. d)
 Feu Hérault-Séchelles. Ci-devant avocat-général au Châtelet : je siégeais dans cette salle. Ci-devant
 d) Qui est-ce? quel est cet aristo ? — C'est Hérault, président de la Convention : j'ai inauguré en son nom la Constitution républicaine. Ci-devant membre du Comité de Salut public; ci-devant ami de SaintJust et de Couthon qui m'assassinent. à)
-Vous êtes un aristocrate. Votre fortune date de vos relations avec la cour, et de votre présentation à la femme Capet par la Polignac. Vous n'avez ja_ mais interrompu vos relations avec les émigrés; vous étiez l'ami de Proly l'Autrichien, bâtard du prince de Kaunitz, guillotiné le mois passé. Vous avez divulgué les secrets du Comité de Salut public, et livré des papiers importants aux cours étrangères. Malgré la loi, vous avez donné asile au cidevant commissaire des guerres, Catus, poursuivi comme émigré et comme conspirateur. Vous avez poussé l'audace jusqu'à aller le réclamer et prendre sa défense à la section Lepelletier, où il était arrêté. b) ë
+Vous êtes un aristocrate. Votre fortune date de vos relations avec la cour, et de votre présentation à la femme Capet par la Polignac. Vous n'avez ja_ mais interrompu vos relations avec les émigrés; vous étiez l'ami de Proly l'Autrichien, bâtard du prince de Kaunitz, guillotiné le mois passé. Vous avez divulgué les secrets du Comité de Salut public, et livré des papiers importants aux cours étrangères. Malgré la loi, vous avez donné asile au cidevant commissaire des guerres, Catus, poursuivi comme émigré et comme conspirateur. Vous avez poussé l'audace jusqu'à aller le réclamer et prendre sa défense à la section Lepelletier, où il était arrêté. b)
 Sauf sur un point : la divulgation des secrets d'État, que je nie formellement, et que je vous mets
 UNE TRICOTEUSE. — C'est encore un faraud de l'ancien régime !
 
 au défi de prouver, tout le reste est exact. Jele reconnais hautement. ; LS
 Fe Quelle explication en donnez-vous?
-Aucune explication. J'avais des amis. Nulle vo2
+Aucune explication. J'avais des amis. Nulle
 lonté d'Etat ne pouvait m'empêcher de les aimeret de les aider dans le besoin. :: 10)
-Vous aviez été président de la Convention. C'était à vous de donner à la nation l'exemple de l'obéissance aux lois. n
+Vous aviez été président de la Convention. C'était à vous de donner à la nation l'exemple de l'obéissance aux lois.
 a Je lui ai donné l'exemple de la mort pour le devoir.
 Est-ce tout ce que vous avez à dire?
 un autre, Herman. 4) “
 a) A travers toute la foule, le nom de Desmoulins se répète. — C'est Desmoulins.. Desmoulins... Camille,
-Camille, puis, tout de suite, silence. e.
+Camille, puis, tout de suite, silence.
 
 Vos nom, prénoms, qualités.
 CAMILLE, très troublé
@@ -1213,7 +1213,7 @@ Tu attendras Desmoulins; vous n'avez pas encore le droit d'égorger les gens san
 Tu sais qu'il est sensible et impressionnable ; tu veux profiter d'une faiblesse pour l'égorger : tu ne le feras pas, nous vivant. 1 « ER
 C'est le duel de l'empereur Commode, qui, armé d'un sabre de cavalerie, forçait son ennemi à se battre avec un fleuret garni de liège.
 a) Uxe ruxe. — Défaites-lui donc sa cravate!
-UNE TRICOTEUSE. — Ça, un homme? C'est mou comme une tripe ! 6 F
+UNE TRICOTEUSE. — Ça, un homme? C'est mou comme une tripe !
 
 Silence, toi-même, bourreau! Peuple, protège
 
@@ -1369,7 +1369,7 @@ b) Mais oui! mais oui!
 Ce n'est rien, je puis continuer.
 Vous reprendrez tout à l'heure votre justification avec plus de calme et de tranquillité.
 Je suis calme ! — Mes témoins ! il y a trois jours que je les réclame 4) ; aucun n'est encore assigné.
-Je somme l'accusateur public de me déclarer, en face du peuple, pourquoi la justice m'est refusée. b) 4
+Je somme l'accusateur public de me déclarer, en face du peuple, pourquoi la justice m'est refusée. b)
 Je ne me suis point opposé à leur citation, et jee is
 Fais-les donc venir; rien ne se fait sans tes ordres. (
 Je déclare donc permettre que les témoins soient appelés d), autres toutefois que ceux désignés par
@@ -1425,7 +1425,7 @@ Il hausse les épaules et se tait. Pendant ce temps,
 Fouquier a écrit une lettre qu'un garde prend et emporte.
 
 En attendant la réponse de la Convention, nous allons continuer l'interrogatoire. — Les gendarmes font rasseoir les accusés. a) — À Philippeaux. Vos nom, prénoms, qualités.
-Pierre-Nicolas Philippeaux, ci-devant juge au présidial du Mans, représentant du peuple à la Convention. e
+Pierre-Nicolas Philippeaux, ci-devant juge au présidial du Mans, représentant du peuple à la Convention.
 Vous avez tenté de paralyser la défense nationale, pendant votre mission en Vendée ; vous avez voulu
 
 jeter le discrédit sur le Comité de Salut public, par d'injurieux pamphlets ; vous avez fait partie de la conspiration de Danton et de Fabre pour rétablir la royauté.
@@ -1483,9 +1483,9 @@ J'eusse agi seul. Je ne suis l'ami d'aucun de ceux qui sont ici. J'ai parlé que
 Cela suflit. L'affaire est claire.
 Guillotinez-moi. La guillotine aussi est un coup de sabre. Je ne demande qu'une chose : qu'on me couche sur le dos; je veux faire face au couteau. b)
 Vadier et Billaud-Varenne entrent. Fouquier se lève et va leur serrer la main. Rumeur dans la foule. c)
-LE PEUPLE à a) Quelques approbations, et de nombreuses protestations. Certains commencent par applaudir, puis s'in- F
+LE PEUPLE à a) Quelques approbations, et de nombreuses protestations. Certains commencent par applaudir, puis s'in-
 dignent plus fort que les autres.
-b) Quelques applaudissements, et agitation. On sent que la foule a de la sympathie pour Westermann; mais elle se surveille, et attend pour prendre parti une ini- L
+b) Quelques applaudissements, et agitation. On sent que la foule a de la sympathie pour Westermann; mais elle se surveille, et attend pour prendre parti une ini-
 tialive qui ne se produit pas.
 réponse de la Convention! de la Convention!
 
@@ -1533,7 +1533,7 @@ FOUQUIER, continuant à lire, dominant le bruit, réussissant à reprendre l'int
 « … Laflotte se décida à feindre de partager leurs idées pour mieux connaître leur plan. En effet, Dillon, s'imaginant l'avoir associé à son infâme complot, lui détailla et discuta devant lui les différents projets. Laflotte se met à la disposition du Comité de Salut public pour lui en révéler les détails. »
 L'agitation de la foule couvre sa voix.
 CAMILLE, comme fou
-Monstres ! Cannibales ! — 11 froisse les papiers qu'il tient à la main et les jette à la tête de Fou quier.— Au peuple! A l'aide ! au secours ! b) 1
+Monstres ! Cannibales ! — 11 froisse les papiers qu'il tient à la main et les jette à la tête de Fou quier.— Au peuple! A l'aide ! au secours ! b)
 a) Le peuple approuve et s'indigne. — Le bruit continue, pendant le reste de la lecture de Fouquier,et éclate plus violemment après.
 
 Lâches meurtriers, péndant que vous y êtes, faites-nous lier sur ce banc, prenez un couteau et saignez-nous |! a)

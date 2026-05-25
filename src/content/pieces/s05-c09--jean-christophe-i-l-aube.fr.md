@@ -27,7 +27,7 @@ Romain Rolland publiés dans la quatrième série de nos
 
 Les œuvres et les travaux de Romain Rolland je |
 
-2 174
+2
 
 14 (He #14 quando l'anima tua dentro dormia.… ‘à
 
@@ -60,26 +60,26 @@ brutal de la lampe, les hallucinations d'un cerveau, à
 peine dégagé du chaos, la nuit étouffante et grouil-
 
 lante qui l'entoure, l'ombre sans fond d'où se détachent, ‘1
-comme des jets aveuglants de lumière, des sensations T4
+comme des jets aveuglants de lumière, des sensations
 aiguës, des douleurs, des fantômes : ces figures À
-énormes qui se penchent sur lui, ces yeux qui le pé- 1
-nètrent, qui s'enfoncent en lui, et qu'il ne comprend M
-pas!.. Il n'a pas la force de crier; la terreur le cloue d.
+énormes qui se penchent sur lui, ces yeux qui le pé-
+nètrent, qui s'enfoncent en lui, et qu'il ne comprend
+pas!.. Il n'a pas la force de crier; la terreur le cloue
 immobile, les yeux, la bouche ouverte, soufflant du À
-fond de la gorge. Sa grosse tête boursouflée se plisse 18
+fond de la gorge. Sa grosse tête boursouflée se plisse
 de grimaces lamentables et grotesques; la peau de ‘à
-sa figure et de ses mains est brune, violacée, avec des 5
+sa figure et de ses mains est brune, violacée, avec des
 
-— Bon Dieu! qu'il est laid! fit le vieux d'un ton 1
+— Bon Dieu! qu'il est laid! fit le vieux d'un ton
 Il alla reposer la lampe sur la table. À
-Louisa fit une moue de petite fille grondée. Jean- N
-Michel la regarda du coin de l'œil, et rit : 4
+Louisa fit une moue de petite fille grondée. Jean-
+Michel la regarda du coin de l'œil, et rit
 — Tu ne voudrais pas que je te dise qu'il est beau? \
-Tu ne le croirais pas. Allons, ce n'est pas ta faute. Ils 4
+Tu ne le croirais pas. Allons, ce n'est pas ta faute. Ils
 sont tous comme cela. %
 
-L'enfant sortit de l'immobilité stupide où le plon- 1
-se mit à crier. Peut-être sentait-il d'instinct dans les k
+L'enfant sortit de l'immobilité stupide où le plon-
+se mit à crier. Peut-être sentait-il d'instinct dans les
 yeux de sa mère une caresse qui l'engageait à se SE
 . plaindre. Elle lui tendit les bras, et dit :
 — Donnez-le-moi.
@@ -118,7 +118,7 @@ Re. — Il devrait être rentré, fit le vieux, mécontent. Il
 3 hésita un instant, puis demanda d'un ton plus bas, un
 
 — Non, père, non, père, dit précipitamment Louisa. VA
-Le vieux la regarda ; elle évitait son regard : 3
+Le vieux la regarda ; elle évitait son regard
 — Ce n'est pas vrai, tu mens.
 Elle pleura silencieusement. ut
 — Bon Dieu! cria le vieillard, en donnant un coup de
@@ -127,14 +127,14 @@ mère et l'enfant tressaillirent.
 — Père, je vous en prie, dit Louisa, il va pleurer.
 L'enfant hésita quelques secondes s'il devait crier
 ou continuer son repas; mais ne pouvant faire l'un et “72
-l'autre à la fois, il se remit au dernier. 4
-Jean-Michel continua d'une voix plus sourde, avec des j
+l'autre à la fois, il se remit au dernier.
+Jean-Michel continua d'une voix plus sourde, avec des
 éclats de colère :
 — Qu'est-ce que j'ai fait au bon Dieu pour avoir cet ‘1
 ivrogne pour fils? C'est bien la peine d'avoir vécu
-comme j'ai vécu, de m'être privé de tout, toute ma vie ! 4
+comme j'ai vécu, de m'être privé de tout, toute ma vie !
 — Mais toi, toi, tu n'es donc pas capable de l'empé- |
-cher ? Car enfin, sacrebleu ! c'est ton rôle. Si tu le Ÿ
+cher ? Car enfin, sacrebleu ! c'est ton rôle. Si tu le
 Louisa pleurait plus fort. ne
 — Ne me grondez pas encore, je suis déjà si malheu- #3
 reuse! J'ai fait tout ce que j'ai pu. Si vous saviez comme Fe
@@ -189,19 +189,19 @@ Il attendit un démenti, cracha sur le feu; puis, comme
 continuer, — et se tut.
 
 Ils ne disaient plus mot. Jean-Michel, près du feu, |
-Louisa, assise dans son lit, rêvaient tristement tous les é
+Louisa, assise dans son lit, rêvaient tristement tous les
 deux. Le vieux, quoi qu'il eût dit, pensait au mariage ‘
-; de son fils, avec amertume. Louisa y pensait aussi, et Ê
+; de son fils, avec amertume. Louisa y pensait aussi, et
 elle s'accusait, bien qu'elle n'eût rien à se reprocher. ;
 Elle était domestique, quand elle avait épousé, à la à
-surprise de tous, et surtout à la sienne, Melchior Krafft, 4
+surprise de tous, et surtout à la sienne, Melchior Krafft,
 le fils de Jean-Michel. Les Krafft étaient sans fortune, À
-mais considérés dans la petite ville rhénane, où le vieux F.
+mais considérés dans la petite ville rhénane, où le vieux
 s'était établi, il y avait presque un demi-siècle. Ilsétaient à
 musiciens de père en fils, et connus des musiciens de À
 tout le pays, entre Cologne et Mannheim. Melchior $
 était violon au Hof-Theater; et Jean-Michel avait ;
-autrefois dirigé les concerts du grand-duc. Le vieillard Ê
+autrefois dirigé les concerts du grand-duc. Le vieillard
 avait été profondément humilié du mariage de Melchior;
 il bâtissait de grands espoirs sur son fils ; il eût voulu
 en faire l'homme éminent qu'il n'avait pu être luimême. Ce coup de tête ruinait ses ambitions. Aussi
@@ -242,18 +242,18 @@ Le bateau laissé libre va droit contre l'écueil, et l'intrigant
 Melchior épousa une cuisinière. Il n'était cependant ni
 ivre, ni stupide, le jour où il s'engagea pour la vie
 avec elle; et il ne subissaïit pas un entraînement passionné : il s'en fallait de beaucoup. Mais peut-être y
-a-t-il en nous d'autres puissances que l'esprit et le cœur, i
+a-t-il en nous d'autres puissances que l'esprit et le cœur,
 d'autres même que les sens, — de mystérieuses puis- |
 sances, qui prennent le commandement dans les instants
 de néant où s'endorment les autres ; et peut-être était-ce
-elles que Melchior avait rencontrées au fond des 5
+elles que Melchior avait rencontrées au fond des
 | pâles prunelles, qui le regardaient timidement, un soir
 qu'il avait abordé la jeune fille sur la berge du fleuve,
 et qu'il s'était assis près d'elle, dans les roseaux, — |
 sans savoir pourquoi, — pour lui donner sa main.
 A peine marié, il s'était montré atterré de ce qu'il
-avait fait ; et il ne le cachaït point à la pauvre Louisa, 4
-qui, tout humble, lui en demandait pardon. Il n'était é
+avait fait ; et il ne le cachaït point à la pauvre Louisa,
+qui, tout humble, lui en demandait pardon. Il n'était
 pas méchant, et le lui accordait volontiers; mais, . à
 l'instant d'après, ses remords le reprenaient, au milieu À
 de ses amis, ou chez ses riches élèves, maintenant
@@ -278,22 +278,22 @@ l'avait rapproché de la servante aux cheveux de lin? Il
 avait rempli son rôle ; et le petit Jean-Christophe venait
 de prendre pied sur cette terre, où le poussait son
 
-La nuit était tout à fait venue. La voix de Louisa K:
+La nuit était tout à fait venue. La voix de Louisa
 arracha le vieux Jean-Michel à la torpeur où il s'aban- :
 donnait devant le feu, en pensant aux tristesses pré- be
-sentes et passées. L:
+sentes et passées.
 
 — Père, il doit être tard, disait affectueusement la
-jeune femme. Il faut rentrer chez vous, vous avez loin 4
+jeune femme. Il faut rentrer chez vous, vous avez loin
 
-— J'attends Melchior, répondit le vieillard. 3
+— J'attends Melchior, répondit le vieillard.
 
-— Non, je vous en prie, j'aime mieux que vous ne 3
-restiez pas. 4
+— Non, je vous en prie, j'aime mieux que vous ne
+restiez pas.
 
 Le vieux leva la tête, et la regarda attentivement. .
 
-Elle ne répondit pas. M
+Elle ne répondit pas.
 
 — Tu as peur, tu ne veux pas que je le rencontre ?
 
@@ -353,7 +353,7 @@ _ L'enfant se tut au milieu d'un sanglot. La merveilleuse
 
 lait. La nuit s'illuminait, l'air était tendre et tiède, Sa
 douleur s'é vanouit, son cœur se mit à rire ; et il glissa
-dans le rêve, avec un soupir d'abandon. Ë
+dans le rêve, avec un soupir d'abandon.
 Les trois cloches tranquilles continuaient à sonnerla
 fête du lendemain. Louisa rêvait aussi, en les écou
 tant, à ses misères passées et à ce que serait plus tard
@@ -364,12 +364,12 @@ meurtrie et oppressée par l'ombre; mais elle n'osait
 remuer. Elle regardait l'enfant, et la nuit ne lempêchait
 pas de lire dans ses traits vieillots. Le sommeil la
 gagnait, des images fiévreuses passaient dans son
-cerveau. Elle crut entendre Melchior ouvrir la porte, M
+cerveau. Elle crut entendre Melchior ouvrir la porte,
 Î et son cœur tressauta. Par instants, le grondement du Ai.
 fleuve montait plus fort dans le silence, comme un
 mugissement de bête. La vitre sonna une ou deux fois
 encore sous le doigt de la pluie. Les cloches, plus lentement, chantèrent, et s'éteignirent ; et Louisa s'endor- Ms
-mit auprès de son enfant. 6
+mit auprès de son enfant.
 Pendant ce temps, le vieux Jean-Michel attendait
 devant la maison, grelottant de pluie, la barbe mouillée de brouillard. Il attendait que son misérable fils
 revint; car sa tête, qui travaillait toujours, ne cessait à
@@ -378,14 +378,14 @@ l'ivresse ; et, bien qu'il n'y crût pas, il n'aurait pu dormir une minute, cett
 lavoir vu rentrer. Le chant des cloches le rendait
 très triste; car il se rappelait ses espérances déçues.
 Il pensait à ce qu'il faisait là, à cette heure, dans la
-rue; et de honte, il pleurait. ë
+rue; et de honte, il pleurait.
 
 Le vaste flot des jours se déroule lentement. Immuables, le jour et la nuit remontent et redescendent,
 comme le flux et le reflux d'une mer infinie. Les
 semaines etles mois s'écoulent et recommencent. Et
 la suite des jours est comme un même jour.
 
-Jour immense, taciturne, que marque le rythme égal Ç
+Jour immense, taciturne, que marque le rythme égal
 l'être engourdi qui rève au fond de son berceau, — ses
 besoins impérieux, douloureux ou joyeux, si réguliers,
 que le jour et la nuit qui les ramènent semblent ramenés par eux.
@@ -414,20 +414,20 @@ demi dans l'ombre, des nébuleuses qui s'organisent, un
 univers en formation. Son être est sans limites. Il est
 tout ce qui est.
 
-Les mois passent. Des îles de mémoire commencent i
+Les mois passent. Des îles de mémoire commencent
 à surgir du fleuve de la vie. Ce sont d'abord d'étroits
 îlots perdus, des rochers qui afileurent à la surface des |
 eaux. Autour d'eux, après eux, dans le demi-jour qui
 point, la grande nappe tranquille continue de s'étendre. |
 Puis de nouveaux îlots, que dore le soleil. FC
-Ainsi émergent de l'abîme de l'âme certaines formes, 1
-certaines scènes d'une étrange netteté. Dans le jour 1
-sans bornes, qui recommence, éternellement le même, J
+Ainsi émergent de l'abîme de l'âme certaines formes,
+certaines scènes d'une étrange netteté. Dans le jour
+sans bornes, qui recommence, éternellement le même,
 avec son balancement monotone et puissant, commence
 à se dessiner la ronde des jours qui se donnent la
 main, et leurs profils, les uns riants, les autres tristes.
 Mais les anneaux de la chaîne se rompent constamment,
-et les souvenirs se rejoignent par dessus la tête des 1
+et les souvenirs se rejoignent par dessus la tête des
 semaines et des mois.
 Le Fleuve... Les Cloches.. Si loin qu'il se souvienne, |
 — dans les lointains du temps, à quelque heure de
@@ -440,7 +440,7 @@ elle-même, au bruissement de ses flots. Tantôt elle
 s'irrite, elle hurle, comme une bête enragée qui veut |
 mordre. La vocifération s'apaise : c'est maintenant un
 murmure d'une infinie douceur, des timbres argentins,
-comme de claires clochettes, comme des rires d'enfants, s
+comme de claires clochettes, comme des rires d'enfants,
 
 de tendres voix qui chantent, une musique qui danse.
 Grande voix maternelle, qui ne s'endort jamais ! Elle
@@ -483,16 +483,16 @@ tout se vaut, un homme ou une mouche; tout vit éga- à
 lement: le chat, le feu, la table, les grains de poussière
 qui dansent dans un rayon de soleil. La chambre est |
 | un pays ; un jour est une vie. Comment se reconnaître AE
-au milieu de ces espaces immenses? Le monde est si 4
+au milieu de ces espaces immenses? Le monde est si
 grand : On s'y perd. Et ces figures, ces gestes, ce mou- ‘10
 vement, ce bruit, qui font autour de lui un tourbillon « |
-perpétuel !.… Il est las, ses yeux se ferment, il s'endort. F
+perpétuel !.… Il est las, ses yeux se ferment, il s'endort.
 Les doux, les profonds sommeils, qui le prennent tout
-d'un coup, à toute heure, n'importe où, où il est, sur 1
+d'un coup, à toute heure, n'importe où, où il est, sur
 - les genoux de sa mère, ou sous la table, où il aime à
 se cacher !.… Il fait,bon. On est bien.
 Ces premières journées bourdonnent dans sa tête
-comme un “champ de blé, ou comme un bois, que le s
+comme un “champ de blé, ou comme un bois, que le
 vent agite, et sur lequel passent les grandes ombres -
 des nuages...
 .
@@ -543,7 +543,7 @@ imite son braiement. Cette fois, il est fouetté. Il pleure
 toutes les larmes de son corps. Qu'est-ce qu'il a fait ?
 Il a si envie de rire, de se remuer! Et il lui est défendu |
 de bouger. Comment font-ils pour dormir toujours ? |
-Quand pourra-t-on se lever 2.
+Quand pourra-t-on se lever
 
 Un jour, il n'y tient plus. Il a entendu dans la rue un :
 chat, un chien, quelque chose de curieux. Il se glisse
@@ -587,14 +587,14 @@ Grand-père est mécontent de lui. Il se tient mal à la
 
 l messe.
 
-Il est à la maison, assis par terre, les pieds dans ses Î
-mains, Il vient de décider que le paillasson était un 4
+Il est à la maison, assis par terre, les pieds dans ses
+mains, Il vient de décider que le paillasson était un
 bateau, le carreau une rivière. Il croirait se noyer en
 sortant du tapis. Il est surpris et un peu contrarié que %
 les autres n'y fassent pas attention comme lui, en pas- '
 sant dans la chambre. Il arrête sa mère par le pan de
-sa jupe : « Tu vois bien que c'est l'eau! II faut passer 4
-par le pont. » — Le pont est une suite de rainures entre ÿ
+sa jupe : « Tu vois bien que c'est l'eau! II faut passer
+par le pont. » — Le pont est une suite de rainures entre
 les losangés rouges. — Sa mère passe sans même À
 l'écouter. Il est vexé,' à la façon d'un auteur drama- Te
 tique, qui voit le public causer pendant sa pièce.
@@ -1089,8 +1089,6 @@ de mariage, elle mourut à son tour, non sans avoir eu
 le temps de lui faire sept enfants. Au total, onze enfants, dont un seul avait survécu. Bien qu'il les aimât
 fort, tant de coups répétés n'avaient pas altéré sa solide
 
-| 53
-
 bonne humeur. L'épreuve la plus rude avait été la mort
 d'Ottilie, il y avait trois ans maintenant, à un âge où il
 est malaisé de se refaire une vie et de fonder un nouveau
@@ -1150,7 +1148,6 @@ Il courait à sa table, avec un frémissement : tenait-il
 enfin l'inspiration, cette fois? — Mais à peine avait-il
 la plume en main, qu'il se retrouvait seul, dans le
 . silence; et tous ses efforts pour ranimer les voix dispa-
-| 55
 
 rues n'aboutissaient qu'à lui faire entendre des mélodies connues de Mendelssohn ou de Brahms.
 
@@ -1217,7 +1214,7 @@ il s'abandonna de plus en plus. Il négligea son jeu,
 — si sûr de sa supériorité, qu'en peu de temps il
 la perdit. D'autres ‘virtuoses survinrent, qui lui succé-
 dèrent dans la faveur publique : cela lui fut amer ; mais
-au lieu de réveiller son énergie, ses échecs achevèrent Û
+au lieu de réveiller son énergie, ses échecs achevèrent
 de le décourager. Il se vengeait, en déblatérant contre
 ses rivaux avec ses compagnons de cabaret. Il com ptait, dans son absurde orgueil, succéder à son père,
 comme directeur de musique : un autre fut nommé. Il
@@ -1469,7 +1466,6 @@ d'une plate-bande.
 | Ce furent des hurlements. Les enfants se sauvèrent à
 la maison, avec des cris aigus. On entendit les portes
 Ç battre, et des exclamations de colère. La dame accourut,
-| 67
 
 aussi vite que la traîne de sa robe pouvait le lui permettre. Christophe la voyait venir, et il ne cherchait pas
 à fuir ; il était terrifié de ce qu'il avait fait : c'était une
@@ -1607,7 +1603,7 @@ Elle se mouraït d'amour; mais il la dédaignait. Quand
 il passait devant sa maison, elle le regardait passer,
 cachée derrière les rideaux; et il se savait regardé ;
 
-, 71
+,
 
 mais il feignait de n'y prendre pas garde, et il parlait
 gaiement. Il quittait même le pays, et voyageait au
@@ -1760,7 +1756,7 @@ Christophe fut saisi. Il crut d'abord que son père
 \ plaisantait; mais quand il vit qu'il ne bougeait pas,
 il fut pris de peur.
 
-— Papa! papa! cria:t-il. ÿ
+— Papa! papa! cria:t-il.
 
 Melchior continuait à glousser comme une poule.
 Christophe lui saisit le bras avec désespoir, et le
@@ -1915,7 +1911,6 @@ plus d'une fois au logis, avec le nez saignant et des
 . bosses au front. Un jour, il fallut le dégager presque
 ._  étouffé d'une de ces mêlées furieuses, où il avait roulé
 sous son adversaire, qui lui cognaïit avec férocité la tête
-| 83
 
 sur le pavé. Il trouvait cela naturel, étant prêt à faire
 aux autres ce qu'on lui faisait à lui-même.
@@ -1925,7 +1920,7 @@ bien qu'on n'en sût rien, — car il était très orgueilleux,
 pendant une partie de son enfance. Pendant deux ou
 trois ans surtout, elles sévirent en lui, comme une
 
-5 Il avait peur du mystérieux qui s'abrite dans l'ombre,
+Il avait peur du mystérieux qui s'abrite dans l'ombre,
 des puissances mauvaises qui semblent guetter la vie,
 du grouillement de monstres, que tout cerveau d'enfant
 porte en lui avec épouvante, et mêle à tout ce qu'il voit:
@@ -1943,7 +1938,7 @@ mais il imaginait un être monstrueux, des os déchiquetés, des chairs comme de
 des yeux qui font mourir, des formes incohérentes ; il
 ne voulait pas y penser et y pensait malgré lui. Il s'assurait d'une main tremblante que le loquet était bien
 mis : ce qui ne l'empêchait pas de se retourner dix fois,
-en descendant les marches. é
+en descendant les marches.
 Il avait peur de la nuit au dehors. Il lui arrivait de
 
 s'attarder chez le grand-père, ou d'y être envoyé, le soir,
@@ -2855,7 +2850,7 @@ obscur. — Et le petit Christophe était toujours penché
 au bord du soupirail, avec sa figure pâle, barbouillée..
 rayonnante de bonheur. Il dormait.
 
-, 4
+,
 
 Il avait fallu céder. Malgré l'obstination d'une résistance héroïque, les coups avaient eu raison de sa mauvaise volonté. Tous les matins, trois heures, et trois
 
@@ -2886,13 +2881,13 @@ lui, l'asservit, pour la vie, à cet art détesté, contre qui
 il tentait en vain de se révolter.
 
 Il y avait dans la ville, comme c'est l'habitude
-en Allemagne, un théâtre qui jouait l'opéra, l'opéra- É
+en Allemagne, un théâtre qui jouait l'opéra, l'opéra-
 comique, l'opérette, le drame, la comédie, le vaudeville, et tout ce qui pouvait se jouer, de tous les , |
-genres et de tous les styles. Les représentations avaient F
+genres et de tous les styles. Les représentations avaient
 lieu trois fois par semaine, de six à neuf heures du soir. |
 Le vieux Jean-Michel n'en manquait pas une, et témoi- À
 gnait à toutes un intérêt égal. Il emmena une fois avec |
-lui son petit-fils. Plusieurs jours à l'avance, il lui avait L
+lui son petit-fils. Plusieurs jours à l'avance, il lui avait
 raconté longuement le sujet de la pièce. Christophe
 n'y avait rien compris; mais il avait retenu qu'il y ;
 aurait des choses terribles; et, tout en brûlant du .
@@ -2906,11 +2901,11 @@ père füt empêché de venir. Mais l'heure approchant et #
 grand-père ne venant pas, il commençait à se désoler, )
 et regardait à tout instant à la fenêtre. Enfin le vieux $
 parut, et ils partirent ensemble. Le cœur lui sautait +
-dans la poitrine ; il avait la langue sèche, il ne pouvait 4
-articuler une syllabe. F
+dans la poitrine ; il avait la langue sèche, il ne pouvait
+articuler une syllabe.
 Ils arrivèrent à cet édifice mystérieux, dont il était |
-souvent question dans les entretiens de la maison. A la É
-porte, Jean-Michel rencontra des gens de connaissance; 4
+souvent question dans les entretiens de la maison. A la
+porte, Jean-Michel rencontra des gens de connaissance;
 et le petit, qui lui serrait la main très fort, tant il avait |
 peur de le perdre, ne comprenait pas comment ils
 pouvaient causer tranquillement et rire, en cet instant. ;
@@ -2952,23 +2947,23 @@ l'enfant. Il avait fait son choix parmi les êtres qui
 évoluaient sur la scène, avec des cris variés ; et il suivait, palpitant, les destinées de ceux à qui il avait
 accordé ses sympathies. Surtout, il était troublé par
 4 une belle personne, entre deux âges, qui avait de longs
-cheveux blond ardent, des yeux d'une largeur exa- j
-gérée, et qui marchait pieds nus. Les invraisemblances 3
-monstrueuses de la mise en scène ne le choquaient É
-point. Ses yeux aigus d'enfant ne remarquaient pas la É
-laideur grotesque des acteurs, énormes et charnus, les É
-choristes difformes de toutes les dimensions, alignés F,
+cheveux blond ardent, des yeux d'une largeur exa-
+gérée, et qui marchait pieds nus. Les invraisemblances
+monstrueuses de la mise en scène ne le choquaient
+point. Ses yeux aigus d'enfant ne remarquaient pas la
+laideur grotesque des acteurs, énormes et charnus, les
+choristes difformes de toutes les dimensions, alignés
 sur deux rangs, la niaiserie des gestes, les faces con- $
 gestionnées par les hurlements, les perruques touffues, - A
-les hauts talons du ténor, et le fard de sa belle amie, 1
+les hauts talons du ténor, et le fard de sa belle amie,
 au visage tatoué de coups de crayon multicolores. Il était
 dans l'état d'un amoureux, à qui sa passion ne permet *
 plus de voir l'objet aimé, comme il est. Le merveilleux À
-pouvoir d'illusion, qui est le propre des enfants, arrêtait ñ
+pouvoir d'illusion, qui est le propre des enfants, arrêtait
 au passage toutes les sensations déplaisantes, et les à
 La musique surtout opérait ces miracles. Elle bai- ;
 gnait les objets d'une atmosphère vaporeuse, où tout :
-devenait beau, noble et désirable. Elle communiquait S
+devenait beau, noble et désirable. Elle communiquait
 à l'âme un besoin éperdu d'aimer ; et, en même temps,
 elle lui offrait de toutes parts des fantômes d'amour,
 pour remplir le vide qu'elle-même avait creusé. Le |
@@ -3005,36 +3000,36 @@ de lune! Ils se taisaient tous deux, ruminant leurs sou-
 Christophe ne pouvait pas répondre; il était encore
  _tout intimidé par son émotion; et il ne voulait pas
 
-4 125
+4
 
 parler, pour ne pas briser le charme; il dut faire un
 effort, pour murmurer tout bas, avec un gros soupir :
 Le vieux sourit. Après un temps, il reprit :
 — Vois-tu quelle chose admirable est le métier de
-musicien? Créer de tels êtres, ces spectacles merveilleux, y a-t-il rien de plus glorieux? C'est être Dieu sur i
+musicien? Créer de tels êtres, ces spectacles merveilleux, y a-t-il rien de plus glorieux? C'est être Dieu sur
 Le petit fut saisi. Quoi! c'était un homme qui avait -
-créé tout cela! Il n'y avait pas songé. Il lui semblait ê
+créé tout cela! Il n'y avait pas songé. Il lui semblait
 presque que cela s'était fait tout seul, que c'était l'œuvre
-de la nature. Un homme, un musicien, comme il serait 4
+de la nature. Un homme, un musicien, comme il serait
 un jour! Oh! être cela un jour, un seul jour! Et puis |
 après... après, tout ce qu'on voudra! mourir, s'il faut!
-— Qui est-ce, grand-père, celui qui a fait cela ? i
+— Qui est-ce, grand-père, celui qui a fait cela ?
 Grand-père lui parla de François-Marie Hassler, un |
 jeune artiste allemand, qui habitait Berlin, et qu'il }
 avait connu jadis. Christophe écoutait, tout oreilles. '
-Brusquement, il dit : 1
-— Et toi, grand-père? L
-Le vieux eut un tressaillement. l
-— Quoi? demanda-til. 4
+Brusquement, il dit
+— Et toi, grand-père?
+Le vieux eut un tressaillement.
+— Quoi? demanda-til.
 — Est-ce que tu en as fait, toi aussi, de ces choses ? |
-— Certainement, fit le vieux d'une voix fâchée. Il se 7
-tut; et, après quelques pas, il soupira profondément. L
+— Certainement, fit le vieux d'une voix fâchée. Il se
+tut; et, après quelques pas, il soupira profondément.
 C'était une des douleurs de sa vie. Il avait toujours |
 désiré écrire pour le théâtre; et l'inspiration l'avait ?
 toujours trahi. Il avait bien dans ses cartons un ou
-deux actes de sa façon; mais il conservait si peu d'illu- l
+deux actes de sa façon; mais il conservait si peu d'illu-
 “sion sur leur valeur, qu'il n'avait jamais osé les sou- À
-mettre au jugement de personne. ê
+mettre au jugement de personne.
 
 Is ne se dirent plus un mot, jusqu'à ce qu'ils fussent
 rentrés. Ils ne dormirent ni l'un ni l'autre. Le vieux
@@ -3074,16 +3069,16 @@ annonçât, comme l'on fit un soir, un changement de
 spectacle. Il regardait avec ses petits yeux de lynx sur |
 le pupitre de la contrebasse, pour voir si le titre inscrit |
 sur son cahier était celui de la pièce attendue. Et ;
-quand il avait bien vu, deux minutes après, il regardait de nouveau pour s'assurer qu'il ne s'était pas É
+quand il avait bien vu, deux minutes après, il regardait de nouveau pour s'assurer qu'il ne s'était pas
 trompé. — Le chef d'orchestre n'était pas encore là.
-Sûrement il était malade. — On s'agitait derrière le 1
+Sûrement il était malade. — On s'agitait derrière le
 
 j rideau, on entendait un bruit de voix et de pas précipités. C'était un accident, un malheur imprévu? — Le
 silence se rétablissait. Le chef d'orchestre était à son
 poste. Tout semblait enfin prêt. On ne commençait
 pas! Mais que se passait-il donc? — Il bouillait d'impatience. — Enfin, le signal retentissait. Il avait des
-battements de cœur. L'orchestre préludait; et, pendant k
-quelques heures, Christophe nageaït dans une félicité, Ë
+battements de cœur. L'orchestre préludait; et, pendant
+quelques heures, Christophe nageaït dans une félicité,
 que troublait seulement l'idée qu'elle finirait tout à |
 
 A quelque temps de là, un événement musical vint
@@ -3139,11 +3134,11 @@ tenir leur partie dans l'orchestre. Melchior était à son |
 poste, et Jean-Michel dirigeait les chœurs.
 
 Lorsque Hassler parut, une acclamation monta de
-toutes parts, et les dames se levaient afin de mieux le ù
+toutes parts, et les dames se levaient afin de mieux le
 voir. Christophe le dévorait des yeux. Hassler avait
 une figure jeune et fine, mais déjà un peu bouflie et
 fatiguée ; les tempes étaient dégarnies ; une calvitie
-précoce se montrait au sommet du crâne, parmi les È
+précoce se montrait au sommet du crâne, parmi les
 cheveux blonds qui frisaient. Ses yeux bleus étaient
 d'un regard vague. Il avait une petite moustache ?
 blonde, et une bouche expressive, qui restait rarement |
@@ -3208,7 +3203,7 @@ il n'avait d'yeux que pour Hassler. Hassler s'avança |
 vers eux ; il les remercia; il cherchait ses mots, s'embarrassa dans une phrase, et s'en tira par une saillie
 burlesque qui fit rire tout le monde. On se mit à <
 manger. Hassler prit à part quatre ou cinq musiciens.
-Il distingua grand-père, et lui dit quelques mots L
+Il distingua grand-père, et lui dit quelques mots
 
 très flatteurs ; il se rappelait que Jean-Michel avait été
 un des premiers à faire exécuter ses œuvres; et il dit
@@ -3308,7 +3303,7 @@ l'avait embrassé, ZI l'avait tenu dans ses bras! Qu'!
 était bon ! Qu'! était grand!
 — Ah! pensait-il, dans son petit lit, en embrassant
 passionnément son oreiller, je voudrais mourir, mourir
-pour lui! Ù
+pour lui!
 
 Le brillant météore, qui avait passé un soir dans
 le ciel de la petite ville, eut une influence décisive
@@ -3370,36 +3365,36 @@ de la chambre, en tapant des talons, la tête en arrière,
 et le ventre en avant, il tournait, tournait indéfiniment,
 
 à se rendre malade, en exécutant une de ses compositions, — le vieux, qui se faisait la barbe, s'arrêta de
-se raser, et, la figure toute barbouillée de savon; il le H
+se raser, et, la figure toute barbouillée de savon; il le
 regarda et dit :
 — Qu'est-ce que tu chantes donc, gamin?
 Christophe répondit qu'il ne savait pas.
 — Recommence ! dit Jean-Michel.
 Christophe essaya : il ne put jamais retrouver l'air. |
 Fier de l'attention de grand-père, il voulut faire admirer :
-sa belle voix, en chantant à sa façon un grand air j
+sa belle voix, en chantant à sa façon un grand air
 d'opéra ; mais ce n'était pas là ce que demandait le |
 vieux. Jean-Michel se tut, et parut ne plus s'occuper de
 lui. Mais il laissait la porte de sa chambre entr'ouverte,
 tandis que le petit s'amusait seul dans la pièce à
 Quelques jours après, Christophe était en train de
-jouer, avec les chaises disposées en cercle autour de l
-lui, une comédie musicale, qu'il s'était fabriquée avec L
+jouer, avec les chaises disposées en cercle autour de
+lui, une comédie musicale, qu'il s'était fabriquée avec
 les bribes de ses souvenirs de théâtre; et il exécutait
-avec un grand sérieux, sur un air de menuet, comme il t
-avait vu faire, des pas et des révérences, qu'il adressait 4
+avec un grand sérieux, sur un air de menuet, comme il
+avait vu faire, des pas et des révérences, qu'il adressait
 au portrait de Mélanchthon, suspendu au-dessus de la |
-table. En se retournant pour une pirouette, il vit, par Ë.
+table. En se retournant pour une pirouette, il vit, par
 la porte entrebaïllée, la tête de grand-père, qui le
 regardait. Il pensa que le vieux se moquait de lui; il
-eut très honte, il s'arrêta net; et, courant à la fenêtre, F
-il écrasa sa figure contre les carreaux, comme s'il était Ë
+eut très honte, il s'arrêta net; et, courant à la fenêtre,
+il écrasa sa figure contre les carreaux, comme s'il était
 absorbé dans une contemplation du plus haut intérêt. $
 Mais le vieux ne dit rien; il vint vers lui, il lembrassa ; |
 et Christophe vit bien qu'il était content. Son petit >
 amour-propre ne manqua pas de travailler sur ces
 données ; il était assez fin pour juger qu'on l'avait
-138 4
+138
 
 apprécié ; mais il ne savait pas au juste ce que grandpère avait le plus admiré en lui : si c'étaient ses talents
 d'auteur dramatique, de musicien, de chanteur ou de
@@ -3428,7 +3423,7 @@ Christophe secouait la tête :
 
 — Je ne sais pas.
 
-1 A vrai dire, des lueurs lui traversaient l'esprit ; il lui
+A vrai dire, des lueurs lui traversaient l'esprit ; il lui
 semblait que ces airs... Mais non ! il n'osait pas... Il ne
 voulait pas reconnaître :
 
@@ -3463,8 +3458,8 @@ indifférent, — car il sentait qu'il allait s'émouvoir:
 — Naturellement, j'ai ajouté l'accompagnement, et |
 les harmonies, dans le caractère du chant. Et puis. |
 — il toussa, — et puis, j'ai aussi ajouté un trio au
-menuet, parce que... parce que c'est l'habitude...; et 1
-puis... enfin, je crois qu'il ne fait pas mal. l
+menuet, parce que... parce que c'est l'habitude...; et
+puis... enfin, je crois qu'il ne fait pas mal.
 
 Il le joua. — Christophe était très fier de collaborer *
 avec grand-père : |
@@ -3512,18 +3507,18 @@ temps de s'en occuper plus tard, quand il n'aurait rien
 de mieux à faire. |
 Ce n'est pas, comme ces sages paroles auraient pule
 faire croire, que Melchior se préoccupât de défendre
-l'enfant contre l'exaltation dangereuse d'un orgueil pré- M
+l'enfant contre l'exaltation dangereuse d'un orgueil pré-
 maturé. Il devait se charger de démontrer promptement =
 le contraire. Mais n'ayant jamais eu lui-même aucune
 idée à exprimer en musique, ni le moindre besoin d'en
 exprimer aucune, il en était arrivé, dans son infatuation de virtuose, à considérer la composition comme
 une chose secondaire, à laquelle l'art de l'exécutant
-donnait seul tout son prix. Il n'était certes pas insensible aux enthousiasmes suscités par les grand$ com142 d
+donnait seul tout son prix. Il n'était certes pas insensible aux enthousiasmes suscités par les grand$ com142
 
 positeurs, comme Hassler ; il avait pour ces ovations
 le respect qu'il éprouvait toujours pour le succès, —
 mêlé secrètement d'un peu de jalousie, — car il lui semblait que ces applaudissements lui étaient dérobés.
-Mais il savait par expérience que les succès des grands ï
+Mais il savait par expérience que les succès des grands
 virtuoses ne sont pas moins bruyants, et qu'ils sont
 même plus personnels et plus fertiles en conséquences
 agréables et flatteuses. Il affectait de rendre un profond
@@ -3550,7 +3545,6 @@ compositeur, un grand compositeur. »
 A partir de ce jour, puisqu'il était un compositeur, il
 se mit à composer. Avant de savoir à peine écrire ses
 . lettres, il s'évertua à griffonner des noires et des croches
-| 143
 
 sur des lambeaux de papier, qu'il arrachaïit aux cahiers
 de comptes du ménage. Mais la peine qu'il se donnait
@@ -3565,15 +3559,15 @@ son bon sens naturel le sauva, aidé par l'influence d'un
 homme, qui ne prétendait pourtant exercer aucune
 influence sur qui que ce fût, et qui ne donnait rien
 moins aux yeux du monde que l'exemple du bon sens.
-— C'était le frère de Louisa. É
+— C'était le frère de Louisa.
 
 Il était petit comme elle, mince, chétif, un peu voûté.
 On ne savait au juste son âge; il ne devait pas avoir À
 passé la quarantaine; mais il semblait aussi bien avoir
 cinquante ans, et plus. Il avait une petite figure ridée,
-rosée, avec de bons yeux bleu très pâle, comme des È
+rosée, avec de bons yeux bleu très pâle, comme des
 myosotis un peu fanés. Quand il enlevait la casquette, à
-qu'il gardait frileusement partout, de crainte des cou- M
+qu'il gardait frileusement partout, de crainte des cou-
 rants d'air, il montrait un petit crâne tout nu, rose, et
 de forme conique, qui faisait la joie de Christophe et
 ce sujet, lui demandant ce qu'il avait fait de ses cheveux, et menaçant de le fouetter, excités par les
@@ -3633,9 +3627,9 @@ surprise. Si pauvre qu'il fût, il trouvait moyen d'apporter un souvenir à chac
 fête d'aucun de la famille. On le voyait arriver ponctuellement aux dates solennelles ; etil tirait desa poche
 quelque gentil cadeau, choisi avec cœur. On y était si
 habitué, qu'on songeait à peine à le remercier: cela
-semblait naturel, et il paraissait suffisammentpayépar M
+semblait naturel, et il paraissait suffisammentpayépar
 le plaisir qu'il avait à l'offrir. Mais Christophe, qui ne
-dormait pas très bien, et qui, pendant la nuit, ressassait M
+dormait pas très bien, et qui, pendant la nuit, ressassait
 dans son cerveau les événements de la journée, réflé-
 
 chissait parfois que son oncle était très bon; et il lui
@@ -3696,14 +3690,14 @@ dormait une angoisse séculaire. Christophe ne respirait
 plus, il n'osait faire un mouvement, il était tout froid
 d'émotion. Quand ce fut fini, il se traîna vers Gottfried,
 et, la gorge serrée:
-— Oncle !.. demanda-t-il. d
+— Oncle !.. demanda-t-il.
 Gottfried ne répondit pas. |
 — Oncle ! répéta l'enfant, en posant ses mains et son |
 menton sur les genoux de Gottfried.
-La voix affectueuse de Gottfried dit : K
+La voix affectueuse de Gottfried dit
 — Qu'est-ce que c'est, oncle? Dis! Qu'est-ce que tu
 — Je ne sais pas. |
-— Dis ce que c'est! L
+— Dis ce que c'est!
 
 — Je ne sais pas. C'est une chanson. ;
 
@@ -3719,7 +3713,7 @@ La voix affectueuse de Gottfried dit : K
 
 — Avant que je fusse au monde, avant qu'y fût mon
 père, et le père de mon père, et le père du père de mon
-père. Cela a toujours été. û
+père. Cela a toujours été.
 
 — Comme c'est étrange! Personne ne n'en a jamais
 
@@ -3795,7 +3789,7 @@ Gottfried allait l'admirer. Mais Gottfried répondit:
 
 Christophe fut interloqué. Après avoir cherché, il
 
-— Pour faire de belles chansons! 1
+— Pour faire de belles chansons!
 
 Gottfried rit de nouveau, et dit :
 
@@ -3856,10 +3850,10 @@ d'autres chansons. » Et quand Christophe l'embrassa,
 plein de reconnaissance, en lui disant bonsoir, il vit
 bien que l'oncle avait compris. |
 Depuis lors, ils allaient souvent se promener ensemble, le soir; et ils marchaïent sans causer, le long du |
-fleuve, ou à travers les champs. Gottfried fumait sa k
+fleuve, ou à travers les champs. Gottfried fumait sa
 pipe lentement, et Christophe lui donnait la main, un |
 peu intimidé par l'ombre. Ils s'asseyaient dans l'herbe ;
-et, après quelques instants de silence, Gottfried lui par152 N
+et, après quelques instants de silence, Gottfried lui par152
 
 lait des étoiles et des nuages; ïil lui apprenait à
 distinguer les souffles de la terre et de l'air et de l'eau,
@@ -3870,7 +3864,7 @@ beau temps, et les instruments innombrables de la
 symphonie de la nuit. Parfois Gottfried chantait des
 airs tristes ou gais, mais toujours de la même sorte; et
 toujours Christophe retrouvait à l'entendre le même
-trouble. Mais jamais il ne chantait plus d'une chanson k
+trouble. Mais jamais il ne chantait plus d'une chanson
 par soir; et Christophe avait remarqué qu'il ne chantait pas volontiers, quand on le lui demandait; il fallait
 que cela vint de lui-même, quand il en avait envie. On
 devait souvent attendre longtemps, sans parler; et
@@ -3925,23 +3919,23 @@ Christophe, la voix pleine de larmes, s'écria : ;
 
 — Mais enfin, pourquoi est-ce que tu dis que c'est |
 
-Gottfried le regarda avec ses yeux honnêtes : 1
+Gottfried le regarda avec ses yeux honnêtes
 
 — Pourquoi? Je ne sais pas. Attends. C'est
 laid,.… d'abord, parce que c'est bête. Oui, c'est cela.
 C'est bête, cela ne veut rien dire... Voilà. Quandtuas
 écrit cela, tu n'avais rien à dire. Pourquoi as-tu écrit
 
-— Je ne sais pas, dit Christophe d'une voix lamen- M
-table. Je voulais écrire un joli morceau. É
+— Je ne sais pas, dit Christophe d'une voix lamen-
+table. Je voulais écrire un joli morceau.
 
-— Voilà! Tu as écrit pour écrire. Tu as écrit pour i
+— Voilà! Tu as écrit pour écrire. Tu as écrit pour
 être un grand musicien, pour qu'on t'admirât. Tu as À
-été orgueilleux, tu as menti : tu as été puni... Voilà! D:
-On est toujours puni, lorsqu'on est orgueilleux et qu'on 2.
+été orgueilleux, tu as menti : tu as été puni... Voilà!
+On est toujours puni, lorsqu'on est orgueilleux et qu'on
 ment, en musique. La musique veut être modeste et
 
-154 4
+154
 
 sincère. Autrement, qu'est-ce qu'elle est? Une impiété,
 un blasphème contre le Seigneur, qui nous a fait pré-
@@ -4014,38 +4008,38 @@ Il y eut encore de longues conférences entre Melchior
 et Jean-Michel. Pendant deux ou trois soirs, ils discutè-
 rent avec animation. Il était défendu de venir les trou-
 
-bler. Melchior écrivait, raturait, raturait, écrivait. Le 1
-vieux parlait tout haut, comme s'il disait des vers. Par- 1
+bler. Melchior écrivait, raturait, raturait, écrivait. Le
+vieux parlait tout haut, comme s'il disait des vers. Par-
 fois, ils se fâchaient, ou tapaient sur la table, parce
 qu'ils ne trouvaient pas un mot. À
 Enfin, on appela Christophe, on l'installa devant la
 table, une plume entre les doigts, flanqué de son père à
-| droite, à gauche de son grand-père; et ce dernier com- 1
+| droite, à gauche de son grand-père; et ce dernier com-
 mença à lui faire une dictée, à laquelle il ne comprit
 rien, parce qu'il avait une peine énorme à écrire chaque À
-mot, parce que Melchior lui criait dans l'oreïlle, et parce 4
+mot, parce que Melchior lui criait dans l'oreïlle, et parce
 que le vieux déclamaiït d'un ton si emphatique, que
-Christophe, troublé par le son des paroles, ne pensait J
-même plus à en écouter le sens. Le vieux n'était pas 4
-moins ému. Il n'avait pu rester assis; et il se prome- 1
-nait à travers la chambre, en mimant involontairement 4
+Christophe, troublé par le son des paroles, ne pensait
+même plus à en écouter le sens. Le vieux n'était pas
+moins ému. Il n'avait pu rester assis; et il se prome-
+nait à travers la chambre, en mimant involontairement
 les expressions de son texte; mais à tout instant il £
 venait regarder sur la page du petit; et Christophe, |
-intimidé par ces deux grosses têtes, penchées sur son 4
-dos, tirait la langue, ne pouvait plus tenir sa plume, 4
+intimidé par ces deux grosses têtes, penchées sur son
+dos, tirait la langue, ne pouvait plus tenir sa plume,
 avait les yeux troubles, faisait des jambages de trop, #
-ou brouillait tout ce qu'il avait écrit; — et Melchior 4
+ou brouillait tout ce qu'il avait écrit; — et Melchior
 hurlait; et Jean-Michel tempêtait ; — et il fallait recom- %
-mencer, et encore recommencer; — et, quand on se F4
-croyait enfin arrivé au bout, sur la page irréprochable k
+mencer, et encore recommencer; — et, quand on se
+croyait enfin arrivé au bout, sur la page irréprochable
 tombait un superbe pâté; — alors, on lui tirait les À
-oreilles; et il fondait en larmes; mais on lui défendait 5h
+oreilles; et il fondait en larmes; mais on lui défendait
 de pleurer, parce qu'il tachait le papier; — et on repre- À
 nait la dictée, depuis la première ligne; et il croyait que #3
 cela durerait ainsi jusqu'à la fin de sa vie. ,
 Enfin, on en vint à bout; et Jean-Michel, adossé à la |
 cheminée, relut l'œuvre d'une voix qui tremblait de ;
-plaisir, tandis que Melchior, renversé sur sa chaise, É
+plaisir, tandis que Melchior, renversé sur sa chaise,
 
 regardait le plafond, et, hochant lb menton, dégustait
 en fin connaisseur le style de l'épiître qui suit :
@@ -4154,7 +4148,7 @@ l'avoir dévisagé et retourné sur toutes les faces, se
 frappa le front, et alla chercher une large fleur, qu'il
 fixa à la boutonnière du petit. Mais Louisa, en l'apercevant, leva les bras au ciel, et s'écria avec chagrin |
 qu'il avait l'air d'un singe: ce qui le mortifia cruelle- |
-ment. Lui-même ne savait pas s'il devait être fier ou 3
+ment. Lui-même ne savait pas s'il devait être fier ou
 honteux de son accoutrement. D'instinct, il était humilié.
 Il le fut bien davantage au concert: ce devait être pour |
 lui le sentiment dominant de cette mémorable journée.
@@ -4176,7 +4170,7 @@ une angoisse.
 Cependant, il fallait commencer : le public s'impatientait. L'orchestre du Hof Musik Verein entama
 lOuverture de Coriolan. L'enfant ne connaissait ni
 Coriolan, ni Beethoven; car s'il avait souvent entendu
-des pages de celui-ci, c'était sans le savoir; jamais É
+des pages de celui-ci, c'était sans le savoir; jamais
 il ne s'inquiétait du nom des œuvres qu'il entendait ;
 il les appelait de noms de son invention, forgeant
 à leur sujet de petites histoires, ou de petits paysages ;
@@ -4502,10 +4496,10 @@ musique disparut. Et l'on n'entendit plus que le soufile
 de misères, attachés côte à côte par le sort dans la
 même barque fragile, qu'une force vertigineuse emporte dans la Nuit.
 
-2 Fini d'imprimer trois mille exemplaires de ce
+Fini d'imprimer trois mille exemplaires de ce
 A neuvième cahier le jeudi 4 février 1904 "4
 ñ à l''Imprimerie de Suresnes
-Fo 9, rue du Pont j
+Fo 9, rue du Pont
 
 s [La lettre du petit Jean-Christophe au grand-duc Léopold
 | est inspirée de la lettre de Beethoven, âgé de onze ans,

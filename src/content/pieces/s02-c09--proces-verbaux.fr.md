@@ -17,7 +17,7 @@ séance, un ami que j'avais dans la Société remit au pré-
 sident de séance une lettre que je reproduis de mé-
 Monsieur le président de séance de l'Assemblée géné-
 rale de la Société Nouvelle de librairie et d'édition,
-ne Puisque vous êtes assemblés pour traiter de l'incident f
+ne Puisque vous êtes assemblés pour traiter de l'incident
 .  Péguy, permettez-moi de rappeler, une fois encore, aux (
 neuvième cahier de la deuxième série
 sociétaires que je suis personnellement à leur entière
@@ -129,7 +129,7 @@ concerne l'entrevue décisive, diffère, au moins par
 omission, de la relation contemporaine — et alors non
 contestée — qu'en donnait le même rapport. Nul usage
 
-n'est fait ni annoncé du texte de ce rapport. — Voir i
+n'est fait ni annoncé du texte de ce rapport. — Voir
 -_ annexe à la présente résolution.
 4 3 Péguy écrit (page 15) : « Ma finance était épuisée
 (au mois de décembre 1899), puisque les trois cin- »  quièmes qui m'en sont demeurés étaient immobilisés
@@ -176,7 +176,7 @@ par le Conseil d'administration.
 Comité général (l'ancien, qui acceptait nos offres pour
 la sténographie et l'impression du Congrès national)
 nous demanda spontanément si nous ne serions pas
-disposés à organiser, aux mêmes conditions, la sténo- ù
+disposés à organiser, aux mêmes conditions, la sténo-
 graphie et la publication du Congrès international. Nous
 reconnûmes, après examen, qu'une sténographie proprement dite, — c'est-à-dire une sténographie complète,
 en trois langues, de tous les discours prononcés en fran-
@@ -204,7 +204,7 @@ frais, mais que nous accepterions volontiers de publier
 
 en une courte brochure un compte rendu analytique.
 
-Le Comité général nous donna régulièrement mission s
+Le Comité général nous donna régulièrement mission
 de nous en charger (lettre du 6 septembre 1900). Le
 Congrès se tint, sans que personne songeât à organiser
 un secrétariat régulier qui fût chargé de rédiger le
@@ -365,7 +365,7 @@ je suis responsable et comptable, je prie le public de
 vouloir bien noter que cette résolution est scrupuleusement anonyme. La signature de M. Mario Roques au
 
 j bas de la convocation officielle n'implique pas ofliciellement que M. Roques a voté l'approbation du rapport.
-La signature de M. Paul Fauconnet au bas de la com- e
+La signature de M. Paul Fauconnet au bas de la com-
 munication officielle et courtoise n'implique pas non
 plus officiellement que M. Fauconnet a voté l'approbation du rapport. Ni le secrétaire du conseil d'administration ni le président de séance de l'assemblée
 générale ne sont tenus de voter comme la majorité du

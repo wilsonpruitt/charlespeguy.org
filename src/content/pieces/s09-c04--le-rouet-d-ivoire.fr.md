@@ -16,8 +16,8 @@ grand nombre de documents, de textes formant dos- |
 siers, de renseignements et de commentaires; — un
 si grand nombre de cahiers de lettres, — nouvelles,
 romans, drames, dialogues, poèmes et contes; nr
-si grand nombre de cahiers d'histoire et de philo- 4
-sophie; et ces documents, renseignements, textes, L
+si grand nombre de cahiers d'histoire et de philo-
+sophie; et ces documents, renseignements, textes,
 à dossiers et commentaires, ces cahiers de lettres, |
 d'histoire et de philosophie étaient si considérables
 que nous ne pouvons pas songer à en donner ici
@@ -29,13 +29,13 @@ sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une imag'e en bref, un raccourci,
 
-_ une idée abrégée, mais complète, de nos éditions anté- : 50
+_ une idée abrégée, mais complète, de nos éditions anté-
 “ic ne nos cinq premières D tout y est classé ‘4 un
-dans l'ordre; il suffit de le lire pour trouver, à leur M x
+dans l'ordre; il suffit de le lire pour trouver, à leur
 _ Ce caialogue, in-18 grand jésus, forme un cahier 1 #0
 ESA très épais de XI1+/08 pages très denses, marqué cinq ie
-1 RCA, nes ; ce cahier comptait comme premier cahier de la ea j
-JS 7e ème série et nos abonnés l'ont reçu à sa date, le , “à M
+RCA, nes ; ce cahier comptait comme premier cahier de la ea
+JS 7e ème série et nos abonnés l'ont reçu à sa date, le , “à
 ._ 2 octobre 1904, comme premier cahier de la sixième de.
 # série; toute personne qui jusqu'au 31 décembre 1905 ie
 _  s'abonnait rétrospectivement à la sixième série le rece- ‘dé
@@ -73,25 +73,25 @@ __ Note du gérant. — De ce petit index i/ résulte que le ‘à
 4 _ Jean des Brebis ou le livre de la misère est sensible- Di
 …_ . ment épuisé dans les éditions des Cahiers; les quelques DA
 a exemplaires quien restent sont incorporés aux quelques NS.
-« fi collections complètes qui nous restent de la cinquième :1
-| sérieet ne sont plus mis en vente que dans ces collec- 210
-À k À De l'annonce qui suit il résulte que le Jean des Brebis 4
-__ vient de paraître pour sa deuxième édition chez Plon- T1
-.  Nourrit et Compagnie éditeurs; cette édition est désor- D
+« fi collections complètes qui nous restent de la cinquième
+| sérieet ne sont plus mis en vente que dans ces collec-
+À k À De l'annonce qui suit il résulte que le Jean des Brebis
+__ vient de paraître pour sa deuxième édition chez Plon-
+.  Nourrit et Compagnie éditeurs; cette édition est désor-
 _ mais en vente à la librairie des cahiers et c'est la seule 1188
-_ ceux de nos abonnés nouveaux qui n'auraient pas le 9
+_ ceux de nos abonnés nouveaux qui n'auraient pas le
 __ cahier de vouloir bien commander le volume à M. André » X210R
-A Je saisis avec empressement et avec beaucoüp de 4
-10e plaisir cette occasion de remercier personnellement - : 20
+A Je saisis avec empressement et avec beaucoüp de
+10e plaisir cette occasion de remercier personnellement -
 ne M. Mainguet dont j'ai apprécié, dans la préparation ‘4
 _ que nous avons faite en commun de cette seconde édition, 1%
 TR _ toute la haute et courtoise bonne confraternité; que le RS
 _ respecté président du Cercle de la librairie veuille ps
-_ bien recevoir ici les remerciements respectueux d'un 2
+_ bien recevoir ici les remerciements respectueux d'un
 
 | L FA Jeter vin fit
 
-ts Na 1e en vente à la librairie des cahiers 08
+ts Na 1e en vente à la librairie des cahiers
 _ Évxe Moserzy. — Terres Lorraines, — chez Plon A
 # Re __— — La vie Lorraine, — à la librairie nationale Ut,
 Me __ — — Jean des Brebis ou le livre de la misère, —
@@ -100,10 +100,10 @@ _ chez Plonet Nourrit........... trois francs cinquante de
 A. à mon maître de littérature française a:
 
 ee _ « Quand je déposai la pourpre de l'enfance, quand je 3 Hi
-2 F: suspendis ma bulle au cou des Lares familiers, à l'heure À ï
+F: suspendis ma bulle au cou des Lares familiers, à l'heure À
 C _ où la vie hésite et s'assied aux carrefours, je vins me À af
 ‘ réfugier vers toi: pour accueillir mes tendres années, A
-# Ainsi parle le poète Perse aw philosophe Cornutus, 4
+# Ainsi parle le poète Perse aw philosophe Cornutus,
 É dans des vers encore tout vibrants d'une émotion que ‘à
 \ les ans n'ont point refroidie. Et moi aussi, 6 mon cher ‘4
 F maître, je quittai les Pénates enfumés, et le petit en- \è
@@ -111,16 +111,16 @@ F maître, je quittai les Pénates enfumés, et le petit en- \è
 Î buis séculaire, dont mes mains d'enfant arrachaient les # \
 L. , brins, au jour sacré des Rameaux. Et je trouvai près Kw:
 Be de vous la même bienveillance et la méme douceur. “1
-E ù Aubes délicieuses : jamais plus larges espoirs ne se le- F
-1 vèrent à l'horizon. Vous compreniez si bien vos étu- 4
+E ù Aubes délicieuses : jamais plus larges espoirs ne se le-
+1 vèrent à l'horizon. Vous compreniez si bien vos étu-
 É maladroits où se révélait l'admiration ingénue des #
 E..: maîtres, vous accueilliez tout avec sympathie. Nul plus ‘4 '
 d d que vous, dans l'Université, ne sut étre un éducateur Le
-F4 incomparable. Votre bonté ne connaissait pas l'ironie, ! ñ x
+F4 incomparable. Votre bonté ne connaissait pas l'ironie, !
 10 car vous saviez bien qu'il est des sensibilités adolescentes, À
 EN qui se brisèrent, comme un pur cristal, au seul bruit | à À
-ve A l'heure où une ombre, tombant des cimes inconnues, 1
-12. : voile lentement à mes yeux la joie du chemin, et la haie ‘a k
+ve A l'heure où une ombre, tombant des cimes inconnues,
+12. : voile lentement à mes yeux la joie du chemin, et la haie ‘a
 É 4: chantante, et le tumulte de la vie, je viens pieusement, # pr
 KA 6 mon cher maître, vous offrir toute mon enfance. ia
 
@@ -142,14 +142,14 @@ L mériens, où tourbillonnent dans la brume les âmes "
 N d'avoine et de blé, entassées sur le trézeau, découpent ‘08
 ù dans Pair les silhouettes d'immenses promontoires. Je À
 É les tourne avec émotion, le cœur ravi par les grands Hi
-| espaces libres, où s'étale une mer de lumière. 4
+| espaces libres, où s'étale une mer de lumière.
 É Une trouble, un grand filet de pêche, tendu sur ti.
 k une fourche de bois, semble le travail d'une araignée Fe
 
-… Mon âme toute neuve s'effare, et goûte, dans ce frisson 4
+… Mon âme toute neuve s'effare, et goûte, dans ce frisson
 de terreur, l'enivrement de la vie. LE:
 
-Er Dans un coin dort une chose oubliée. 6
+Er Dans un coin dort une chose oubliée.
 
 le rouet d'ivoire
 C'est le rouet de ma grand-mère, vieux rouet d'ivoire
@@ -168,31 +168,31 @@ Mais voici qu'il se prend à revivre.
 Ébranléepar mes doigts curieux, la grande roue tourne,
 entraînant la bobine, qui s'enveloppe d'une vibration
 d'air lumineux et chantant. Et les poussières voltigent,
-emportées dans le tourbillon, tandis que la machine fait n
+emportées dans le tourbillon, tandis que la machine fait
 entendre une chanson monotone comme un chevrotement d'aïeule.
 O rouet du passé, dévide lentement le fil brillant de
 ma jeunesse !
 
 D la cheminée lorraine Le
-3 Les cheminées lorraines sont l'âme des logis froids, 1
-| balayés par les vents. 4
-4 _ La vie du foyer s'y abrite, la vie précaire qui lutte 4
+Les cheminées lorraines sont l'âme des logis froids,
+| balayés par les vents.
+4 _ La vie du foyer s'y abrite, la vie précaire qui lutte
 | contre l'hiver. Un Christ de cuivre les surmonte, qu'on ‘104
-ne met jamais à l'encan. Elles sont si hautes qu'un ï 1
+ne met jamais à l'encan. Elles sont si hautes qu'un
 homme tient aisément debout sous leur manteau. La De
 : ; pierre se couvre d'un suintement humide quand le temps #10
 À Cheminées pauvres, dont l'âtre croule, où sifile un feu a:
 1 £ de bois vert; cheminées riches, qui étalent des chapelets : #3
-À Toute mon enfance a tenu sous la cheminée lorraine. it 4
-| Dehors, il fait froid. Des bruits mystérieux ébranlent 108
+À Toute mon enfance a tenu sous la cheminée lorraine. it
+| Dehors, il fait froid. Des bruits mystérieux ébranlent
 la maison, sortant des murs épais comme des murs de ‘1
-D: forteresse. On dit que les bœufs du voisin font ce 118
-; vacarme, en soulevant la crèche avec leurs cornes ; 1
+D: forteresse. On dit que les bœufs du voisin font ce
+; vacarme, en soulevant la crèche avec leurs cornes
 $ mais j'aime mieux rêver de brigands, de prisonniers, “pal
 | d'aventures, tandis que les chocs étranges semblent nr
-$ vibrer au cœur de la maison. U:
-4 Au milieu de l'ombre qui grouille dans les coins, la 5%
-( 6 cheminée projette sur le plancher un rond de clarté 24
+$ vibrer au cœur de la maison.
+Au milieu de l'ombre qui grouille dans les coins, la 5%
+( 6 cheminée projette sur le plancher un rond de clarté
 Ps dansante. Éclairées par la réverbération, deux figures ‘oh
 e surgissent, étrangement précises dans la grisaille des
 Le Le grand-père et la grand-mère. 4 dl
@@ -204,15 +204,15 @@ pe .s'interrompt, pose son ouvrage sur ses genoux, et me va]
 44 temps passé, de son village, des rondioli. Et le coupion, CARE
 S, la lampe lorraine, pendue à la cheminée par une cré- a: iQ
 à À maillère de fer, jette sur la scène une lueur qui tremble. oi #1
-84 Attirante est la vie de la flamme, avec ses cavernes Let
+Attirante est la vie de la flamme, avec ses cavernes Let
 10 d'or s'ouvrant dans les braises, ses palais bizarres “ Je
 5 envolés subitement. Les moindres bruits sont prophéti- Ha
 4 ques : une bûche éclate, comme un pétard; une fusée VE RS
 136 de feu jaillit dans un sifflement prolongé; et la vieille ‘fs
-‘1 grand-mère lève le doigt et dit tout bas : « Écoutez done A4
+‘1 grand-mère lève le doigt et dit tout bas : « Écoutez done
 ‘Ne le feu, nous aurons bientôt des nouvelles. » 2} 2)
-de Première révélation du mystère qui bat de ses vagues { 4 4
-ae la vie humaine. He 1
+de Première révélation du mystère qui bat de ses vagues {
+ae la vie humaine. He
 ‘M Dans l'âtre reposent des objets familiers : le cramail  :
 10 historiée, le soufllet, un vieux canon de fusil. Grand- j h es
 Lt père y sifflote des airs, promenant ses doigts sur le Ki
@@ -222,24 +222,24 @@ he un langage rassurant, évoquent le repos, la soupe … WA
 ‘ ronne, le ventre enfoui dans la cendre. à Eur
 à ne L'enfant comprend les voix des choses : il discerne à (
 :1 dans leur inertie des volontés sommeillantes. Les meu- A ‘ê
-p bles sont les génies tutélaires de la maison. La grande d
-na armoire bruit doucement, exhalant le souflle des coings 1
-“à et des pommes crapies, qui mûrissent sur les rayons. 5
-_  L'horloge aussi vit étrangement, tandis que le disque e
+p bles sont les génies tutélaires de la maison. La grande
+na armoire bruit doucement, exhalant le souflle des coings
+“à et des pommes crapies, qui mûrissent sur les rayons.
+_  L'horloge aussi vit étrangement, tandis que le disque
 À i de son balancier passe et repasse devant la fenêtre é pe
 
 4 ronde. Elle parle, elle radote, elle chante comme un fl
-4 ù bon ouvrier qui fait sa tâche, éparpillant la pous- h
-sière du temps sur les chaises de boïs et sur la maïe où n
+4 ù bon ouvrier qui fait sa tâche, éparpillant la pous-
+sière du temps sur les chaises de boïs et sur la maïe où
 
 \ Mais grand-père se penche vers moi. À
-; Bonne face de vigneron lorrain, dont les lèvres, rasées 1
-soigneusement, dessinent le modelé de leur bonté sou- x
+; Bonne face de vigneron lorrain, dont les lèvres, rasées
+soigneusement, dessinent le modelé de leur bonté sou-
 
 À riante : sa chemise de toile est gaufrée de plis à l'ancienne mode. Il fume sa pipe à petits coups, et passant de
 
 sa main sur ma tête, murmure entre ses dents : la
-Il se baisse, prend un charbon, et le pose sur sa 1 ÿ
+Il se baisse, prend un charbon, et le pose sur sa
 Æ pipe. IL recommence le jeu, savourant ma stupeur \
 comme une chose rare. Pauvre main de vieux, usée, Ve
 
@@ -261,33 +261,33 @@ de l'ombre infinie, serrez-vous contre moi pour écouter ki
 
 les récits du vieux temps, sous la cheminée lorraine
 
-J Quand l'automne ramène son cortège de bises hur- ï
-| lantes, quand les chdânettes des toits fouettent le pavé 24
+J Quand l'automne ramène son cortège de bises hur-
+| lantes, quand les chdânettes des toits fouettent le pavé
 | de leurs trombes, quand des souffles froids rôdent ii
 . dans la maison, comme si les bêtes de la nuit collaient !
 
 ne leur museau au bas des portes et reniflaient avidement,
 ‘4 alors un chant, frileux et triste, se.lève au fond de Al sue
-1 Grand-père se penche, promène ses mains dans la. a je
-k. flamme, les frotte avec satisfaction, puis il échafaude 1
+Grand-père se penche, promène ses mains dans la. a je
+k. flamme, les frotte avec satisfaction, puis il échafaude
 4 les ételles de hêtre qu'il prend dans la charpagne. a
 k nel Soudain il lève le doigt et dit mystérieusement : De ‘4
 Eu « Écoute le cri-cri! » en
-44 Oh! la musique de songe! L'âtre s'emplit de ce à “
+Oh! la musique de songe! L'âtre s'emplit de ce à “
 ‘2 grelot métallique, qui verse une sorte d'assoupisse- ét
 _ ment sur les ustensiles familiers, le cramail noir de GE
 1 suie, le coquemar qui ronronne, le sphinx du chenet ke
-54 enfoui dans la cendre. La clameur géante de la rafale J
+54 enfoui dans la cendre. La clameur géante de la rafale
 k saisit ce bruissement, l'emporte, l'anéantit. Mais le sil :
-4 ! frisson sonore repart, inlassable, monotone, comme un a e
+4 ! frisson sonore repart, inlassable, monotone, comme un a
 0 murmure de vie obstinée, tandis que la pluie d'argent DAS:
-1 4 1 s'éparpille dans le crépitement des bûches, et la splen- # 4
-‘4 deur rouge de la flamme. 1
-1 Ce bruit, qu'accompagne la chanson du rouet, semble :
+1 4 1 s'éparpille dans le crépitement des bûches, et la splen- #
+‘4 deur rouge de la flamme.
+Ce bruit, qu'accompagne la chanson du rouet, semble :
 à à traduire la vie des maîtres, leur chevrotement de vieux,
 _  , le dur travail de la terre.
-‘4 Durant le jour, le cri-cri se tait. 5
-É ‘A Je cherchais souvent à le surprendre, m'avançant dans # 1
+‘4 Durant le jour, le cri-cri se tait.
+É ‘A Je cherchais souvent à le surprendre, m'avançant dans #
 4 ses profondeurs du placard ouvert derrière la taque, où A.
 7 l'on mettait sécher les sabots et les bamboches, quand ‘À
 "4 on avait couru, sous la pluie, dans les friches. Le bruit 15120
@@ -296,50 +296,50 @@ _  , le dur travail de la terre.
 
 à dant ses pattes, dans les seigles. :
 W Alors ma jeune imagination vagabondant évoquait ae
-$ un animal chimérique; il avait les ailes frémissantes el k
+$ un animal chimérique; il avait les ailes frémissantes el
 4 bleuâtres de la libellule, les antennes soyeuses, les yeux ‘y
 
 D d'émail noir des sphinx, qui palpitent autour des gueules a
-4 de loup et des hémérocalles! i D:
+4 de loup et des hémérocalles!
 ; Mai$ grand-père dit un soir : (1
-( « Décidément, le cri-cri chante trop fort; on ne s'en- : 128
-.__ tend plus : nous allons l'échauder, pour voir. » ( 4
+( « Décidément, le cri-cri chante trop fort; on ne s'en-
+.__ tend plus : nous allons l'échauder, pour voir. » (
 i On versa sur la taque l'eau bouillante du coquemar. ds. ia
-N Le cri-cri se tut. La taque levée, on aperçut un grouille- . 142
+N Le cri-cri se tut. La taque levée, on aperçut un grouille-
 k ment de bestioles noires au ventre mou, mortes, flottant #1 à
 ‘ tristement sur l'eau, parmi les poussières de la cendre. he
 Premier avertissement donné par la vie! DT
 4 ; Avec une ironie hautaine, elle semble livrer son secret M Le
-be à l'enfant, simplement, du premier coup. 0
+be à l'enfant, simplement, du premier coup.
 ne Marche, petit, poursuis ta dure destinée d'homme. qu
-_ Que les musiques du chemin fassent naître en toi des : 000
-ï visions de fleurs plus larges, de soleils plus éclatants, , U
-L toujours elle se chargera de te mater d'une poigne vigou- 40
-l. reuse; elle prendra tes joies pour les meurtrir, tes rêves . A6
-4 pour les rapetisser, et ouvrant sa main contenant des 110
-cadavres de bestioles, elle te dira toujours : « Voilà 54
-# l'idéal que tu chantais. » Me 1
+_ Que les musiques du chemin fassent naître en toi des
+ï visions de fleurs plus larges, de soleils plus éclatants,
+L toujours elle se chargera de te mater d'une poigne vigou-
+l. reuse; elle prendra tes joies pour les meurtrir, tes rêves
+4 pour les rapetisser, et ouvrant sa main contenant des
+cadavres de bestioles, elle te dira toujours : « Voilà
+# l'idéal que tu chantais. » Me
 | _ Le jour décroît lentement. Dans le ciel, les toits, na
-: s'assoupissent. C'est l'heure où les souliers ferrés des ‘ 48
-# garçons sonnent sur les planches du grenier, quand ils 44
-__ glissent le foin dans le râtelier des vaches. 414
-AL Seule la trémie d'un van, secouée au fond d'une 0
+: s'assoupissent. C'est l'heure où les souliers ferrés des ‘
+# garçons sonnent sur les planches du grenier, quand ils
+__ glissent le foin dans le râtelier des vaches.
+AL Seule la trémie d'un van, secouée au fond d'une
 1 grange, sème dans le silence son tic tac menu. 144 !
 | Une vague terreur palpite dans le soir. Les escabeaux, ? “3 “te
-j À _ les chaises de bois massif, la mâie où l'on pétrit le pain 750
+j À _ les chaises de bois massif, la mâie où l'on pétrit le pain
 
 É sont accroupis comme des animaux fantastiques. Des. |
-ÿ choses grouillent étrangement dans les coïns ténébreux, 3
+ÿ choses grouillent étrangement dans les coïns ténébreux,
 | animées par la lueur dansante du foyer. La silhouette
 connue de la grand-mère, penchée sur la marmite, goû- de
 tant la soupe et prenant une pincée de sel dans le saloir,
 | n'arrive pas à dissiper cette impression d'épouvante. NE
 ) C'est l'heure où l'on allume les lanternes. Alors les |
-ombres s'éveillent sur les grands espages blancs des 1
+ombres s'éveillent sur les grands espages blancs des
 murs. Les unes dessinent des nez grotesques dans des
 visages sans yeux, des mâchoires monstrueuses dont |
 10 on entend presque le claquement; elles surgissent de
-la paroi par une sorte de prodige, grandissent soudain, 4
+la paroi par une sorte de prodige, grandissent soudain,
 montent jusqu'au plafond. D'autres, impalpables, effleurent à peine la blancheur du mur de leur frôlement ;
 elles jouent, se pourchassent, se recouvrent, comme
 deux papillons voltigeant sur les luzernes chaudes.
@@ -353,16 +353,16 @@ et nos gens riaient de ma stupéfaction, tandis que le
 garcon, prolongeant le jeu, à deux pouces de mon nez \
 balançait la lanterne.
 — Mon Dieu, que cet enfant est bête! dit grand-mère. |
-,  — Faudra lui en acheter une demain, répondit grand- 20
+,  — Faudra lui en acheter une demain, répondit grand-
 Hères tu
 Jeus la lanterne toute neuve, avec ses petites vitres *
-de corne et son anneau de fer-blanc; et, bien qu'elle ÿ
+de corne et son anneau de fer-blanc; et, bien qu'elle
 ne fût pas allumée, je la regardais avec adoration. “
-Premiers hommes, que la terreur soulevait de vos lits f
+Premiers hommes, que la terreur soulevait de vos lits
 
 | de feuilles, la lumière du jour s'éteignant; qui erriez à
 dans la nuit, poussiez des cris de terreur, sentant sur :
-votre' échine le souffle des grands fauves, j'éprouve 1
+votre' échine le souffle des grands fauves, j'éprouve
 quelque chose de vos terreurs ancestrales. À
 Ainsi la vie d'un enfant recommence la vie des |
 | un grand voyage dl
@@ -372,7 +372,7 @@ La porte franchie, nous sommes dans la région
 même semble épais, hostile, recélant dans ses pro- ;
 fondeurs des dangers embusqués. De toutes les forces |
 de ma petite main, je me cramponne à la grosse main
-calleuse, dont le rude contact fait passer en moi une Ù
+calleuse, dont le rude contact fait passer en moi une
 sorte de confiance. ' |
 | Les choses qu'on entrevoit dans cette obscurité sont
 | bien faites pour inspirer un redoublement de terreur.
@@ -383,15 +383,15 @@ des flammes verdâtres, aux clartés diaboliques, les yeux
 : des chats que notre passage a dérangés dans leur chasse
 ; aux souris. Des chaînes sonnent contre le rebord des
 4 mangeoires, et des souflles courent sur n0S mains, Sur À
-| .nos faces, des soufiles chauds, vivants, qui semblent 274
+| .nos faces, des soufiles chauds, vivants, qui semblent
 à flairer avidement : ce sont les vaches repues, qui, les
 h: pattes repliées, et leurs. pis lourds s'étalant sur la
 il paille, ruminent paisiblement devant leurs crèches.
 
-| « Attention, il y a trois marches », dit la voix joyeuse, : L
+| « Attention, il y a trois marches », dit la voix joyeuse,
 très haut, au-dessus de ma tête. ï :
 ! Et nous descendons dans la cave. à ' ji
-| Un rai de lumière tremblant filtre par la lucarne, 4
+| Un rai de lumière tremblant filtre par la lucarne,
 étrangement coloré en vert par les framboisiers, dont À
 } les pousses masquent l'ouverture. Cela coule sur les A
 ; murs, transparent comme un reflet d'eau, et, quand les És
@@ -400,14 +400,14 @@ très haut, au-dessus de ma tête. ï :
 | Je suis stupéfait par le travail qui s'accomplit là, dans
 cette demi-obscurité. ‘
 | Filandières infatigables, les araignées emplissent la |
-cave de leur agitation silencieuse. Parteut des toiles k
+cave de leur agitation silencieuse. Parteut des toiles
 | poussiéreuses pendent aux solives du plafond, comme '
 à les écheveaux de filasse qu'on voit accrochés dans la |
 | maison de Colin Michelot, le vieux tisserand. L'air est |
 plein de leur glissement agile : les unes se laissent tom-
 ; ber, s'arrêtent, et dansent au bout d'un fil qu'on ne voit |
 pas; d'autres, immobiles au centre de leurs toiles, |
-DE: les pattes étendues, semblent projeter autour d'elles le 4
+DE: les pattes étendues, semblent projeter autour d'elles le
 1 merveilleux rayonnement de leurs fils, dont le réseau
 ténu s'irise, s'argente, et tremble doucement, quand un
 Et ce travail, effrayant dans tout ce silence, devient *
@@ -421,29 +421,29 @@ Elles s'alignent de front sur les madriers, massives,
 puissantes, hautes comme des tours. Les douves de | |
 
 - chêne ou de châtaignier portent des traits de craie, {4
-| qu'on y a tracés jadis, pour marquer le nombre des 4
-3 Grand-père est triste. LU
-D. Il s'approche des foudres, et, prenant un maillet, L
-i frappe leurs membrures puissantes. Des grondements É
+| qu'on y a tracés jadis, pour marquer le nombre des
+Grand-père est triste. LU
+D. Il s'approche des foudres, et, prenant un maillet,
+i frappe leurs membrures puissantes. Des grondements
 : roulent en longs échos dans le ventre des futailles vides. ,
 ‘20 Il dit, avec un hochement de tête : bY
-À 4e « J'ai vu tout ça rempli, moi qui vous parle. » h
-‘3 Puis il ajoute, ironique : k
+À 4e « J'ai vu tout ça rempli, moi qui vous parle. »
+‘3 Puis il ajoute, ironique
 si: « Maintenant, ça ne servira plus qu'à loger des (à
 1 __ pommes de terre. » :
 # Il reste là, les mains pendantes, -et son regard rêveur hù
-‘2 suit le mirage évanoui des récoltes fabuleuses, les Î
-1% pressoirs craquants, le vin giclant des tendelins, les 4
-4 tue-chien de vendange qui assemblaïent autour de la x
-- table l'armée des porteurs, des tâcherons, des coupeuses 4
-__ de raisin, buvant le vin à même les brocs. ï
-"1 L'âge d'or des vignerons qui ne reviendra plus! k
+‘2 suit le mirage évanoui des récoltes fabuleuses, les
+1% pressoirs craquants, le vin giclant des tendelins, les
+4 tue-chien de vendange qui assemblaïent autour de la
+- table l'armée des porteurs, des tâcherons, des coupeuses
+__ de raisin, buvant le vin à même les brocs.
+"1 L'âge d'or des vignerons qui ne reviendra plus!
 F Il parle, et j'ai retenu jusqu'au dernier mot de sa \
 3 « Dur métier que le nôtre! On fait la misère. Les (AN
-+ - vieux sont bien heureux, car ils ne traineront pas la 4
++ - vieux sont bien heureux, car ils ne traineront pas la
 ‘1 galère pendant des années, comme les jeunes. F Fa
 1 <Y a autant dire plus de saisons ! On voit la neige sur <
-1% les javelles d'avoine au commencement de septembre. 7
+1% les javelles d'avoine au commencement de septembre.
 1 b « Tous les ans, la gelée noire : travaille, esquinte-toi, \
 4 mon pauvre homme ! "
 EL. « Les gens de journée vous tuent avec leurs exigences; if
@@ -462,18 +462,18 @@ Emouvante contradiction ! L'espérance a poussé des » va
 
 11 racines profondes au Cœur du vieux vigneron, comme A #
 du dans les ceps de verdunois qu'il provigne. Le voilà qui À
-à prépare les broches enveloppées de linges, la mèche à o 4
+à prépare les broches enveloppées de linges, la mèche à
 M soufrer les tonneaux, les feuilles sèches du güya, le Dar.
 1 roseau des étangs, qui sert à calfater les joints des ik
 ‘18 Il travaille, ragaillardi par la pensée d'une bonne
 i récolte. ne
-4 Puis on sort dans le petit jardin. |
+Puis on sort dans le petit jardin. |
 ni Le porc grogne dans son réduit. Rangées sur des
 A perches, le long des murs, les mottes de mare sèchent
 À au soleil, les mottes qui servent à couvrir les feux dor- '
-24 Ob la douceur du jour coulant sur les buis roussâtres, |
+Ob la douceur du jour coulant sur les buis roussâtres, |
 41 sur les groseilliers naïns, sur les plants de cinéraires !- RAS
-1 ‘Oh la joie du grand ciel où filent en tous sens des vols 4
+1 ‘Oh la joie du grand ciel où filent en tous sens des vols
 ‘ récit de guerre
 ta La saison du bêchage revient; les jours s'allongeñt; Ne
 
@@ -481,13 +481,13 @@ ta La saison du bêchage revient; les jours s'allongeñt; Ne
 j traînent des meuglements de vaches. , À
 
 % La cloche sonne l'Angélus. La vieille Babette s'en |
-ï va à la prière du soir, trottinant menu, si menu que W
+ï va à la prière du soir, trottinant menu, si menu que
 4 son pas soulève à peine l'ourlet de sa robe. Elle tient "4
-4 son missel sur son ventre; la pointe de son fichu blanc 3
+4 son missel sur son ventre; la pointe de son fichu blanc
 …._ tombe entre ses omoplates pointues. Elle se coule le
 long des murs, sournoise, silencieuse, les yeux baïissés, |
 { comme pour porter à Dieu une âme blanche, toute
-4 Avec la chaleur enfin revenue, un vague bien-être
+Avec la chaleur enfin revenue, un vague bien-être
 À envahit la maison, et les murs suintant l'humidité
 È Les vignerons descendent la rue, guëtres de coutil,
 _ portant au genou la serpette enchâssée dans un anneau
@@ -505,14 +505,14 @@ k: Les vièux S'attristent, tendant au feu leurs mains ger- |
 …._  cées par le hâle de mars, et déviennent soudain pensifs :
 k: « Pensez-vous qu'on aura la guerre ? »
 pe Piétinée par les invasions, martelée tant de fois par |
-la botte du vainqueur, la terre lorraine tressaille au É
+la botte du vainqueur, la terre lorraine tressaille au
 moindre bruit. Un long frémissement d'inquiétude court |
 L dans cés nuits sonores de printemps : on croit entendre QU.
 h au loin dés piétinements d'armée et des galops dé chez At
 … vaux : chaque pli du terrain est aux écoutes!
 
-4 Tant de terre remuée n'inspire pas confiance. Partout
-! des forts, des casemates, des batteries. Le silence ds s
+Tant de terre remuée n'inspire pas confiance. Partout
+! des forts, des casemates, des batteries. Le silence ds
 à . bois se dissipe, déchiré de coups de clairons, martelé | te
 Û par les ronflements de la peau d'âne, quand les tam- #04
 bours de la redoute vont à l'école. AE
@@ -521,29 +521,29 @@ L « Les Prussiens arrivaient. On les avait vus du côté | Red
 de Velaine. Nos gens, pris de peur, chassèrent les Fe
 vaches dans les bois, et se réfugièrent dans les trous
 de Saint-Reine. “4/2
-| « Moi, je dus rester au village, pour garder mon père, Pa É
-un vieux, tombé en enfance, qu'avait vu les cosaques. n 4
+| « Moi, je dus rester au village, pour garder mon père, Pa
+un vieux, tombé en enfance, qu'avait vu les cosaques.
 Je l'avais surpris un jour dans la bougerie, en train nn
-d'affiler sa serpe, pour couper la gorge aux Prussiens. Hi 4
+d'affiler sa serpe, pour couper la gorge aux Prussiens. Hi
 | « L'ancien mourut de saisissement, à la vue des
-« Peu à peu les gens revinrent et s'enhardirent. Rien è j h
+« Peu à peu les gens revinrent et s'enhardirent. Rien
 Ÿ m'était changé. Seulement des bandes de Saxons et de
-1 Poméraniens étaient campés dans les granges. FE
+Poméraniens étaient campés dans les granges. FE
 « Is faisaient la soupe dans la marmite du cochon,
-| et mangeaient du pain noir. M
+| et mangeaient du pain noir.
 } « — Bon schnaps, qu'y disaient, en buvant notre Gta
 j eau-de-vie. nt -
 j « Y laissaient sur leur passage une odeur de cuir et nn
 de bête sauvage. Les nouvelles de nos désastres arri- vu
-1 vaient, et nous avions le cœur gros. s
+1 vaient, et nous avions le cœur gros.
 « — Franzose capout, qu'y disaient avec de gros
-« Nous logions une compagnie, mais y nous laissaient, M
-tranquilles, rapport au feldwebel, comme qui dirait 14
+« Nous logions une compagnie, mais y nous laissaient,
+tranquilles, rapport au feldwebel, comme qui dirait
 | un sergent, qui restait chez nous, et qui matait ses da
 
 L « Je l'vois encore; y s'appelait Fritz, un homme bien : à
-corporé, moustachu, aux joues rouges. On buvait la ù
-_ goutte ensemble, des fois, car on ne peut pas toujours F
+corporé, moustachu, aux joues rouges. On buvait la
+_ goutte ensemble, des fois, car on ne peut pas toujours
 À se regarder comme des chiens de faïence. à
 D. « Le siège de Paris terminé, tu étais revenu, toi, À
 ; _  petiot, avec ta mère. L'occupation du territoire conti- à
@@ -553,20 +553,20 @@ pour ton âge. ‘
 
 - « Et quand tu serrais les poings, dans tes colères, il :
 à disait encore en plaisantant : 'k
-« — Petit Parisien, très méchant, toujours la Révo- ÿ
+« — Petit Parisien, très méchant, toujours la Révo-
 
-d « Le Prussien disait ça, en pensant à la Commune, 1
+d « Le Prussien disait ça, en pensant à la Commune,
 J qui mettait Paris sens dessusldessous à ce moment-là. d je
-« Pour finir, y t'emportait dans le jardin. Ça nous ï
+« Pour finir, y t'emportait dans le jardin. Ça nous
 4 intriguait, la grand-mère et moi, et un jour nous l'avons à
 suivi, à pas de loups.
 
-3 « Le Prussien, te tenant toujours dans ses bras, se j
+3 « Le Prussien, te tenant toujours dans ses bras, se
 promenait dans l'allée du fond, et y pleurait, cet
 _ homme, y pleurait les larmes de son corps, comme ça,
 
-_ tout seul, s'en donnant à cœur joie. 4
-$ « Et comme nous le regardions, consternés : 14
+_ tout seul, s'en donnant à cœur joie.
+$ « Et comme nous le regardions, consternés
 ; « — Moi, dit-il, cing petits comme ça, cinq ! fi
 
 ; « Et sa main se baïssant vers le sol, remontait, tra- ‘
@@ -577,7 +577,7 @@ __ différent des petites têtes. : à
 k Grand-père s'est tu : dans les braises des sarments, ne
 
 À des traînées de feu courent légères, comme des chenilles à
-4 33
+4
 
 lé le rouet d'ivoire |
 D lumineuses, et j'écoute ce récit, suivant d'un œil amusé |
@@ -624,20 +624,20 @@ nous étendons à midi, au creux d'un sillon, les yeux fl
 caressés par la houle infinie des trèfles,-quand mes 1114
 paupières s'appesantissent sous l'accablement de la (il
 lumière, j'entends comme en rêve sa voix, qui parle du rl
-chin bianc, du chien qui se couche sur la poitrine des 4h
+chin bianc, du chien qui se couche sur la poitrine des
 petits garçons endormis dans les champs, et les plonge ji
 dans une invincible somnolence ‘Al
 IL dit ces Jiaues, l'air convaineu, s'amusant de ma À
 crédulité. ! #l
 Précieux héritage du passé, ces récits sont le trésor ‘1
-| des générations de paysans qui ont bèché la vigne et 11
+| des générations de paysans qui ont bèché la vigne et
 labouré la terre. Au penchant de l'âge, les vieux n'ont Hi
 d'autre mission que d'entretenir chez les enfants la (al
 croyance au merveilleux, comme la parure la plus il
 rayonnante de l'humanité % »
 Nous entrons dans le bois : grand-père se penche et Fr
 épie des traces de bêtes. |
-Oh! la joie du matin nacré trouant les hêtres de 1
+Oh! la joie du matin nacré trouant les hêtres de
 | clartés mouvantes! Le soleil rit dans la rosée; le chemin (il
 | disparait sous des graminées, embrumées d'une pous- Al
 sière tremblante ; un creux d'eau, large comme la main, {'
@@ -646,18 +646,18 @@ sière tremblante ; un creux d'eau, large comme la main, {'
 18 les longs rubans de feu qu'on trace dans l'air, en)
 10 agitant une brindille enflammée. ge ‘ii
 10) le sac de sorbes He
-14 Grand-père braconne à ses moments perdus. 4 de
-10 Au mur est accroché un vieux fusil à piston, dont le. +
+Grand-père braconne à ses moments perdus. 4 de
+Au mur est accroché un vieux fusil à piston, dont le. +
 
 | canon, mangé de rouille, est tout pareil au soufliot, …
-‘4 déposé dans la cheminée. Le chien, les garnitures, la n
+‘4 déposé dans la cheminée. Le chien, les garnitures, la
 0 plaque de crosse, font un bruit de ferraille; mais il fi
 h à) porte juste et loin. Quand grand-père lajuste au creux
 1} 1 de son épaule, et coule sur le canon son regard aignisé
 0 par les heures passées à l'affût, la balle coupe en deux
 3 la haute-grive, qui chantdlau bout d'une branche. f ‘a
 ‘24 Il sait encore tendre des lacets faits d'un crin de
-iL. cheval. Parfois, quand il rentre à la tombée de la nuit, n
+iL. cheval. Parfois, quand il rentre à la tombée de la nuit,
 Ko un rire contenu plisse sa bouche : sans mot dire, il qi
 1 entrouvre les plis de sa blouse, et jette sur la table un
 pi à grand lièvre roux, qu'il tient par les oreilles. La Due
@@ -672,8 +672,8 @@ l h Grandpère m'emmène avec lui dans de longues ran-
 114 monde est grand! Chemin faisant, il m'apprend les.
 #3 choses rustiques, mettant dans cet enseignement ue
 
-sorte de gravité, répétant la leçon que d'autres vieux + 1
-lui ont apprise. 210
+sorte de gravité, répétant la leçon que d'autres vieux +
+lui ont apprise.
 
 Il me montre à marcher dans les terres labourées ; de “04
 signes [1e "0 il tire une indication pour la con- K à
@@ -681,21 +681,21 @@ naissance du temps ; il ramasse une coquille d'escargot, % fs
 
 . et dit : « L'hiver sera long », montrant l'épaisseur de la Nu!
 
-. cloison qui mure le logis de l'animal. À f
+. cloison qui mure le logis de l'animal. À
 
 Autres fois, mi-sérieux, mi-plaisant, il raconte des his- ‘0
-toires extraordinaires : il parle des loups qui ont les 11
+toires extraordinaires : il parle des loups qui ont les
 côtes en long, et vont droit devant eux, toujours tout ‘4
 droit, sans jamais pouvoir plier l'échine; et, quand nous ‘1
 
 . nous étendons à midi, au creux d'un sillon, les yeux 14 ‘
 caressés par la houle infinie des trèfles," quand mes #7
 
-_ paupières s'appesantissent sous l'accablement de la 12
+_ paupières s'appesantissent sous l'accablement de la
 
-F lumière, j'entends comme en rêve sa voix, qui parle du 4
+F lumière, j'entends comme en rêve sa voix, qui parle du
 
-. chin bianc, du chien qui se couche sur la poitrine des ÿ ï
+. chin bianc, du chien qui se couche sur la poitrine des
 
 _ petits garçons endormis dans les champs, et les plonge je
 dans une invincible somnolence. \18
@@ -704,26 +704,26 @@ dans une invincible somnolence. \18
 
 Ka Précieux héritage du passé, ces récits sont le trésor He
 
-_ des générations de paysans qui ont bèché la vigne et 10
+_ des générations de paysans qui ont bèché la vigne et
 
 | labouré la terre. Au penchant de l'âge, les vieux n'ont À fe
 
-_ d'autre mission que d'entretenir chez les enfants la 10
+_ d'autre mission que d'entretenir chez les enfants la
 
-_ croyance au merveilleux, comme la parure la plus QE n
+_ croyance au merveilleux, comme la parure la plus QE
 
-_ rayonnante de l'humanité. # d
+_ rayonnante de l'humanité. #
 
 | Nous entrons dans le bois : grand-père se penche et ‘3
 
-_ épie des traces de bêtes. 0
+_ épie des traces de bêtes.
 
-Oh! la joie du matin nacré trouant, les hêtres de 14
+Oh! la joie du matin nacré trouant, les hêtres de
 
-*  clartés mouvantes! Le soleil rit dans la rosée; le chemin A 1
+*  clartés mouvantes! Le soleil rit dans la rosée; le chemin A
 
 disparaît sous des graminées, embrumées d'une pous- ; Li
-sière tremblante; un creux d'eau, large comme la main, , 14
+sière tremblante; un creux d'eau, large comme la main,
 
 le rouet d'ivoire Re
 
@@ -736,18 +736,18 @@ l d'un jour verdâtre, sortent des odeurs de fraise, des
 
 | souflles vivifiants qui courent sur mes Mempes et les
 
-N Autour de moi, comme une mer, le chuchotement ï
+N Autour de moi, comme une mer, le chuchotement
 
 inquiet des feuilles.
 
 Un geai s'envole, secouant le silence de son jacas-
 
-— Jacques! Jacques! crie mon grand-père. i
+— Jacques! Jacques! crie mon grand-père.
 
 — Jacques! Jacques! répond le geai. :
 
 ÿ Mais on n'est pas là pour s'amuser. Grand-père me |
-conduit par des sentes jusqu'à l'endroit où ses lacets 4
+conduit par des sentes jusqu'à l'endroit où ses lacets
 sont posés. D'autres fois, il s'agit de cueillir les
 sorbes, les fruits rouges qui müûrissent dans l'épaisseur
 des feuillages. Il me fait grimper sur l'arbre; nous
@@ -759,24 +759,24 @@ où monte au loin la fumée bleue d'un feu de charbon- à
 
 Et une joie s'empare de moi, orgueilleuse et puis- à
 sante, la joie du Jacques qui crie et secouê ses ailes +
-dans la lumière. N
+dans la lumière.
 
 Grand-père se réjouit à l'idée de jouer un bon tour au *
-grand Milet, son ennemi, le garde forestier ! Il le voit à 4
+grand Milet, son ennemi, le garde forestier ! Il le voit à
 l'avance, les yeux fureteurs, cherchant dans les feuilles
 
-les sorbes rouges, les bonnes sorbes qu'il s'était réser- 4
+les sorbes rouges, les bonnes sorbes qu'il s'était réser-
 
 " vées, et qu'un autre lui aura cueillies sous le nez. |
 
 Notre récolte terminée, le sac plein est enfoui sous la |
 # blouse de grand-père. Ÿ À
 
-‘ Quelqu'un vient. 4
-4 Justement, le garde débouche d'une tranchée, le nez ;
+‘ Quelqu'un vient.
+Justement, le garde débouche d'une tranchée, le nez ;
 ‘à au vent, comme un bon chien de chasse. Il est grand, fe
 -  rougeaud, avec des mèches de cheveux blancs ébou- |
-| riffés autour de son képi. La plaque de cuivre, insigne É
+| riffés autour de son képi. La plaque de cuivre, insigne
 1 de la loi, luit sur sa blouse de toile bleue. Ses jambes |
 . maigres, guêtrées de coutil, se détendent nerveusement iù
 | « comme des pattes de cerf », dit mon grand-père. Il
@@ -786,13 +786,13 @@ Notre récolte terminée, le sac plein est enfoui sous la |
 4 pour faire des bretelles de tendelins, forçant les vieilles
 : qui ramassent du bois mort à dénouer la hart de leurs à
 à Les deux hommes s'abordent, polis, cérémonieux : À
-> — Quoi qu'on fait de bon chez vous? demande le k
+> — Quoi qu'on fait de bon chez vous? demande le
 Ki — Pas grand chose, dit grand-père. Des bricoles! Les |
 $ pommes de terre n'ont pas donné, et y en a beaucoup
 
 ù de pourries. On aura bien du mal à nourrir les cochons, |
 D cet hiver.
-4 Grand-père parle, parle, tandis que l'autre tourne g
+Grand-père parle, parle, tandis que l'autre tourne
 f autour de lui, palpant des yeux le gonflement suspect |
 W de la blouse. Mais ïl n'ose allonger la main, dans la
 
@@ -807,39 +807,39 @@ W de la blouse. Mais ïl n'ose allonger la main, dans la
 FA tranchée, grand-père se redresse, tout fier, l'œil lui-
 
 sant. Il rit tout seul, en pensant à l'autre qui se
- morfond maintenant, l'oreille basse, sous le sorbier + s
+ morfond maintenant, l'oreille basse, sous le sorbier +
 
-37 le rouet d'ivoire. — 3
+37 le rouet d'ivoire.
 
 le rouet d'ivoire FRS
 Il crie : & Jacques ! Jacques ! » comme le geai. Sa :
-voix sonne, éclatante sur le silence des combes fores- 3
-une histoire de revenants 4
+voix sonne, éclatante sur le silence des combes fores-
+une histoire de revenants
 
-On cuit les marcs de raisins pour faire l'eau-de-vie. 1
+On cuit les marcs de raisins pour faire l'eau-de-vie.
 Grand-père a dit : & Je passerai la nuit, c'est de ‘04
 l'ouvrage bien délicat, qu'y faut mener à la main,
-comme une mariée. Ÿ aura à surveiller la cuisson du 4
+comme une mariée. Ÿ aura à surveiller la cuisson du
 À Et j'ai dit à grand-père : « Je te tiendrai compagnie. »
-Il rit, d'un bon rire de vieux, qui plisse sa face sillonnée 4
+Il rit, d'un bon rire de vieux, qui plisse sa face sillonnée
 de grosses rides, d'un rire qui ouvre largement sa |
 bouche édentée. Il fait semblant d'être délivré d'un
 poids, content de laide inespérée : ,
-« À nous deux, on aura la moitié de mal. » 4
-Le souper terminé, je rejoins grand-père dans la bougerie, au coin du hangar où l'alambic ronronne. 1
+« À nous deux, on aura la moitié de mal. »
+Le souper terminé, je rejoins grand-père dans la bougerie, au coin du hangar où l'alambic ronronne.
 Surmontant le motif de maçonnerie, la tête de cuivre {
 f rouge reflète la lueur de la chandelle, dont la mèche | |
 champignonne. Une vraie cuisine de sorcier. Des vapeurs
 montent jusqu'au toit, exhalant l'odeur de marc fer- À
 menté, et le serpentin déroule bizarrement ses anneaux
-de métal dans le tonneau empli d'eau bouillante. Au 4
+de métal dans le tonneau empli d'eau bouillante. Au
 bout d'un tuyau de chanvre l'eau-de-vie perle en gouttes À
 Par moments, grand-père ouvre la porte du foyer, et À
 jette une büche de hêtre dans la fournaise. À
 Nous suivons des yeux le tremblotement de la flamme il
 qui danse sur les cendres grises, comme un papillon. hi
 
-1 Grand-père monte sur l'alambic, et, saisissant une
+Grand-père monte sur l'alambic, et, saisissant une
 
 | pince à trois dents, une sorte de tenaille gigantesque, il
 enlève les marcs distillés, recharge la machine, debout
@@ -870,7 +870,7 @@ affole les loups et les fait galoper dans la eam-
 
 | par mon ombre qui gesticule.
 
-} Puis, le foyer garni, nous nous asseyons côte à côte au ï
+} Puis, le foyer garni, nous nous asseyons côte à côte au
 
 ‘ coin de l'alambic, sur le petit banc de pierre ; la chaleur
 
@@ -894,7 +894,7 @@ dresse du grand-père, des émotions dont cette nuit est
 
 goutte. Il en buvaïit une chopine, le matin, en râclant
 
-le rouet d'ivoire q
+le rouet d'ivoire
 D > Ë des échalas, une chopine le soir, quand il ‘avait rangé |
 À Fi ses bêtes. Ses mains tremblaient, ses yeux pleuraient,
 5 et si la Babette, sa femme, lui faisait des reproches,
@@ -912,7 +912,7 @@ les travailler. Vint une fameuse année où on récolta tant
 de raisin, qu'on ne savait où le rentrer. Babette prit des
 4 gens de journée. Au pressurage, tout marcha bien. Mais
 quand il fallut cuire les marcs, Babette se désolait, car
-ë c'est de l'ouvrage trop difficultueux pour une femme. 4
+ë c'est de l'ouvrage trop difficultueux pour une femme.
 Elle essaya de les vendre, mais on ne lui offrait pas
 £ un bon prix, parce qu'on voulait profiter de son
 | « Tant et tant que son voisin, le Fan, lui dit :
@@ -932,8 +932,8 @@ et ce qu'elle vit la rejeta, prête à crier, au creux des Al
 tombe l'odeur de la goutte, et il travaillait, il travaillait WE |
 ferme, pour remettre les choses en bon état. Ait
 « I se baissait, souflant par la portière du fourneau ; M: | |
-ses yeux étaient rouges comme des braises. La flamme 14
-* éclairait ses jambes sèches comme des ételles, qui son- 1h 1
+ses yeux étaient rouges comme des braises. La flamme
+* éclairait ses jambes sèches comme des ételles, qui son-
 naient en s'entrechoquant. Des cheveux verts étaient E |
 collés sur sa tête. En sautant le mur du cimetière, il il
 avait accroché un brin de lierre qui pendait derrière lui. E1]
@@ -942,7 +942,7 @@ Et quand il traversa la cour pour aller chercher du {
 
 bois dans le hangar, la vieille vit les étoiles qui |
 
-luisaient à travers sa chemise, mince comme une toile E
+luisaient à travers sa chemise, mince comme une toile
 
 « La Babette demanda doucement : fl
 
@@ -951,15 +951,15 @@ luisaient à travers sa chemise, mince comme une toile E
 
 « — Tu vois, je fais ton ouvrage! »
 
-« Elle n'osa pas insister, car le vieux la menait tam- 4
+« Elle n'osa pas insister, car le vieux la menait tam-
 bour battant, quand il était du monde. Ni:
 & Par moments, il prenait l'épreuvette pour mesurer el
 
-le degré de la goutte. Tout marchait bien; il frottait ses 44
+le degré de la goutte. Tout marchait bien; il frottait ses
 mains, qui faisaient un bruit d'os — et il buvait des lam- 1 ll
 pées de goutte chaude, en poussant des soupirs à lendre nt:
-« Au petit jour, il partit, et la Babette, qui se frottait (l É
-les yeux, aurait cru qu'elle avait rêvé, si elle n'avait di f
+« Au petit jour, il partit, et la Babette, qui se frottait (l
+les yeux, aurait cru qu'elle avait rêvé, si elle n'avait di
 
 4 le rouet d'ivoire | bn bi,
 À des échalas, une chopine le soir, quand il‘avait rangé
@@ -969,26 +969,26 @@ nn ses bêtes. Ses mains tremblaient, ses yeux pleuraient,
 MA On lui aurait mis une mèche de chanvre dans la
 bouche, que ça aurait flambé comme un brülot. à à
 « — Femme, pour boire la goutte, je reviendrais de
-cent pieds sous la terre. » 4) 0
+cent pieds sous la terre. » 4)
 « Un jour, la Babette le trouva mort au fond de la |
 À grange, une bouteille d'eau-de-vie à demi entamée à. à
-1 côté de lui. : ÿ.
-| « On l'enterra et on n'y pensa plus. \: 34
+1 côté de lui.
+| « On l'enterra et on n'y pensa plus. \:
 « Elle avait bien du mal, la pauvre Babette, avec ses |
-vignes, ses prés, ses chènevières, et pas d'homme pour Î
+vignes, ses prés, ses chènevières, et pas d'homme pour
 les travailler. Vint une fameuse année où on récolta tant ‘
 de raisin, qu'on ne savait où le rentrer. Babette prit des
 gens de journée. Au pressurage, tout marcha bien. Mais
-quand il fallut cuire les marcs, Babette se désolait, car d
+quand il fallut cuire les marcs, Babette se désolait, car
 c'est de l'ouvrage trop difficultueux pour une femme. À
 : Elle essaya de les vendre, mais on ne lui offrait pas
-un bon prix, parce qu'on voulait profiter ‘de son 1
+un bon prix, parce qu'on voulait profiter ‘de son
 | « Tant et tant que son voisin, le Fan, Jui dit : |
 « — Vous désolez pas, Babette, je mettrai la cuite.
-en route, et vous ferez le reste, à vous seule. » AU 4
+en route, et vous ferez le reste, à vous seule. » AU
 | « Le feu ronflait, la goutte tombait du serpentin, et la (
 Babette, par une nuit d'hiver comme celle-ci, blottie |
-{ contre les pierres chaudes, jetait de temps en tempsune 4
+{ contre les pierres chaudes, jetait de temps en tempsune
 bûche dans le fourneau. Tl
 « Elle s'endormit à la longue, n'ayant pas l'habitude. à
 
@@ -1015,7 +1015,7 @@ _ Et quand il traversa la cour pour aller chercher du
 À bois dans le hangar, la vieille vit les étoiles qui |
 A luisaient à travers sa chemise, mince comme une toile
 
-“4 « La Babette demanda doucement : J
+“4 « La Babette demanda doucement
 
 4 « Il répondit d'une voix terrible : }
 4 « — Tu vois, je fais ton ouvrage! »
@@ -1025,7 +1025,7 @@ EL. « Par moments, il prenait l'épreuvette pour mesurer
 
 à le degré de la goutte. Tout marchait bien; il frottait ses ;
 ‘4 mains, qui faisaient un bruit d'os — et il buvait des lam1 pées de goutte chaude, en poussant des soupirs à fendre |
-A « Au petit jour, il partit, et la Babette, qui se frottait « é
+A « Au petit jour, il partit, et la Babette, qui se frottait «
 L les yeux, aurait cru qu'elle avait rêvé, si elle n'avait \
 
 | le rouet d'ivoire AU
@@ -1038,7 +1038,7 @@ des bruits qui viennent de très loin, portés sur la nappe
 
 | éclatante des neiges. Une branche chargée de verglas
 se casse et tombe avec fracas. J'écarquille mes yeux :
-lourds de sommeil : il me semble que je vais voir, moi J
+lourds de sommeil : il me semble que je vais voir, moi
 aussi, des apparitions, surgissant du fond de l'Invisible. "1
 Un rai de lune blanc glissant sur le mur paraît se
 mouvoir tout à coup, et fuir, comme une bête sur- #
@@ -1049,18 +1049,18 @@ Je tiens la chandelle haute, pour qu'il voie bien clair.
 
 Alors a lieu l'expérience qu'on renouvelle chaque année
 avec émotion. Un peu d'eau-de-vie est versée sur la tête
-brûlante de l'alambic, le liquide s'évapore doucement, L
+brûlante de l'alambic, le liquide s'évapore doucement,
 
 j et grand-père y met le feu.
 
 Une petite flamme bleue danse, comme une âme en
 
 Et grand-père dit, satisfait :
-« Le vin sera bon, la goutte sera bonne. » 1
-Puis il me tend le verre, et commande : l
+« Le vin sera bon, la goutte sera bonne. »
+Puis il me tend le verre, et commande
 « Trempe ta langue comme les chats. » À
 Il rit de ma grimace. ;
-Et la saveur poivrée descend en moi, chauffe mon 4
+Et la saveur poivrée descend en moi, chauffe mon
 * ventre, comme si dans la tête de cuivre rouge, dans le |
 serpentin bizarrement enroulé, grand-père distillait du
 
@@ -1088,22 +1088,22 @@ k. croix faites d'un entrelacement de chanvres-nus, frêle
 4 construction qu'un choc vient détruire.
 D. Grand-père fabrique un balai de bouleau. Mais grandhe mère a ouvert l'armoire aux arabesques de cuivre. Elle
 H. Il manque quelque chose à la fête, ce soir-là. Elle
-4 fouille les piles de linge amoncelé, les tiroirs. Un souffle F
+4 fouille les piles de linge amoncelé, les tiroirs. Un souffle
 43 1110
 
 1 le rouet d'ivoire FE #
 
-M s'exhale du vieux meuble, un souffle mêlé. à l'arôme 7
+M s'exhale du vieux meuble, un souffle mêlé. à l'arôme
 
 ; des pommes et des coings rangés sur les rayons. ‘1
 k Mais elle a trouvé! Triomphante, elle apporteun petit
 
-ÿ livre : c'est un cahier jauni, imprimé avec des têtes de N
-Û clous, le livre des noëls patois qu'on chantait dans sa 4
+ÿ livre : c'est un cahier jauni, imprimé avec des têtes de
+Û clous, le livre des noëls patois qu'on chantait dans sa
 K Elle lit et s'esclaffe toute seule. Elle veut chanter, et : à
 a tâtonne, cherchant les airs. Grand-père, qu'elle appelle « (ts
-#ù ‘aàla rescousse, a tout oublié, la musique et les paroles! 4
-ii Alors ils se regardent tristement. Le cahier reste R
+#ù ‘aàla rescousse, a tout oublié, la musique et les paroles!
+ii Alors ils se regardent tristement. Le cahier reste
 1 grand ouvert sur la table, incompris, inutile. À
 | « Un grand fleuve d'oubli enserre le monde », a dit le à
 l'eau de Pagney à
@@ -1111,12 +1111,12 @@ l'eau de Pagney à
 à de paille à rubans moirés où son visage disparaît
 
 f dans une ombre souriante. Elle a passé son bras dans |
-ou __ lanse de son panier et, serrant dans son poing le 1
+ou __ lanse de son panier et, serrant dans son poing le
 ‘# riflard de cotonnade bleue, dont les baleines sont ta
 4 grosses comme le pouce, elle se met en chemin, sans à
 ( Des gens qui la croisent, l'interpellent :
 
-{ — Vous vlà partie, Marguerite. É
+{ — Vous vlà partie, Marguerite.
 À Avenante, elle répond : |
 à — Tout de même! J'vas voir nos gens de Pagney.
 
@@ -1124,56 +1124,56 @@ ou __ lanse de son panier et, serrant dans son poing le 1
 à — Que le Seigneur Dieu vous entende. |
 d La route flamboie; pas un chuchotement ne s'éveille
 
-{ à la cime des peupliers. Parfois, grand-mère s'arrête et Ù
+{ à la cime des peupliers. Parfois, grand-mère s'arrête et
 
-1 _ colle à mes lèvres le goulot du cruchon de grès bleu, È
-; enveloppé d'un linge humide. Ù
-; Puis elle me fait des recommandations : j 12
-è — Faudra être bien honnête, mon p'tiot, ôter votre « 4 chapeau en entrant chez le monde, pour que tout chacun k
-voie que vous avez de l'esprit ! 344
-…. ‘ On traverse Toul. Des choses me déconcertent par É
-À leur nouveauté : les chalands trapus qui trempent dans 1
+1 _ colle à mes lèvres le goulot du cruchon de grès bleu,
+; enveloppé d'un linge humide.
+; Puis elle me fait des recommandations
+è — Faudra être bien honnête, mon p'tiot, ôter votre « 4 chapeau en entrant chez le monde, pour que tout chacun
+voie que vous avez de l'esprit !
+…. ‘ On traverse Toul. Des choses me déconcertent par
+À leur nouveauté : les chalands trapus qui trempent dans
 l'eau du canal le reflet de leur proue vermillonnée, et la :
 |: locomotive qui souflle, siffle, crache sa vapeur sur les |
 ; rails luisants, comme un cheval monstrueux aux mem-
 
 à Et voici qu'on a tourné la côte Saint-Michel.
 
-Ë A perte de vue, des collines fuient en ondulations Î
+Ë A perte de vue, des collines fuient en ondulations
 bleuâtres. Un ravissement s'empare de mes yeux, }
 À et pour la première fois, je connais l'immensité du .
 e Mais un clocher pointe parmi les arbres. 1 à
 Grand-nière s'arrête, le temps de soufller un peu, et # ;
-1 pose son panier sur la borne. : ÿ
+1 pose son panier sur la borne.
 ÿ Pauvre grand-mère ! à la vue du pays familier mur- ;
 | murent en son cœur d'ineffables choses anciennes. ,
-Une émotion plisse ses lèvres, plisse le coin de ses Û
-j yeux, où sont creusées tant de rides, et son trouble f
+Une émotion plisse ses lèvres, plisse le coin de ses
+j yeux, où sont creusées tant de rides, et son trouble
 É est si grand, qu'elle porte sa main à son front, éblouie, te
-et qu'elle tourne sur ses talons, cherchant le panier, É
+et qu'elle tourne sur ses talons, cherchant le panier,
 ; qui lui crève les yeux sur la borne. |
 « J'sais pus ce que j'fais : on devient si patraque ! » à
 À Elle s'abime dans une longue contemplation. |
 ÿ Oh! les bons arbres arrondissant leurs têtes dans les
 
-É vergers, et les belles vignes, plantées d'échalas blancs ! U
-; Oh! la fine odeur de mirabelle que le vent nous souffle 18
+É vergers, et les belles vignes, plantées d'échalas blancs !
+; Oh! la fine odeur de mirabelle que le vent nous souffle
 
 | À le rouet d'ivoire 14 À
-au visage. Le village dégringole la pente, cahin-caha, v
+au visage. Le village dégringole la pente, cahin-caha,
 : comme si le diable, dont on parle dans les fiaues,
 l'emportant dans sa hotte, l'avait vidée là, d'un seul A
 Moi, j'aime surtout les ruisseaux ! : |
 Ils frétillent le long des sentiers comme des lézards, ;
 ils glissent sur des lits d'herbes brillantes, ils éclabous- ”
 sent les pierres plates qu'on dresse debout pour séparer
-les pièces de vignes. Et l'ombre est délicieusement 4
+les pièces de vignes. Et l'ombre est délicieusement
 rafraîchie de leur clapotement.
 Mais grand-mère dompte son émotion, et se remet en
 Et c'est jusqu'au soir la visite des parents, et les
 conversations interminables où l'on parle des mariages,
 des morts, des récoltes qui promettent. « La vigne n'a |
-pas coulé, à sa floraison, mais les pommes de terre s
+pas coulé, à sa floraison, mais les pommes de terre
 2 embrunissent. » Et grand-mère, ragaillardie par l'odeur à
 du passé qui monte par la fenêtre ouverte, grand-mère
 parle avec volubilité, comme pour se rattraper, retrouvant sans efforts le patois de son pays. Elle dit « Abi bai, |
@@ -1195,43 +1195,43 @@ Ml les bourgmestres qu'on voit dans l'almanach de Stras- |
 Quelque arrière-grand-cousin, qui m'expliqua gravement nos liens de parenté.
 On apporta une bouteille de vin blanc, respectable
 | sous sa poussière. Les verres tintaient avec des sons
-flûtés d''harmonica, et le vieux chanta une chanson à 1
+flûtés d''harmonica, et le vieux chanta une chanson à
 boire du temps jadis, d'une voix chevrotante, au timbre -
 | fêlé, pareïl au tintement des verres de cristal. |
 J'avalai un grand verre; ma tête tournait. J'en avais
 | bu tant d'autres au cours de la journée! ,
 — C'est notre eau, la bonne eau de Pagney, qui :
-source de la côte! 6
+source de la côte!
 — Mâtin, elle est bonne. ;
 Il parlait sérieusement. La compagnie s'esclaffait. Je À.
 le croyais, comme on croit à cinq ans, de toutes les }
-forces de mon être. Maintenant encore, quand je revois g
+forces de mon être. Maintenant encore, quand je revois
 * ces ruisseaux lavant les pierres blanches, il me semble |
 que cette eau est une eau merveilleuse. ;
-Grand-père reçoit ses amis du voisinage. 3
-/ Il les accueille cérémonieusement, avec une politesse 14
--qui ne varie pas ses formes, qui fait partie des vieux ë
+Grand-père reçoit ses amis du voisinage.
+/ Il les accueille cérémonieusement, avec une politesse
+-qui ne varie pas ses formes, qui fait partie des vieux
 
 # le rouet d'ivoire 40700
-4 Quand il s'attable avec le pêcheur, un vieux per- 14
+Quand il s'attable avec le pêcheur, un vieux per-
 , clus de rhumatismes à force d'avoir travaillé dans À
 “ l'eau, il ne manquerait pas de choquer son verre et de
-4 dire &à votre santé » chaque fois qu'il boit. L'autre fait 4
-d de même, et s'il oubliait cette habitude, ils ne seraient 4
-A. pas contents, car s'ils aiment le bon vin, ils s'aiment ù
-ù encore mieux. 4
-D'autres fois se présentent les membres du conseil de j
+4 dire &à votre santé » chaque fois qu'il boit. L'autre fait
+d de même, et s'il oubliait cette habitude, ils ne seraient
+A. pas contents, car s'ils aiment le bon vin, ils s'aiment
+ù encore mieux.
+D'autres fois se présentent les membres du conseil de
 fabrique, car grand-père est marguillier de la paroisse. À
 ‘à Pénéfrés de l'importance de leurs fonctions, ils discutent |
 gravement les affaires de poids, comme la location des
 bancs à l'église ou l'achat du pain bénit, que la con- |
 | frérie des vignerons offre le jour de la Saint-Vincent. Et
-k grand-père, chaussant son nez de lunettes, prend un 4
+k grand-père, chaussant son nez de lunettes, prend un
 | porte-plume, qui pèse terriblement à ses gros doigts, et |
 | il écrit, ayant devant lui un encrier de faïence décoré
 ( de fleurs bleues, que j'ai conservé. Les craquelures en |
 sont semées d'une poussière émouvante de souvenirs. |
-4 Mais parmi tous les autres, c'est Fanfan qui reçoit le !
+Mais parmi tous les autres, c'est Fanfan qui reçoit le !
 + k Un homme riche, ce Fanfan, dont la maison crépie à ss
 204 la chaux avec sa large grange, est la plus belle de tout |
 (à le pays. Il a le teint rouge, avec de gros yeux à fleur de
@@ -1241,41 +1241,41 @@ sur la table, braiïlle à tue-tête les propos les plus ordi-
 ; naires, sur la pluie et le beau temps. Et quand un malin |
 À lui décoche une plaisanterie, il a toujours, comme on |
 fi dit, « la pièce pour boucher le trou ».
-ji | Il marche dans le vacarme que sa joie de vivre soun lève autour de lui. s
-4 On aime surtout entendre son approbation, son » oui
+ji | Il marche dans le vacarme que sa joie de vivre soun lève autour de lui.
+On aime surtout entendre son approbation, son » oui
 
-4 qu'il prononce « iau », en patois, et qui sous cette forme 1
+4 qu'il prononce « iau », en patois, et qui sous cette forme
 # claironne comme un chant de coq. as
-4 Avez-vous vu un coq lorrain sur son fumier ? Chez j ÿ
-‘4 nous ils chantent plus clair que dans les autres pays du 4
-4 monde. Il se dresse sur ses ergots, hérisse les plumes é
+Avez-vous vu un coq lorrain sur son fumier ? Chez
+‘4 nous ils chantent plus clair que dans les autres pays du
+4 monde. Il se dresse sur ses ergots, hérisse les plumes
 ‘28 de son cou, et battant des ailes, pousse un cocorico plus té
 À ‘éclatant que sa crête. ;
-4 Pareillement sonne le « iau » de Fanfan. 1
-M — Fanfan, nous allons boire un verre de vin gris? 4
-ÿ — Jau, mon homme. i
-% — Fanfan, le cochon est bon à tuer? x
+Pareillement sonne le « iau » de Fanfan.
+M — Fanfan, nous allons boire un verre de vin gris?
+ÿ — Jau, mon homme.
+% — Fanfan, le cochon est bon à tuer?
 nr” C'est que Fanfan est un homme heureux, et son ;
 À bonheur, comme c'est naturel chez les enfants et chez à
-k les simples, se manifeste par du bruit. Personne ne le 1
+k les simples, se manifeste par du bruit. Personne ne le
 e contredit, car il est important d'avoir derrière soi, pour ‘4
-4 étayer ses affirmations, du vin plein ses foudres et des : F
+4 étayer ses affirmations, du vin plein ses foudres et des
 p sacs de blé plein sa grange. É CA
-4 Il vient ordinairement trouver grand-père à la fin de ï
-N l'hiver, quand on a un moment de répit avant les gros 4
+Il vient ordinairement trouver grand-père à la fin de
+N l'hiver, quand on a un moment de répit avant les gros
 L. ouvrages. Alors une gaîté emplit la maison lorraine,
 jh une gaîté qui vient, du soleil éclaboussant les vitres, %
 R: recommençant sa promenade le long des murs. On a
 D. tué le cochon : la bête suspendue à une échelle montre “4
-he. son ventre béant d'une large estafilade; un filet de sang 4
-#4 coule de son groin et forme sur le plancher une petite 1
+he. son ventre béant d'une large estafilade; un filet de sang
+#4 coule de son groin et forme sur le plancher une petite
 Ne flaque qu'un chat lèche, à coup de langue précaution- À
-S. es deux compères causent devant le feu, où, sur les F
-£ charbons, rôtit une tranche de « grillade ». V? 4
+S. es deux compères causent devant le feu, où, sur les
+£ charbons, rôtit une tranche de « grillade ».
 (| nager les bonnes grâces de Fanfan. a
 
-no: le rouet d'ivoire 777
-Car Fanfan a une grande fille, qu'on appelle Louise, f
+no: le rouet d'ivoire
+Car Fanfan a une grande fille, qu'on appelle Louise,
 ù bien quelque obstacle venant de la différence de nos
 À âges, car elle a vingt ans et j'en ai six au plus; mais la |
 ï volonté d'un enfant ne s'embarrasse pas pour si peu. |
@@ -1321,8 +1321,8 @@ future femme.
 
 l'hôte muet
 
-4 Un soir, la porte resta entr'ouverte.
-4 Un visiteur mystérieux entra dans la maison. Il ne fit
+Un soir, la porte resta entr'ouverte.
+Un visiteur mystérieux entra dans la maison. Il ne fit
 1 pas de bruit, son pied ne heurta pas le seuil, son ombre
 | ne glissa pas parmi les ombres qui jouaient diaphanes
 sur les murs. Personne ne vit la couronne de verveine
@@ -1334,7 +1334,7 @@ si le feu calcinant ses murs avait abattu la charpente
 Ë Grand-mère mourut, la bonne grand-mère qui tirait
 des armoires les pommes crapies et roulait dans ses
 | mains la pâte dorée des micherons quand on chauffait
-le four. ë
+le four.
 : Il y a une telle surabondance de vie dans une âme
 | d'enfant que ce mot, la mort, n'a pas de sens pour lui.
 Tout au plus, une vague curiosité s'éveille ep lui et la
@@ -1349,83 +1349,83 @@ F Pourtant la douleur des vivants frappe l'enfant, parce
 4 qu'elle est réelle, et qu'elle n'échappe pas à la divina- ä
 ; tion de sa sensibilité délicate. À
 
-4 Grand-père se tenait devant lâtre, assis àla petitetable #4
+Grand-père se tenait devant lâtre, assis àla petitetable #4
 fl où il buvait la goutte tous les matins. Pas de protes- |:
 ! tations, pas un cri de révolte : ces simples natures de
-paysans, peu démonstratives, ont puisé une force de ré- F
-signation infinie dans leur lutte contre la terre, contre É
+paysans, peu démonstratives, ont puisé une force de ré-
+signation infinie dans leur lutte contre la terre, contre
 | les intempéries du ciel. » à
 # Il avait l'air d'un étranger dans sa maison, et cela
-était plus triste que tout le reste. Des femmes mar- 4
-chaïient dans la chambre, ouvraicnt les armoires, re- 4
+était plus triste que tout le reste. Des femmes mar-
+chaïient dans la chambre, ouvraicnt les armoires, re-
 ; tournaient les piles de linge. Elles s'impatientaient: —
 grand-père répondait à leurs questions d'une voix loin-
 | laine, comme si ces soins ne le regardaient pas, comme ‘4
 s'ils étaient encore le privilège de celle qui était partie. « | Dans la chambre voisine, une forme s'allongeait sous
-le drap, déjà lointaine. Un brin de buis trempait dans 4
+le drap, déjà lointaine. Un brin de buis trempait dans
 un verre d'eau, et les visiteurs, qui veillaient la morte, }
 À parlaient bas, marchaïient à pas lents, et la maison fi
 “ . semblait pleine d'une invisible présence. \
-Grand-père dit ces simples mots, regardant d'un air î
-1 tout songeur le bois de la petite table, où les verres k
+Grand-père dit ces simples mots, regardant d'un air
+1 tout songeur le bois de la petite table, où les verres
 | ont laissé des empreintes : à
 Kai — C'est le premier chagrin qu'elle me cause. ul
 Puis il courbe le dos, sous une résignation. |
 V Depuis la mort de grand-mère, il est devenu tout :
-n drôle : il ne sanglote pas, il ne s'enferme pas dans une Û
-À chambre. Comme par le passé, il va tailler ses ceps, 1
+n drôle : il ne sanglote pas, il ne s'enferme pas dans une
+À chambre. Comme par le passé, il va tailler ses ceps,
 4 bêcher la vigne, fauciller son champ d'orge. Seulement
 ie le cœur n'y est plus; la façon dont il accomplit ces
 L actes trahit, par sa précision même, une pensée
 
 __ absente. Il ne sait pas, il serait bien en peine d'expli- \
-4 quer la chose : il dit seulement, quand on le secoue : 1
+4 quer la chose : il dit seulement, quand on le secoue
 { « C'est plus fort que moi. » Mais quand il voit la table #
 ! avec la place vide, quand il trouve au jardin une herbe à
-À que grand-mère a plantée, il a un hochement de tête, ë
-4 un regard de côté, un silence terriblement significatif. 4
-À Des fois, il se trompe: ses idées se brouillent, il parle k
+À que grand-mère a plantée, il a un hochement de tête,
+4 un regard de côté, un silence terriblement significatif.
+À Des fois, il se trompe: ses idées se brouillent, il parle
 À de sa femme comme si elle était vivante. je
 Puis il se met à parler de sa fin prochaine, comme À
 | d'une chose nécessaire, attendue, et qui le laisse tout à ;
-E fait indifférent. 0
-; Il regarde sa veste de futaine, qu'on a reprisée large- 1
+E fait indifférent.
+; Il regarde sa veste de futaine, qu'on a reprisée large-
 
 ment, et il dit : À
 ; — Pas la peine ! Je serai usé avant elle. T'ES À
 à Les misères de la vie, la pluie d'orage, les nuits de }
-_ gel ne lui arrachent plus un cri de révolte. Il a accepté ÿ
+_ gel ne lui arrachent plus un cri de révolte. Il a accepté
 } tout passivement ; il a changé; c'est presque avec un |
 À accent d'égoïsme qu'il répète : :
 D Et toujours ce refrain désolé, qui revient comme une à
 obsession : ne
-1 — Je ne recommencerais pas l'existence pour une pipe M
-J lui raconter les histoires qu'il aimait autrefois, il vous 5
+1 — Je ne recommencerais pas l'existence pour une pipe
+J lui raconter les histoires qu'il aimait autrefois, il vous
 : regarde fixement, hébété, et on ne sait s'il va se fâcher ;
 . ou bien rire. ji
 ny Du reste, aucune peur de la mort. Il l'envisage avec CR
-1 fermeté, lui trouvant plutôt la physionomie souriante. 1
-| Et cela aussi est triste quand on y songe : il faut que L
+1 fermeté, lui trouvant plutôt la physionomie souriante.
+| Et cela aussi est triste quand on y songe : il faut que
 
 le rouet d'ivoire Le:
 
 l'existence ait été bien dure au pauvre vieux, pour Ne.
-qu'il accepte d'en sortir avec une résignation si mépri- 4
+qu'il accepte d'en sortir avec une résignation si mépri-
 
 Plus tard, dans la vie, on la retrouvera, cette crainte £
-de la mort, chez les riches, chez les heureux, chez ceux 4
+de la mort, chez les riches, chez les heureux, chez ceux
 qui ont les jouissances de la vie pour les rattacher au |
 
 monde. Elle se montrera dans leurs moindres gestes, ;
 
-dans leurs paroles, dans leurs silences, quand ils de- 1
+dans leurs paroles, dans leurs silences, quand ils de-
 viendront vieux, quand ils feront en eux-mêmes et à
-chaque instant le compte de leurs années qui leur J
+chaque instant le compte de leurs années qui leur
 restent, quand les menus objets qu'ils manient, les
 
 "pièces d'argenterie massive, les brimborions en or leur \
-rappelleront du même coup la puissance de leur luxe et 4
-l'effort de quitter ces richesses. 4
+rappelleront du même coup la puissance de leur luxe et
+l'effort de quitter ces richesses.
 
 Grand-père n'a rien dans les mains, rien que sa petite
 pipe, noire de cendre. fl
@@ -1434,7 +1434,7 @@ Tout le monde sait qu'il mourra, parce qu'il veut se \
 ‘ Aussi l'événement n'a-t-il surpris personne.
 
 Un soir, il est rentré, ayant pris froid dans sa vigne
-qu'il taillait. Il se coucha, avec l'idée bien nette que F
+qu'il taillait. Il se coucha, avec l'idée bien nette que
 c'était fini. On alla chercher le médecin, mais grand- |
 père haussa les épaules; et tourna le nez dans la ruelle, : |
 faisant semblant de dormir.
@@ -1452,7 +1452,7 @@ férocement les meurtris. \
 
 s Il fallut vendre la maison.
 Elle passa entre la main d'un entrepreneur, qui y
-amena une cohue de charretiers et d'attelages. La roue k
+amena une cohue de charretiers et d'attelages. La roue
 _ massive des tombereaux écornait l'angle du mur, et les
 souliers ferrés des terrassiers éraflaient les planchers
 de sapin, lavés à grande eau et semés de sable fin au
@@ -1461,7 +1461,7 @@ Et la pauvre maison s'effarait devant ce tumulte de
 gens qu'elle ne connaissait pas.
 Puis l'entrepreneur partit et la ferma.
 Alors elle prit un air de stupeur lamentable, avec sa
-façade dont le crépi s'écaillait et son toit qui s'en allait f
+façade dont le crépi s'écaillait et son toit qui s'en allait
 chaque jour.
 Et le cœur de la maison cessa de palpiter, le cœur vibrant, énervé, qui s'élargissait pour nous contenir tous *
 à mesure que des enfants naïssaient, ce cœur dont,
@@ -1471,45 +1471,45 @@ murs en flot puissant de vie, de beaux rires frais, des
 J'ai franchi le seuil, depuis, quelquefois.
 Des mains mystérieuses, se posant sur mon épaule,
 me faisaient frissonner. Chacun de mes pas, sonnant !
-sur la terre battue des corridors, soulevait des tourbil- ÿ
+sur la terre battue des corridors, soulevait des tourbil-
 la joie
 Je suis bien, je suis dans la vie.
 Elle m'environne comme un fleuve, précipitant ses
 remous où tournoient les couleurs, les clartés et les |
-sons. Comme l'eau rejaillit en gouttelettes sous les j
+sons. Comme l'eau rejaillit en gouttelettes sous les
 mains du nageur, il me semble que chacun de mes
 
-10 le rouet d'ivoire OUR K
-l: mouvements soulève dans le monde des houles innom- à k
-à brables' de joie. Cet univers harmonieux, roulant sur È
+10 le rouet d'ivoire OUR
+l: mouvements soulève dans le monde des houles innom- à
+à brables' de joie. Cet univers harmonieux, roulant sur
 Ÿ son axe d'or, monte dans la clarté ou sombre dans les
 
 ÿ ténèbres, suivant le rythme alterné du jouret dela nuit.
 p L'air se peuple de figures mystérieuses que les sens E-
 , grossiers de l'homme ne perçoivent pas. .
-il Il tient dans quatre arpents de terre, cet immense 4
+il Il tient dans quatre arpents de terre, cet immense
 | univers. Le bois de sapins, qui dresse sur la côte sa (a
-\ masse noire, est une région inexplorée, une Cimmérie K
-| où rôdent des apparitions. Pourtant il déconcerte nos 4
+\ masse noire, est une région inexplorée, une Cimmérie
+| où rôdent des apparitions. Pourtant il déconcerte nos
 ' pas par l'ampleur de ses proportions; il enferme des #
-! clartés insondables, qui depuis se sont éteintes. 24
-4 C'est que nous vivons, comme les enfants, au ras de D.
-‘à Rien de trivial : aucune chose n'est inerte. Le cail- s
-| lou du chemin avec ses veines bigarrées, le casson 4
+! clartés insondables, qui depuis se sont éteintes.
+C'est que nous vivons, comme les enfants, au ras de
+‘à Rien de trivial : aucune chose n'est inerte. Le cail-
+| lou du chemin avec ses veines bigarrées, le casson
 ! de vaisselle, qui luit là-bas, comme un soleil, tombé ‘à
 parmi les mauves, le morceau de ferraille arraché à un “4
 k tombereau, recèlentdes profondeurs d'amusement. Tant
-i de vie est en nous, qu'elle se,communique aux moindres x
+i de vie est en nous, qu'elle se,communique aux moindres
 À objets par la vertu de notre attouchement.
 À | Elle est bonne, la terre. Jamais elle ne nous prodiguera |
-3 . avec plus d'effusion sa tendresse maternelle! Elle étend 4
-pe ses flancs que le soleil réchauffe, et dont la tiédeur 4
+3 . avec plus d'effusion sa tendresse maternelle! Elle étend
+pe ses flancs que le soleil réchauffe, et dont la tiédeur
 À pénètre nos membres quand nous nous roulons sur elle. \
 Ë Tout le monde des infiniment petits s'agite dans l'herbe |
 Qi haute, le monde bruissant qui nous épouvante et nous
 
 1 ravit. La poussière chaude coule sur nos mains, comme …
-© une eau. Une coccinelle monte le long d'un brin de l
+© une eau. Une coccinelle monte le long d'un brin de
 ‘à chaume, soulève ses élytres, déploie des aïles de gaze
 \t fripée, et s'envole. Nous ramassons les graines rondes
 
@@ -1518,34 +1518,34 @@ Qi haute, le monde bruissant qui nous épouvante et nous
 . leur forme, et cueillant les fleurs molles de rosée, nous A
 -  perçons la corolle d'un trou pour en sucer le miel. ne,
 ; Puis l'enfant se hausse, sa taille grandit : alors ses {}
-4 _ yeux n'aperçoivent plus le bruissement de la vie, qui ÿ
-G court au ras du sol, et la souffrance vient à mesure qu'il L
-| se détache de la terre. 1
-| Tout le secret du bonheur conservé dans l'enfance É.
+4 _ yeux n'aperçoivent plus le bruissement de la vie, qui
+G court au ras du sol, et la souffrance vient à mesure qu'il
+| se détache de la terre.
+| Tout le secret du bonheur conservé dans l'enfance
 réside dans cette entente harmonieuse avec les choses. &
 \ Quand je songe à ces premières années, un flot de Fr:
-à aussi sur le sort des enfants qui marchent dans les rues 1
-des villes, escortés d'une domestique, avec des airs 1,
-raisonnables de petits hommes. 4
-Il était doux d'avoir autour de soi, avec la liberté, la b
+à aussi sur le sort des enfants qui marchent dans les rues
+des villes, escortés d'une domestique, avec des airs
+raisonnables de petits hommes.
+Il était doux d'avoir autour de soi, avec la liberté, la
 } vie bruyante d'un village. Il était bon de porter ses à
 mains sur de vieilles choses usées au contact des 71100
-hommes et qui avaient pris dans ce commerce une r
-À douceur singulière. Les cours où poussaient des fourrés 4
+hommes et qui avaient pris dans ce commerce une
+À douceur singulière. Les cours où poussaient des fourrés
 | d'orties étaient encombrées d'un désarroi detombereaux, #4
 À de herses, de charrues mises au rancart, et ces débris #
-se prêtaient docilement à nos yeux, avec des complai- 4
-sances de vieux qui entrent dans une ronde d'enfants É
-et dansent sur leurs genoux qui flageolent. 1
+se prêtaient docilement à nos yeux, avec des complai-
+sances de vieux qui entrent dans une ronde d'enfants
+et dansent sur leurs genoux qui flageolent.
 | Soyez bénies, vieilles auges de pierre fendues où le Fe
 | bétail ne venait plus boire, où l'on se couchaït, les .
 3 membres pénétrés de votre tiédeur! soyez bénis, cha- kr.
 | riots délabrés, dont les chaînes nous balançaient +4
 | doucement! soyez bénis, vieux puits à la margelle
-| creusée par le frottement des cordes, qui conteniez 4
+| creusée par le frottement des cordes, qui conteniez
 le ciel immense ! ‘274
 ‘ Toutes ces vieilleries, qui nous aimaient, s'accroupis- ÈS
-saient docilement pour faciliter nos jeux, semblables à ï
+saient docilement pour faciliter nos jeux, semblables à
 
 | le rouet d'ivoire
 des monstres, qui flattés par une main d'enfant, pous- |
@@ -1584,7 +1584,7 @@ obstruent les fenêtres. Seule, une rosace de vitrail surje monte la porte d'ent
 ) bon Dieu voulait le dédommager. |
 ) Au mois de Marie, l'église s'emplit de mystiques
 il clartés.
-k Une ombre épaisse flotte dans le chœur, et le curé 1
+k Une ombre épaisse flotte dans le chœur, et le curé
 y passe devant l'autel, silencieux et blanc, comme une
 | Alors il lit longuement des récits qui font passer dans
 nos âmes le frisson de l'enfer. Il dit l'histoire du Juif
@@ -1600,21 +1600,21 @@ Toussaint jette dans la nuit ses lamentations de cloches,
 | î et Pâques fleuries mêle au parfum de l'encens l'odeur
 des buis amers.
 ( Sœur Stanislas garde le troupeau des petites filles.
-* Une face de cire, effrayante de rigidité sous sa cor- 4
-nette. À la messe basse, quand sœur Stanislas a com- l
+* Une face de cire, effrayante de rigidité sous sa cor-
+nette. À la messe basse, quand sœur Stanislas a com-
 
 D le rouet d'ivoire :  * ONE
 D: munié, un frémissement de ferveur court le long de son
 ‘4 échine; elle baisse son voile noir pour mieux conserver 1]
 | les délices qui l'inondent, et on ne voit plus que ses
-40 Elle fronce les sourcils, quand un garçon remue sur ‘4
+Elle fronce les sourcils, quand un garçon remue sur ‘4
 ‘4 Terrible est sœur Stanislas, statue de la dévotion,
 14 dont le profil se détache, très blane, sur le vitrail, àla *
 VA messe basse du matin, tandis que le curé chuchote, que à
 HE la sonnette éparpille son tintement, tandis que le jour
 1 frôle la vitre de son aile blanche de givre. à:
-| 1 Nous avions construit, Simone et moi, une petite 14
-1 baraque avec des maches de sarments et des planches 1
+| 1 Nous avions construit, Simone et moi, une petite
+1 baraque avec des maches de sarments et des planches
 ‘à de tombereaux, et, blottis dans ce refuge, nous regar4h dions la rue, le soleil miroitant sur les socs et les poules
 hi. que le vent ébouriffait. 9 À
 
@@ -1638,36 +1638,35 @@ ni “ Pendant huit jours, je vécus le cœur torturé, épiant y
 10 les allées et venues de la vieille, attendant une inter- |
 
 Il fallut comparaître devant sœur Stanislas. he
-| Penchée sur sa table, elle repassait un napperon 4
-.  d'autel. Parfois elle approchaït le fer de sa joue pâle, | 14
-D: puis l''appuyait de nouveau sur le linge qui fumait, et 1
+| Penchée sur sa table, elle repassait un napperon
+.  d'autel. Parfois elle approchaït le fer de sa joue pâle,
+D: puis l''appuyait de nouveau sur le linge qui fumait, et
 \ son profil se détachait sur le carreau verdi par l'humi- dr
-* dité montant des terres. h
-| \ Elle ne parlait pas, toute à sa besogne, prolongeant M
-mon anxiété. L L 10
+* dité montant des terres.
+| \ Elle ne parlait pas, toute à sa besogne, prolongeant
+mon anxiété.
 fs Enfin elle dit d'une voix blanche, sans que sa lèvre < :
-| — Vous avez embrassé Simone ! 4
+| — Vous avez embrassé Simone !
 
 — Ty possible, ma chère sœur ? c'est elle qui a com- À
 
 — Mauvaise raison. L'Annette vous a vus. | ‘4
 
-; Ma main levée esquissa dans l'air le: serment : : 1
-K « Boule de gomme, boule de fer, si jen ai menti, que 1
+; Ma main levée esquissa dans l'air le: serment :
+K « Boule de gomme, boule de fer, si jen ai menti, que
 Mais déjà la sœur cassait net dans ma bouche la pro- ‘4
 testation, me jetant un brutal : ie
 
 | Je sanglotai, éperdument, épongeant mes larmes avec ‘t
-ma casquette. | ï
-| — Péché mortel, péché mortel! 3
+ma casquette.
+| — Péché mortel, péché mortel!
 ! Elle me souffletait de son anathème: Péché mortel; je nr.
 | ne comprenais pas bien, mais j'étais d'autant plus ter- a
 rifié. Pressentant mon ignorance, sœur Stanislas À
-4 m'expliqua que javais « l'âme toute noire » et qu'une « 3
+4 m'expliqua que javais « l'âme toute noire » et qu'une «
 4 bonne confession la lessiverait. : bu
 | ‘Pour cela il fallait attendre que jaie lâge de ‘Ni
-1 GI le rouet d'ivoire. — 4 À
-| | 0
+GI le rouet d'ivoire. — 4 À
 
 EE ses ges ar: g res A |
 
@@ -1676,7 +1675,7 @@ Souvent, jouant à la marelle, je m'arrêtais le pieden :
 ! l'air, fou de terreur en songeant que j'avais l'âme toute
 noire et que « Ça se voyait ». >
 | La vendange sur les coteaux mosellans a la beauté
-po, d'une fête antique. 4
+po, d'une fête antique.
 Par les chemins s'avance le Silène pansu, à califourchon sur son âne qu'il fouette d'un pampre. Des enfants
 | barbouillés grimpent derrière les cuvelles pour voler du
 raisin. Au coin d'un pré, un vigneron foule les grappes,
@@ -1704,33 +1703,33 @@ Des cuves débondées coule le flot boueux, qu'on tamise "
 _ dans des paniers d'osier, pour faire le vin gris. Et le
 | moût sucré poisse les mains, barbouille les faces, répand
 au fond des logis une odeur vineuse.
-1 Ma mère allait et venait autour de l'âtre en feu, soulevant le couvercle des marmites, goûtant les sauces.
+Ma mère allait et venait autour de l'âtre en feu, soulevant le couvercle des marmites, goûtant les sauces.
 | Toute une affaire, de nourrir une armée de vendan-
-| geuses et de porteurs, les porteurs surtout qui ont h
+| geuses et de porteurs, les porteurs surtout qui ont
 bon appétit, car le tendelin pèse lourdement aux
-— Entrez, dit ma mère. 1
+— Entrez, dit ma mère.
 La porte s'ouvrit sur un reste de jour traînant dans .
 la rue, et une longue silhouette s'encadra dans ce carré
 — Y a-t-il besoin de travailleurs dans cette maison ?
 demanda la voix.
 Ma mère répondit : « Nous avons tout not' monde. »
 | Alors l'homme poussa un soupir contenu, une sorte à
-Ma mère était bonne. Un obscur instinct de sympathie 'attachait aux chiens errants, aux bêtes brutalisées, f:
+Ma mère était bonne. Un obscur instinct de sympathie 'attachait aux chiens errants, aux bêtes brutalisées,
 aux miséreux qui vont de porte en porte, un bissac sur « le dos, murmurant des paroles humbles. Elle se ravisa: ‘!
 — Entrez toujours ; on verra à s'arranger. |
 L'homme prit une chaise, et s'installa près de la porte |
-:  entr'ouverte, comme s'il n'osait pas pénétrer plus avant. k
+:  entr'ouverte, comme s'il n'osait pas pénétrer plus avant.
 Une langue d'or jaillit, léchant les ételles amoncelées ue
-dans l'âtre ; une clarté dansa sur les murs, et l'étranger d
+dans l'âtre ; une clarté dansa sur les murs, et l'étranger
 cligna les yeux, recevant les reflets en plein visage. |
 
 ik le rouet d'ivoire PTIT
 
-1 Alors on le vit mieux. ÿ br:
+Alors on le vit mieux. ÿ br:
 
 Il n'était pas vêtu comme les travailleurs des champs. Ne
 
-| Une jaquette élimée enveloppait son corps maigre; son 1
+| Une jaquette élimée enveloppait son corps maigre; son
 
 ur cou s'allongeait, avec la pomme d'Adam très sailk
 
@@ -1739,20 +1738,20 @@ ur cou s'allongeait, avec la pomme d'Adam très sailk
 blait à un faux-col. Il avait à ses pieds des bottines (
 
 À On eût dit un employé de la ville. Toute sa personne #4
-exhalaït une misère décente qui vous serrait le cœur. i
+exhalaït une misère décente qui vous serrait le cœur.
 
 | — D'où venez-vous ? demanda ma mère.
 
 L'homme eut un geste las : — De là-bas. |
 — Des pays annexés”? +
-— Plus loin, de l'Allemagne. D
+— Plus loin, de l'Allemagne.
 
 | Il parlait avec un son de voix rauque et guttural; il
 cherchait ses mots, comme si notre langage ne lui était |
 pas familier.
 
 Avec bien des difficultés, il expliqua qu'il exerçait
-la profession de sculpteur, dans une petite ville d'Alle- 4
+la profession de sculpteur, dans une petite ville d'Alle-
 magne. Le père étant mort, laissant les enfants dans À
 
 1 la misère, toute la famille s'était dispersée. Lui s'en |
@@ -1762,42 +1761,42 @@ Il disait ce mot, « son art », avec une sorte d'orgueil #
 et d'exaltation qui nous frappa. |
 Chemin faisant, comme il n'était pas riche, il avait "1
 « songé à travailler dans les fermes pour gagner un peu
-d'argent. Les froids d'hiver approchaïent. Ii grelottait S
-sous son mince vêtement, et Paris, qui l'attirait, lui faisait peur. Û
+d'argent. Les froids d'hiver approchaïent. Ii grelottait
+sous son mince vêtement, et Paris, qui l'attirait, lui faisait peur.
 Il insistait pour qu'on l'engageät avec les autres travailleurs : il pourrait porter une hotte de raisin, tout ;
 comme un autre. |
 Ma mère eut un sourire imperceptible, en considérant À
 
-1 ses épaules menues, sa haute taille qni ployait, ses vé- d.
-; tements décents et misérables. 4
-: — Restez toujours, on verra à s'arranger. 51
+1 ses épaules menues, sa haute taille qni ployait, ses vé-
+; tements décents et misérables.
+: — Restez toujours, on verra à s'arranger.
 : Mais un bruit joyeux retentit. La bande des vendan- Fe
-geurs rentrait, heureux du repos et de la journée faite. 4
+geurs rentrait, heureux du repos et de la journée faite.
 \ Les femmes posaient avec précaution sur la crédence &
 | _ les paniers contenant le démel, les belles grappes noires KA
 1 et bleues qu'on étale pour les conserver sur la paille
 des greniers. Les hommes, ayant passé leurs mains |
-dans la flamme claire pour se réchauffer les doigts, U
-| allaient faire un tour dans la bougerie pour voir si la 4
+dans la flamme claire pour se réchauffer les doigts,
+| allaient faire un tour dans la bougerie pour voir si la
 La table fut mise en un clin d'œil. ne
 Une fumée odorante sortait de la soupière et montait ;
 | en fine vapeur autour de la lampe de cuivre. Les pommes "4
 de terre farineuses croulaient dans un grand plat, autour |
 | d'un morceau de lard qui tremblotait. $
-] Les cuillers râclaient le fond des assiettes. Les mains d
-s'allongeant saisissaient les tranches de pain bis, qu'un 1
+] Les cuillers râclaient le fond des assiettes. Les mains
+s'allongeant saisissaient les tranches de pain bis, qu'un
 gaillard taillait à tour de bras dans la miche. ‘0
 M Faites comme nous, dit ma mère à l'étranger. |
-Il s'approcha, hésitant, inquiet, sous les regards qui 1
-l'observaient. Mais quand il eut mangé une bouchée, il f
-; ne se contint plus, et il se mit à dévorer, comme une bête. * L
+Il s'approcha, hésitant, inquiet, sous les regards qui
+l'observaient. Mais quand il eut mangé une bouchée, il
+; ne se contint plus, et il se mit à dévorer, comme une bête.
 1 robée sur l'assistance, honteux de son appétit.
 Ma mère trouva un mot pour l'excuser : ;
-— C'est si dur de pâtir, quand on est jeune. 4
-à Il comprit, et son œil prit cette expression de douceur { 1
+— C'est si dur de pâtir, quand on est jeune.
+à Il comprit, et son œil prit cette expression de douceur {
 6 intelligente, qu'on trouve dans les yeux des chiens er- } À
-ÿ rants que l'on caresse. j.
-65 le rouet d'ivoire. — 4. 1
+ÿ rants que l'on caresse.
+65 le rouet d'ivoire.
 
 x le rouet d'ivoire |
 vi Après le souper, on faisait ordinairement un grand |
@@ -1831,7 +1830,7 @@ Avec un luxe de détails que sa prononciation rendait
 comique, il nous décrivit un monument qu'ils avaient
 
 | élevé sur la tombe du mort, lui et ses frères : une coFi lonne funéraire portant à son sommet un genius qui
-tenait une torche. ÿ
+tenait une torche.
 ‘M Il prononçait Genious à la manière allemande. \
 Ü Puis il saisit un long carnet qui se trouvait dans une
 ÿ poche de sa jaquette et l'entr'ouvrit.
@@ -1850,7 +1849,7 @@ la patte levée, le nez au vent!
 \ Les porteurs se récréaient. — Avec cette mobilité
 | d'impression particulière aux simples, ils admiraient |
 l'homme maintenant, malgré la jaquette mince et les
-bottines éculées. Et les vendangeuses ébouriffées à qui d
+bottines éculées. Et les vendangeuses ébouriffées à qui
 il avait promis qu'il dessinerait leur portrait, ne riaient
 plus.
 É L'homme glissa son carnet dans sa poche, simple-
@@ -1890,7 +1889,7 @@ L'homme eut encore son regard, de bête reconnaissante. Dès lors une grande ami
 } creux de la haie, écrasaient sur leurs pouces le lard
 | savonneux, ou joyeusement cassaient des noix, Karl me
 
-“ prenait à l'écart. Assis sur le talus de la route, dans :54
+“ prenait à l'écart. Assis sur le talus de la route, dans
 l'ombre courte d'un chariot, enveloppés des essaims |
 bourdonnants de guèpes que l'odeur sucrée attirait, il k |
 commençait son enseignement. |
@@ -1899,9 +1898,9 @@ s blanche ! On fait ce qu'on voit, ça n'est pas difficile. On WE
 regarde bien, comme ça, en fermant à demi les yeux ‘il
 Mystérieux enchaînement de l'Art! La vie naissait ‘
 sur ce papier, courait, frémissait, animant soudain sa Fr
-F blancheur d'un bruissement d'images. Sous ces doigts M.
-ensorcelés des formes s'ébauchaient, qui, sé précisant 1!
-peu à peu, gardaient pourtant dans leurs contours 4.
+F blancheur d'un bruissement d'images. Sous ces doigts
+ensorcelés des formes s'ébauchaient, qui, sé précisant
+peu à peu, gardaient pourtant dans leurs contours
 quelque chose de son indécision, de son perpétuel ë il
 devenir. — Tantôt il dessinait un porteur de tendelins ‘4 |
 qui descendait la côte, pliant à demi sous le faix, les LA]
@@ -1909,14 +1908,14 @@ jambes écartées pour mieux se tenir d'aplomb, les #4
 semelles solidement implantées dans la terre croulante ï |
 des sentiers; Lantôt il croquait la silhouette d'un saule,
 planté au bord de l'eau, immobile et rêvent, tout pareil à
-à un vieux, avec sa tête grise 14
+à un vieux, avec sa tête grise
 Et des pampres couraient sur les bords du papier, des jh!
-pampres flexibles, chargés de feuilles et de grappes, à 1
+pampres flexibles, chargés de feuilles et de grappes, à
 pareils aux couronnes que les vendangeurs portaient, É |
 marchant derrière les chariots ‘à
-Aujourd'hui encore, il reste gravé dans ma mémoire, È i
+Aujourd'hui encore, il reste gravé dans ma mémoire,
 l'enseignement du vagabond nn:
-Au-dessus des disputes d'écoles, des dissertations 4h
+Au-dessus des disputes d'écoles, des dissertations
 d'esthétiques, au-dessus du fatras poussiéreux que a
 remuent les vaines dialectiques, il plane, haut et He
 I clair, comme le chant de la grive à la cime d'un peu- { }
@@ -1933,11 +1932,11 @@ p: automnal. Leurs jupes trempées collaient sur leurs
 cuisses. Et Karl, il nous l'avait dit, son nom, vêtu d'une
 a grande blouse de toile que mon père lui avait prêtée,
 
-l l'estomac lesté d'une grande tasse de café au lait, Karl L
+l l'estomac lesté d'une grande tasse de café au lait, Karl
 Qi , riait et promenait un regard attendri sur la beauté des |
 Par moments, il clignait des yeux, pour mieux voir, ;
 fl comme font les peintres. (Fa
-4 Le premier tendelin rempli, il voulut le porter, on lui
+Le premier tendelin rempli, il voulut le porter, on lui
 leva la lourde hotte de bois, emplie de grappes, et
 quand il eut passé les bretelles, il resta cloué sur place, |
 lé comme si ses chaussures s'étaient soudain collées à la
@@ -1948,75 +1947,75 @@ lé comme si ses chaussures s'étaient soudain collées à la
 
 1 tait là, tout penaud, ma mère qui s'était approchée, lui
 
-dit tout bas : ÿ
+dit tout bas
 Bi. — Prenez un panier et une serpette, et vendangez.
-1 Puis elle ajouta : « On vous paiera comme les por-
+Puis elle ajouta : « On vous paiera comme les por-
 
 à L'homme eut encore son regard, de bête reconnais- 1 …
 1 sante. Dès lors une grande amitié se noua entre nous, .
 | qui dura toute cette vendange. À l'heure du repas de ‘
 4 midi ou du marander, quand les vendangeurs, assis au |
-14 creux de la haie, écrasaient sur leurs pouces le lard 18
+14 creux de la haie, écrasaient sur leurs pouces le lard
 : savonneux, Où joyeusement cassaient des noix, Karl me
 
 prenait à l'écart. Assis sur le talus de la route, dans ne
 _ l'ombre courte d'un chariot, enveloppés des essaims Fi
 _ bourdonnants de guëpes que l'odeur sucrée attirai, il NE
-| commençait son enseignement. à j
-_  — Tu vois, petit, on prend un crayon et une feuille 1
+| commençait son enseignement. à
+_  — Tu vois, petit, on prend un crayon et une feuille
 _ blanche ! On fait ce qu'on voit, ça n'est pas difficile. On À
 regarde bien, comme ça, en fermant à demi les yeux. À
 Mystérieux enchaînement de l'Art! La vie naissait *
 
 | sur ce papier, courait, frémissait, animant soudain sa
-blancheur d'un bruissement d'images. Sous ces doigts 1
+blancheur d'un bruissement d'images. Sous ces doigts
 ensorcelés des formes s'ébauchaient, qui, sé précisant ht
 _ peu à peu, gardaient pourtant dans leurs contours Ka)
 _ quelque chose de son indécision, de son perpétuel à
-devenir. — Tantôt il dessinait un porteur de tendelins 4
-qui descendait la côte, pliant à demi sous le faix, les 1
+devenir. — Tantôt il dessinait un porteur de tendelins
+qui descendait la côte, pliant à demi sous le faix, les
 jambes écartées pour mieux se tenir d'aplomb, les nu
 
-_ semelles solidement implantées dans la terre croulante 14
-| des sentiers; tantôt il croquait la silhouette d'un saule, 11
+_ semelles solidement implantées dans la terre croulante
+| des sentiers; tantôt il croquait la silhouette d'un saule,
 | planté au bord de l'eau, immobile et rêvant, tout pareil . #4
-_ à un vieux, avec sa tête grise. 1
+_ à un vieux, avec sa tête grise.
 Et des pampres couraient sur les bords du papier, des te
 _ pampres flexibles, chargés de feuilles et de grappes, DA
 pareils aux couronnes que les vendangeurs portaient, %
-_ marchant derrière les chariots. i 108
+_ marchant derrière les chariots.
 ; Aujourd'hui encore, il reste gravé dans ma mémoire, \f
-_ l'enseignement du vagabond. 40
+_ l'enseignement du vagabond.
 L Au-dessus des disputes d'écoles, des dissertations fi
-d'esthétiques, au-dessus du fatras poussiéreux que 14
-remuent les vaines dialectiques, il plane, haut et 00
-clair, comme le chant de la grive à la cime d'un peu- % ï
+d'esthétiques, au-dessus du fatras poussiéreux que
+remuent les vaines dialectiques, il plane, haut et
+clair, comme le chant de la grive à la cime d'un peu- %
 } plier. Il me rappelle à tout instant cette vérité profonde, Dit
-| one par un loqueteux, que le plus noble effort de 4
+| one par un loqueteux, que le plus noble effort de
 
 le rouet d'ivoire %
-l'art doit être de rendre la vie, de l'aimer et de la com- 4
-prendre, d'en saisir les aspects les plus fugitifs, les mou- 4
+l'art doit être de rendre la vie, de l'aimer et de la com-
+prendre, d'en saisir les aspects les plus fugitifs, les mou-
 vements les plus légers, tout le chaos tumultueux des :
-apparences, pour les fixer à jamais sous les espèces de É
-R la Beauté. J
+apparences, pour les fixer à jamais sous les espèces de
+R la Beauté.
 | Il l'aimait la vie, le camp-volant, — qui portait sur sa |
-jaquette la poussière des grands chemins, mordait à 4
+jaquette la poussière des grands chemins, mordait à
 pleines dents les grappes, et clignait les yeux, dans le .
-Il avait senti au creux de son estomac la brülure de j
-la faim, il avait tendu le dos sous le cinglement de la 1
+Il avait senti au creux de son estomac la brülure de
+la faim, il avait tendu le dos sous le cinglement de la
 rafale, il avait mangé des navets qu'il volait dans les |
-champs. Pourtant il aimait la vie, et parce qu'il Vai- Ù
+champs. Pourtant il aimait la vie, et parce qu'il Vai-
 mait, elle lui était bonne, déroulant à sestyeux enivrés |
 ÿ la grâce de ses lignes, le papillotement de ses couleurs.
 Il partit la vendange terminée. À
-On aurait voulu le retenir. Il parlait de son art, de É
+On aurait voulu le retenir. Il parlait de son art, de
 : Paris, des visites aux musées.
-Il partit, par un soir d'octobre, à l'heure où des Ê
-pourpres sanglantes agonisent dans le soir, à l'heure k,
+Il partit, par un soir d'octobre, à l'heure où des
+pourpres sanglantes agonisent dans le soir, à l'heure
 | où des ombres endeuillent la plaine, sous le premier
-frisson de l'hiver. 3
-— Merci, bonnes gens, vous m'avez bien soigné. Je 3
+frisson de l'hiver.
+— Merci, bonnes gens, vous m'avez bien soigné. Je
 reviendrai avec le bon temps, et je m'arrêterai chez |
 vous. Je resterai longtemps, et je sculpterai un Dieu
 Faunus qu'on posera dans le jardin.
@@ -2027,13 +2026,13 @@ Il n'est jamais revenu.
 
 Je me rappelle très bien les étranges terreurs qui
 
-s''emparaient de moi à la tombée de la nuit. ë
+s''emparaient de moi à la tombée de la nuit.
 
-La joie de la lumière décroissait par les vitres; les 1
+La joie de la lumière décroissait par les vitres; les
 
-ténèbres rôdaient comme des bêtes. Les moindres 4
+ténèbres rôdaient comme des bêtes. Les moindres
 
-bruits avaient un retentissement mystérieux, au cœur ÿ
+bruits avaient un retentissement mystérieux, au cœur
 
 O nuits lorraines, tour à tour briilantes de gelée ou |
 
@@ -2043,7 +2042,7 @@ exerciez sur nos âmes d'enfants, avec vos enchante- :
 
 ments, vos sons de voix, vos apparitions effrayantes ou
 
-Nuits de daillage. 4
+Nuits de daillage.
 
 Grande assemblée au veilloir. Les vieux sont là, ;
 
@@ -2054,25 +2053,25 @@ Jeannette, riche fermière, solidement assise sur sa \A
 
 chaise, prodigue aux bacelles, brunes fillettes qui €
 
-| l'écoutent, les conseils de sa sagesse raisonneuse. Assis 4
+| l'écoutent, les conseils de sa sagesse raisonneuse. Assis
 
 sous le manteau de la cheminée, les jambes étendues, |
 
-un garçon de labour raccommode une charpagne. 4
+un garçon de labour raccommode une charpagne.
 
 Deux bribeurs, dans un coin, projettent d'aller pêcher |
 
 à la trouble; la rivière a débordé : il fera bon sur- +
 
-| prendre les brochets embusqués parmi les herbes. 4
+| prendre les brochets embusqués parmi les herbes.
 
-Le feu peuple les silences de son crépitement mono- 4
+Le feu peuple les silences de son crépitement mono-
 
-| Soudain, un choc retentit : la vitre a sonné, frappée 1
+| Soudain, un choc retentit : la vitre a sonné, frappée
 
 par une main : de la rue monte une voix bizarrement
 A — Voulez-vous dailler ? ne
-ni — Mariez-nous. 4
+ni — Mariez-nous.
 3 — Avec qui? A de ;
 1 — Il est trop petit. Qu
 
@@ -2086,48 +2085,48 @@ FL * Dans la maison, des filles baissent la tête soudain, et
 
 ï un amour qui se croit ignoré, qui a grandi dans le mys-
 
-1 tère et s'effare soudain, dans cette brutale révélation. 1
-n Et l'enfant intrigué rit comme l'assemblée, sans comil prendre, ayant peut-être un pressentiment des passions É
-4 qui troublent les hommes. ê
+1 tère et s'effare soudain, dans cette brutale révélation.
+n Et l'enfant intrigué rit comme l'assemblée, sans comil prendre, ayant peut-être un pressentiment des passions
+4 qui troublent les hommes.
 % La nuit redevient silencieuse. En *
-ï On ne daille plus dans les villages lorrains. Infinie 4
+ï On ne daille plus dans les villages lorrains. Infinie
 41 mélancolie de voir aujourd'hui les villages entassés, %
-LAVE biottis au creux des terres, sous les pluies d'automne, M
+LAVE biottis au creux des terres, sous les pluies d'automne,
 ! sous les rafales de neige dont les blancheurs tourbillon- \
 1 nent dans la nuit, sans qu'aucune voix se lève du passé #
-ii pour les secouer de leur torpeur, ressusciter dans leurs ü
-ÿ rues le mystérieux enchantement du daillage! , 4
+ii pour les secouer de leur torpeur, ressusciter dans leurs
+ÿ rues le mystérieux enchantement du daillage!
 à On vit chez soi, égoïste, calfeutré. La vie se fait dure; À]
 jù on pense à la vigne qui gèle tous les ans, au blé qui ne il
 1 se vend pas. (]
 
-Toute joie a fui de nos mains; ñous ne tenons plus 4 1
+Toute joie a fui de nos mains; ñous ne tenons plus
 * que des cendres. (7 “
-Plus encore que la mort des hommes, il faut pleurer k
-la mort des vieux usages. 1e
+Plus encore que la mort des hommes, il faut pleurer
+la mort des vieux usages.
 
-A chaque instant des apparitions surgissent de la 4
+A chaque instant des apparitions surgissent de la
 nuit d'épouvante. Sortant de l'ombre pluvieuse, elles se à (
 dressent avec une netteté d'hallucination, et se dessinent »
 dans le cercle de clarté que projettent la lampe et le À
-rayonnement de l'âtre. 4
+rayonnement de l'âtre.
 Venait la Saint-Sylvestre. Des chocs formidables il
 ébranlaïent le corridor. Nous sursautions, et ma mère |
 qui tricotait disait simplement : « On brise la vieille A
-année! » Partout roulaient, sonnant contre les portes, N.
-les brechons de laitières, les vieux seaux percés, 44
-ramassés dans le ruisseau. La nuit, blanche de lune, 1
-| était toute sonore de ces vacarmes symboliques. On 4
+année! » Partout roulaient, sonnant contre les portes,
+les brechons de laitières, les vieux seaux percés,
+ramassés dans le ruisseau. La nuit, blanche de lune,
+| était toute sonore de ces vacarmes symboliques. On
 | accomplissait encore ces rites longtemps après qu'on # #
-| en avait perdu le sens, comme il arrive pour toutes les ÿ
+| en avait perdu le sens, comme il arrive pour toutes les
 | _ religions. Impression émouvante, vertige qui vous ‘4
-| prend à se pencher sur la profondeur des temps, pour 1
-interroger ces vieux usages. Personne ne sait plus, et 4
-ces choses, maintenant, ont disparu. ë
-Saint-Nicolas. Le saint, coiffé d'une perruque d'étoupes, 4
-suivi du père Fouettard, visitait les maisons, et distri- N
+| prend à se pencher sur la profondeur des temps, pour
+interroger ces vieux usages. Personne ne sait plus, et
+ces choses, maintenant, ont disparu.
+Saint-Nicolas. Le saint, coiffé d'une perruque d'étoupes,
+suivi du père Fouettard, visitait les maisons, et distri-
 buaït aux enfants des noix enveloppées de papier doré. À
-b - Mardi-Gras. Oh, les apparitions grotesques! Les 3
+b - Mardi-Gras. Oh, les apparitions grotesques! Les
 } masques entraient, tourbillonnaient dans un pêle-mêle LP
 1 joyeux, LE les papillons de RE les éphémères bi
 à blanchâtres qui sortent de la rivière, les soirs de cha- fx
@@ -2135,7 +2134,7 @@ b - Mardi-Gras. Oh, les apparitions grotesques! Les 3
 4 le rouet d'ivoire ‘NC
 f * leur, et viennent se brûler les ailes au verre de la lampes
 Masques terrifiants ! Ils avaient noirci leur visage de gi:
-| suie, et roulaient des yeux blancs qui nous effrayaient. M
+| suie, et roulaient des yeux blancs qui nous effrayaient.
 D'autres, ayant soufflé dans la farine, montraïient
 h | d'étranges faces lunaires. Sur leur dos pesait la défroque
 héroïque, la friperie glorieuse qu'on avait tirée des
@@ -2146,24 +2145,24 @@ des ors éteints, des soies passées, des galons défraîchis.
 Is faisaient trois tours dans la chambre, parlaient
 | d'une voix bizarre, et s'évanouissaient dans la nuit \
 ; Et d'autres, d'autres, des apparitions de misère ! A
-Spectres lugubres de chemineaux, battus de vents! Ils L
+Spectres lugubres de chemineaux, battus de vents! Ils
 | se dréssaient dans l'encoignure de la porte, levant des
-| k faces terreuses. La boue des chemins s'écaillait sur ÿ
+| k faces terreuses. La boue des chemins s'écaillait sur
 leurs loques, et leurs pieds étaient entortillés de
 vieux linges. Ils parlgient d'une voix suppliante, et
 0 sortaient de la nuit, ayant dans les yeux un indicible
-1 effroi : leurs regards cherchaient machinalement la 4
+1 effroi : leurs regards cherchaient machinalement la
 flamme pétillante, les meubles, la soupe chaude. On |
 leur faisait une petite place au foyer, et, quand ils
-avaient mangé, et donné leurs allumettes, par craïnte L
+avaient mangé, et donné leurs allumettes, par craïnte
 des incendies, ils allaient dormir dans l'étable, au pied
-des crèches, sous le souffle des bêtes repues. É
+des crèches, sous le souffle des bêtes repues.
 Un martèlement ébranla un jour le corridor. Deux
 coups retentirent à la porte. « Entrez », dit mon père.
 Et la porte s'ouvrit, laissant filtrer dans la rue un rai
 Ÿ de lumière, où les gouttes de pluie brillaient.
 
-4 L'homme recut la clarté de la lampe en plein visage. y
+L'homme recut la clarté de la lampe en plein visage. y
 | Ses yeux clignotèrent. Le bas de son corps restait $
 | dans l'ombre.
 .* On vit une face lamentable, cinglée par l'averse, tra_  gique de soufrance, débonnaire cependant, avec ses
@@ -2180,19 +2179,19 @@ serrés dans des jambes de bois, formidable appareil,
 Il s'appuyait sur des béquilles, et chacun de ses pas je
 j éparpillait un toc toc lourd, qui sonnait sur le plancher. #
 Philippe avait été domestique chez le père Médard, un }
-- riche fermier habitant la « maison d'en face ». C'était Â
-. un gars robuste, alerte, découplé. Sa force était pro- 1
+- riche fermier habitant la « maison d'en face ». C'était
+. un gars robuste, alerte, découplé. Sa force était pro-
 . verbiale dans le pays. Il n'avait Pas son pareil pour NX
 k charger une voiture de foin, carrée, haute comme une ; is
-( tour, et porter sur la nuque un sac de pommes de F
+( tour, et porter sur la nuque un sac de pommes de
 | terre. Un jour, dans la forêt, comme le chariot chargé :
 _ de troncs énormes de fayards s'enfonçait dans l'argile
 des mauvais chemins, et s'enterrait jusqi''aux moyeux, &
 f Philippe s'était glissé sous l'essieu, et d'un tour de reins :
 11 avait soulevé toute la charge, pendant que les chevaux, ni
 À enveloppés d'un claquement de fouet, donnaient un pie
-; coup de collier et sortaient du Mauvais pas. Un homme 5
-k comme Ça était aussi fort qu'un cric! A la charrue il 4
+; coup de collier et sortaient du Mauvais pas. Un homme
+k comme Ça était aussi fort qu'un cric! A la charrue il
 Bbrenait par la corne les bœufs récalcitrants, et les arré- ;
 
 4 le rouet d'ivoire. Tr
@@ -2203,23 +2202,23 @@ hi dans l'air comme des détonations de pistolet. ‘4
 Fi IL était parti l'année d'avant, après les semailles …
 
 ; “1 d'automne, tourmenté par un désir secret de voir du À
-\ Et voilà qu'il revenait. 3
-4 On lui fit place à table; il se décrocha de ses béquilles,
+\ Et voilà qu'il revenait.
+On lui fit place à table; il se décrocha de ses béquilles,
 
 ; et s'écroula sur une chaise. Du plat de pommes deterre
 ji montait une fumée qui s'irisait sous la lampe. Il mangea : un flot de sang colora ses pommettes; avec la
-i ‘ nourriture absorbée, qui faisait couler en lui une chaleur M
+i ‘ nourriture absorbée, qui faisait couler en lui une chaleur
 ( insinuante, quelque chose réapparut dans cette créature |
-‘à affaissée, dans ce reste d'homme, quelque chose qui M
+‘à affaissée, dans ce reste d'homme, quelque chose qui
 
-à — Ah, mes pauv braves gens! Faut-y s'voir. Dire M
+à — Ah, mes pauv braves gens! Faut-y s'voir. Dire
 % que j'ai été le Philippe, le Philippe qu'était fort, hardi, '
 | vigoureux, le Philippe qu'était dur à l'ouvrage. J'ai pas |
 osé rentrer chez le père Médard, rapport à des contes- |
 À tations, quand je l'ai quitté. Et j'ai venu chez vous où “i
 À « Pu d'jambes pour marcher. Forcé de mendier son
 
-pain au lieu de travailler, c'est ça qu'est dur. ÿ
+pain au lieu de travailler, c'est ça qu'est dur.
 
 ne « Le malheur-là m'est arrivé dans la Meuse; j'avais -
 
@@ -2234,42 +2233,42 @@ f pas d'ouvrage et j'allais sur la route, comme les chemi-
 
 ï \ « J'peux pas m'habituer, j'ai des envies de marcher,
 
-| de courir, et quand je vois ces deux bâtons, à la place 4
-de mes jambes, je pleure tout seul dans mon coin. » 4
+| de courir, et quand je vois ces deux bâtons, à la place
+de mes jambes, je pleure tout seul dans mon coin. »
 De grosses larmes coulaient de ses yeux, et roulaient (4
 _ sur la pomme de terre qu'il épluchait. ‘1
 Nous ne soufilions mot, consternés. “à
 k Philippe se raccrocha à ‘ses béquilles; son toc toc ;.
-- lourd de nouveau s'éparpilla dans la chambre; on le û
+- lourd de nouveau s'éparpilla dans la chambre; on le
 _ conduisit à l'écurie, où il s'enterra jusqu'au cou dans la th
-à Il repartit le lendemain, lamentable, nous comblant k
-« de bénédictions. Sa grande besace de toile grise lui 3
+à Il repartit le lendemain, lamentable, nous comblant
+« de bénédictions. Sa grande besace de toile grise lui
 { battait l'épaule. Ses pilons sonnaient sur les dalles des %
-4 caniveaux. Des chiens aboyaient. De loin, il avait l'air 4
+4 caniveaux. Des chiens aboyaient. De loin, il avait l'air
 “ d'un gros insecte, d'un hanneton monstrueux perché sur ke
 “ Il partit du même cheminement, ce cheminement d'in- à
 -_ firme qui met des heures à faire quelques mètres. | à
-* Impression ineffaçable! Pitié sinistre qui glaça mon 4
-_ cœur! Elle m'apparut sacrée, la porte de la chambre ñ
+* Impression ineffaçable! Pitié sinistre qui glaça mon
+_ cœur! Elle m'apparut sacrée, la porte de la chambre
 4 chaude, la porte qui s'ouvrait sur la nuit pluvieuse, la dl
-… porte derrière laquelle rôdaient des créatures de misère, 4
+… porte derrière laquelle rôdaient des créatures de misère,
 À qui tendaient des mains suppliantes, étranges larves A
-…_ humaines, fantômes de détresse, qu'attire un rayon de 2
+…_ humaines, fantômes de détresse, qu'attire un rayon de
 D'où viennent-ils, où vont-ils, ceux qui passent der- à
 … rière la porte ?..
 14 1 Depuis ce moment, jamais je n'ai pu la regarder sans ‘ à
 "4 un mouvement de pitié et d'effroi, tremblant qu'elle ne ‘1
-&; s'ouvriît sur une de ces apparitions, surgies du fond de ÿ
+&; s'ouvriît sur une de ces apparitions, surgies du fond de
 ….  O vous qui avez le souper, la nappe blanche, les rires . À
-& d'enfants, pensez-vous aux vieux, aux pauvres, aux 5
+& d'enfants, pensez-vous aux vieux, aux pauvres, aux
 
 sit le rouet d'ivoire LT
-infirmes qui se traînent dans la boue d'automne, rôdent fi 4
-ï autour des maisons, murmurent des paroles craintives, f
+infirmes qui se traînent dans la boue d'automne, rôdent fi
+ï autour des maisons, murmurent des paroles craintives,
 k et s'en vont rebutés, tendant le dos sous le cinglement
 ï Pieuse et sainte coutume de mon pays, de mon vil à
 4 lage, de ma vieille maison! Chez nous les portes n'ont
-| pas de serrures, de défenses compliquées. La clanche 1
+| pas de serrures, de défenses compliquées. La clanche
 en bois suffit, avec la chevillette, comme au temps des
 contes de fées. Oh! laissez les fermetures primitives, les
 clanches de bois, pour que les mains décharnées des
@@ -2277,25 +2276,24 @@ clanches de bois, pour que les mains décharnées des
 ouvrir facilement à leurs soirs de détresse ! à
 J'ai un parrain à moi, qui habite un village, de l'autre
 ï côté de l'eau. Il est menuisier de son état, et de temps
-à autre, on m'emmène passer une semaine dans sa M
+à autre, on m'emmène passer une semaine dans sa
 Il est très droit malgré son grand âge; il a le teint #
-rouge, coloré, les yeux rieurs; les mèches blanches de 4
+rouge, coloré, les yeux rieurs; les mèches blanches de
 sa tignasse, s''ébouriffant sous sa casquette, lui donnent
 un air très doux: c'est un de ces vieux qui sont campés |
-dans la vie, solidement, comme une borne à l'extrémité M
+dans la vie, solidement, comme une borne à l'extrémité
 d'un champ. Il me raconte une histoire de son jeune !
 ! temps: A la pâture, il a tué un loup, qui attaquait ses
 fs — Alors le loup se jeta sur moi, la gueule. ouverte,
 mais j'enfonçai mon poing dans son ventre. J'ai attrapé
-| , sa queue, crac, je l'ai retourné, comme une vieille 4
+| , sa queue, crac, je l'ai retourné, comme une vieille
 
-| 1
-Il fait le geste pour bien n'expliquer. 1
+Il fait le geste pour bien n'expliquer.
 Il dit ces énormités sans broncher, avec un clignement
 d'yeux à l'adresse des murs, de l'établi, de la varlope. ;
 Car on ne sait jamais s'il parle sérieusement, Sa con- Ye
-versation n'est qu'un assemblage de bourdes, dont la k
-tranquille extravagance défie la raison. C'est pourquoi f
+versation n'est qu'un assemblage de bourdes, dont la
+tranquille extravagance défie la raison. C'est pourquoi
 je l'aime, mon vieux parrain.
 | Quelles bonnes heures passées dans sa compagnie, :
 | au temps des vacances! De grands rais de soleil traversent la grange, et dorent les copeaux de hêtre qui ‘ :
@@ -2307,7 +2305,7 @@ sont accrochés des outils, dont les formes bizarres font ke
 _ travailler mon esprit, équerres contournées, tarières fi.
 gigantesques, compas pour jauger les tonneaux. Et la
 vache Rosette, attachée à sa crèche, lève son mufle où
-filent des baves, tandis que ses yeux jettent dans la 2
+filent des baves, tandis que ses yeux jettent dans la
 nuit des feux verts. |
 Les coqs chantent d'une voix cuivrée. |
 : Parrain tend l'oreille, et dit : ‘
@@ -2329,19 +2327,19 @@ longe sous ses doigts, devient un manche de faulx ou
 une choyotte de laveuse. Et ce spectacle me ravit, car
 je sais combien il est difficile d'enfoncer une seule
 
-Mais une voix bourrue secoue le silence. F
-Petite, toute ronde, elle a le visage plissé de rides, si 4
+Mais une voix bourrue secoue le silence.
+Petite, toute ronde, elle a le visage plissé de rides, si
 
-fines qu'on serait tenté de les regarder à la loupe. Bou- k
+fines qu'on serait tenté de les regarder à la loupe. Bou-
 gonne, colère, elle récrimine à propos de tout, et forme
-un contraste amusant avec son homme, dont le calme 4
+un contraste amusant avec son homme, dont le calme
 affecté la déconcerte. : \s
 
 Les plaisanteries ne la dérident pas: elle se hérisse
 dans son coin. A
 
 Leurs querelles ne finissent pas. Ils ont raison: dès * …
-qu'ils tombent d'accord, ils s'ennuient. ï
+qu'ils tombent d'accord, ils s'ennuient.
 
 . Les braves gens ! La chambre s'emplit du souflle rési- |
 neux des sapins amoncelés dans la grange; les boiseries |
@@ -2354,12 +2352,12 @@ et la mercuriale des foires d'Alsace, des histoires, de
 
 kobolds et de sorciers, poétiques comme un clair de
 Puis on sort dans le jardin.
-Il faut descendre trois marches de pierres branlantes, s
+Il faut descendre trois marches de pierres branlantes,
 et on est au bord du Bouvade, le ruisseau qui tournoie :
 sur un lit d'herbe. Des vaches paissent dans les prés, : )
 enclavés de landres.
 Par un matin de gelée, les alouettes se levaient, et
-frétillaient dans l'air, comme suspendues au bout d'un 1
+frétillaient dans l'air, comme suspendues au bout d'un
 — L'alouette dit : « Mon Dieu, mon Dieu, élevez-moi
 haut, je ne jurerai plus. » Et le bon Dieu, qui a pitié, lui |
 donne la force de monter tout droit dans le ciel. Quand
@@ -2372,45 +2370,45 @@ de son évidence. Le cri des oiseaux sonne sur les cam-
 
 vrille dans le ciel. Et les alouettes retombent, leur vol
 
-cassé soudain, de la chute lourde d'une pierre. 4
+cassé soudain, de la chute lourde d'une pierre.
 | Parrain ajoute, d'un ton naturel : (6
 | — Tout de même, fallait y penser.
 
 Et il a un brin d'ironie au coin des lèvres.
 
 Mais il aime surtout narrer les contes de Crépey, le |
-répertoire des balourdises attribuées aux gens du village dont il est originaire. Il jouit de mon attention, k
+répertoire des balourdises attribuées aux gens du village dont il est originaire. Il jouit de mon attention,
 
 d entassant les cocasseries avec une assurance si tran- %
 quille que pas une minute ma confiance n'est ébranlée.
 
 Il semble fier d'appartenir à un pays dont les habi-
 
-\ 81 le rouet d'igoire. — 5.
+\ 81 le rouet d'igoire.
 
 le rouet d'ivoire : ne
-tants ont une telle réputation de stupidité. Maïs c'est un X
-faux niais, qui cache sous sa naïveté une malice. 4
-Il dit l'histoire des gens qui semèrent des pois devant x
-leur église, pour la faire rouler et la descendre au bas 1
+tants ont une telle réputation de stupidité. Maïs c'est un
+faux niais, qui cache sous sa naïveté une malice.
+Il dit l'histoire des gens qui semèrent des pois devant
+leur église, pour la faire rouler et la descendre au bas
 du coteau; les compères poussaient de l'épaule ! Il dit À
-* l'histoire des blés ondulant sous le vent, qui avaient k
+* l'histoire des blés ondulant sous le vent, qui avaient
 l'air de fuir sur le territoire voisin, si bien qu'on &
-imagina de planter des haies, pour endiguer ces flots! h
+imagina de planter des haies, pour endiguer ces flots!
 Et c'est l'histoire du sacristain qui mangeait le lard de
 son curé, et qui, pour détourner les soupçons, rangea À
 les saints dans la sacristie, autour d'un feu flambant, A
-tenant chacun une baguette embrochant une tranche de 1
+tenant chacun une baguette embrochant une tranche de
 lard : le curé qu'il alla chercher, entra dans une grande $
-colère, et, prenant un bâton, tapa à tour de bras sur 4
+colère, et, prenant un bâton, tapa à tour de bras sur
 © l'assemblée des goinfres. ‘|
-D'où viennent-ils, ces contes, où des générations lor- 4
+D'où viennent-ils, ces contes, où des générations lor-
 raines ont déposé leur humeur satirique? Ils sont innom- /
-brables, tous pareïls, d'aspect grisâtre, sans poésie et 4
-sans couleur, comme les tiges de chaume qui hérissent 4
-les champs. Depuis le passé profond, leur foule anonyme N
+brables, tous pareïls, d'aspect grisâtre, sans poésie et
+sans couleur, comme les tiges de chaume qui hérissent
+les champs. Depuis le passé profond, leur foule anonyme
 bruit confusément sur les lèvres des vieux, dans les
-récits de la veillée. Vrais fils du terroir lorrain, ils ressemblent à nos paysans. ; É
+récits de la veillée. Vrais fils du terroir lorrain, ils ressemblent à nos paysans.
 En voici un, parmi tant d'autres.
 le Conte du Beau Temps
 La misère était grande dans le pays de Crépey. La
@@ -2460,25 +2458,25 @@ Cadet, et dit : « C'est cinq francs. »
 Cadet posa sur le comptoir la roue de derrière.
 
 à “ta . le rouet d'ivoire ? “1400
-Il glissa dans sa poche la bouteille, soigneusement 1
-Comme il revenait par la rue Saint-Jean, il aperçut, à 4
+Il glissa dans sa poche la bouteille, soigneusement
+Comme il revenait par la rue Saint-Jean, il aperçut, à
 l'étal d'un fruitier, une courge qui trônait, énorme, jaune
 et ronde comme une pleine lune. Stupéfait, il s'arrêta : FE
-— Qu'est-ce que c'est? demanda-t-il au marchand. | É
-— Un œuf de jument, dit l'autre sans sourciller. 4 4
-| — Un louis de vingt francs. ; 4
+— Qu'est-ce que c'est? demanda-t-il au marchand.
+— Un œuf de jument, dit l'autre sans sourciller.
+| — Un louis de vingt francs.
 Cadet donna le louis, et s'en fut, portant la courge
 ficelée dans son mouchoir à carreaux, suspendue à son
 bâton de cornouiller, qu'il tenait sur l'épaule. ER:
 Chemin faisant, il se réjouissait, à l'idée de son pou
-lain qui ferait des cabrioles. ; 6
-La pluie noyait les labours. ÿ
+lain qui ferait des cabrioles.
+La pluie noyait les labours.
 Arrivé au sommet de la côte de Crépey, il s'arrêta
 pour soufller. Au bas de la pente le village s'étalait ;
 des fumées bleues couraient sur les toits ; on entendait “4
 des femmes qui appelaient leurs poules. |
 + Comme il se remettait en marche, son pied glissa: la À
-courge tomba et dévala la pente. 5e.
+courge tomba et dévala la pente.
 Elle roulait, faisait des bonds, entraînant des cailloux
 sur son passage. Cadet la suivait des yeux douloureu-
 | sement, faisant des gestes avec ses bras, comme les
@@ -2510,57 +2508,57 @@ Quand mon séjour a trop duré, parrain me renvoie.
 Le cérémonial ne varie pas. Toujours farceur, il m'attache sur le ventre un tablier de lustrine verte, me |
 | place sur l'épaule une grande règle où sont attachés
 des équerres, des rabots, des compas de bois dont les
-branches entravent ma marche, et il dit ces mots : É
+branches entravent ma marche, et il dit ces mots
 — Allez-vous-en chez vous. Vous savez votre métier. |
 Un large rire secoue la rue sur mon passage.
 nr? Dans la maison voisine habitait un vieux, un ancien '
-_ soldat. Assis dans l'ombre qui tombait de l'auvent de i
+_ soldat. Assis dans l'ombre qui tombait de l'auvent de
 tuiles, son mouchoir à carreaux étalé sur ses genoux, il
 remâchait « des souvenirs. Il vieillissait solitaire, aussi
 
 \ le rouet d'ivoire ‘* (0
 dédaigné que les tombereaux, les herses mises au ran- ‘4
-cart et qui pourrissent dans les herbes. n
+cart et qui pourrissent dans les herbes.
 
-Il me racontait ses campagnes, l'assaut de la citadelle 114
-d'Anvers et du mamelon de Malakoff. Des bouffées de U
+Il me racontait ses campagnes, l'assaut de la citadelle
+d'Anvers et du mamelon de Malakoff. Des bouffées de
 
-À vaillance lui montant au cerveau, il brandissait sa 4
-trique de cornouiller comme pour chargeryles Tartares É
-et les kaïserlicks. Les poules s'effaraient sur les fumiers. x.
-J'étais heureux et terrifié. 4
+À vaillance lui montant au cerveau, il brandissait sa
+trique de cornouiller comme pour chargeryles Tartares
+et les kaïserlicks. Les poules s'effaraient sur les fumiers.
+J'étais heureux et terrifié.
 | Le vieux m'aimait, parce que je l'écoutais docile
 
-Un jour il m'annonça mystérieusement qu'il allait me K
+Un jour il m'annonça mystérieusement qu'il allait me
 faire une surprise. Rentrant dans sa cahute, il rapporta ?
-son fusil, un fusil de voltigeur. Un éblouissement me 4
+son fusil, un fusil de voltigeur. Un éblouissement me
 saisit à la' vue des garnitures du cuivre, du chien ser- de
-rant encore dans sa mâchoire de fer le silex taillé. 4
+rant encore dans sa mâchoire de fer le silex taillé.
 
-Je marchais dans une épopée. É
+Je marchais dans une épopée.
 
-Il pesait terriblement, ce fusil, fait pour les épaules 1
-des géants. La bretelle se prenait dans les ronces. 4
+Il pesait terriblement, ce fusil, fait pour les épaules
+des géants. La bretelle se prenait dans les ronces.
 J'essayai vainement de le mettre en joue. $
 
 J'étais à la fois ravi et désespéré par l'ampleur du !
 
 De guerre lasse, je vins échouer chez parrain. |
 
-Il contempla le fusil avec une moue bizarre, se grat- Î
-tant l'oreille : 4
+Il contempla le fusil avec une moue bizarre, se grat-
+tant l'oreille
 
-| — Pas moyen de faire la guerre avec une arme aussi É
-pesante. Il y aurait peut-être moyen d'arranger les 1
+| — Pas moyen de faire la guerre avec une arme aussi
+pesante. Il y aurait peut-être moyen d'arranger les
 choses. Maïs c'était bien pour me rendre service.
 
-Ayant saisi un tournevis, il démontait la batterie, le 4
-canon, les garnitures de cuivre qu'il serrait dans un Ÿ
+Ayant saisi un tournevis, il démontait la batterie, le
+canon, les garnitures de cuivre qu'il serrait dans un
 tiroir, et clouait sur le fût une grande latte. ‘4
 
 Ce fut une grosse déception, quand on me montra que À
 
-86 4
+86
 
 Du canon de fusil parrain fit un souflet. Le vétéran
 des vieilles guerres passa des jours heureux, des jours
@@ -2581,27 +2579,27 @@ remuait le cœur.
 | Il passa l'eau dans la barque. La nuit roulait lourdement sur les têtes des roseaux. La lanterne posée à l'avant
 du bateau projetait des raies gigantesques sur l'eau noire.
 . — Portez-vous bien, dit parrain. À
-Ses souliers sonnèrent sur le chemin de halage. l
+Ses souliers sonnèrent sur le chemin de halage.
 — Hoop, cria mon père.
-— Hoop, répondit une voix, qui montait du fond de 1
-: la prairie. j
+— Hoop, répondit une voix, qui montait du fond de
+: la prairie.
 ‘On ne revit plus parrain. Il mourut, foudroyé par un
 coup de sang. On le retrouva près de son établi, couché
 dans les copeaux de hêtre.
-1 87
+1
 
 à le rouet d'ivoire (TRIER
 — Faudra mettre tes bottes de sept lieues, mon à
-petiot. Nous allons voir nos amis, les Grangier, des 134
+petiot. Nous allons voir nos amis, les Grangier, des
 + pauvres gens qui ont de la peine! L FA SI
 Et nous voilà dans la campagne. Le vent aiguise la
 lumière. Septembre touchant à sa fin, les houblons
 enguirlandent la cime des perches. ‘4
 Deux heures après, nous arrivions. à
-— Attention, fit mon père, faut pas entrer sans crier 4
+— Attention, fit mon père, faut pas entrer sans crier
 gare, des vieux si cassés, on pourrait des fois leur
 décrocher le cœur, dans la secousse. al
-Appuyés sur le mur bas, nous regardions la maison 4
+Appuyés sur le mur bas, nous regardions la maison
 et le petit jardin, une propriété de petits rentiers, jolie :
 et confortable. Éclaboussée de soleil, la façade riait à
 sous son lattis de treillage vert où courait une glycine.
@@ -2615,80 +2613,80 @@ menu, que le gravier criait à peine sous son pied …
 Tenant à la main une petite houe, elle se baissait par
 | moments pour sarcler une mauvaise herbe; mais elle
 n'avait pas la tête à son ouvrage, la pauvre vieille, car
-elle se relevait et restait là, le regard perdu dans le 1
+elle se relevait et restait là, le regard perdu dans le
 . vide. Alors elle secouait sa tête grise, comme pour
 approuver des réflexions qu'elle faisait tout haut,
 comme c'est l'habitude des vieux, dont la cervelle n'est
-plus solide. 4
+plus solide.
 
 — Ça arrache le cœur, dit mon père. À
 Les Grangier avaient perdu leur fils, un officier du ,
-Nous entrâmes. Au bruit de nos pas, la petite vieille F
+Nous entrâmes. Au bruit de nos pas, la petite vieille
 porta la main à son front, dans l'éblouissement du
 soleil, et nous vimes un visage menu, encadré de cheveux blancs, serrés sous la cornette. Il y avait tant de
 * bonté semée dans les plis fins de ses rides, au coin de
 ses yeux et de ses lèvres!
-Alors, elle nous reconnut : 4
+Alors, elle nous reconnut
 — Ça va-t-y bien, dit mon père, d'une grosse voix
 qui voulait être joyeuse.
 Elle eut un haussement d'épaules d'une lassitude |
 — À notre âge, avec tout not malheur !
 Comme si ce simple mot avait brisé en elle quelque
 < chose, soudain les traits fins et menus, les traits semés
-d'une poussière d'ans et de bonté se crispèrent, et silen- 1
+d'une poussière d'ans et de bonté se crispèrent, et silen-
 cieusement la petite vieille se mit à pleurer. ;
-Pourtant elle se calma, et les mains encore frémissantes, elle voulut nous faire les honneurs de son jardin. é
-Petit jardin, qu'elle mettait son orgueil de bonne F
-ménagère à planter de balsamines et de dablias, au Q
+Pourtant elle se calma, et les mains encore frémissantes, elle voulut nous faire les honneurs de son jardin.
+Petit jardin, qu'elle mettait son orgueil de bonne
+ménagère à planter de balsamines et de dablias, au
 temps où son garçon était vivant. Maintenant il portait
 des traces imperceptibles de négligence; par la brèche
 ouverte dans la haie, les poules du voisin entraient en
 caquetant : frappant dans les mains, la vieille les ne.
-1 — Que fait Grangier ? demanda mon père. i
+1 — Que fait Grangier ? demanda mon père.
 . Elle jeta un coup d'œil inquiet vers la maison, et dit {
-tout bas, d'un ton de confidence : L
+tout bas, d'un ton de confidence
 | — Ah, ne m'en parlez pas! Tous les jours que Dieu }
 
-le rouet d'ivoire 104
+le rouet d'ivoire
 fasse, y reste au coin du feu à raminer son chagrin, .
 sans qu'on puisse lui tirer une parole. “#4
 
 Se raidissant, elle nous précéda dans la maison. .
 L'intérieur exhalaït une sensationindéfinissable d'aban- Al
-don. Une odeur de laitage ancien flottait dans la cui- ÿ
-sine; par la lamelle brisée d'un volet qu'on avait négligé S
+don. Une odeur de laitage ancien flottait dans la cui-
+sine; par la lamelle brisée d'un volet qu'on avait négligé
 de remplacer, un rai de soleil soulignait les poussières Î |
 accumulées sur les chaises de bois et sur la crédence. :
-L'ombre était bruissante de mouches dont les tourbil- 4
-lons se levaient, à chacun de nos pas. 0
+L'ombre était bruissante de mouches dont les tourbil-
+lons se levaient, à chacun de nos pas.
 
-C'étaient des gens aisés, pourtant. Les meubles étaient 4
-cossus; le cadran de l'horloge serti de .cabochons jetait 4
-des étincellements de pierreries ! f
+C'étaient des gens aisés, pourtant. Les meubles étaient
+cossus; le cadran de l'horloge serti de .cabochons jetait
+des étincellements de pierreries !
 
 Nos yeux s'habituaïent à l'obscurité, et nous aperçämes :
-le vieux assis dans un fauteuil d'osier, les pieds enfouis 1
-dans la cendre. 5
+le vieux assis dans un fauteuil d'osier, les pieds enfouis
+dans la cendre.
 
 | Mon père lui frappa l'épaule : ‘il
 
-— Eh bien, Grangier, on ne connaît plus les amis ? É
+— Eh bien, Grangier, on ne connaît plus les amis ?
 
-Il tourna lentement la tête, et leva la main, comme 4
-pour prendre à témoin quelque chose : #4 4
+Il tourna lentement la tête, et leva la main, comme
+pour prendre à témoin quelque chose : #4
 
-— Nous ne sommes plus rien, nous ne savons plus 3
-rien, nous ne valons plus rien. 4
+— Nous ne sommes plus rien, nous ne savons plus
+rien, nous ne valons plus rien.
 
-— Du courage, fit mon père. £ 4
+— Du courage, fit mon père. £
 
-Le vieux baïssa la tête, et regarda fixement l'âtre 1
+Le vieux baïssa la tête, et regarda fixement l'âtre
 mort. Mais la femme alla pousser le volet, et le grand
 jour éclaira la face du père, ses yeux atones. IL ne
 remuait pas, ses mains crispées se nouaient à ses
 genoux, et toute son attitude exprimait un indicible
 
-Pourtant la vieille s'empressait. Son trottinement menu L
+Pourtant la vieille s'empressait. Son trottinement menu
 glissa sur le plancher. Bientôt la flamme claire des
 sarments crépila joyeusement dans l'âtre, et l'omelette
 
@@ -2706,7 +2704,7 @@ tant trimé pour amasser du si bon bien. Et pour qui
 
 , Il secoua la tête, et sa lamentation repartit, monotone.
 
-— Y mn dégoüûtent, quand je les vois venir ici, avec F
+— Y mn dégoüûtent, quand je les vois venir ici, avec
 leurs yeux luisants. Cousin par ci, cousin par là. Les
 mains leur démangent dans les poches, tellement qu'ys
 ont des envies de tout prendre.
@@ -2732,35 +2730,34 @@ Nous restâmes jusqu'au soir, muets et oppressés. Un
 sûr instinct avertissait mon père que les paroles, les
 paroles banales que les hommes prononcent si facilement, sont inutiles en présence des grandes douleurs
 
-| qui ne veulent pas être consolées. 9
+| qui ne veulent pas être consolées.
 
 Le vieux restait à sa place, auprès du feu, les pieds
 
 dans la cendre.
-| 91
 
-Les dimanches, après vêpres, on se faufilait chez 4
+Les dimanches, après vêpres, on se faufilait chez
 Bonne dame était la veuve d'un ancien officier aux Ki
 Cent Gardes qui habitait le Château. La tombe du À
 baron Doucet, un lourd sarcophage de marbre, écrasait à
 de sa splendeur les croix de bois blanc, dans le cime- à
-On ouvrait doucement la porte, sans faire sonner la 2
+On ouvrait doucement la porte, sans faire sonner la
 cloche. La bande joyeuse pénétrait dans la cour, rongée à
 d'herbe. Des tilleuls versaient une ombre où flottait une je:
-odeur de miel. Parfois une fleur se détachant, tombait N
+odeur de miel. Parfois une fleur se détachant, tombait
 dans le vide en tournant comme un insecte aux ailes À
 blondes. Il fallait faire un crochet, pour éviter le chien,
-qui sommeillait dans sa niche, le museau sur les pattes. Ë
+qui sommeillait dans sa niche, le museau sur les pattes.
 Les domestiques fermaient les yeux, ayant reçu des ‘1
-Bonne dame se tenait habituellement sur le perron, 4
+Bonne dame se tenait habituellement sur le perron,
 assise dans son fauteuil d'osier. Elle avait grand air, :
 gardant une certaine finesse dans les lignes empâtées
-de son visage, que des anglaises blanches encadraient. 1
+de son visage, que des anglaises blanches encadraient.
 ! Elle respirait péniblement. De lourdes bagues char- Ve
 geaient ses doigts. Un camée fermait son corsage. Elle
 était vêtue d'une douillette de soie couleur lilas, qui,
 à chaque mouvement qu'elle faisait, bruissait doucement.
-Son regard errait sur la profondeur de l'avenue, que 11
+Son regard errait sur la profondeur de l'avenue, que
 _ le couchant emplissait d'un poudroïiement doré. À
 Elle avait été fort riche, mais l'argent fondait dans ;
 
@@ -2783,11 +2780,11 @@ croyait entendre distinctement le grignotement imperceptible de la rongeuse qui 
 Rien n'était triste comme cette vie qui finissait dans
 cet abandon!
 
-Assises à côté de Bonne dame, deux femmes se k
+Assises à côté de Bonne dame, deux femmes se
 tenaient dans une pose déférente, deux épaves de la
-vie, qu'elle gardaït par charité. J
+vie, qu'elle gardaït par charité.
 
-Une d'elles s'appelait Catherine Macquin. Son masque e
+Une d'elles s'appelait Catherine Macquin. Son masque
 de cire avait une effrayante rigidité. On racontait tout
 bas l'effondrement de sa vie à la suite d'une aventure
 d'amour dont les détails étaient oubliés. Atteinte d'une
@@ -2796,38 +2793,38 @@ d'amour dont les détails étaient oubliés. Atteinte d'une
 . blants d'été; elle allait s'asseoir au bord des étangs
 largement empourprés, à l'heure où des chuchotements Ë +
 
-| ‘inquiets s'éveillaient dans les roseaux, et elle restait là 7
+| ‘inquiets s'éveillaient dans les roseaux, et elle restait là
 sans bouger, le front barré par le plissement de l'idée fixe.
 
-Elle finit par se jeter à l'eau. 3
+Elle finit par se jeter à l'eau.
 
 le rouet d'ivorre “NS
 L'autre, mam'zelle Annette, était une petite vieille, À
-fine, proprette, remuante, toujours vêtue coquettement É
+fine, proprette, remuante, toujours vêtue coquettement
 de camisoles blanches, bien repassées. Elle avait rôtile
 balai dans son jeune temps; son nez rougissait, mais ses : %
-yeux étaient restés très beaux sous leurs cils fanés. Il n
+yeux étaient restés très beaux sous leurs cils fanés. Il
 lui restait de son passé une sorte de minauderie, et une ‘À
-curiosité des choses d'amour qui la rendait indulgente 11
+curiosité des choses d'amour qui la rendait indulgente
 aux filles qu'on mettait à mal dans le pays.
-La baronne s'alourdissait entre ces deux débris. K
-Pourtant, elle leur parlait doucement, comme à des en- N:
+La baronne s'alourdissait entre ces deux débris.
+Pourtant, elle leur parlait doucement, comme à des en-
 fants; sa voix, nuancée d'ironie, quand elle s'adressait à à
 ® la mam'zelle, se mouillait de pitié quand elle parlait à à
 la malade. \
-Quand nous avions couru dans le pare, et lancé l'es- j
-carpolette à toute volée, mam'zelle Annette nous emme- 4
-Bonne dame se mettait au piano dans le grand salon 4
+Quand nous avions couru dans le pare, et lancé l'es-
+carpolette à toute volée, mam'zelle Annette nous emme-
+Bonne dame se mettait au piano dans le grand salon
 dont le parquet était soulevé par endroits. Des fêtes À
-galantes peintes au-dessus des portes montraient des k
+galantes peintes au-dessus des portes montraient des
 bergères en paniers, tenant des houlettes ornées de $
 | rubans. Des trous par places crevaient la toile, et sur à
 la cheminée, sur les consoles de marbre étaient amoncelés des bibelots, des reliques à la fois puériles et |
-* touchantes, dont chacune rappelait des souvenirs. Î
-Alors la musique commençait. 4
+* touchantes, dont chacune rappelait des souvenirs.
+Alors la musique commençait.
 Promenant ses doigts sur l'ivoire jauni, Bonne dame
 tirait de l'instrument des accords dont elle suivait dans
-l'air la mystérieuse résonance. 4
+l'air la mystérieuse résonance.
 Nous dansions. Mam'zelle Annette toujours rieuse, |
 corrigeait une attitude, arrondissait un geste. Nous
 étions balourds, en vrais petits paysans et nos souliers |
@@ -2871,33 +2868,33 @@ revoyait la fin du Second Empire, les chasses à courre
 sur les pelouses, aux soirées de Saint-Cloud.
 
 | le rouet d'ivoire DR.
-LA à La voix de, Catherine coupait ce recueillement. 10
+LA à La voix de, Catherine coupait ce recueillement.
 # — Des rengaïines. Tout ça ne donne pas du pain à ‘4
 Pauvre Bonne dame. Elle nous congédiait, un peu
-Dehors la nuit venait, marchant à pas de velours. 3
+Dehors la nuit venait, marchant à pas de velours.
 Nous nous enfoncions dans le parc, dont les avenues à
-s'allongeaient! Sur nos têtes s'ouvraient les arceaux ÿ
+s'allongeaient! Sur nos têtes s'ouvraient les arceaux
 ténébreux des charmilles, que le couchant trouait de %
 On arrivait au bout de la pièce d'eau. La balustrade »
 de pierre avait croulé, des déesses gisaient sur le fond
-vaseux, la face rongée de mousses verdâtres. Soudain j
-un coup de vent passait, éveillant dans la profondeur ÿ
-\ des arbres des bruits de voix, et toute la bande pre- k
-nait la fuite. ï
-On disait aussi qu'il y avait dans cet étang un brochet 4
-monstrueux. Les remous qu'il soulevait en chassant les É
-! carpes auraient fait tourner un moulin. On lui avait tiré 5
+vaseux, la face rongée de mousses verdâtres. Soudain
+un coup de vent passait, éveillant dans la profondeur
+\ des arbres des bruits de voix, et toute la bande pre-
+nait la fuite.
+On disait aussi qu'il y avait dans cet étang un brochet
+monstrueux. Les remous qu'il soulevait en chassant les
+! carpes auraient fait tourner un moulin. On lui avait tiré
 vainement des coups'de fusil. Ci
 Nous avions peur. " à
 Bonne dame laissa couler sa vie, la musique tissant |
-entre elle et les réalités son voile ondoyant où s'ébau- j
+entre elle et les réalités son voile ondoyant où s'ébau-
 _ chaïent des images. À mesure que le sort lui devenait , -
-plus hostile, elle se réfugia dans la contemplation du 3
+plus hostile, elle se réfugia dans la contemplation du
 passé, puisant dans ses regrets l'hébétement d'un narco- |
 tique, et sa bonté s'élargissait avec l'âge, une bonté
 faite de veulerie et d'abandon. |
 Elle fut une proie aux faméliques de toute espèce qui
-rôdaient dans le château, sous prétexte d'y travailler. È
+rôdaient dans le château, sous prétexte d'y travailler.
 
 Vint une année où la vigne coula, où les houblons ,
 embrunirent. Il fallut emprunter. Obliques et sournois,
@@ -2906,7 +2903,7 @@ portaient des serviettes bourrées de papiers et jaugeaient
 d'un coup d'œil rapide la valeur des meubles anciens et |
 la solidité de la bâtisse.
 Bonne dame les regardait, indifférente.
-Autour des feux crépitants d'automne, dont la flambée illuminait la salle, maintenant une séquelle se 6
+Autour des feux crépitants d'automne, dont la flambée illuminait la salle, maintenant une séquelle se
 bousculait, de truands, de miséreux, de galapiats. Ils
 clignotaient d'aise devant l'âtre, et tendaient à la flamme
 . leurs ventres faméliques, lestés d'un bon repas. Les
@@ -2926,7 +2923,7 @@ Elles jetaient une lueur tremblotante, qui brillait un
 | bleue se déroulaient dans l'air immobile.
 l Elles déroulaient lentement leurs anneaux bleuâtres,
 
-le rouet d'ivoire 218
+le rouet d'ivoire
 ces fumées légères, qui bientôt s'évanouissaient. Pourtant
 leur trame tenue emportait au néant une vie jadis »
 opulente, des souvenirs heureux, de rayonnantes visions: he
@@ -2943,7 +2940,7 @@ Avant de quitter sa maison, Bonne dame voulut en
 faire le tour, une dernière fois. à
 C'était un dimanche d'octobre, après vêpres. Nous "
 avions gauchement dansé, remuant nos membres dans …
-le grand salon, tandis que les sons du piano égrenaient M
+le grand salon, tandis que les sons du piano égrenaient
 dans Fair de mourantes vibrations. Bonne dame eut un -
 
 geste d'une résignation infinie, et jetant sur ses épaules
@@ -2957,9 +2954,9 @@ peuplaient les massifs de froissements inquiets, et la
 
 robe de la baronne, frôlant le gravier des allées, faisait
 entendre un susurrement, plus douloureux que le san- …
-glot des futaies hivernales. Û
+glot des futaies hivernales.
 
-Elle s'arrêta devant ses vignes. f
+Elle s'arrêta devant ses vignes.
 Immobile, elle avait un hochement de tête désespéré,
 
 à la vue des bonnes terres défoncées, des ceps tordus,
@@ -2999,11 +2996,10 @@ _ sur le mur, dont le faîte croulait sous leurs bras, ils
 regardaient la clarté de la lune étalée sur la prairie,
 - et les brumes au loin tournoyant sur les eaux. Ils ne
 parlaient pas. Le bonheur à côté d'eux tombait goutte
-| 99
 
-le rouet d'ivoire 10
-à goutte dans le silence. Assis sur cette borne, il lui 18
-À . avait adressé ce soir-là, des mots si délicieux, que son à 4
+le rouet d'ivoire
+à goutte dans le silence. Assis sur cette borne, il lui
+À . avait adressé ce soir-là, des mots si délicieux, que son à
 âme en était restée, pour la vie, palpitante…. UE
 Le souffle même de l'au-delà n'avait pu glacer la
 volupté ardente de ce souvenir. ke ‘4
@@ -3015,18 +3011,18 @@ la Babette
 « Méfie-toi des hommes; ils ont tous une dent de
 loup dans la gueule! » ME
 Ayant ainsi parlé, la Babette saisit une poignée de
-. laine, et se mit à l'étirer rageusement. 4
-Notre voisine était cardeuse de matelas. Ÿ
+. laine, et se mit à l'étirer rageusement.
+Notre voisine était cardeuse de matelas.
 La laine blanche foisonnait, couvrant de sa masse
-| floconneuse le cendrier de toile grise. Et des brins M
+| floconneuse le cendrier de toile grise. Et des brins
 voletaient, et s'accrochaient aux aspérités du crépi, le -
-long du mur. 4
-Tout en travaillant, elle mâchonnaït une croûte de 4
+long du mur.
+Tout en travaillant, elle mâchonnaït une croûte de
 pain. Une seule dent lui restait sur le devant, solide et
-bien plantée. 4
+bien plantée.
 Autour de nous, fondait däns l'air une sorte d'alan
 guissement. Emprisonné au coin du mur, le soleil de
-y mars se réchauffait, tourbillonnait comme un bourdon 4
+y mars se réchauffait, tourbillonnait comme un bourdon
 froissant ses ailes à une vitre. Un porc grognait, secouant
 la porte de son réduit. A chaque instant, l'air se rayait
 du vol d'une abeille, qui venait se poser sur les « corbeiïlles d'argent » des plates-bandes. Le printemps
@@ -3037,7 +3033,7 @@ sonore qui semble la voix de la lumière.
 | à des choses, et rien ne trahissait le murmure intérieur
 ; de ses pensées, rien que le hochement de sa tête grise, |
 | et ses lèvres remuant sur ses gencives édentées.
-| Elle soupira et dit tout bas : 1
+| Elle soupira et dit tout bas
 
 — Le joli bois est fleuri sur la côte.
 
@@ -3057,7 +3053,7 @@ Misti prit son élan, et sauta au milieu ‘d'une platebande déjà bêchée. Il
 touffes de poils. Par moments il bondissait, giflait le .
 _ vide de sa patte, et attrapait quelque chose qu'il grignotait longuement, le museau entre deux mottes.
 S — Le v'là encore qui mange des hannetons, des co-
-k Et toute sa tendresse était remuée. ÿ
+k Et toute sa tendresse était remuée.
 # Rentrant dans la cuisine, elle y prit une assiette
 A pleine de lait. :
 
@@ -3068,9 +3064,9 @@ faméliques, descendait des bougeries et des chambres
 à four, dont les toits alignaient leurs rangées de tuiles
 sous un miroitement de lumière. Leurs échines anguleuses se dessinaïent sur le ciel, leurs queues galeuses {
 traînaient. Serrés autour de l'assiette, ils lampaient le
-lait à petits coups de langue rapides et inquiets. 4
-— Ah! les canailles ! 1
-Le rire de la vieille lui secouait le ventre. l
+lait à petits coups de langue rapides et inquiets.
+— Ah! les canailles !
+Le rire de la vieille lui secouait le ventre.
 Une mère aux bêtes, cette Babette. Sa maison était
 une ménagerie : dans tous les coins il y avait des
 grouillements de bestioles. Des cochons d'Inde cou- À
@@ -3078,13 +3074,13 @@ grouillements de bestioles. Des cochons d'Inde cou- À
 baraque approchaient des grillages leurs museaux
 moustachus, plissés de froncements rapides. Bonne à
 vieille! Une bonté qui aimait soigner des bobos et pan
-ser des blessures. Quand un poulet avait la patte écra- M
+ser des blessures. Quand un poulet avait la patte écra-
 sée par un cheval, elle lui refaisait une jambe avecun
 bout de bois, et la bestiole courait, semant sur le plan
-cher son tic tac menu d'infirme. Ë
+cher son tic tac menu d'infirme.
 Nous restions là, blottis frileusement au coin du
-Une grosse voix soudain nous fit tressaillir, tandis 1
-qu'une ombre se déroulait, gesticulant à nos pieds : 4
+Une grosse voix soudain nous fit tressaillir, tandis
+qu'une ombre se déroulait, gesticulant à nos pieds
 — Salutance à la compagnie! |
 Babette dit pour me rassurer:
 — C'est mon homme, le Tourment. |
@@ -3097,11 +3093,11 @@ de soïe dont le vent gonflait la coiffe, comme un ballon
 
 . La femme dit : |
 
-; — Y fait si soif. 1
+; — Y fait si soif.
 
 — Tu viens te remplumer ici. & |
 
-— Cause-toujours, la mère ! 4
+— Cause-toujours, la mère !
 
 C'était l'homme de la Babette. Il exerçait la profession de limeur de scies, comme le montraient les lames |
 ébréchées qui pendaient dans son dos, et la couenne de
@@ -3128,7 +3124,7 @@ quand on mangeait la sauce au vin épaisse, odorante,
 ñ jLa vieille baïissaït la tête, tristement.
 
 Ë = le rouet d'ivoire À "
-L'autre redoublait. Il finit par monter au grenier, où 4
+L'autre redoublait. Il finit par monter au grenier, où
 il se coucha dans le foin. *
 La Babette se remit à tirer sa laine. Prise d'un atten-
 | drissement soudain, d'un besoin dé confidence, elle me
@@ -3156,37 +3152,37 @@ sur la table. Le Tourment ayant rencontré un camarade
 l'assommait de bourrades enthousiastes, ou faisait
 d'interminables parties de quilles. La boule roulait,
 
-.  fracassant les quilles cerclées de fer. Dans les vignes F
+.  fracassant les quilles cerclées de fer. Dans les vignes
 avoisinantes, des dos courbés se relevaient dans l'épais- |
 seur des échalas, et des voix criaient aux joueurs : !
 
 — C'est-y dans vot' chantier qu'on embauche ?
 
-” Mais le Tourment devenait triste. Une sorte de regret 1
+” Mais le Tourment devenait triste. Une sorte de regret
 l'envahissait, lui mettant au cœur la nostalgie de la vie À
 errante, et des cuisines savourées dans les auberges. de
 
-— On fait comme les autres, disait Babette. On prend ÿ
-une bêche ou une raclotte. " S
+— On fait comme les autres, disait Babette. On prend
+une bêche ou une raclotte. "
 
 Il haussait les épaules': « La terre est trop basse. »
 
-Elle se taisait, intérieurement flattée par ces airs de 4
+Elle se taisait, intérieurement flattée par ces airs de
 
 Un soir je trouvai Babette en pleurs. Son homme $
-était parti, mais en quittant le pays, il lui avait joué un f
+était parti, mais en quittant le pays, il lui avait joué un
 tour de sa façon. Il avait bazardé le saint-frusquin à
 des commères à l'affûüt d'une bonne occasion. Vendue, à
-la maie de hêtre luisant, vendues les chaises de bois, 2
-vendu le plumon du lit, empli de duvet tout neuf. La ÿ
+la maie de hêtre luisant, vendues les chaises de bois,
+vendu le plumon du lit, empli de duvet tout neuf. La
 vieille se tordait les mains à la vue de sa chambre mise
 
 Cet été-là fut très chaud. Le soleil incendiait les +."
-chaumes moissonnés où grésillait la vibration des sau- É
+chaumes moissonnés où grésillait la vibration des sau-
 terelles. Le ciel était plein d'un crépitement de lu- A
 
 Alors la vie des bêtes grouillait confusément dans la
-maison de la Babette. Des poules couvaient, arrondis- 9
+maison de la Babette. Des poules couvaient, arrondis-
 sant leurs ailes sur les corbeïlles remplies de paille.
 
 _« Des bandes de petits canards couraïient dans la basse- À
@@ -3194,11 +3190,11 @@ cour, vêtus de duvet jaune drôlement hérissé.
 
 La Babette, assise sur un billot de hêtre, contemplait +
 ses nourrissons, souriante, les mains moites, défaillant eh
-de maternité. d
+de maternité.
 
 Misti ayant cessé ses courses nocturnes sur les toits,
 
-, devenait gras. C'était une boule soyeuse, d'où sortait 1
+, devenait gras. C'était une boule soyeuse, d'où sortait
 
 | le rouet d'ivoire |
 un ronronnement. Mais il avait un frisson de l'oreille"
@@ -3237,8 +3233,6 @@ au moindre choc, prenant au milieu des objets inanimés une apparence de vie.
 
 — Babette, donne-moi l'oiseau. : '
 
-| 106
-
 Elle disait non, jusqu'au moment où lassée, elle con-
 Mon émotion était telle que je laissai tomber le
 Alors Babette pleura, ramassant les morceaux de
@@ -3262,20 +3256,20 @@ cuivre accrochée à un clou, elle l'emplit de braise
 _ chaude qu'elle tassait parmi la cendre. En un clin d'œil
 le Tourment fut dévêtu, couché dans le lit chaud, avec
 
-le bonnet de coton enfoncé jusqu'aux yeux et là couver- 1
+le bonnet de coton enfoncé jusqu'aux yeux et là couver-
 | ture remontée au menton. , . FRS
 
 Puis elle le borda maternellement, et s'assit au chevet |
 toute songeuse. . di
 ‘Le Tourment dormait d'un sommeil lourd, agité de |
 sursauts, et les visions du cauchemar se succédant, il .
-prononçait des paroles incohérentes. Le lendemain, il f
+prononçait des paroles incohérentes. Le lendemain, il
 allait plus mal; la Babette le soigna de son mieux, |
 émue jusqu'au fond de sa tendresse guérisseuse. Le
 coquemar ne quittait plus le coin du feu, contenant des :
 tisanes de toute sorte, la mauve qui est bonne pour
 l'estomac, la bourrache qui fait suer, le bouillon blanc
-quiguérit les rhumes. 4
+quiguérit les rhumes.
 Ça ne traîna pas. Le Tourment mourut trois jours |
 après, et le charron vint le clouer dans la grande boîte,
 avec de gros clous, pour lui ôter l'idée de revenir.
@@ -3283,9 +3277,9 @@ La Babette fit bien les choses. Elle ne marchanda pas à
 les cierges du luminaire dont chacun pesait une livre,
 ni les quarante sous qu'on donne à l'enfant de chœurs
 qui porte la croix.
-Au repas funèbre, il y avait bien vingt personnes, ù
+Au repas funèbre, il y avait bien vingt personnes,
 venues des villages avoisinants.
-û Les invités s'en allaient, assis sur des bottes de paille, d
+û Les invités s'en allaient, assis sur des bottes de paille,
 . dans leurs chars à bancs. La Babette soufllait, asgise
 sur le banc de pierre devant sa maison.
 Des soucis contraires travaillaient son esprit, À la
@@ -3294,17 +3288,17 @@ fois triste et soulagée, elle s'applaudissait d'avoir mené
 homme, elle sentait un grand vide dans sa maison.
 
 L'air était doux. Les poules rentraient, ramenées par
-leurs coqs. Des feux d'herbes, allumés dans les champs, ï
+leurs coqs. Des feux d'herbes, allumés dans les champs,
 exhalaient une odeur pénétrante.
 
 Toute cette joie faisait mal à la pauvre vieille. Les À
 commères redescendaient des vignes, et posant leurs :
-- paniers à terre, elles entreprenaient de consoler la ÿ
-Babette avec des paroles bourrues : 1
+- paniers à terre, elles entreprenaient de consoler la
+Babette avec des paroles bourrues
 — Faut bien se faire une raison.
-— Vous v'là bien débarrassée. Un malabre pareil qui t
-était toujours soûl ! Ç
-— Faut en prendre un autre, un jeune! 1
+— Vous v'là bien débarrassée. Un malabre pareil qui
+était toujours soûl !
+— Faut en prendre un autre, un jeune!
 Elles s'esclaffaient ; la Babette secouait la tête.
 _ Elles fartirent. Alors elle se tourna vers moi :
 — Pour sûr qu'y ne valait pas grand chose, mais je
@@ -3316,14 +3310,14 @@ aux autres mendiants qui vont, de porte en porte,
 marmottant des oremus d'une voix dolente, et remercient humblement, quand on leur a donné le morceau de pain taillé dans la miche. Le vieux était |
 _ étrange et terrible! Sa chemise entrebâillée laissait
 voir les broussailles de sa poitrine. Sa tête était coiflée
-d'un feutre graisseux dont les bords étaient découpés F
+d'un feutre graisseux dont les bords étaient découpés
 en lame de scie. Et il s'appuyait sur une béquille à la
 poignée rembourrée de chiffons, boitant d'une facon trop
 | étudiée pour être naturelle. ; Pole
-- I semait la terreur sur son passage; ce malandrin ÿ k
+- I semait la terreur sur son passage; ce malandrin
 demandait l'aumône à sa façon, brutalement, tambouri- *
 . nant les cloisons des corridors du gourdin noueux qu'il
-t ! 109 le rouet d'itoire. — 7
+t ! 109 le rouet d'itoire.
 
 le rouet d'ivoire N de.
 à _ serraït dans sa main. Quand on tardait à lui ouvrir, il
@@ -3335,17 +3329,17 @@ l'avait entendu marmoter des menaces; il parlait de
 flanquer le feu aux quatre coins de la cambuse. : ;
 Les chiens du village, ayant flairé en lui un ennemi,
 tournaient autour du mendiant, la lèvre ne ne suc
-leurs crocs. Il les tenait en respect, faisant avec son M
-gourdin des moulinets terribles. 1
+leurs crocs. Il les tenait en respect, faisant avec son
+gourdin des moulinets terribles.
 Ce jour-là, je m'étais faufilé chez la Babette. \
 Un bruit de voix m'arrêta dans le couloir. Ce que je ;
 vis me stupéfia. Commodément installé dans le fauteuil \
-d'osier qui servait au Tourment pendant sa vie, le 4
+d'osier qui servait au Tourment pendant sa vie, le
 vieux vagabond fumait sa pipe à petits coups, devant
 lâtre en feu. Ses pieds étaient à l'aise dans les larges À
-sabots du mort; et le sacripant se carrait, allongeait M
+sabots du mort; et le sacripant se carrait, allongeait
 ses jambes sur la taque chaude. \
-Et le soleil pénétrait largement, par les vitres, jetant M
+Et le soleil pénétrait largement, par les vitres, jetant
 sa gaîté sur les murs. Le matin Hiver était lumineux
 et sonore comme un cristal.
 Sur la petite table où le Tourment avait bu si souvent
@@ -3362,7 +3356,7 @@ L'homme, se leva, avec des geignements de douleur,
 comme si ses membres s'étaient ankylosés pendant le
 repos. Il remit ses grosses chaussures, frappa'le sol du
 talon pour les assurer, puis jeta sa besace à son épaule,
-d'un geste las, et promenant un regard autour de lui : è
+d'un geste las, et promenant un regard autour de lui
 — Faut se quitter, ma bonne dame, dit-il; on engraisserait à mener cette vie-là. Je me rappellerai vot frichti,
 là-bas, sur la route.
 Puis il prit son air terrible et enfla sa grosse voix :
@@ -3379,28 +3373,28 @@ _ du corridor, puis la porte se referma, et des chiens
 K moucha, renifla bruyamment, et me dit tout sas en
 — C'est qu'y ressemble tant à mon pauvre homme! :
 ! la vie de l'eau
-d Retent par un barrage, le fleuve contourne le village. 1
+d Retent par un barrage, le fleuve contourne le village.
 _ Charriant des paquets d'herbes et des bois morts, le
 _ flot lave les grèves, pénètre dans les mortes obstruées
 de joncs vaseux, où s'abattent des vols d'étourneaux,
 
 4] le rouet d'ivoire ‘5
 et le cours des eaux fait ruisseler au fond du valune
-R sorte de tendresse silencieuse. L 4
-Je passe mes journées au bord de la rivière. : 3
-| J'aime la vie puissante que le fleuve charrie, les cha- D:
+R sorte de tendresse silencieuse.
+Je passe mes journées au bord de la rivière.
+| J'aime la vie puissante que le fleuve charrie, les cha-
 lands trapus dont le bordage rase le flot, qui portent une
 N maisonnette aux volets minuscules, peints en vert. Des
 enfants courent sur le pont goudronné; les sonnailles |
 des chevaux s'égrènent sous les ormes du chemin de
-A vivre ainsi au bord des eaux, il semble que leur 4
-limpidité pénètre votre âme. M
+A vivre ainsi au bord des eaux, il semble que leur
+limpidité pénètre votre âme.
 C'était jour de lessive; le cuveau avait coulé dans la
 chambre à four, remplissant la chambre d'une odeur
 d'iris et de cendre chaude. Agenouillées dans leurs »
 caisses bourrées de paille, qu'on appelle des choyottes, …
 \ les lavandières martelaient le linge à coups de battoirs. :
-— Abhi! le gris. Ahi! i
+— Abhi! le gris. Ahi!
 . Un bateau monta vers nous. PA
 Le cheval se ramassait, faisait feu des quatre pieds,
 quand $es fers éraflaient les silex taillés de la route. La
@@ -3411,7 +3405,7 @@ Toute une flottille apparut; une drague ouvrait la
 marche, allongeant sur l'eau sa coque de tôle percée |
 de hublots où des chaînes coulaient. Un remorqueur :
 la traînait en haletant, et derrière venait un chapelet de
-chalands à l'avant bariolé de couleurs. N 1
+chalands à l'avant bariolé de couleurs.
 
 Ce fut un événement dans ma vie.
 Alors un ravissement me monta au cœur, presque
@@ -3419,7 +3413,7 @@ Sans cause, un de ces ravissements de la première
 enfance. De grands souflles gonflent l'âme, qui palpite,
 comme une voile, sur le bord du monde à conquérir.
  En-un instant, la solitude de la rivière s'anima. La
-drague s'amarrait ; elle siffla, et les godets d'acier mor- l
+drague s'amarrait ; elle siffla, et les godets d'acier mor-
 dant le fond de galet, la chanson du travail vibra dans
 la vallée.
 Le premier bateau reposait dans une anse, balancé
@@ -3518,7 +3512,7 @@ k parmi les galets.
 
 k le rouet d'ivoire 1 RNER
 
-Un frêne ombrageait les eaux. Un rai de soleil tra- 1
+Un frêne ombrageait les eaux. Un rai de soleil tra-
 versant la nappe noire, mordora soudain le fond de
 
 feuilles qui prit l'éclat chaud du bronze. Alors les
@@ -3541,7 +3535,7 @@ Nous allions jouer sent dans le cimetière des
 Ils étaient échoués sur la berge vaseuse, parmi des
 ancres rouillées et des débris de cabestan. Leurs tôles
 se gondolaient sous la chaleur, et le goudron des …
-coques se délayait au fil de l'eau. ÿ
+coques se délayait au fil de l'eau.
 
 Il faisait bon se blottir dans les roufs d'arrière, fermer
 les yeux, entendre le bruissement de l'eau contre les
@@ -3549,7 +3543,7 @@ planches, et rêver de voyages, de pirates, d'aventures. De merveilleuses invent
 
 Un vieux marinier gardait le bateau des entreprises
 des maraudeurs. Il était perclus de rhumatismes et on
-lemployait par charité. 1
+lemployait par charité.
 
 Il veillait jalousement sur la Mouette, le remorqueur
 qu'il avait piloté pendant des années, et il s'attristait de
@@ -3563,14 +3557,14 @@ _ laver le pont à l'eau courante, la mort planaït sur le
 k Un jour, un ordre vint de l'entrepreneur, et la
 Mouette, remise à neuf, vit de nouveau, après des
 _ années de repos sans gloire, sa cheminée fumer.
-k Un frémissement de vie parcourait sa membrure; la F
+k Un frémissement de vie parcourait sa membrure; la
 | quille vibrait tandis que lhélice soulevait de gros
 bouillons. Avec un meuglement de la sirène, pareil au
 hennissement d'un cheval qui s'ébroue, la Mouette :
 - gagna le large. |
 Blottis à l'avant, parmi des paquets de cordages,
 nous nous taisions, cherchant à passer inaperçus et
-_ ravis de notre escapade. j
+_ ravis de notre escapade.
 La sirène hurlait, jetant sur le fleuve son cri enivré
 d'espace. Les chalands s'écartaient; le fleuve s'ouvrait
 _ comme une mer et la houle puissante, que nous soulevions derrière nous, détachait fe long des berges
@@ -3585,17 +3579,17 @@ __ prairies; des combes forestières s'ouvraient, laissant À
 
 | Le retour fut triste, dans la nuit noire... DA Ne
 Amarine allait partir, les travaux étaient terminés.
-En vain le père, pour plaisanter, m'avait offert de 4
+En vain le père, pour plaisanter, m'avait offert de
 m'emmener dans la cabine flottante, voulant faire de
 moi un bon marinier. \. Li
 Amarine dit, me voyant triste de la séparation pro
-— Laïsse-moi faire, j'ai mon idée. 1
+— Laïsse-moi faire, j'ai mon idée.
 Toute la famille dinait dans la petite cour donnant
 sur les jardins, quand la porte s'entr'ouvrit, donnant
-passage à la fillette. D
+passage à la fillette.
 Elle s'avançait, sérieuse, un pli d'inquiétude barrant
 son front. Toute sa petite personne exhalaït un parfum
-de sauvagerie. 3
+de sauvagerie.
 Elle tendit à mon père une tirelire de porcelaine, où
 sonnaïllaient des gros sous. à
 — Voilà, dit-elle, d'un ton résolu. Je viens acheter
@@ -3647,8 +3641,8 @@ qu'il avait appris ces appellations pittoresques des "
 queues-rouges de la foire, et.s'il a perdu mon estime. 14 "1
 comme inventeur de vocables, je ne lui garde pas rancune. Pauvre Colin! Assis sur sa barque de passeur, à dt
 l'heure où le hèlement des faucheurs courait sur la
-rivière, il me montrait l'endroit où remontent les bancs M
-de grimilles, les perches goujonnées qui ont dans les | D:
+rivière, il me montrait l'endroit où remontent les bancs
+de grimilles, les perches goujonnées qui ont dans les
 nageoires un arc-en-ciel. $ n".
 Il m'emmenait aussi dans les bois. ARE « Grâce à lui, je distinguai rapidement les bruits de la  "
 forêt, le piétinement du héyisson, le glapissement du
@@ -3657,26 +3651,26 @@ houle des feuilles, il m'apprenaïit les essences d'arbres, ‘M
 me révélant leurs vertus, l'érable bon pour les menui- De
 siers, le tremble dont les éclats servent à faire des
 râteaux. Dans la solitude des clairières, trempés de
-rosée, les bouleaux fins frissonnaient. Nous cueillions 3
-les sorbes et dénichions les étourneaux. Que de fois, 4
-couchés au bord des mares que le soleil couchant ensan- ÿ
-glantait, nous restions sans bouger parmi les jones é 4
-vaseux, et Colin imitait le cri menu de la souris, jus: M
+rosée, les bouleaux fins frissonnaient. Nous cueillions
+les sorbes et dénichions les étourneaux. Que de fois,
+couchés au bord des mares que le soleil couchant ensan-
+glantait, nous restions sans bouger parmi les jones
+vaseux, et Colin imitait le cri menu de la souris, jus:
 qu'au moment où les chouettes venaient frôler nos fronts NM
-de leurs ailes ouatées ! - L
+de leurs ailes ouatées !
 Colin me dit, ce jour-là : À
 — Je vas te faire une tendue. 4 |
 * Quelle joie! Nous allons couper dans le bois les |
 pousses de cornouiller flexibles, qui servent à faire les |
-sauterelles, les pièges où l'on prend les oiseaux. 4
-120 4
+sauterelles, les pièges où l'on prend les oiseaux.
+120
 
-Nous traversons les chènevières. Les chanvres verts 1
-montent autour de nous, comme une forêt. Des souflles ; 1
-ardents passent au ras des terres calcinées. Les abeilles j
-ÿ se pressent à la porte de leur ruche en un tourbillon :4
+Nous traversons les chènevières. Les chanvres verts
+montent autour de nous, comme une forêt. Des souflles
+ardents passent au ras des terres calcinées. Les abeilles
+ÿ se pressent à la porte de leur ruche en un tourbillon
 d'ailes fauves. Autour des dômes de paille tressée flotte :
-un bourdonnement d'angoisse. k
+un bourdonnement d'angoisse.
 — Écoute, dit Colin, qui lève le doigt. $
 Un sourd grondement ébranle les profondeurs du ;
 — Le tambour des Suisses ! fi
@@ -3688,24 +3682,23 @@ les feuilles de son crépitement. Sous le cinglement |
 des lanières, les grands hêtres disparaissent, noyés
 dans une poussière d'eau. Sur les talus, des limaces |
 
-rampent, laissant derrière elles une trace argentée. ë
-. J'écoute le chant de la pluie et le rigolage des ruisseaux, qui entraînent des cailloux, le long des pentes. Ê
+rampent, laissant derrière elles une trace argentée.
+. J'écoute le chant de la pluie et le rigolage des ruisseaux, qui entraînent des cailloux, le long des pentes.
 L'averse cesse, la forêt s'égoutte, exhalant une ru-
 + meur de vie ardente, sous le soleil...
 Colin Michelot pénétrait dans les fourrés, me traînant
 à sa suite. Il en ressortait pliant sous sa charge de cor-
 
 .  mouillers. Sa culotte de toile collait à ses jambes; nos
-chaussures, à chaque pas, faisaient entendre une sorte L
+chaussures, à chaque pas, faisaient entendre une sorte
 de glouglou. {
 
 On vint s'installer au-dessus des trous de SaintReine.
 A deux pas, s'ouvrait un précipice, la falaise de calcaire rougeâtre tombait à pic, et des vaches qui pâtu-
 : raient au fond de la vallée, apparaissaient minuscules,
 comme des jouets d'enfant.
-| 121
 
-(Al le rouet d'ivoire A 1
+(Al le rouet d'ivoire A
 
 Jambe de ci, jambe de là, Colin Michelot tailla ses à
 
@@ -3750,39 +3743,39 @@ il concluait :
 
 Comme un Faune ivre de raisin, Colin Michelot émer-
 
-3 gea d'un fourré de vignes sauvages; les larges feuilles M
+3 gea d'un fourré de vignes sauvages; les larges feuilles
 rouges enguirlandaient son torse et se collaient sur sa
 trogne, trempée de rosée. Le petit bois des Quatre-
 
-Vents arrondissait ses masses de verdure sous le brouillard, un brouillard blanc d'octobre où le soleil déjà d
+Vents arrondissait ses masses de verdure sous le brouillard, un brouillard blanc d'octobre où le soleil déjà
 haut allumaït des transparences rosées.
 L'oreille tendue, les yeux écarquillés, Colin dit mys- bé
 Un son arriva dans le vent, un son triste et léger,
 plus triste que la plainte du vent s'engouffrant dans les
-granges, et qui s'enflait par intervalles. i
+granges, et qui s'enflait par intervalles.
 Dans les profondeurs de la brume, une nuée grisâtre
 se déploya; elle oscilla quelque temps à la cime du pelit bois, puis soudain elle s'égrena en un vol de petits
 oiseaux qui s'abattirent sur les saules,
 Et le bois, le boïs profond se peuplait de sautillements.
 Des mésanges filaient ébouriffées, dans un tournoiement de plumes bleues. On distinguait la mélopée
-monotone des tarins et les notes vibrantes du rouge- f
+monotone des tarins et les notes vibrantes du rouge-
 Colin chuchota à mon oreille :
 — Bouge pas, la journée sera bonne.
 _ Crice, crac. À la lisière du petit bois, trempée de soleil
 et de rosée, les cabillotes se détendaient, partaient d'un
 
-le rouet d'ivoire * D:
+le rouet d'ivoire
 bond, comme les sauterelles dans les seigles. Chaque L -
-raquette retenait un oiseau, la patte prise, saignante 1
-parfois, et son œil nous regardait, minuscule point de 7
+raquette retenait un oiseau, la patte prise, saignante
+parfois, et son œil nous regardait, minuscule point de
 jais où palpitait une angoisse immense. * SR
 
-4 Jusqu'à midi, les cabillotes sautèrent. 1
+Jusqu'à midi, les cabillotes sautèrent.
 Alors Colin Michelot commença sa tournée. Il cueïl: ;
 lait les « petites bêtes » : mésanges qui becquetaient
 sa main vaillamment, rouges-gorges teints du sang de
 Notre-Seigneur, roitelets guère plus gros que des hannetons quand ils seraient plumés. Il en faisait un cha- '
-« pelet qu'il glissait dans sa gibecière. È
+« pelet qu'il glissait dans sa gibecière.
 Pour les achever, il usait d'un procédé cruel. Il :
 appuyait son large pouce sur le bréchet, l'os tranchant
 des petites poitrines, et l'écrasait. Alors les pattes se
@@ -3805,11 +3798,11 @@ la maison d'école |
 Ma mère me prit par la main et me conduisit à
 l'école.
 
-J'ai eu le bonheur d'aller à l'école primaire, à l'école w
+J'ai eu le bonheur d'aller à l'école primaire, à l'école
 de mon village. Elle ne ressemblait pas aux bâtisses
-maussades qu'on voit dans les grandes villes, dont les è
+maussades qu'on voit dans les grandes villes, dont les
 
-fenêtres sont garnies de carreaux dépolis, et dont les L
+fenêtres sont garnies de carreaux dépolis, et dont les
 
 cours sont pareilles à des préaux de prison. Il s'en
 échappe des murmures de voix et des chants résignés,
@@ -3817,9 +3810,9 @@ qui disent la mélancolie de l'enfance étouffée entre
 quatre murs, et ces cages sont vilaines, car on y
 apprend à méconnaître la vie. Mais pour mes enfants,
 pour les petits enfants de France, je ne souhaiterais pas
-d'autre lieu d'apprentissage que mon école. 4
+d'autre lieu d'apprentissage que mon école.
 C'est qu'elle était installée au milieu des champs, au |
-milieu des bruits rustiques, au milieu des odeurs printanières, Comme une ruche. j
+milieu des bruits rustiques, au milieu des odeurs printanières, Comme une ruche.
 La vie de l'air l'entourait largement.
 
 Pr C'était une grande salle au premier étage de la
@@ -3833,7 +3826,7 @@ cahotant les faucheurs et les faneuses qui, couchés sur |
 
 la masse odorante, nous faisaient des signes d'amitié au
 
-L'hiver, quand on célébrait des mariages, le maître 2
+L'hiver, quand on célébrait des mariages, le maître
  s'absentait un instant, et nous remettait à la surveillance |
 
 d'un moniteur. Grand émoi : la mariée, blanche dans sa
@@ -3864,7 +3857,7 @@ croyants et les martyrs. *
 Je me rappelle une explication de Lafontaine dont la
 tranquille invraisemblance aurait déconcerté toute critique. On lisait les Animaux malades de la Peste, et
 monsieur Pierson commentait. Alors défilaïent les animaux de haut rang, chamarrés de dignités, le lion avouant
-ses fautes, avec fierté, ainsi qu'il sied à un roi, le re- ÿ
+ses fautes, avec fierté, ainsi qu'il sied à un roi, le re-
 nard bon courtisan, bref toute la féodalité. Quand venait À
 le tour de l'âne, le pelé, le galeux, un frémissement
 
@@ -3877,7 +3870,7 @@ malmenée par le père Lexis, un pauvre âne aux dents
 jaunes, à la peau usée, aux oreilles pendant comme
 des loques, et qui tirait de ses flancs caverneux un
 braiement d'épouvante, quand le vieux martelait son
-échine à coups de bâton. Et voilà que la bourrique prenait une grandeur symbolique, qu'elle dressait, à la cime Ÿ
+échine à coups de bâton. Et voilà que la bourrique prenait une grandeur symbolique, qu'elle dressait, à la cime
 des temps, sa croupe anguleuse. Elle portait depuis
 le passé le fardeau d'injustice, image du peuple dont
 elle avait l'entêtement et la résignation.
@@ -3902,7 +3895,7 @@ pour nourrir sa famille, Il avait chanté au lutrin,
 . sonné les cloches, et s'était levé si matin pour tenir
 les écritures de la mairie, qu'il s'endormait parfois
 dans sa classe. Sa pauvre tête grisonnante retombaïit
-sur sa poitrine, avec une sorte de déclanchement lamen- Ù
+sur sa poitrine, avec une sorte de déclanchement lamen-
 
 4 le rouet d'ivoire ‘0
 table. Mais rien n'avait altéré la foi profonde qu'il avait “.
@@ -3925,7 +3918,7 @@ comme un croyant parle de son Dieu. L'école était
 bien pauvre, mais il caréssait un rêve longuement poursuivi : installer dans une armoire un compendium, dt
 c'est-à-dire un assemblage de tous les poids et de toutes
 les mesures, montrant dans un bel ordre leurs étains et
-leurs cuivres; et ce mot que nous ne comprenions pas L
+leurs cuivres; et ce mot que nous ne comprenions pas
 prenait une ampleur! Pendant les vacances il s'en-
 | fermait dans la classe et décorait les murs de grandes
 cartes peintes à la fresque dont les couleurs claires
@@ -3942,7 +3935,7 @@ Pauvre vieux maître : de chaires illustres, j'ai entendu :
 
 tomber des paroles éloquentes. Mais rien ne m'émeut |
 
-davantage que de me rappeler le son de votre voix aux l
+davantage que de me rappeler le son de votre voix aux
 
 Il faut avoir entendu les mères de chez nous adresser
 
@@ -3950,7 +3943,7 @@ Il faut avoir entendu les mères de chez nous adresser
 
 de tendresse injurieuse ! &
 
-Petit brinquin. — 11 évoque toute mon enfance, ce 4
+Petit brinquin. — 11 évoque toute mon enfance, ce
 
 mot dont la rusticité s'harmonise avec les façades cré- |
 
@@ -3968,7 +3961,7 @@ parmi tant d'ombres silencieuses dont le glissement à
 
 | peuple la rue sous les sureaux en fleurs, parmi tant ;
 
-d'oubliés et tant de morts, c'est ton fantôme que je k
+d'oubliés et tant de morts, c'est ton fantôme que je
 
 poursuis, petit être naïf et charmant. Le
 
@@ -3978,11 +3971,11 @@ Suprême leçon de l'expérience! Sagesse maternelle
 
 qui nous rudoie, nous maltraite, et trouve d'indicibles
 
-sourires pour consoler nos pleurs! Soyons comme des F
+sourires pour consoler nos pleurs! Soyons comme des
 
 * enfants aux mains de la Vie. ;
 
-. Je sais que je ferai un gros plaisir à notre collabo- l
+. Je sais que je ferai un gros plaisir à notre collabo-
 à rateur Émile Moselly en annonçant ici même, en fin
 d'un cahier qui est sien, une revue où il a mis beaucoup
 de son cœur et où il met beaucoup de son travail, une
@@ -4009,7 +4002,7 @@ d'Avril, Em. Badel, Fernand | Paul Damien, L. Davillé,
 Pierre Boyé, P. Braun, Ch.-S. | Louis Géhin, L. Germain,
 Brentano, A. Cabasse, Tatan | L. Gilbert, Ch. Guérin, Ch.
 
-quatrième cahier de la neuvième série 15
+quatrième cahier de la neuvième série
 
 | René Joffroy, M. Knecht, | fitte, M. Pottecher, H. Poulet,
 Emile Krantz, H. de La Re- | B. Puton, Jean de Raon, Adr.
@@ -4034,13 +4027,13 @@ raine illustrée n'auront qu'à nous fairespasser ces ordres
 serons particulièrement heureux de transmettre ces ;
 abonnements, sans frais, à M. Charles Sadoul à Nancy.
 
-_ © Ia été tiré de ce cahier douze exemplaires sur ë,
+_ © Ia été tiré de ce cahier douze exemplaires sur
 whatman ainsi distribués : ,
 _ premier exemplaire de souche, exemplaire du gérant; |
-deuxième exemplaire de souche, exemplaire de l'ad- j
+deuxième exemplaire de souche, exemplaire de l'ad-
 _ troisième exemplaire de souche, exemplaire de l'imprimeur ; FT
-neuf exemplaires d'abonnement, numérotés de I à 9
-Tous nos exemplaires sur whatman sont numérotés k
+neuf exemplaires d'abonnement, numérotés de I à
+Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur ; nos
 tirages d'exemplaires sur whatman sont rigoureuse-
 stant souscrits; nous ne vendons point d'exemplaires
@@ -4051,22 +4044,21 @@ Les Cahiers de la Quinzaine sont composés à la main,
 en caractères fin dix-huitième siècle (Didot) de la fon-
 . derie Mayeur (Allainguillaume et compagnie succes-
 : . seurs) 21, rue du Montparnasse, à Paris, sixième
-| 135
 
 : Pour savoir ce que sont les Cahiers de la Quinzaine, pe
 ; _ il suffit d'envoyer un mandat de trois francs cinquante lé
 “ à M. André Bourgeois, administrateur des cahiers, ? ke
-A : 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième ë
+A : 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 k arrondissement. On recevra en spécimens six cahiers %
 a cinquième, de la sixième ou de la septième série.
-à à Pour savoir ce qui a paru dens les cinq premières j
+à à Pour savoir ce qui a paru dens les cinq premières
 Ÿ séries des cahiers, 1900-1904, envoyer un mandat de
 _ cinq francs à M. André Bourgeois, même adresse : on
 ! recevra en retour le catalogue analytique sommaire,
 _  1900-190/, de nos cinq premières séries, premier cahier
 | de la sixième série, un très fort cahier de XI14-408 |
 # pagestrèsdenses,in-18 grand jésus, marqué cinq francs.
-1 Pour s'abonner à la huitième série des cahiers, qui
+Pour s'abonner à la huitième série des cahiers, qui
 N est la dernière série, envoyer en un mandat à M. André
 # Bourgeois, même adresse, le prix de l'abonnement; on |
 EU recevra en retour les seize cahiers parus de cette huiD ième série. “
