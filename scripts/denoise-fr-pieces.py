@@ -242,6 +242,117 @@ def strip_trailing_marginalia(line: str) -> str:
     return stripped
 
 
+# Mid-word page-number break: OCR pipeline left a page-sig number stuck
+# to the tail of a word at end of line, with the rest of the word starting
+# the next paragraph. Example:
+#   "...déversées chaque jour furieu76\n\nsement, pendant deux ans..."
+# → "...déversées chaque jour furieusement, pendant deux ans..."
+#
+# Highly specific pattern: a lowercase letter directly followed by 1-4
+# digits at end of line (no space between letters and digits — rules out
+# "en 1900"), followed by blank line(s), followed by a line beginning with
+# a lowercase letter. Real French rarely puts a digit-suffixed lowercase
+# fragment at end of line, so false-positive risk is very low.
+_MIDWORD_PAGENUM_RE = re.compile(
+    r"([a-zàâçéèêëîïôûùüÿñæœ]+)(\d{1,4})\s*$"
+)
+_NEXT_LOWER_RE = re.compile(
+    r"^([a-zàâçéèêëîïôûùüÿñæœ]+)"
+)
+
+
+# OCR-hyphenated word split across lines, never rejoined. Source markdown:
+#   "...comme une puissance mysté-\nrieuse, humble..."
+#   "...quinzaine du mois pré-\n\nJe tiens dès..."   (paragraph break too)
+# A line ending in `<lowercase>-` followed by `<lowercase>` at start of the
+# next non-blank line is a soft-hyphen line break that must be healed.
+# False-positive risk is low: real em-dashes are `—` or have space before `-`;
+# legitimate compounds (`grand-père`) don't put the hyphen at end-of-line.
+_HYPHEN_END_RE = re.compile(r"([a-zàâçéèêëîïôûùüÿñæœ]{2,})-\s*$")
+_LOWER_START_RE = re.compile(r"^([a-zàâçéèêëîïôûùüÿñæœ]{2,})")
+
+
+def join_hyphen_line_breaks(body: str) -> tuple[str, int]:
+    """Heal `xxx-\\n[blank?]yyy` OCR-hyphenation by dropping the hyphen and
+    joining the syllables.
+
+    Returns (new_body, joins_applied).
+    """
+    lines = body.splitlines()
+    joins = 0
+    i = 0
+    while i < len(lines):
+        m = _HYPHEN_END_RE.search(lines[i])
+        if not m:
+            i += 1
+            continue
+        # Find next non-blank line.
+        j = i + 1
+        while j < len(lines) and not lines[j].strip():
+            j += 1
+        if j >= len(lines):
+            i += 1
+            continue
+        n = _LOWER_START_RE.match(lines[j])
+        if not n:
+            i += 1
+            continue
+        pre = m.group(1)
+        post = n.group(1)
+        # Reconstruct: head of line i (without hyphen + trailing whitespace)
+        # + post + rest of line j. Drops the intermediate blank lines.
+        head_i = lines[i][: m.start()] + pre  # everything up to and including `pre`
+        rest_j = lines[j][n.end():]
+        lines[i] = head_i + post + rest_j
+        del lines[i + 1 : j + 1]
+        joins += 1
+        # Don't advance i — merged line might end with another hyphen-break.
+    return "\n".join(lines) + ("\n" if body.endswith("\n") else ""), joins
+
+
+def join_midword_pagenum_breaks(body: str) -> tuple[str, int]:
+    """Heal `<lowercase>+<digits>\\n\\n<lowercase>` page-break splits.
+
+    Returns (new_body, joins_applied).
+    """
+    lines = body.splitlines()
+    joins = 0
+    i = 0
+    while i < len(lines):
+        m = _MIDWORD_PAGENUM_RE.search(lines[i])
+        if not m:
+            i += 1
+            continue
+        # Find next non-blank line.
+        j = i + 1
+        while j < len(lines) and not lines[j].strip():
+            j += 1
+        if j >= len(lines):
+            i += 1
+            continue
+        n = _NEXT_LOWER_RE.match(lines[j])
+        if not n:
+            i += 1
+            continue
+        # Build the joined word from `pre` + `post`. Sanity check: combined
+        # length should be at least 4 chars (real word, not "a3b").
+        pre = m.group(1)
+        post = n.group(1)
+        if len(pre) + len(post) < 4:
+            i += 1
+            continue
+        # Reconstruct lines[i] by removing the digits and appending the head
+        # of lines[j].
+        head_of_line_i = lines[i][: m.start(2)]  # everything up to (but not incl) digits
+        rest_of_line_j = lines[j][n.end():]
+        lines[i] = head_of_line_i + post + rest_of_line_j
+        # Remove blank lines between i and j and remove line j itself.
+        del lines[i + 1 : j + 1]
+        joins += 1
+        # Don't advance i — the merged line might end with another break.
+    return "\n".join(lines) + ("\n" if body.endswith("\n") else ""), joins
+
+
 def denoise_text(text: str) -> tuple[str, int, int]:
     """Return (cleaned_text, lines_kept, lines_dropped)."""
     # Preserve frontmatter block verbatim.
@@ -256,6 +367,10 @@ def denoise_text(text: str) -> tuple[str, int, int]:
     else:
         frontmatter = ""
         body = text
+
+    # Heal mid-word page-num breaks + hyphen-at-line-break before line-by-line denoise.
+    body, _joins_pgnum = join_midword_pagenum_breaks(body)
+    body, _joins_hyph = join_hyphen_line_breaks(body)
 
     kept, dropped = [], 0
     blank_run = 0

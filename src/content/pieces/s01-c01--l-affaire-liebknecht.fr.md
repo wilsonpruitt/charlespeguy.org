@@ -10,22 +10,19 @@ wordCount: 28957
 Le mardi 5 décembre au soir, le Congrès tenait sa
 sixième séance. Guesde, qui avait conduit les mouvements de masse de plus de cinq cents mandats sans
 quitter son banc de simple délégué, au pied de la tribune, Guesde, que l'on devinait depuis trois jours, aux
-mouvements des masses, comme une puissance mysté-
-rieuse, humble et superbe, commune et autoritaire, À
+mouvements des masses, comme une puissance mystérieuse, humble et superbe, commune et autoritaire, À
 Guesde, que ses adversaires avaient plusieurs fois
 demandé, mais qui s'était gardé jusque là, Guesde parlait pour la première fois. Cheveux et barbe broussailleuse, voix grinçante et malade, regard de croyant, il
 parlait. Jamais homme en cette assemblée houleuse
 n'inspira autant d'amour étroit, ne souleva une aussi
-furieuse réprobation. Maïs la réprobation même, haï-
-neuse et violente de parole et de geste, était respectueuse d'attitude. Guesde le sentait bien et, comme un
+furieuse réprobation. Maïs la réprobation même, haïneuse et violente de parole et de geste, était respectueuse d'attitude. Guesde le sentait bien et, comme un
 vieux lutteur, voulait visiblement dompter la salle. Sans
 cela il n'eût pas entassé froidement et ardemment les,
 provocations démagogiques. Il en vint à parler de la
 consultation internationale ouverte à la Petite République sur l'affaire Dreyfus et le cas Millerand. Il prononça done les noms de Schoenlank, de Bebel, de
 Liebknecht. Ici une rumeur, et dans la rumeur confuse
 un cri, pas très haut, plutôt une affirmation qu'une
-Je sursautai, tant cela était imprévu. Cette exclamation, prononcée sans éclat, fut instantanément et di-
-stinctement entendue dans toute la salle. Immédiatement
+Je sursautai, tant cela était imprévu. Cette exclamation, prononcée sans éclat, fut instantanément et distinctement entendue dans toute la salle. Immédiatement
 une formidable clameur de réprobation et d'horreur
 éclata, peu à peu polarisée à gauche, où elle se disciplinait sur l'air des Lampions: À la porte! à la porte!
 Le cri avait été poussé à quelques tables en avant de
@@ -45,8 +42,7 @@ camarade n'avait pas bougé dans tout ce vacarme:
 — « C'est Joindy qui a crié cela. Laissez-le... Il doit
 savoir ce qu'il dit... Laissez-le s'expliquer... » Je ne le
 croyais nullement. Je ne croyais pas que ce fût Joindy,
-homme au courant des convenances. Le tumulte conti-
-nuait, spontané pour beaucoup de croyants, instinctif,
+homme au courant des convenances. Le tumulte continuait, spontané pour beaucoup de croyants, instinctif,
 habituel pour beaucoup d'hommes simples, désiré,
 caressé, commandé par certains tacticiens. Toute la
 gauche debout huait la droite et la rendait responsable.
@@ -58,11 +54,9 @@ Joindy à la tribune. Paroles sages. Assemblée frémissante, prête à bondir. 
 bouleversée, immuable d'horreur. Joindy, très digne, en
 
 vint à parler des sentiments haineux de Liebknecht
-contre ceux... À mesure que la phrase de Joindy s'avan-
-çait, à mesure que l'on sentait arriver le nom propre,
+contre ceux... À mesure que la phrase de Joindy s'avançait, à mesure que l'on sentait arriver le nom propre,
 
-Guesde fut pris de ce tremblement qui marque l'horreur religieuse. Tout assis qu'il était, il secouait fréné-
-tiquement les avant-bras, les poings fermés, sur un
+Guesde fut pris de ce tremblement qui marque l'horreur religieuse. Tout assis qu'il était, il secouait frénétiquement les avant-bras, les poings fermés, sur un
 rythme effrayant à vitesse croissante. Ce geste ne m'é-
 tait pas nouveau. Je cherchais en vain où je l'avais
 quand un éclair de mémoire me montra Mounet dans
@@ -75,9 +69,7 @@ profondeur, est à peu près indiscernable de la vie. Jé-
 
 1) tais résolument hostile à Guesde. Je le guettais, pour
 
-ainsi dire, ce qui est un peu lâche, quand on est commodément assis à son banc et que l'homme guetté s'ex-
-
-pose à la tribune. Je le regardais avec une attention
+ainsi dire, ce qui est un peu lâche, quand on est commodément assis à son banc et que l'homme guetté s'expose à la tribune. Je le regardais avec une attention
 passionnée. Or, à aucun moment de cette scène, je n'eus
 l'impression qu'il jouait la comédie. J'avoue que je ne
 sais pas même s'il jouait la tragédie.
@@ -90,8 +82,7 @@ unanime. L'expulsion fut loin d'être universellement
 votée. On se renseignait. On connaissait l'article de
 Drumont. Le lendemain on collait et on clouait Libre
 Parole aux poteaux du gymnase. On la lisait beaucoup.
-L'opinion publique se ressaisissait. Beaucoup de délé-
-gués blâmaient l'intolérance du congrès.
+L'opinion publique se ressaisissait. Beaucoup de délégués blâmaient l'intolérance du congrès.
 Voici le compte rendu officiel de cet incident:
 question fut posée au prolétariat démocrate-socialiste allemand, qui par l'intermédiaire de Schoenlank, de Bebel, de
 Une violente clameur se produit alors. La plus grande partie des
@@ -114,18 +105,14 @@ allez être des juges, vous voudrez entendre celui que vous
 Le citoyen Joindy se présente aussitôt à la tribune. Nouveau et
 
 LE CITOYEN PRÉSIDENT. — Puisque vous avez à juger sur
-une question aussi grave que celle de l'expulsion d'un délé-
-
-gué, je vous demande de l'écouter dans le plus grand silence,
+une question aussi grave que celle de l'expulsion d'un délégué, je vous demande de l'écouter dans le plus grand silence,
 de ne faire aucune interruption, et de laisser le citoyen
 
 LE GIToyEN Joxpy. — J'affirme, dans les circonstances
 graves qui m'amènent à cette tribune, j'aflirme les plus purs
 sentiments internationalistes qui soient. (Mouvements divers.
 
-— Applaudissements) — J'aflirme que ce qui nous a tous ame-
-
-nés dans ce congrès, c'était l'obligation de lutter en commun
+— Applaudissements) — J'aflirme que ce qui nous a tous amenés dans ce congrès, c'était l'obligation de lutter en commun
 
 contre toutes les forces réactionnaires qui, dernièrement
 
@@ -178,8 +165,7 @@ articles des lignes suivantes: « Le chef de la socialdémocratie allemande, qui
 vérité et la justice en des combats sérieux, Wilhelm
 
 Liebknecht me fait le plaisir de se déclarer dans ma
-feuille sur l'affaire Dreyfus, avec la franchise sans ré-
-serve qui lui a toujours été propre.
+feuille sur l'affaire Dreyfus, avec la franchise sans réserve qui lui a toujours été propre.
 Lettre adressée par Liebknecht au directeur de la revue
 Je dois vous envoyer un article au sujet de l'Affaire, et
 j'ai été assez étourdi pour vous le promettre, sans songer
@@ -197,14 +183,12 @@ Etje ne voulais pas préparer un triomphe à la canaille qui,
 en France et hors de France, souhaitait avidement la
 Trois articles parus dans die Fackel (la Torche) (Vienne)
 éditée par Karl Kraus. N°' 18, 19 et 21, fin septembre, commencement
-Ces trois articles ont été ensuite réunis en une brochure spé-
-ciale, de 20 pfennigs, intitulée: Nachtraegliches zur « Affaire ». La
+Ces trois articles ont été ensuite réunis en une brochure spéciale, de 20 pfennigs, intitulée: Nachtraegliches zur « Affaire ». La
 traduction est faite d'après cette brochure.
 
 condamnation du Juif. Je ne veux pas dire par qu'il n'y
 ait de l'autre côté que des gens honorables et propres.
-Quelques-uns sentaient fortement le Panama; et un Tra-
-rieux, persécuteur des socialistes, qui a jeté plus d'une fois
+Quelques-uns sentaient fortement le Panama; et un Trarieux, persécuteur des socialistes, qui a jeté plus d'une fois
 en prison des travailleurs évidemment innocents, ou un
 Galliffet, meurtrier des socialistes, qui, pendant la semaine
 sanglante de mai 1871, souriant, la cigarette aux lèvres,
@@ -246,8 +230,7 @@ sens. Le mouvement antisémite était très faible en France
 en 1894; ses promoteurs passaient pour des gens ridicules.
 Depuis lors il est devenu plus fort, mais c'est essentiellement par suite de la campagne; aujourd'hui même il s'en
 faut de beaucoup qu'il égale en violence l'antisémitisme
-allemand, quoiqu'il s'étale davantage, à la manière fran-
-caise. Personne ne me croira suspect de sympathie pour les
+allemand, quoiqu'il s'étale davantage, à la manière francaise. Personne ne me croira suspect de sympathie pour les
 antisémites; mais quelque haute opinion que j'aie de la
 haïne de MM. Liebermann de Sonnenberg, Bockel, Ahlwardt
 et compagnie contre les juifs, je ne puis supposer qu'ils
@@ -294,8 +277,7 @@ me poser cette question: Est-il vraisemblable, est-il admissible qu'un officier 
 sont très influents, puisse être condamné pour un crime de
 haute trahison qu'il n'a pas commis, et demeurer sous les
 verrous cinq années durant? Est-il vraisemblable, est-il
-admissible que le gouvernement en faveur duquel on pré-
-tend que la trahison a été commise puisse souffrir qu'un
+admissible que le gouvernement en faveur duquel on prétend que la trahison a été commise puisse souffrir qu'un
 innocent demeure en prison, cinq années durant, de ce chef,
 et soit traité comme Dreyfus a été traité?
 
@@ -333,9 +315,7 @@ encore, et je me mis assidûment à l'étude de l'Affaire. La
 justice allemande vint à mon aide; en novembre 1897 j'eus
 à subir une condamnation de quatre mois de prison, et je
 trouvai ainsi le loisir nécessaire. Le procès Zola eut lieu
-précisément pendant ma détention: comme j'avais la permission de lire Le Temps, qui rassemblait avec un soin mé-
-
-ticuleux tous les documents en faveur de Dreyfus, et donnait le compte rendu sténographique du procès Zola, j'avais
+précisément pendant ma détention: comme j'avais la permission de lire Le Temps, qui rassemblait avec un soin méticuleux tous les documents en faveur de Dreyfus, et donnait le compte rendu sténographique du procès Zola, j'avais
 à ma disposition tous les matériaux de l'Affaire et je pus
 asseoir mon jugement sur une base assez solide. En prison,
 on lit de près. Outre Le Temps, je pouvais lire la KXreuszzeitung (1) et la Vossische Zeitung (2). De la sorte je pouvais observer l'état de l'Affaire en France, et ce que l'on en
@@ -362,8 +342,7 @@ faveur d'un homme condamné pour haute trahison, dans
 le pays même à qui il avait vraisemblablement livré sa
 patrie? C'était pure déraison. J'en vins à cette conviction
 que la cause de Dreyfus était en mauvaises mains. Et mes
-doutes sur son innocence se trouvèrent singulièrement for-
-tifiés. Les explications de l'ambassadeur allemand présent
+doutes sur son innocence se trouvèrent singulièrement fortifiés. Les explications de l'ambassadeur allemand présent
 à Paris en 1894 et les nouvelles explications du secrétaire
 d'État Bülow, qui intervinrent entre temps, n'étaient pas
 faites pour les diminuer. Cétaient les formules conventionnelles, exprimant simplement ce mensonge conventionnel qu'un gouvernement n'a pas de relations, soit directes,
@@ -375,8 +354,7 @@ fait et cause pour la revision dans tous les cas où il s'élève
 un doute sur la culpabilité de l'accusé.
 
 Mais ces injures contre la bande de faussaires, les criminels, les Français dégénérés, qui rappelaient les plus crapuleux débordements du fanatisme guerrier de 1870-71, soulevèrent en moi un tel dégoût, qu'aussitôt après ma mise en
-liberté, causant entre quatre yeux avec des partisans dé-
-clarés de la cause dreyfusiste, je leur exposai que les
+liberté, causant entre quatre yeux avec des partisans déclarés de la cause dreyfusiste, je leur exposai que les
 meneurs de la campagne méritaient des coups de bâton pour
 le tort qu'ils faisaient à leur propre cause, et pour l'assistance qu'ils prêtaient aux antisémites et aux réactionnaires
 
@@ -438,8 +416,7 @@ rire lorsqu'ils ont dans les journaux qu'en présence de
 la déclaration du Moniteur de l'Empire la condamnation
 devenait une insulte au gouvernement allemand, à l'empereur et à l'empire. Si l'on avait en France dans cette
 déclaration autre chose qu'une formule conventionnelle, les
-juges du conseil de guerre et les hauts fonctionnaires fran-
-çais auraient par même porté contre leur propre intelligence et contre leur savoir un bien fächeux témoignage.
+juges du conseil de guerre et les hauts fonctionnaires français auraient par même porté contre leur propre intelligence et contre leur savoir un bien fächeux témoignage.
 
 Et ici un petit souvenir personnel. Un voyageur monte
 Paris avec sa femme et une amie de celle-ci dans un coupé
@@ -451,8 +428,7 @@ met en marche, un monsieur de haute stature bondit dans
 (1) En Allemagne, où l'on mène maintenant une campagne patriotique contre les mots étrangers, d'ailleurs avec peu de goût et de
 connaissance de la langue, le mot de coupé est proscrit et il faut
 dire Abtheil.
-le coupé, et, après un salut rapide, se jette dans le qua-
-trième coin. Il est visiblement très agité, ce qui s'explique
+le coupé, et, après un salut rapide, se jette dans le quatrième coin. Il est visiblement très agité, ce qui s'explique
 par sa hâte et son arrivée précipitée.
 L'étranger ne dit mot, et tint sa casquette à demi baissée
 sur son visage, de telle sorte qu'on eût le croire endormi, si des mouvements nerveux n'avaient démenti cette
@@ -468,8 +444,7 @@ pouvoir leur échapper. Mais maintenant je suis en sûreté. »
 
 Et il me conta alors ce qui lui arrivait, avec une ouverture de cœur qui s'expliquait en partie par l'angoisse qu'avait éprouvée notre homme, et en partie parce qu'il croyait
 se trouver avec des gens sur la sympathie desquels il pouvait compter. (On n'a pas d'ailleurs abusé de sa confiance.)
-Bref, il s'était rendu, de son plein gré, à Paris, pour péné-
-trer plus profondément certains secrets militaires, et il
+Bref, il s'était rendu, de son plein gré, à Paris, pour pénétrer plus profondément certains secrets militaires, et il
 était devenu suspect à des collègues ou camarades français
 qui remplissaient un emploi analogue aux dépens de l'Allemagne. Dans sa confession une chose me frappa particulièrement: le récit d'un entretien qu'il avait en Allemagne avec un... supérieur. On l'avait averti: « Ce que vous
 faites, vous le faites à vos risques et périls. Si vous êtes
@@ -497,12 +472,9 @@ que la peine prescrite par la loi paraît trop dure. Je rappellerai les circonst
 presque régulièrement dans le cas d'infanticide. Pourquoi
 les cinq membres du conseil de guerre qui ont déclaré l'accusé « coupable avec circonstances atténuantes » n'auraientils pas été déterminés par des considérations d'humanité?
 Pourquoi n'auraient-ils pas se dire: « Les cinq années
-d'île du Diable et les tortures morales et physiques, par là-
-dessus la guillotine sèche d'une seconde condamnation, —
+d'île du Diable et les tortures morales et physiques, par làdessus la guillotine sèche d'une seconde condamnation, —
 cela est assez et plus qu'assez; si nous confirmons et si nous
-prolongeons encore la peine déjà prononcée, notre juge-
-
-ment apparaîtra comme une cruauté superflue, et ne pro
+prolongeons encore la peine déjà prononcée, notre jugement apparaîtra comme une cruauté superflue, et ne pro
 voquera qu'un sentiment de compassion en faveur du condamné, de répulsion contre nous. Or, avec des circonstances
 atténuantes, le gouvernement peut gracier, et le scandale
 cesse. » Je peux très bien imaginer un pareil raisonnement,
@@ -645,8 +617,7 @@ lapprouve plus que moi, — mais on aurait dit que tout
 cas l'effet qui a été produit.
 
 Jugeons-en d'après l'événement. Je n'ai évidemment pas
-le culte du succès. Maïs dans la pratique, c'est encore l'évé-
-nement qui est le suprême juge.
+le culte du succès. Maïs dans la pratique, c'est encore l'événement qui est le suprême juge.
 Qu'a produit la campagne? Le but était: 1° d'obtenir
 l'acquittement du capitaine Dreyfus; 2° de préparer une
 défaite à l'antisémitisme, qui exploitait contre les juifs la
@@ -699,8 +670,7 @@ Après la guerre de 1870-71, les Français. vaincus adoptèrent le système mili
 et c'est alors que commença cette course folle, cette concurrence de militarismes qui depuis a doublé pour l'Allemagne,
 et triplé pour la France les charges militaires. Nous autres,
 Allemands, nous avions et nous avons beaucoup à souffrir
-de ce fardeau du militarisme; mais combien plus les Fran-
-çais! Habitués pour la plupart à plus de bien-être, ils se
+de ce fardeau du militarisme; mais combien plus les Français! Habitués pour la plupart à plus de bien-être, ils se
 font plus difficilement aux rudesses et aux privations de la
 
 L'AFFAIRE LIEBKNECHT vie de caserne; plus passionnés et doués d'un sens de la
@@ -781,10 +751,8 @@ selon la loi, Le jugement ne peut être revisé ou cassé que
 dans des conditions expressément déterminées, qu'il est
 nécessaire, pour obtenir la reprise de la procédure et rendre
 possible un nouveau procès, de découvrir un fait nouveau
-important, resté inconnu aux premiers juges. La personnalité la plus en vue qui ait pris fait et cause pour la revi-
-
-sion répond là-dessus, — comme Scheurer-Kestner l'a dit en
-propres termes au ministre de la justice français —: « Je
+important, resté inconnu aux premiers juges. La personnalité la plus en vue qui ait pris fait et cause pour la revision répond là-dessus, — comme Scheurer-Kestner l'a dit en
+propres termes au ministre de la justice français « Je
 
 n'ai pas de fait nouveau, mais j'ai ma conviction. » Au lieu
 
@@ -795,14 +763,8 @@ revision est un coquin ou un imbécile; en France, une
 campagne de presse se donne pour objet et pour but, —
 comme en fait, et en renversant les termes, cela avait été
 
-lobjet propre et le but de la presse allemande qui défen-
-
-dait Dreyfus, — de prouver que toute l'Allemagne est
-véreuse et pourrie, que tout le peuple allemand est dégé-
-
-néré, qu'il n'a ni sentiment de justice ni moralité, que l'ar-
-
-mée allemande est moralement gangrenée, que l'état-major
+lobjet propre et le but de la presse allemande qui défendait Dreyfus, — de prouver que toute l'Allemagne est
+véreuse et pourrie, que tout le peuple allemand est dégénéré, qu'il n'a ni sentiment de justice ni moralité, que l'armée allemande est moralement gangrenée, que l'état-major
 
 est une bande de faussaires et de gredins, — quel serait
 
@@ -889,15 +851,11 @@ bien voulu voir la tête du ministre de la justice prussien,
 
 de Schoenstedt, si au cours d'un entretien sur l'affaire
 Ziethen je lui avais dit: « Je n'ai pas de fait nouveau, mais
-j'ai ma conviction. » Votre conviction! Bah! que voulez-
-
-vous que me fasse?.…
+j'ai ma conviction. » Votre conviction! Bah! que voulezvous que me fasse?.…
 
 Aïünsi, l'on n'avait pas de fait nouveau, mais seulement
 la conviction que Dreyfus était innocent; avec cela l'on
-présumait qu'Esterhazy était le coupable, puis l'on présu-
-
-mait encore qu'au procès de 1894 certaines pièces à charge,
+présumait qu'Esterhazy était le coupable, puis l'on présumait encore qu'au procès de 1894 certaines pièces à charge,
 qui avaient servi de preuves décisives, n'avaient pas été
 montrées à l'accusé ni à ses défenseurs, — ce qui, pour le
 dire en passant, se produit à peu près dans tous les pays
@@ -910,7 +868,7 @@ d'établir dans l'espace de huit jours si, oui ou non, il s'était
 produit au procès de 1894 des vices de forme ou des erreurs
 judiciaires rendant possible la revision. Je parie, aujourd'hui encore, que j'aurais établi la vérité. Naturellement je
 supposais que le gouvernement français et l'état-major
-français ne se composent pas uniquement de gredins. Et à?
+français ne se composent pas uniquement de gredins. Et
 ce propos je confesserai que moi aussi, dans mon Affaire
 Dreyfus, je me suis adressé à un ministre, et non d'ailleurs
 sans réussite, bien que le succès final ne soit pas encore
@@ -945,11 +903,8 @@ bien s'aller mettre à l'abri en Suède. Tout homme tant soit
 peu au courant de notre droit sait cela. Je puis même ajouter qu'un des nos juristes et avocats les plus éminents et
 les plus expérimentés m'a assuré qu'en Allemagne la revision du procès Dreyfus, dans les conditions où se présentait l'affaire, eùt été absolument impossible. Cela tient seulement à la supériorité de la procédure française.
 Et que l'on songe maintenant aux torrents de boue et de
-lave, aux insultes qui se sont déversées chaque jour furieu76
-
-sement, pendant deux ans et demi, sur la justice française
-et sur tout ce qui touchait à la France, Cela n'était assuré-
-ment pas très moral. Et cela n'était pas très avisé non plus.
+lave, aux insultes qui se sont déversées chaque jour furieusement, pendant deux ans et demi, sur la justice française
+et sur tout ce qui touchait à la France, Cela n'était assurément pas très moral. Et cela n'était pas très avisé non plus.
 En France on est fort bien instruit des mœurs judiciaires
 allemandes. Le proverbe biblique de la paille et de la poutre
 a été appliqué, non sans à-propos, à la presse dreyfusiste
@@ -990,8 +945,7 @@ de Versailles, — il aurait attaché la croix de la Légion
 d'honneur sur la vertueuse poitrine des tacticiens géniaux,
 meneurs de la campagne. l'ont bien mérité.
 faut que j'aille ici au-devant d'une objection. Les de
-Moltke du mouvement revisionniste, les Südfeld (1) et Ci: pré-
-tendent que si l'on n'avait pas mené la campagne avec
+Moltke du mouvement revisionniste, les Südfeld (1) et Ci: prétendent que si l'on n'avait pas mené la campagne avec
 cette violence, on n'aurait jamais obtenu la revision. Cela
 est faux, je pense au contraire que sans toute cette violence
 et même sans toute cette campagne, la revision aurait été
@@ -1042,14 +996,10 @@ rébellion, reconduits à la frontière sous escorte, Picquart,
 à cause de... — mettons à cause de différentes choses, aurait
 été condamné à dix ans de forteresse, sans perspective de
 grâce, et — la revision n'aurait pas lieu, le Dreyfus allemand aurait été enseveli vivant, et en cas de tentative de
-fuite, impitoyablement fusillé, car c'est ainsi qu'en Allemagne on se comporte généralement à l'égard des prison-
-niers, non seulement de ceux qui ont commis le crime de 3}
+fuite, impitoyablement fusillé, car c'est ainsi qu'en Allemagne on se comporte généralement à l'égard des prisonniers, non seulement de ceux qui ont commis le crime de 3}
 haute trahison, mais encore des braillards inoffensifs qui, À
-mis en belle humeur par la bière, se sont laissés aller à offen-
-ser la dignité militaire d'une sentinelle et se sont fait arrêter
-pour ce méfait horrible. Assurément jamais la parole bi-
-blique sur les pharisiens arrogants n'a été plus vigoureusement illustrée, jamais l'hypocrisie nationale et interna-
-tionale ne s'est exprimée et étalée de plus répugnante façon.
+mis en belle humeur par la bière, se sont laissés aller à offenser la dignité militaire d'une sentinelle et se sont fait arrêter
+pour ce méfait horrible. Assurément jamais la parole biblique sur les pharisiens arrogants n'a été plus vigoureusement illustrée, jamais l'hypocrisie nationale et internationale ne s'est exprimée et étalée de plus répugnante façon.
 Les mêmes feuilles anglaises qui prenaient hautement fait
 et cause pour le martyr de l'île du Diable, et qui, chaque
 matin, ruisselaient de justice et d'humanité, sont — pour le
@@ -1139,8 +1089,7 @@ que le chancelier de l'Empire allemand — quoiqu'à vrai dire
 je ne pense guère qu'il se montre plus loquace en présence
 de journalistes français que devant le Reichstag, — quand il
 serait vrai qu'il se füt laissé aller à faire une telle déclaration, ce ne serait tout au plus qu'une forme adoucie de la
-fameuse note du Moniteur de l'Empire, qui a pour consé-
-quence allant de soi la condamnation de Dreyfus à Rennes.
+fameuse note du Moniteur de l'Empire, qui a pour conséquence allant de soi la condamnation de Dreyfus à Rennes.
 Si l'on a publiquement gardé le silence sur mon compte —
 je souhaiterais seulement que tous mes ennemis voulussent
 bien me faire ce plaisir, — je n'en ai été que plus activement
@@ -1186,8 +1135,7 @@ qu'eux de détenir le record. Auraient-ils par hasard limprudence de vouloir nie
 longue, très longue liste, à la Leporello.
 
 Et maintenant, j'ai fini. Il n'y avait pas de temps à perdre.
-Si je ne nr'étais dépêché, il eût été trop tard pour écrire en-
-core sur l'Affaire. Toute marchandise ne se conserve pas,
+Si je ne nr'étais dépêché, il eût été trop tard pour écrire encore sur l'Affaire. Toute marchandise ne se conserve pas,
 et je courais le risque de partager le sort de ce poète, qui
 ayant à faire une poésie sur la naissance d'un enfant reçut,
 avant d'avoir terminé sa pièce, la nouvelle que l'enfant
@@ -1199,8 +1147,7 @@ gens, qui croient encore à l'existence d'intérêts supérieurs
 à ceux des actions des mines d'or. Quant à la presse dreyfusiste allemande, autrichienne et française, elle a aussi des
 choses plus importantes à faire. Encore quelques semaines
 et l'on aura oublié le nom même de Dreyfus. Non, pourtant,
-ce serait dommage pour l'histoire de la civilisation. Espé-
-rons qu'il se trouvera quelque meneur, chef ou entrepreneur
+ce serait dommage pour l'histoire de la civilisation. Espérons qu'il se trouvera quelque meneur, chef ou entrepreneur
 de la campagne, pour concevoir la pensée de faire frapper,
 en souvenir de l'incroyable amour de l'humanité et de la
 justice, de la vertu, de la bravoure et de l'intelligence qui
@@ -1214,8 +1161,7 @@ pour la chasse aux rats, des processions dansantes de SaintGuy, et des émigrati
 
 Traduction préparée par Ernest Tonnelat
 
-L'Action française, dans son numéro 10, du 1° dé-
-cembre 1899, donna en supplément une traduction de
+L'Action française, dans son numéro 10, du 1° décembre 1899, donna en supplément une traduction de
 ces articles ainsi présentée
 
 On lire ci-dessous la traduction de trois lettres de
@@ -1228,8 +1174,7 @@ Le chef du socialisme allemand y explique avec une verve
 et une bonhomie éloquentes pourquoi, bien qu'en aient dit
 ses coreligionnaires en socialisme, il n'a jamais été dreyfusard.
 
-La « Campagne » menée en France, et surtout à l'étranger, notamment en Allemagne, y est énergiquement caracté-
-risée comme une vaste entreprise de réclame. L'opinion de
+La « Campagne » menée en France, et surtout à l'étranger, notamment en Allemagne, y est énergiquement caractérisée comme une vaste entreprise de réclame. L'opinion de
 Liebknecht est d'autant plus frappante pour nous, que ses
 sentiments antimilitaristes ne le rendent pas suspect de sympathie exagérée pour notre Etat-major. L'écrit que l'on
 lire contient même un certain nombre de passages assez
@@ -1262,8 +1207,7 @@ public en est averti).
 La traduction de l'Action française a été utilisée
 pour la campagne antisémitique. La Libre Parole —
 numéro du mardi 5 décembre — qui fut affichée au
-Congrès après l'incident Joindy, le mercredi soir, por-
-tait l'article suivant:
+Congrès après l'incident Joindy, le mercredi soir, portait l'article suivant:
 Le Congrès socialiste, annoncé depuis plusieurs mois
 grand orchestre, a tenu hier sa séance d'inauguration.
 faut espérer que Jaurès et Viviani vont profiter de la circonstance pour nous dire ce qu'ils pensent des trois lettres
@@ -1293,8 +1237,7 @@ d'être préservé de l'espèce de delirium tremens cérébral
 dans lequel chavirèrent, voici environ deux ans et demi,
 tant d'esprits qu'on aurait cru mieux équilibrés.
 
-Quoi qu'il en soit, le vieil agitateur, qui n'est pas précisé-
-ment un naïf, commençait dès ce moment-là à trouver que
+Quoi qu'il en soit, le vieil agitateur, qui n'est pas précisément un naïf, commençait dès ce moment-là à trouver que
 le dreyfusisme avait une drôle d'odeur.
 
 « s'en exhalaiït, dit-il, une très forte odeur de Panama. »
@@ -1324,8 +1267,7 @@ allemande recevait de Paris des renseignements absolument
 faux. Par exemple, ce que les journaux allemands écrivaient sur le procès Zola, dans lequel le principal personnage a joué un rôle bien ridicule, était en contradiction
 grotesque avec les faits. »
 Pourquoi les journaux allemands mentaient-ils ainsi de
-propos délibéré? Pourquoi les journaux anglais mentaientils de même, ainsi que les journaux belges, suisses, améri-
-cains ou suédois?
+propos délibéré? Pourquoi les journaux anglais mentaientils de même, ainsi que les journaux belges, suisses, américains ou suédois?
 
 Cornély répondra sans doute que c'étaient des mensonges évangéliques, de pieux mensonges uniquement
 dictés par la pitié qu'inspirait le martyr Dreyfus, ou par
@@ -1393,9 +1335,7 @@ Voulez-vous maintenant un tableau de ce qu'aurait été
 l'Affaire, d'après Liebknecht, si elle s'était produite en
 
 Ce qu'il y a de plus laid, de plus répugnant dans l'Affaire,
-dans le truc de l'Affaire, c'est l'insincérité intérieure, la menson-
-
-gère apparence de sainteté donnée à cette comédie de l'indignation,
+dans le truc de l'Affaire, c'est l'insincérité intérieure, la mensongère apparence de sainteté donnée à cette comédie de l'indignation,
 à la plus mensongère des comédies d'indignation.
 
 Vraiment, jamais la sentence biblique sur les Pharisiens orgueilleux n'a été plus vigoureusement illustrée; jamais l'hypocrisie nationale et internationale ne s'est exprimée et étalée de plus dégoù-
@@ -1514,8 +1454,7 @@ coupables de coquinerie ou frappés d'imbécillité.
 Il faudrait déjà regretter qu'il se fût exposé à être traduit
 et utilisé de cette façon.
 
-J'emprunte à la Petite République du mardi 12 dé-
-cembre le compte rendu suivant
+J'emprunte à la Petite République du mardi 12 décembre le compte rendu suivant
 Les délégués au Congrès. — Un incident. — Protestation
 
 Le punch socialiste organisé à l'issue du Congrès au salon
@@ -1557,8 +1496,7 @@ A. ZÉvAËs, du Parti ouvrier français; — Georges
 à Fédération socialiste révolutionnaire de la 5° circonscription de Saint-Denis (P. O. F.); — VIOLETTE,
 du groupe socialiste révolutionnaire de Cahors; —
 Desassy, du groupe socialdémocrate israélite de
-groupe socialiste agricole de Frenay, Comité socia-
-liste de Versailles, secrétaire du groupe d'étudiants
+groupe socialiste agricole de Frenay, Comité socialiste de Versailles, secrétaire du groupe d'étudiants
 
 Peprow, Paazrppou, de la Fédération de la région
 Comité de Montreuil (Alliance communiste). »
@@ -1591,8 +1529,7 @@ lorsqu'ils ignoraient son zèle antidreyfusard.
 
 Mais puisqu'il fait allusion aux nôtres, voici un fait contre
 lequel aucune dissertation ne saurait prévaloir. Les républicains bourgeois à côté de qui nous avons mené campagne
-dans l'affaire Dreyfus combattaient le militarisme, l'antisé-
-mitisme, le nationalisme. Ils les combattaient avec les mêmes
+dans l'affaire Dreyfus combattaient le militarisme, l'antisémitisme, le nationalisme. Ils les combattaient avec les mêmes
 arguments, les mêmes formules que nous.
 
 Au contraire, les journaux qui savent gré à Liebknecht
@@ -1662,11 +1599,9 @@ pensée de s'excuser de me recevoir en négligé.
 Vorwaerts, notre organe socialiste berlinois.
 
 — Comment donc? Comment donc? dis-je à Liebknecht.
-Vous êtes ici chez vous. Et j'aurais mauvaise grâce d'inter-
-rompre en quoi que ce soit vos occupalions. Je venais simplement vous rendre visite. Nous ne nous sommes pas vus
+Vous êtes ici chez vous. Et j'aurais mauvaise grâce d'interrompre en quoi que ce soit vos occupalions. Je venais simplement vous rendre visite. Nous ne nous sommes pas vus
 depuis votre dernier séjour en France.
-— Ah! oui, je m'en souviens, c'était lors de notre confé-
-rence à Lille, en même temps que Singer et Fischer, mes
+— Ah! oui, je m'en souviens, c'était lors de notre conférence à Lille, en même temps que Singer et Fischer, mes
 collègues du Reichstag.
 
 — Précisément. Depuis, que de changements, n'est-il pas
@@ -1781,9 +1716,7 @@ cette grâce, apparemment, comme l'événement le plus
 heureux qui pût lui arriver. De même que je n'ai nullement
 été défavorable à la revision de son procès, — au contraire,
 — mais uniquement à la campagne telle qu'elle a été organisée en France et à l'étranger pour y arriver, de même je
-suis satisfait de voir la fin de l'affaire par la grâce, Je sou-
-
-haite pour tous les hommes, quèlle que soit leur condition,
+suis satisfait de voir la fin de l'affaire par la grâce, Je souhaite pour tous les hommes, quèlle que soit leur condition,
 d'être traités Le plus humainement possible, et je suis toujours pour la revision du procès, quand des hommes sérieux
 
 entretiennent le doute,alors même qu'il ne m'en apparaîtrait
@@ -1853,8 +1786,7 @@ cette question, Liebknecht sourit et d'un air dédaigneux
 — Non. Je suis à peu près le seul de mon opinion, mais
 m'est égal. Sous l'influence de la presse bourgeoise tout
 entière, ils sont pour la plupart encore pour Dreyfus dans
-mon parti. Mais les opinions changent. Du reste, j'ai tou-
-jours été d'avis que c'était une faute de faire du cas de
+mon parti. Mais les opinions changent. Du reste, j'ai toujours été d'avis que c'était une faute de faire du cas de
 Dreyfus une affaire de parti. Aussi mon organe, le
 Vorwaerts, n'a-t-il rien tenté de défavorable à la revision.
 
@@ -1926,13 +1858,10 @@ cela d'entrer dans le ministère. En Angleterre, où il n'y a
 que des gouvernements bourgeois, on a toutes ces lois et
 bien d'autres encore. Du reste, Millerand n'aurait-il pas
 saisir l'occasion du vote du compromis final au Congrès
-socialiste, qui n'a été en somme adopté que sur le consen-
-
-tement des guesdistes désireux de ne pas désunir par leur
+socialiste, qui n'a été en somme adopté que sur le consentement des guesdistes désireux de ne pas désunir par leur
 attitude le parti, pour f... le camp du gouvernement? » Le Congrès lui avait clairement donné à entendre, dans
 son immense majorité, que les socialistes étaient opposés
-l'acceptation par l'un des leurs d'une place dans un ministère bourgeois. Il est resté. IL s'est cramponné à son porte-
-feuille. Il continue à vouloir sauver la République; dès que
+l'acceptation par l'un des leurs d'une place dans un ministère bourgeois. Il est resté. IL s'est cramponné à son portefeuille. Il continue à vouloir sauver la République; dès que
 ce cabinet extraordinaire aura vécu, Millerand sera forcé
 de donner sa démission de membre du parti socialiste, où
 sa situation sera devenue impossible. Quelle autorité continuerait-il à avoir pour parler en son nom? »
@@ -2089,18 +2018,14 @@ infâme et le plaisir qu'on éprouve à voir mater en Afrique,
 par d'héroïques paysans qui défendent leur sol, l'orgueilleuse morgue britannique? » ILest beau, le service que Chamberlain a rendu au prestige de son pays! » De plus, pour nous autres socialistes allemands, la
 guerre au Transvaal et l'attitude valeureuse et triomphante
 des Boers ont l'avantage de nous procurer une arme puissante pour notre campagne contre les armées permanentes
-en faveur d'une milice comme en Suisse. » En Allemagne, voyez-vous, deux peuples sont en pré-
-
-sence, l'un, le peuple en armes (das Volk Waffen); l'autre,
+en faveur d'une milice comme en Suisse. » En Allemagne, voyez-vous, deux peuples sont en présence, l'un, le peuple en armes (das Volk Waffen); l'autre,
 le peuple sans armes (das Volk ohne Waffen), bon à servir
 de cible à l'autre; en tout cas, il est l'objet du mépris du
 peuple armé. » Eh bien! il me semble que des paysans se chargent de
 nous démontrer en ce moment l'inutilité des grosses armées
 
 — Comment appréciez-vous la situation dans votre pays?
-— Je trouve les dernières séances du Reïichstag caracté-
-
-ristiques au point de vue de la marche en avant d'idées
+— Je trouve les dernières séances du Reïichstag caractéristiques au point de vue de la marche en avant d'idées
 plus appropriées au siècle sous lequel nous vivons. Le
 principe de la monarchie de droit divin peut dire qu'il est
 bien près d'avoir vécu. » Le chancelier de Hohenlohe était d'avis qu'un député
@@ -2134,16 +2059,13 @@ sans doute la cause déterminante de mon intervention; tout
 
 » Nous sommes une armée où chacun agit isolément selon
 
-ses vues, mais où tous nous devons marcher d'accord lors-
-que l'intérêt du parti entier est en jeu.
+ses vues, mais où tous nous devons marcher d'accord lorsque l'intérêt du parti entier est en jeu.
 
 — Ne vous a-t-on pas adressé des lettres d'injures à la
 suite de votre publication de la Fackel?
 
 — Les injures me troublent peu. J'ai surtout reçu beaucoup de lettres insultantes me reprochant d'être devenu antisémite pour avoir cru à la culpabilité de Dreyfus. C'est
-une accusation idiote. Je suis l'ennemi acharné de l'antisé-
-
-mitisme et je l'ai prouvé en lui tenant tête victorieusement
+une accusation idiote. Je suis l'ennemi acharné de l'antisémitisme et je l'ai prouvé en lui tenant tête victorieusement
 en Allemagne. Quand Bismarck a voulu donner le change
 au peuple allemand, qui commençait à s'apercevoir qu'il
 était volé par les junkers d'un demi-millard chaque année,
@@ -2207,9 +2129,7 @@ des affaires françaises?
 — Mais pour les affaires, s'il y en où la vérité même
 est indiflérente, où il s'agit d'intérêts?
 — Citoyen simple, nous sommes internationalistes.
-Nous n'entendons nullement par que ce sont les Fran-
-çais qui ont à préparer la Révolution sociale en Alle-
-magne, ou les Allemands la Révolution sociale en
+Nous n'entendons nullement par que ce sont les Français qui ont à préparer la Révolution sociale en Allemagne, ou les Allemands la Révolution sociale en
 France. Nous n'admettons pas que des citoyens français
 aillent se jeter inconsidérément au travers de la Révolution sociale en Allemagne, inversement nous n'admet-
 ! tons pas que des citoyens allemands viennent se porter
@@ -2247,10 +2167,8 @@ ont été abusés, dupés ou illusionnés, je n'éprouve
 aucun besoin d'aller demander conseil à des citoyens
 étrangers, ou de me faire sanctionner par eux. Vous
 
-avez les consultations obtenues des meilleurs théori-
-ciens et militants socialistes internationaux? Je me
-suis arrêté après les premières: ceux qui avaient rai-
-son ne faisaient pas que nous eussions plus raison, et
+avez les consultations obtenues des meilleurs théoriciens et militants socialistes internationaux? Je me
+suis arrêté après les premières: ceux qui avaient raison ne faisaient pas que nous eussions plus raison, et
 
 ceux qui avaient tort ne faisaient pas que nous n'eussions raison. En gros, parmi ceux que j'ai lus, jai
 remarqué deux tendances: les uns traitaient les questions par propositions théoriques abstraites indémontrées, on ne voyait pas comment ces propositions
@@ -2273,8 +2191,7 @@ compagnie. Ainsi un homme est le doyen des conseillers municipaux de France et d
 plus âgé parmi les conseillers municipaux de France et
 des colonies, ou bien, car il faut distinguer encore, s'il
 est depuis le plus long temps conseiller municipal.
-D'autre part un homme est doyen de certaines compagnies quand ses collègues ou quelque autorité supé-
-rieure lui a conféré le décanat. Cette collation peut se
+D'autre part un homme est doyen de certaines compagnies quand ses collègues ou quelque autorité supérieure lui a conféré le décanat. Cette collation peut se
 faire elle-même à l'ancienneté, au choix, ou au hasard.
 Il en est ainsi de tous les grades. Je crois qu'il y a des
 curés-doyens. Il y a des doyens dans les différentes
@@ -2295,9 +2212,7 @@ dans les réceptions, dans les séances d'ouverture, dans
 les inaugurations, dans les congrès, dans les banquets,
 le doyen agit et parle au nom de la compagnie ellemême, officiellement ou officieusement, qu'il soit doyen
 d'âge, ou de fonctionnement, ou de dignité. Le doyen
-devient ainsi un homme qui a toujours une valeur individuelle et à certaines occasions une valeur corpora-
-
-tive. Sous le couvert du même nom désignant les
+devient ainsi un homme qui a toujours une valeur individuelle et à certaines occasions une valeur corporative. Sous le couvert du même nom désignant les
 mêmes fonctions, une confusion s'établit peu à peu
 dans les esprits. Le doyen d'âge revêt la considération
 que nous attribuons aux dignités, sentiment respectable et conservateur; le dignitaire doyen revêt le respect que nous donnons à l'âge des personnes et à l'âge
@@ -2337,10 +2252,8 @@ pas Liebknecht, comment avez-vous voté?
 Il y avait un brouhaha extraordinaire, une émotion
 intense et de celles qui nuisent plutôt à la mémoire. Je
 crois me rappeler que le citoyen président annonça la
-motion de la réparation. Aussitôt la plupart des délé-
-cartes rouges au bout de leurs bras, comme des petits
-enfants tendent leurs mains vers un grand-père mena-
-çant. Ils ne pensaient pas que cette fois c'était le grandpère qui avait commencé par jeter aux loups ses petitsenfants. Quand je dis que j'ai voté contre, je veux dire
+motion de la réparation. Aussitôt la plupart des délécartes rouges au bout de leurs bras, comme des petits
+enfants tendent leurs mains vers un grand-père menaçant. Ils ne pensaient pas que cette fois c'était le grandpère qui avait commencé par jeter aux loups ses petitsenfants. Quand je dis que j'ai voté contre, je veux dire
 ‘que je n'ai pas levé les bras frénétiquement. Je ne crois
 pas qu'on ait pensé à faire une contre-épreuve. Je ne
 me rappelle pas. Il fallait penser à tout et à tous, à la
@@ -2362,9 +2275,7 @@ de son doyen vénérable impose à celui-ci au moins
 que je suis trop long, vous n'aviez pas qu'à venir consulter. — Donc, est-il vrai que le citoyen Liebknecht
 soit le doyen d'âge ou de camaraderie du socialisme
 international? Je n'en sais rien. Nous ne connaissons
-pas tous les hommes à la parole articulée, nous ne con-
-
-naissons pas tous les militants socialistes et révolutionnaires. Il se peut très bien qu'il y ait en quelque pays
+pas tous les hommes à la parole articulée, nous ne connaissons pas tous les militants socialistes et révolutionnaires. Il se peut très bien qu'il y ait en quelque pays
 perdu de tyrannie, en Russie ou en France, un pauvre
 homme invénéré à qui les bourgeois aient fait, parce
 qu'il était socialiste et révolutionnaire, depuis plus longtemps plus de mal qu'ils n'en ont fait au citoyen Liebknecht. Non pas que j'aie un seul instant la tentation
@@ -2382,8 +2293,7 @@ conduirait l'attribution d'un certain respect à certains
 militants que nous nommerions nos chefs.
 
 Je viens où vous m'attendez. Puisque, en fait, Liebknecht est vénéré comme le doyen de la démocratie
-socialiste, pourquoi n'a-t-il pas apporté quelque tempé-
-rament dans l'expression de sa pensée?
+socialiste, pourquoi n'a-t-il pas apporté quelque tempérament dans l'expression de sa pensée?
 
 ! — Tel était bien le sens de la question que je n'étais
 permis de vous poser.
@@ -2399,8 +2309,7 @@ ces trois articles. Il faudrait les lire dans le texte.
 M'avez-vous au moins présenté une bonne traduction,
 une traduction exacte?
 
-— Elle n'est que trop exacte, en ce sens qu'on a pré-
-féré qu'elle fût attentive et lourde qu'alerte et facile.
+— Elle n'est que trop exacte, en ce sens qu'on a préféré qu'elle fût attentive et lourde qu'alerte et facile.
 
 — Ce qui me frappe le plus dans les articles de
 Liebknecht est cette ignorance et cette inintelligence
@@ -2472,8 +2381,7 @@ professionnelle du traducteur, nous avons à faux argué
 de fausseté une traduction vraie. Cela me fait de la
 peine. Ce qui nous a trompés, c'est aussi la brusquerie
 et la violence du doyen. Nous sommes si bien prévenus
-et nous nous gardons si bien en France contre une cer-
-taine hypocrisie, contre un certain aspect de la duplicité, souple, catholique, jésuite, que nous sommes assez
+et nous nous gardons si bien en France contre une certaine hypocrisie, contre un certain aspect de la duplicité, souple, catholique, jésuite, que nous sommes assez
 
 portés à nous imaginer que la brusquerie et la brutalité
 sont la marque nécessaire de la franchise.
@@ -2499,8 +2407,7 @@ partie d'aucun ministère où le général de Galliffet eût
 le portefeuille de la guerre. Cela valait beaucoup mieux,
 surtout, que de faire comme ce guesdiste, un nommé
 Rolland, ou Roland, je crois, qui en province enleva
-élégamment un siège, un mandat de délégué à un indé-
-pendant en faisant de Jaurès un éloge que l'indépendant
+élégamment un siège, un mandat de délégué à un indépendant en faisant de Jaurès un éloge que l'indépendant
 n'aurait jamais voulu faire, puisqu'il était indépendant.
 
 — Ceux qui pensent et qui veulent que l'on abatte la
@@ -2672,17 +2579,13 @@ enseigner le patriotisme aux Français, ayant amassé une
 fortune insolente, dispose de la plus redoutable puissance
 de publicité dans le pays, voit à ses pieds les ministres, les
 magistrats et les journalistes. Il a soixante millions
-c'est la magique formule qui le rend sacré pour le goufÿernement comme pour la foule. Presque toute la presse appar-
-
-tient aux hommes d'argent, recoit leurs ordres et fait leurs
+c'est la magique formule qui le rend sacré pour le goufÿernement comme pour la foule. Presque toute la presse appartient aux hommes d'argent, recoit leurs ordres et fait leurs
 besognes. Parce que la Congrégation est aujourd'hui la plus
 grande puissance financière, elle sera demain maîtresse de
 la plupart des journaux.
 
 Pleins de respect pour l'argent, les électeurs peuplent le
-Parlement de représentants à châteaux; c'est les adminis-
-
-trateurs et les gros actionnaires des compagnies industrielles
+Parlement de représentants à châteaux; c'est les administrateurs et les gros actionnaires des compagnies industrielles
 ou financières, des mines, des entreprises de transport ou
 de colonisation, qu'on charge de défendre les intérêts de
 l'État contre leur intérêt personnel; c'est les millionnaires
@@ -2750,8 +2653,7 @@ la guerre et porté à un journal, pour qu'il en fasse une arme
 
 ignoble et lâche, dans une querelle politique.
 
-Toujours dans le cas où ce dossier existerait, je vous demantle en outre, monsieur le Ministre, qu'il me soit immé-
-diatement communiqué. Il serait vraiment monstrueux qu'on
+Toujours dans le cas où ce dossier existerait, je vous demantle en outre, monsieur le Ministre, qu'il me soit immédiatement communiqué. Il serait vraiment monstrueux qu'on
 lait ouvert pour un adversaire sans scrupule et qu'on le
 referme pour moi, qu'on en refuse la communication au fils
 de l'homme, mort il y a plus d'un demi-siècle, dont on a
@@ -2770,9 +2672,7 @@ Ministre, de formuler nettement ma demande. Dans le cas
 où existerait le dossier dont Le Petit Journal a publié deux
 pièces, je vous prie de m'autoriser le plus tôt possible à en
 prendre l'entière connaissance. Et, s'il s'agit d'une exception,
-si la question ne peut être tranchée par vous, veuillez la sou-
-
-mettre au conseil des ministres. Il ne s'agit pas seulement
+si la question ne peut être tranchée par vous, veuillez la soumettre au conseil des ministres. Il ne s'agit pas seulement
 - pour moi d'apporter des faits nouveaux au tribunal qui
 doit me juger sur le délit de dénonciation calomnieuse. J'ai
 surtout le devoir sacré de défendre la mémoire de mon
@@ -2809,9 +2709,7 @@ Cabinet Paris, le 16 décembre 1899.
 du Ministre
 
 Pour faire suite à ma lettre du 14 décembre courant, j'ai
-l'honneur de porter à votre connaissance les résultats de l'enquête à laquelle j'ai fait procéder, conformément à la demande que vous m'avez adressée, le 9 décembre, pour dé-
-
-couvrir comment et par qui M. Judet, rédacteur au Petit
+l'honneur de porter à votre connaissance les résultats de l'enquête à laquelle j'ai fait procéder, conformément à la demande que vous m'avez adressée, le 9 décembre, pour découvrir comment et par qui M. Judet, rédacteur au Petit
 Journal, aurait avoir communication du dossier de votre
 père, M. François Zola, conservé aux archives administratives du ministère de la guerre.
 
@@ -2824,17 +2722,13 @@ aucune trace de l'autre lettre désignée sous la rubrique
 « première lettre du colonel Combes ».
 
 En second lieu, il résulte de la déclaration très nette du
-sous-chef du bureau des archives que le dossier de M. Fran-
-çois Zola lui a été demandé en 1897 et a été remis, par lui, à
+sous-chef du bureau des archives que le dossier de M. François Zola lui a été demandé en 1897 et a été remis, par lui, à
 un officier du ministère qui, en raison de ses attributions,
 avait qualité pour prendre communication des dossiers
-conservés aux archives. Le dossier a d'ailleurs été réinté-
-gré quelque temps après.
+conservés aux archives. Le dossier a d'ailleurs été réintégré quelque temps après.
 
 Cet officier étant actuellement décédé, il n'est plus possible
-de connaître les motifs qui l'ont porté à consulter ce dos-
-
-sier et qui, seuls, auraient permettre de vérifier le bien
+de connaître les motifs qui l'ont porté à consulter ce dossier et qui, seuls, auraient permettre de vérifier le bien
 ou mal fondé d'une opération que rien ne paraît justifier.
 
 C'est d'ailleurs, peut-être, à la suite de ce fait, que l'un de
@@ -2873,9 +2767,7 @@ constitués uniquement en vue de besoins administratifs ».
 Cette réponse me ferait sourire, si je n'avais pas le cœur
 si atrocement serré. Naturellement, les dossiers secrets sont
 secrets, et si j'ai demandé que le dossier secret de mon père
-me fût communiqué, c'est justement parce qu'il n'est plus se-
-
-cret, qu'il a été lächement, bassement communiqué en partie à un journal, pour la plus immonde des besognes. On
+me fût communiqué, c'est justement parce qu'il n'est plus secret, qu'il a été lächement, bassement communiqué en partie à un journal, pour la plus immonde des besognes. On
 l'a communiqué à un adversaire, et on ne me le communiquerait pas à moi, le fils de Fhomme diffamé! On a fait publier des lettres d'accusation, et on ne me fournirait pas la
 défense, que les autres pièces du dossier doivent contenir!
 Nous sommes ici dans l'exception, et dans une exception
@@ -2928,8 +2820,7 @@ du conseil des ministres.
 
 La Réponse de M. Waldeck-Rousseau
 
-Voici la réponse que j'ai reçue hier matin de M. Wal-
-deck-Rousseau, président du conseil des ministres, à la
+Voici la réponse que j'ai reçue hier matin de M. Waldeck-Rousseau, président du conseil des ministres, à la
 lettre dans laquelle je lui demandais que le dossier administratif de mon père me fùt communiqué.
 
 DE L'INTÉRIEUR Paris, le 20 décembre 1899.

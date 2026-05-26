@@ -24,3 +24,8 @@ Thumbs.db
 *.swp
 *.swo
 .vercel
+
+# Audit walk artifacts — local only
+audit-screens/
+scripts/__pycache__/
+.playwright-mcp/

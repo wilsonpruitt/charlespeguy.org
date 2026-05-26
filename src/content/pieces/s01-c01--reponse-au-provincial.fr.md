@@ -13,8 +13,7 @@ Le premier cahier partira le 5 janvier prochain. Je t'enverrai le 20 de chaque m
 Je tiens dès à présent à te rassurer sur ce Triomphe de
 la République. Autant que l'on peut nombrer une aussi
 au moins défilèrent. On peut évaluer à un nombre égal au
-moins les citoyens qui acclamèrent le défilé, qui acclamè-
-rent le socialisme. Ainsi la Petite République et l'Aurore
+moins les citoyens qui acclamèrent le défilé, qui acclamèrent le socialisme. Ainsi la Petite République et l'Aurore
 avaient également raison. Toujours faut-il que l'on s'entende.
 De cette fête j'avais préparé un compte rendu, non pas
 pour toi, mais pour une revue amie. Je t''enverrai, par
@@ -24,11 +23,9 @@ et quelques notes sur les derniers événements de décembre
 
 La République avait triomphé le 11 novembre par la
 décision de la Haute Cour: 153 juges contre 91 avaient
-ce jour-là repoussé les conclusions de la défense, pré-
-sentées et défendues la veille par Devin, tendant
+ce jour-là repoussé les conclusions de la défense, présentées et défendues la veille par Devin, tendant
 faire déclarer l'incompétence. Puis la République avait
-triomphé le jeudi 16 par le vote de la Chambre: 317 dé-
-putés contre 212 avaient voté l'ordre du jour, présenté
+triomphé le jeudi 16 par le vote de la Chambre: 317 députés contre 212 avaient voté l'ordre du jour, présenté
 par les Gauches, « approuvant les actes de défense
 républicaine du Gouvernement les mots de défense
 républicaine avaient été proposés par M. Vaillant et
@@ -52,28 +49,23 @@ constater que cette fois-ci encore ils firent tout ce qu'ils
 pouvaient pour que la manifestation fût grandiose.
 M. Paulin Méry fit coller sur les murs de grandes
 affiches rouges, émanant d'un Comité d'action socialiste
-et patriotique dont il s'intitulait, bien entendu, le dé-
-légué général. Le bureau du Conseil Municipal fit donc
+et patriotique dont il s'intitulait, bien entendu, le délégué général. Le bureau du Conseil Municipal fit donc
 apposer des proclamations officieuses. La Commission
 exécutive de l'Agglomération parisienne du Parti
 ouvrier français avait fait poser des affiches beaucoup
-plus modestes, un quart ou un demi-quart de colom-
-bier, car officiellement les guesdistes n'ont pas d'argent;
+plus modestes, un quart ou un demi-quart de colombier, car officiellement les guesdistes n'ont pas d'argent;
 ces affiches d'un rouge modeste, au nom de je ne sais
 plus combien de groupements parisiens, avertissaient
-le lecteur que,le gouvernement et M. Bellan ayant inter-
-dit le drapeau rouge, les vrais socialistes et les vrais
+le lecteur que,le gouvernement et M. Bellan ayant interdit le drapeau rouge, les vrais socialistes et les vrais
 révolutionnaires étaient par là-même exclus de la manifestation. Le parti guesdiste s'est apparemment donné
 la tâche glorieuse de sauver le drapeau rouge des subornations de M. Waldeck-Rousseau. Les guesdistes
 n'ont jamais mis leur drapeau dans leur poche: demandez plutôt à M. Alexandre Zévaès des nouvelles de son
 élection. Les guesdistes n'ont pas beaucoup défendu le
 drapeau rouge contre les brutalités de M. Dupuy ni
 contre les férocités sournoises de M. Méline. Cela était
-plus difficile. Enfin ils firent défense à la population pa-
-risienne d'aller fêter le Triomphe de la République,
+plus difficile. Enfin ils firent défense à la population parisienne d'aller fêter le Triomphe de la République,
 puisque cette République de Dalou (1) n'était pas la
-République sociale, mais, remarquez-le bien, la capi-
-taliste. Les guesdistes mirent en interdit la manifesta-
+République sociale, mais, remarquez-le bien, la capitaliste. Les guesdistes mirent en interdit la manifesta-
 (x) Sur Dalou, son œuvre, et en particulier le Triomphe
 de la République, je renvoie à l'excellent article, si nourri,
 du citoyen Deshairs, paru dans le Mouvement du 1” octobre.
@@ -109,9 +101,7 @@ au même endroit, pareillement disposés, un peu moins
 
 nombreux, sans doute un tout petit peu parce qu'on
 
-pouvait se battre sérieusement, mais surtout et beau-
-
-coup parce que c'était en semaine et que les ouvriers
+pouvait se battre sérieusement, mais surtout et beaucoup parce que c'était en semaine et que les ouvriers
 
 travaillaient, parce que ce n'était pas jour de fête, parce
 
@@ -139,8 +129,7 @@ on les vend: un sou l'exemplaire, trois francs le cent,
 vingt-sept francs le mille; à présent on la nomme églan-
 
 - tine rouge double. Elle est plus grande, plus grosse;
-elle a en effet deux rangées de pétales, une à l'exté-
-rieur, plus grande et large, une à l'intérieur, plus petite.
+elle a en effet deux rangées de pétales, une à l'extérieur, plus grande et large, une à l'intérieur, plus petite.
 Naguère les pétales simples étaient fixés sous une petite
 boule jaune, parfois surmontée de deux ou trois petits
 fils jaunes, qui figurait, grossièrement et naïvement,
@@ -172,9 +161,7 @@ fête, qui lui ressemblait, énormément puissante, et
 
 Il était midi et demie environ quand Gérault arriva,
 toujours cordial, et gai comme le beau temps. Il venait
-de quitter le treizième, qui était en retard, et qui rega-
-
-gnait directement par le pont d'Austerlitz. Au treizième,
+de quitter le treizième, qui était en retard, et qui regagnait directement par le pont d'Austerlitz. Au treizième,
 disait-on, ils sont au moins dix mille. — Partons.
 
 Il était midi et demie passé quand on forma le cortège. Quelques vieux militaires âgés de vingt-deux ans,
@@ -191,13 +178,11 @@ routes. On se forma. Quelques-uns commandèrent en
 riant: En avant! Le premier rang était formé de porteurs de la Petite République. avaient leur casquette galonnée, l'inscription en lettres d'argent. Trois
 d'entre eux portaient l'étendard et les deux cartouches.
 Quand on aura socialisé même les fêtes socialistes, les
-militants porteront eux-mêmes leur drapeau. Je ne dé-
-sespère pas de voir Jaurès porter un drapeau rouge de
+militants porteront eux-mêmes leur drapeau. Je ne désespère pas de voir Jaurès porter un drapeau rouge de
 ses puissantes mains.
 
 Nous partimes cinq cents par la rue Réaumur, mais
-nous fûmes un prompt renfort pour l'Avenir de Plaisance, la puissante société coopérative de consomma-
-tion, avec laquelle nous confluâmes au coin de la rue
+nous fûmes un prompt renfort pour l'Avenir de Plaisance, la puissante société coopérative de consommation, avec laquelle nous confluâmes au coin de la rue
 Turbigo, et qui avait une musique, ce qui accroissait
 l'impression de marche militaire. Place de la République, c'était déjà la fête. Quelques gardes républicains à cheval ne nuisaient nullement au service
 
@@ -207,8 +192,7 @@ allâmes nous ranger boulevard Richard-Lenoir, je crois.
 Il y avait tant de monde que l'on ne reconnaissait plus
 les rues, les larges avenues de ces quartiers. Nous
 étions auprès de la statue du sergent Bobillot. Un porteur de la Petite République explique à son voisin pourquoi il préfère un homme comme Bobillot à un homme
-comme Marchand. Nous attendons longtemps, insé-
-rés dans les groupes ouvriers en costume de travail.
+comme Marchand. Nous attendons longtemps, insérés dans les groupes ouvriers en costume de travail.
 C'est nouveau. Près de nous le vaste et muable moutonnement des chapeaux de feutre enfarinés aux larges
 bords: ce sont les forts de la Halle (1), coltineurs non
 débiles, qui stationnent pesamment, puissamment. Nous
@@ -292,9 +276,7 @@ devient vieux, plus il devient bon. Le comparatif meilleur
 aucune pitié contre Déroulède, qu'il envoyait simplement et fréquemment à Charenton. Il n'avait même
 aucune réserve, aucune fausse honte, rien de ce sentiment qui nous retenait malgré nous envers un prisonnier
 et un condamné de la veille. Nous aurions été gênés
-pour faire allusion à la petite condamnation de Déroulède. Le peuple, plus carrément, et peut-être plus sage-
-
-ment, ne se contentait pas d'envoyer Déroulède à Charenton. Les malins imaginaient des variantes et les
+pour faire allusion à la petite condamnation de Déroulède. Le peuple, plus carrément, et peut-être plus sagement, ne se contentait pas d'envoyer Déroulède à Charenton. Les malins imaginaient des variantes et les
 lançaient: Ah! Déroulède trois mois de prison; Ah!
 Déroulède est au violon. Un nouveau chant parlé commençait à se répandre, plus volontaire, plus précis, plus
 redoutable, inventé sur le champ: au bagne, Mercier,
@@ -310,13 +292,9 @@ amère, on désigne ainsi le peloton de punition.
 
 Cependant que la grave Internationale, largement,
 
-immensément chantée, s''épandait comme un flot formi-
+immensément chantée, s''épandait comme un flot formidable, cependant que le Mercier, au bagne, rythmé
 
-dable, cependant que le Mercier, au bagne, rythmé
-
-coléreusement, scandait la foule même et la déconcer-
-
-tait, le cortège longuement, lentement, indéfiniment, se
+coléreusement, scandait la foule même et la déconcertait, le cortège longuement, lentement, indéfiniment, se
 
 déroulait tout au long du boulevard Voltaire, avec des
 

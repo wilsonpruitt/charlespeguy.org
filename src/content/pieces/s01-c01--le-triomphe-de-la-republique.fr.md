@@ -12,8 +12,7 @@ spécifiques. Mais tout de même comme c'est beau, un
 nom qui désigne les hommes et les groupe sans contestation, sans hésitation, par le travail quotidien. On sait
 ce que c'est, au moins, qu'un forgeron, ou un charpentier. Je voudrais les citer tous, car je ne sais comment
 choisir. Je trouve dans la même Petite République les
-travailleurs du gaz, les charrons, la Fédération culinaire de France et des colonies, les employés des coopé-
-ratives ouvrières, le Syndicat ouvrier de la céramique.
+travailleurs du gaz, les charrons, la Fédération culinaire de France et des colonies, les employés des coopératives ouvrières, le Syndicat ouvrier de la céramique.
 les comptables, les ouvriers fumistes en bâtiment, les
 ouvriers serruriersen bâtiment,les tourneurs-robinetiers.
 les horlogers en pendules, les tourneurs vernisseurs sur
@@ -50,8 +49,7 @@ n'aurait été, des deux parts, qu'un marchandage hypocrite. Mais le gouvernemen
 ainsi sa bienveillance. Et le peuple ne faisait guère
 attention à ce détail de procédure que pour s'en amuser
 bonnement. Il ne s'agissait pas du tout de vendre au
-gouvernement l'appui du peuple moyennant une tolé-
-rance honteuse. L'explosion de la fête était supérieure
+gouvernement l'appui du peuple moyennant une tolérance honteuse. L'explosion de la fête était supérieure
 et même rebelle à tout calcul. Non. Il était simplement
 réjouissant qu'une ordonnance de la police bourgeoise,
 rendue contre le drapeau rouge au moment que l'on
@@ -137,8 +135,7 @@ dans la rue, cela étant défendu par les traités de
 psychologie les plus recommandés. Mais on s'amusait
 à quitter le cortège pour aller, au bord du trottoir, voir
 passer les camarades. Cela devenait une heureuse application de la mutualité aux défilés du peuple. On mesurait ainsi du regard tout ce que l'on pouvait saisir du
-cortège inépuisable. Il se produisait ainsi une péné-
-tration réciproque du cortège et de la foule. Plusieurs
+cortège inépuisable. Il se produisait ainsi une pénétration réciproque du cortège et de la foule. Plusieurs
 
 é défilèrent, qui n'étaient pas venus pour cela. Tout le
 monde approchait pour lire en épelant les inscriptions
@@ -151,9 +148,7 @@ des beaux chanteurs. Les refrains étaient chantés, repris
 
 en chœur par une foule grandissante. Un jeune et fluet
 
-anarchiste — c'est ainsi qu'ils se nomment, compro-
-
-mettant un nom très beau — qui s'était fait une tête de
+anarchiste — c'est ainsi qu'ils se nomment, compromettant un nom très beau — qui s'était fait une tête de
 
 la Renaissance italienne, essayait de se tailler un
 succès personnel en chantant des paroles extraordinairement abominables, où le nom de Dieu revenait trop
@@ -175,16 +170,14 @@ nous apprend que « ces petits mouchoirs. m'étaient
 autres que les pavillons respectés de toutes les nations;
 et, au milieu d'eux, le nôtre flottait en bonne place ». La
 lettre de M. Pamard nous apprend que « celui qui
-accrocha à son balcon ces pavillons qui flottent habi-
-tuellement sur son yacht est un vieux républicain. »
+accrocha à son balcon ces pavillons qui flottent habituellement sur son yacht est un vieux républicain. »
 Nous n'en savions pas aussi long quand nous défilâmes
 devant ce pavoisement. Mais la foule ne s'y trompa
 point. Évidemment ce n'était pas une manifestation
 nationaliste. Plusieurs personnes à ce balcon, et en
 particulier ce vieux républicain, acclamaient le cortège, applaudissaient, saluaient le drapeau rouge. Inversement le peuple acclamait ce bourgeois, levait les
 chapeaux. Il n'était pas question de le pendre: heureuse
-inconséquence! ou plutôt heureuse et profonde consé-
-quence! — Combien de bourgeois défilèrent parmi les
+inconséquence! ou plutôt heureuse et profonde conséquence! — Combien de bourgeois défilèrent parmi les
 francs-maçons et dans la Ligue des Droits de l'Homme!
 Je soupçonne tous les gens des fenêtres de n'avoir
 entendu de tout cela que le brouhaha immense de la rue
@@ -227,11 +220,9 @@ de se voir là. Nous sommes si bien habitués nousmêmes à ce que les hommes ai
 sautent sur le dos quand nous poussons certaines
 acclamations que nous demeurions stupides, poussant
 ces acclamations, qu'ils n'en fussent pas déclanchés.
-‘Eux qui doivent avoir, depuis le temps et par la fré-
-quence, une autre habitude que nous, comme ils devaient
+‘Eux qui doivent avoir, depuis le temps et par la fréquence, une autre habitude que nous, comme ils devaient
 
-s'étonner de ne pas se trouver automatiquement trans-
-portés sur nos épaules! Mais ils ne bougeaient pas,
+s'étonner de ne pas se trouver automatiquement transportés sur nos épaules! Mais ils ne bougeaient pas,
 du boulevard nous les considérions comme on regarderait si une locomotive oubliait de partir au coup de
 corne du conducteur. Ils négligeaient de partir. Le
 peuple était d'ailleurs d'une correction parfaite. Sans
@@ -287,9 +278,7 @@ un spectacle admirable que la marche, que la procession
 de cet homme au bras et à la voix infatigable, fort et
 durable comme un élément, fort comme un poteau,
 continuel comme un grand vent. Et ce qui parfaisait le
-spectacle était que l'homme et ses camarades chan-
-
-taient une chanson qui avait tout son sens. Le drapeau
+spectacle était que l'homme et ses camarades chantaient une chanson qui avait tout son sens. Le drapeau
 rouge qu'ils chantaient n'était pas seulement le symbole de la révolution sociale, rouge du sang de l'ouorier, c'était aussi leur superbe drapeau rouge, porté
 bout de bras, au bout de son bras, présent, vraiment
 superbe et flamboyant.
@@ -317,8 +306,7 @@ démonstrative. Aussi quand le monument se leva pour
 nous, clair et seul par-dessus l'eau claire du bassin,
 nous n'avons pas les détails de ce monument, nous
 n'avons pas les détails de la place. Nous n'avons
-pas les deux anciennes colonnes du Trône, si libé-
-ralement attribuées par les journalistes à Charlemagne,
+pas les deux anciennes colonnes du Trône, si libéralement attribuées par les journalistes à Charlemagne,
 à Philippe-Auguste, et à Saint-Louis. Nous avons le
 triomphe de la République et nous n'avons pas les
 moyens, les artisans de ce triomphe, les deux lions attelés, le forgeron, madame la justice etles petits enfants.
@@ -341,8 +329,7 @@ quelque peu: Vive Loubet. On s'entraîne, on s'aveugle,
 on s'enroue sur le au bagne Mercier, les chapeaux en
 l'air, les mains hautes, les cannes hautes. On marche
 porté, sans regarder sa route. On tourne autour du bassin. On est enlevé. On arrive. On cherche Loubet, pour
-qui on criait tant. Il n'est pas là. Vraiment, à la ré-
-flexion, il eût été fou qu'il restât pour tout ce que
+qui on criait tant. Il n'est pas là. Vraiment, à la réflexion, il eût été fou qu'il restât pour tout ce que
 nous avions à lui dire. De la tribune on répond à nos
 Vive la Sociale! Beaucoup d'écharpes aux gens de la
 tribune. Ces citoyens n'en sont pas moins ardents. Un
@@ -393,8 +380,7 @@ donné le poème ou le chant de la révolution nouvelle,
 de la cité nouvelle. Ce ne sera pas la première fois qu'il
 
 en sera ainsi, que le flot de la vie universelle aura
-devancé les maturations de l'art individuel. En atten-
-dant, l'Internationale de Pottier est et demeure un des
+devancé les maturations de l'art individuel. En attendant, l'Internationale de Pottier est et demeure un des
 plus beaux hymnes révolutionnaires qu'un peuple aït
 jamais chanté. Groupons-nous autour de l'Internationale.
 Des incidents de la journée continuaient à m'attrister quand le soir, dans le train, j'ouvris une petite
@@ -421,7 +407,7 @@ d'être plus criminel et plus infâme encore!
 (x) Cela ne l'empêche pas de donner une seconde preuve,
 justement comme dans les histoires bien faites.
 
-LE (TRIOMPHE DE LA RÉPUBLIQUE »; » Écoutez et retenez cette histoire: »
+LE (TRIOMPHE DE LA RÉPUBLIQUE » Écoutez et retenez cette histoire: »
 
 Suit l'histoire de M. Marinoni et du Sultan.
 
@@ -430,8 +416,7 @@ faite ressemble à une histoire de grand-père contée à la
 Il y avait une fois, au pays des Infidèles, un méchant
 roi qui fit massacrer, dans les supplices les plus
 effroyables, trois cent mille de ses sujets chrétiens. —
-Le grand-père n'insiste pas sur les supplices, pour mé-
-nager l'imagination des petits.
+Le grand-père n'insiste pas sur les supplices, pour ménager l'imagination des petits.
 
 — Pourquoi donc que le pape n'est pas allé à leur
 secours, grand-père?

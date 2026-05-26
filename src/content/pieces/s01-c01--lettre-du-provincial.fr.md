@@ -126,11 +126,7 @@ Je crois qu'à Paris même il y a beaucoup d'hommes
 
 au moins aussi occupés que moi. Je crois que les
 
-ivstituteurs, les laboureurs, les maçons, les boulan-
-
-gers, les maréchaux-ferrants, les charrons et les for-
-
-gerons de Paris et de la province ont beaucoup moins
+ivstituteurs, les laboureurs, les maçons, les boulangers, les maréchaux-ferrants, les charrons et les forgerons de Paris et de la province ont beaucoup moins
 
 de loisir que moi.
 
@@ -155,11 +151,9 @@ nous n'avons pas le temps de lire tous les journaux
 et toutes les revues qui nous intéresseraient; il est
 certain que nous n'avons pas mème le temps de
 chercher ce qui serait à lire dans les journaux et
-dans les revues que nous ne recevons pas réguliè-
-rement et personnellement.
+dans les revues que nous ne recevons pas régulièrement et personnellement.
 
-Enfin, dans les journaux que nous lisons réguliè-
-rement, nous ne recevons pas la vérité même. Cela
+Enfin, dans les journaux que nous lisons régulièrement, nous ne recevons pas la vérité même. Cela
 devient évident. Tu sais quel respect, quelle amitié,
 quelle estime j'ai pour la robustesse et la droiture
 de Jaurès; tu sais quel assentiment cordial et profond je donnais aux lumineuses démonstrations
@@ -177,8 +171,7 @@ connu, et quand on nous parle de son point de vue
 élevé, si élevé, nous sentons venir la vérité d'État.
 nous avons passé vingt mois et plus à distinguer
 et à faire distinguer la vérité d'État de la vérité. —
-Vous avez célébré à Paris Le Triomphe de la Répu-
-blique. Dans la Petite République du lendemain je
+Vous avez célébré à Paris Le Triomphe de la République. Dans la Petite République du lendemain je
 trouve une manchette vraiment grandiose: Une
 
 ment le socialisme. Et dans l'Aurore je trouve une
@@ -280,9 +273,7 @@ se fait le complice des menteurs et des faussaires! »
 Voilà ce que nous proclamions alors. Voilà ce que
 nous proclamions au commencement de cet hiver:
 Cette proposition est-elle annuelle, ou bisannuelle?
-Fond-elle avec la gelée? Et voilà ce que nous décla-
-
-rons encore aujourd'hui contre les antisémites.
+Fond-elle avec la gelée? Et voilà ce que nous déclarons encore aujourd'hui contre les antisémites.
 Cette proposition est-elle, aussi, locale? Non. Elle
 est universelle et éternelle, disons-le sans fausse
 honte. Nous demandons simplement qu'on dise la
@@ -332,8 +323,7 @@ le libère et une annonce qui, en un sens, l'asservit.
 Je n'ai jamais, depuis le commencement de l'affaire,
 senti une impression de défaite aussi lourde que le
 jour où Vaughan nous annonça dans l'Aurore que
-le journal publierait, comme tout le monde, un bul-
-letin financier, une chronique financière. Le journal s'envole donc, emportant la parole d'affranchissement et l'annonce d'asservissement, le génie ou
+le journal publierait, comme tout le monde, un bulletin financier, une chronique financière. Le journal s'envole donc, emportant la parole d'affranchissement et l'annonce d'asservissement, le génie ou
 le talent révolutionnaire avec l'absinthe réactionnaire, les tuyaux des courses, les théâtres immondes. Le journal emporte le mal et le bien. Le hasard
 fera la balance, bonne ou mauvaise. Quelle angoisse
 pour l'écrivain, pour l'homme d'action, pour l'orateur génial, de savoir et de voir que sa prose couche
@@ -350,8 +340,7 @@ passionnément que le Congrès essaierait au moins
 d'affranchir la quatrième page. Voici au contraire
 qu'il a commencé l'asservissement de la première.
 
-Le Congrès a entendu, semble-t-il au second pa-
-ragraphe, régir fous les journaux qui se réclament
+Le Congrès a entendu, semble-t-il au second paragraphe, régir fous les journaux qui se réclament
 du socialisme. J'espère que la langue lui a fourché.
 Au paragraphe des sanctions il semble que le Congrès n'a entendu régir que les journaux qui se
 réclament du Parti socialiste ainsi constitué. Car
@@ -376,12 +365,9 @@ la vérité scientifique, historique, la vérité même, la
 vérité. Nous l'avons assez dit. Et c'était vrai. Nous
 avons prétendu, — et c'était vrai, — que nous
 
-posions aux scélératesses et aux imbécillités antisé-
-mitiques exactement l'histoire authentique et scientifique du présent et d'un récent passé. Nous nous
+posions aux scélératesses et aux imbécillités antisémitiques exactement l'histoire authentique et scientifique du présent et d'un récent passé. Nous nous
 
-faisions gloire, — ceux du moins qui étaient acces-
-
-sibles à la gloire, — de nous conduire, dans cette
+faisions gloire, — ceux du moins qui étaient accessibles à la gloire, — de nous conduire, dans cette
 affaire qui nous étreignait vivants, comme de parfaits historiens. Cette gloire était fondée en vérité.
 Nous fûmes les chercheurs et les serviteurs de la
 vérité. Telle était en nous la force de la vérité que
@@ -396,8 +382,7 @@ des tacticiens. Cela se peut, car c'est une race qui
 sévit partout. Mais Zola, qui n'était pas un tacticien, prononça la vérité.
 
 présent que la vérité nous a sauvés, si nous la
-lâächons comme un bagage embarrassant, nous dé-
-justifions notre conduite récente, nous démentons
+lâächons comme un bagage embarrassant, nous déjustifions notre conduite récente, nous démentons
 nos paroles récentes, nous démoralisons notre action
 récente. Nous prévariquons en arrière. Nous abusons de confiance.
 On aurait tort de s'imaginer que ces paragraphes
@@ -449,9 +434,7 @@ les quinzaïines un cahier de renseignements.
 
 Tu demeures auprès de Paris; tu peux assister
 certaines cérémonies, scènes et solennités; tu m'en « feras le compte rendu fidèle. Tu peux assister à certains actes. Tu me diras ce que tu verras et ce que
-tu sauras des hommes et des événements, en parti-
-
-culier ce qui ne sera pas dans les journaux. Non pas
+tu sauras des hommes et des événements, en particulier ce qui ne sera pas dans les journaux. Non pas
 que je veuille avoir les derniers tuyaux; non pas
 que j'attache une importance qu'elles n'ont pas aux
 grandes nouvelles, vraies et fausses, qui cheminent
@@ -460,9 +443,7 @@ aux salles de rédaction. Je ne veux pas t'envoyeren
 ces endroits, où tu n'es pas accoutumé d'aller. Je ne
 
 veux pas savoir les secrets des cours. Je consens à
-ne savoir jamais pourquoi ni comment M. Cle-
-
-menceau a quitté l'Aurore. Je ne te prie pas
+ne savoir jamais pourquoi ni comment M. Clemenceau a quitté l'Aurore. Je ne te prie pas
 
 de m'envoyer les nouvelles privées, mais les
 nouvelles publiques non communiquées ou mal
