@@ -11,8 +11,7 @@ wordCount: 3854
 
 — « Je Tai fait du mal. C'est sans le vouloir » —
 
-Elle couvrit ses joues de baisers, peigna ses cheveux si blonds qu'ils semblaient blancs, et l'en-
-voya jouer dans la cour, avec ses amis les lapins et
+Elle couvrit ses joues de baisers, peigna ses cheveux si blonds qu'ils semblaient blancs, et l'envoya jouer dans la cour, avec ses amis les lapins et
 les poules.
 
 Son mari voulait partir pour des pays au delà de
@@ -115,9 +114,7 @@ remplacer le soleil?
 
 Leur père entra. On servit la soupe.
 
-— J'ai Brix pour les Schiedam. Ils se mé-
-
-fient tous de moi, tous, tous. Il faudrait vivre pourtant.
+— J'ai Brix pour les Schiedam. Ils se méfient tous de moi, tous, tous. Il faudrait vivre pourtant.
 
 — Dieu ne voudra pas —
 
@@ -149,8 +146,7 @@ l'importune bonté.
 — Laisse-moi.
 
 Au dehors à des intervalles rythmés par les souffles venus du large, un vieux vapeur amarré au
-quai filait des sons aigre-doux en balançant sa mà-
-ture où s'accrochaient des flocons de neige.
+quai filait des sons aigre-doux en balançant sa màture où s'accrochaient des flocons de neige.
 
 — Ces braises te brûlent — lève-toi?
 
@@ -168,15 +164,13 @@ Elle soutint son regard.
 
 — Il faut partir. Le vapeur lever l'ancre.
 
-Entends ses appels vers la haute mer. Nous trou-
-verons la nature plus indulgente ailleurs loin de
+Entends ses appels vers la haute mer. Nous trouverons la nature plus indulgente ailleurs loin de
 l'Europe impitoyable aux vaincus.
 — Je ne veux pas laisser ici un Être qui est
 de toi et de moi.
 — Nous ne pouvons pas emmener Clément. Que
 ferions-nous là-bas de ses inutiles yeux. Timor est
-une île redoutable. Il faut des sens aiguisés et tou-
-jours en éveil pour échapper à la traîtrise de ses
+une île redoutable. Il faut des sens aiguisés et toujours en éveil pour échapper à la traîtrise de ses
 — Nous défendrons l'enfant contre la forêt.
 — Le défendras-tu contre le soleil?
 — Contre le soleil?
@@ -188,8 +182,7 @@ la respiration égale des enfants.
 — Vois la vie que nous menons dans ce pays?
 Les enfants dorment dans une chambre trop étroite;
 ils ne mangent pas à leur faim.
-— Qu'importe la misère, et pourquoi te ré-
-voltes-tu contre elle? — Ne peux-tu nous aimer
+— Qu'importe la misère, et pourquoi te révoltes-tu contre elle? — Ne peux-tu nous aimer
 sans nous vouloir heureux?,
 — La misère abime les Êtres et je veux que mes
 enfants deviennent de beaux humains.
@@ -232,8 +225,7 @@ Providence n'est plus.
 — Majorel est riche: abandonner Clément serait
 le vendre.
 — Nous recommanderons Clément au vicaire de
-Sainte-Sabine, qui entretiendra sa piété. Majorel em-
-plira son âme de passé. Ainsi notre fils qui ne pourra
+Sainte-Sabine, qui entretiendra sa piété. Majorel emplira son âme de passé. Ainsi notre fils qui ne pourra
 jamais agir dans l'espace aura la joie de rèver dans
 le temps.
 — Un de mes fils condamné à ne jamais connaître qu'une face de la vie! Ne me fais pas souvenir
@@ -284,11 +276,9 @@ femme se retournèrent. L'enfant aveugle, en chemise
 crucifiées contre la porte.
 
 La ville était une ville de désolation, car elle
-était à l'embouchure d'un grand fleuve qui traver-
-sait un pays de houille. Antique résidence des Rois, he:
+était à l'embouchure d'un grand fleuve qui traversait un pays de houille. Antique résidence des Rois, he:
 elle avait des avenues distinguées par des rangées
-d'arbres en huit allées assez larges pour laisser pas-
-ser dix cavaliers de front. Les perspectives des allées
+d'arbres en huit allées assez larges pour laisser passer dix cavaliers de front. Les perspectives des allées
 étaient fermées par les façades des palais — simples,
 maisons de briques noircies qui reflétaient l'unique
 étage de leurs immenses façades toutes droites,
@@ -361,16 +351,13 @@ alla vers un point de l'Océan où le navire qui emportait sa mère n'était dé
 la lumière
 Reims et Majorel revinrent par le quai. Chacun
 d'eux tenait une main de Clément dans sa main.
-la naissance de la jetée, ils quittèrent le port et suivirent le long d'un canal une allée d'ormeaux noir-
-
-cis par les pluies récentes. Derrière eux, la houle
+la naissance de la jetée, ils quittèrent le port et suivirent le long d'un canal une allée d'ormeaux noircis par les pluies récentes. Derrière eux, la houle
 
 d'automne mouvait ses grandes ondes distinguées
 par des silences. La ville était enveloppée par sa
 rumeur. À mesure qu'ils s'éloignèrent le bruit de la
 mer s'assourdit mais devint plus sinistre. L''allée
-suivait la pente d'une ancienne dune d'où l'on dé-
-couvrait au loin la mer. Clément ne percevait plus
+suivait la pente d'une ancienne dune d'où l'on découvrait au loin la mer. Clément ne percevait plus
 qu'à de rares intervalles le fracas des lames éboulées
 et chaque fois il tournait involontairement la tête
 mais seuls, l'abbé Reims et Majorel pouvaient apercevoir, à travers les branches emmélées des arbres,
@@ -418,9 +405,7 @@ A Greifswald autrefois ils avaient écouté ensemble un professeur qui enseigna�
 la pensée de Hegel: l'enchaïnement des causes et
 des effets dans l'Univers était la raison même. Et
 pourquoi le bonhomme n'aurait-il pas cet optimisme? Son gouvernement avait toujours pour
-lui les attentions les plus délicates? — Un même sen-
-
-timent de dégoût pour l'enseignement de ce cuistre
+lui les attentions les plus délicates? — Un même sentiment de dégoût pour l'enseignement de ce cuistre
 avait rapproché les deux jeunes gens. Ils remplacèrent l'étude par le canotage sur la rivière.
 Reims n'avait rien alors d'un ascète; il ne portait
 pas encore la soutane. Il avait une âme joyeuse et
@@ -434,8 +419,7 @@ maillot moulait ses épaules lisses, le canot filait sur
 l'eau lumineuse.
 Des influences indéterminées le détournèrent
 insensiblement de la rivière. Il oublia le rire, il
-abandonna sa maîtresse, il se désola de la vie humaine qu'il avait menée. Les actions les plus natu-
-relles évoquèrent en lui des scrupules.
+abandonna sa maîtresse, il se désola de la vie humaine qu'il avait menée. Les actions les plus naturelles évoquèrent en lui des scrupules.
 Un matin, comme ils déjeunaient devant une
 table de brasserie, Reims lui dit sans émotion
 — Un curé! toi, un curé! C'est une honte, une
@@ -482,11 +466,9 @@ coagulé blasonnées par des raïes noires.
 — Zachée dis-nous ton histoire?
 — Je suis aveugle depuis dix-huit cents ans,:
 pour avoir Notre Seigneur. C'est moi qui étais
-monté sur le figuier le jour de son entrée à Jéru-
-salem. Mes yeux trop faibles ne purent supporter ne
+monté sur le figuier le jour de son entrée à Jérusalem. Mes yeux trop faibles ne purent supporter ne
 l'éclat du fils de Dieu. J'étais dans la lumière, je fus
-précipité dans la nuit. — Je criai vers Lui éper-
-dûment. Il mit sa main sur mon visage et me Me
+précipité dans la nuit. — Je criai vers Lui éperdûment. Il mit sa main sur mon visage et me Me
 
 Seigneur, vous le savez: guérissez-moi. — Vis mn.
 plutôt éternellement et conserve dans la nuit la ne!
@@ -519,13 +501,12 @@ jésus de 116 pages, pour un franc. ee:
 Aussitôt que nous aurons fini de publier la lumière.
 nous en ferons un tirage à part trés restreint, en un
 beau volume jésus à peu près de même épaisseur, à
-É: pour un franc. Nous prions ceux de nos correspondants
+pour un franc. Nous prions ceux de nos correspondants
 ni, voudraient nous l'acheter de vouloir bien nous en dE
 avertir. Ajouter o fr. 50 pour les frais d'envoi en pro-
 Le vince et à l'extérieur.
 Vient de paraître à la Société nouvelle de librairie et
-d'édition, 17,rue Cujas, Paris. le Procès des Assomp-
-lionnistes, réquisiloire du Parquet, exposé et réquisi-
+d'édition, 17,rue Cujas, Paris. le Procès des Assomplionnistes, réquisiloire du Parquet, exposé et réquisi-
 à loire du Procureur de la République. compte rendu
 de 2 sténographique partiel des débats, arrêt. 1 volume,
-25 Gpages, imprimées très denses. 6, pour cin uante +4
+Gpages, imprimées très denses. 6, pour cin uante +4

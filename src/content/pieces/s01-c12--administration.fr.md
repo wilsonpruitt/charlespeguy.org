@@ -87,8 +87,7 @@ Société nous prépare et nous donner le compte
 rendu sténographique officiel de ce deuxième congrès.
 Mais les congrès ne sont que les manifestations céré- ÉNe
 à monielles de mouvements profonds et durables. Et s'il
-est indispensable de garder les traces des manifesta-
-tions, il n'est pas moins indispensable que les mou- a.
+est indispensable de garder les traces des manifestations, il n'est pas moins indispensable que les mou- a.
 vements profonds et durables soient conservés pour
 l'historien. Sous ce titre courant: du premier congrès
 

@@ -132,8 +132,7 @@ Je vous dirai, mes chers amis, que selon moi, il me semble
 que ces questions ainsi posées contiennent en elles-mêmes
 leur réponse.
 
-Certainement, tout ce qui touche à la justice et au mieux-
-être de tous intéresse les socialistes. Certainement parce
+Certainement, tout ce qui touche à la justice et au mieuxêtre de tous intéresse les socialistes. Certainement parce
 que socialiste, l'on n'en est pas moins un citoyen et un
 homme. Faire obtenir justice au capitaine Dreyfus était
 autant le devoir des socialistes que celui des autres Fran-.
@@ -178,8 +177,7 @@ cette réponse:
 Le chef le plus en vue du parti social-démocrate en Bavière. Dé-
 puté de Munich au Parlement allemand depuis une vingtaine d'années, il a été élu aussi député au Landtag bavaroïis aux élections de
 1893. Son talent d'organisateur et de tacticien parlementaire est re- »
-connu par tous, même par ceux des socialistes allemands qui com-
-battent ses tendances modérées. Il est, en effet, à la tête de ce qu'on
+connu par tous, même par ceux des socialistes allemands qui combattent ses tendances modérées. Il est, en effet, à la tête de ce qu'on
 peut nommer l'aile droite du parti socialiste de l'Allemagne.
 Si je peux juger d'après les socialistes allemands, il n'y
 aura des divergences d'opinion importantes qu'au sujet de
@@ -187,23 +185,19 @@ votre deuxième question.
 Voici mon avis sur celle-ci. Comme pour beaucoup d'autres questions d'ordre pratique, il ne saurait y avoir de for- si
 mule fixe renfermant d'avance une solution pour tous les
 cas. La politique n'est pas la mathématique. Elle est un art,
-où certaines thèses et règles générales basées sur l'expé-
-rience peuvent bien prétendre à une portée limitée, mais
+où certaines thèses et règles générales basées sur l'expérience peuvent bien prétendre à une portée limitée, mais
 où aussi l'action simultanée des forces vives crée des situa-:
 tions sans cesse changeantes dont quelques-unes seulement
 se ressemblent. C'est pourquoi votre question n'admet pas Wrz
-une réponse générale, mais seulement des réponses parti-
-culières selon les cas particuliers, quel que soit le désir de nov
+une réponse générale, mais seulement des réponses particulières selon les cas particuliers, quel que soit le désir de nov
 l'approfondir au point de vue des principes.
 Il est certain qu'un socialiste regardera avec défiance tout
 gouvernement bourgeois. Et il ne pourra surtout jamais
 attacher trop d'importance au danger que courent les mem-!
 bres socialistes d'un ministère bourgeois d'être obligés de
 prendre la responsabilité des actes qui sont étrangers
-l'esprit du socialisme. Mais, d'autre part, le nombre des so-
-cialistes qui croient encore à la théorie des catastrophes
-est en train de diminuer rapidement, tandis que la transfor-
-mation organique de l'état social et la conquête du pouvoir
+l'esprit du socialisme. Mais, d'autre part, le nombre des socialistes qui croient encore à la théorie des catastrophes
+est en train de diminuer rapidement, tandis que la transformation organique de l'état social et la conquête du pouvoir
 politique par étapes successives /die stueckweise Eroberung
 der politischen Macht) sont reconnues de plus en plus
 comme la règle imposée par la réalité /als das regelmaessig
@@ -271,12 +265,10 @@ Rien d'humain ne doit être étranger à la politique de la
 classe ouvrière, elle doit vivre toute la vie de la nation et
 mouvement dans toutes les questions qui agitent le pays.
 Une seule occasion, où elle réussit de la sorte à montrer
-à tous d'une manière saisissante la portée et la force civi-
-lisatrice du socialisme, favorise plus efficacemènt la propagande des idées socialistes qu'une poignée.de théorèmes
+à tous d'une manière saisissante la portée et la force civilisatrice du socialisme, favorise plus efficacemènt la propagande des idées socialistes qu'une poignée.de théorèmes
 finement ciselés. Que si une partie des militants socialistes
 dans un pays ne comprend pas cette situation de prime
-abord et que des hommes perspicaces et courageux mul-
-tiplient leurs efforts pour rattraper le temps perdu et
+abord et que des hommes perspicaces et courageux multiplient leurs efforts pour rattraper le temps perdu et
 mettre le socialisme à la place qui lui convient, ils méritent
 bien de la cause socialiste, de leur nation et de l'humanité et les socialistes de tous les pays ont toutes les raisons
 
@@ -295,8 +287,7 @@ il s'est fait remarquer en combattant les tendances d'une fraction du
 parti, dont Bernstein est le plus remarquable porte-parole.
 
 Voici ma réponse à votre première question
-Le parti qui représente le prolétariat conscient doit né-
-cessairement se mêler aux discussions des fractions bourgeoises pour favoriser les progrès de la lutte de classe par
+Le parti qui représente le prolétariat conscient doit nécessairement se mêler aux discussions des fractions bourgeoises pour favoriser les progrès de la lutte de classe par
 l'exercice de l'action politique.
 
 Cette participation ne peut donner matière à aucun doute,
@@ -312,8 +303,7 @@ résulte que le peuple ouvrier a pour devoir suprême de
 grouper tous les éléments prolétariens sans distinction de
 parti pour former un bloc de résistance contre le danger
 
-réactionnaire. La seule considération qu'il y d'une ques-
-tion vitale pour le développement politique et social du
+réactionnaire. La seule considération qu'il y d'une question vitale pour le développement politique et social du
 
 pays suffit pour désapprouver toutes les tentatives de
 
@@ -328,8 +318,7 @@ social-démocrates allemands l'ont fait au Congrès de Gotha
 Je passe à la deuxième question.
 
 La classe ouvrière cherche à s'emparer du pouvoir pour
-détruire le système du salariat qui fait des ouvriers de vé-
-ritables esclaves. Elle doit donc tendre à occuper toutes les
+détruire le système du salariat qui fait des ouvriers de véritables esclaves. Elle doit donc tendre à occuper toutes les
 positions dans l'état actuel pour mieux mener sa lutte de,
 classe, sa lutte contre la bourgeoisie et son gouvernement.
 
@@ -339,12 +328,10 @@ dans des conditions normales est nuisible au mouvement!
 prolétarien, le dégrade en l'abaissant au niveau d'un mouvement réformiste d'un caractère petit-bourgeois. (
 
 Il peut pourtant se présenter le caS suivant: Le prolé- FAR
-tariat n'est pas encore mûr pour la prise définitive du pouvoir. La liberté, la Constitution républicaine sont sérieu-
-sement menacées. Le gouvernement bourgeois ayant perdu
+tariat n'est pas encore mûr pour la prise définitive du pouvoir. La liberté, la Constitution républicaine sont sérieusement menacées. Le gouvernement bourgeois ayant perdu
 tout crédit dans le pays est hors d'état de mener le peuple à
 la bataille sans les représentants de la classe ouvrière. tu
-Alors, dans ce cas spécial, la participation de la classe ou-
-vrière au gouvernement serait peut-être désirable pour une De:
+Alors, dans ce cas spécial, la participation de la classe ouvrière au gouvernement serait peut-être désirable pour une De:
 
 En tous cas, cette décision ne pourrait être prise par les
 intéressés sous leur responsabilité individuelle. Le parti
@@ -388,8 +375,7 @@ Il n'est pas nécessaire de démontrer qu'en vue de cette
 
 tâche grandiose, la liberté politique est pour le prolétariat
 une des premières nécessités. Conséquemment, nous voyons
-partout la classe prolétarienne devenir l'héritière du tiers-
-état, qui, après avoir conquis le pouvoir pour lui-même, a
+partout la classe prolétarienne devenir l'héritière du tiersétat, qui, après avoir conquis le pouvoir pour lui-même, a
 cessé toute lutte pour les droits politiques de la masse ouvrière (comme cela s'est en Hollande) ou bien comme en
 est redevenue l'esclave de l'absolutisme. Même en
 Allemagne, le prolétariat n'a jamais hésité à soutenir dans
@@ -403,8 +389,7 @@ sacrifier les droits de la classe moyenne à ses intérêts dynastiques — une 
 sous le règne de Louis-Philippe.
 Le Kommunistische Manifest a prévu de longue date la
 nécessité de l'intervention du parti prolétaire dans les conflits bourgeois: « La bourgeoisie est continuellement en
-lutte, d'abord avec l'aristocratie, plus tard contre les factions de la bourgeoisie elle-même, dont les intérêts devien-
-nent contraires au progrès de la bourgeoisie; toujours avec
+lutte, d'abord avec l'aristocratie, plus tard contre les factions de la bourgeoisie elle-même, dont les intérêts deviennent contraires au progrès de la bourgeoisie; toujours avec
 la bourgeoisie des autres pays. Dans toutes ces luttes, elle
 se voit obligée de recourir à l'appui du prolétariat et de le
 faire participer au mouvement politique. » — Quelle est la
@@ -466,16 +451,14 @@ publiques, elle luttait non seulement pour elle-même, mais )
 aussi pour cet idéal humanitaire qui, négligé par les grands
 de la terre, n'a jamais compter que sur l'appui des +48
 petits et des opprimés.
-Loin de moi de vouloir nier la haute valeur de la doctrine marxiste, qui nous expose les grandes lignes de mar-
-che de notre armée; mais nous ne sommes pas seulement Se.
+Loin de moi de vouloir nier la haute valeur de la doctrine marxiste, qui nous expose les grandes lignes de marche de notre armée; mais nous ne sommes pas seulement Se.
 
 des social-démocrates, nous sommes avant tout des hommes.
 Le Nihil humani a me alienum puto doit être notre de- “.
 vise; et où notre doctrine a le mérite de nous apprendre
 à garder une tête solide et un cerveau froid, malgré les
 entraînements du cœur, il peut y avoir des circonstances À À
-où nos sentiments les plus nobles, les plus élevés s'oppo-
-sent si ardemment aux froides conclusions d'une politique
+où nos sentiments les plus nobles, les plus élevés s'opposent si ardemment aux froides conclusions d'une politique
 qui ne voit que l'intérêt de classe, qu'en somme nous pouvons suivre en toute sécurité la voix instinctive de la nature, à
 qui dans un parti prolétarien a encore toute sa fraîcheur.
 La politique a pour base la science, mais n'est pas une “4
@@ -489,10 +472,8 @@ complications, de ses replis profonds, de ses beaux élans
 Voyons maintenant le côté pratique de la tactique de
 notre parti dans l'affaire Dreyfus: ce qui remue un monde
 entier ne peut pas laisser insensible un des partis politiques en France. Si les antisémites veulent assassiner le
-juif; si des prêtres bénissent le crime judiciaire; si des gé-
-néraux aux éperons sonnants foulent aux pieds les droits
-de l'homme, l'humanité se réfugie sous l'égide des senti-
-ments généreux du peuple. Si le parti prolétarien, quel que
+juif; si des prêtres bénissent le crime judiciaire; si des généraux aux éperons sonnants foulent aux pieds les droits
+de l'homme, l'humanité se réfugie sous l'égide des sentiments généreux du peuple. Si le parti prolétarien, quel que
 
 soit son motif, reste insensible à sa voix, tous ceux à qui
 l'humanité est chère se détourneront de lui.
@@ -509,9 +490,7 @@ sont encore ses adversaires.
 
 - Surtout — pour en revenir à l'affaire Dreyfus — n'ou-
 
-à blions pas que chaque lutte pour la libération de tout inno-
-
-cent condamné injustement est en même temps une lutte
+à blions pas que chaque lutte pour la libération de tout innocent condamné injustement est en même temps une lutte
 contre ceux qui sont au pouvoir et qui craignent de perdre
 
 leur prestige en reconnaissant leurs torts.
@@ -520,8 +499,7 @@ de critiquer en même temps chaque cas spécial et de mener
 
 une opposition indépendante. C'est cette classe qui peut
 lutter avec le plus d'énergie pour redresser les erreurs com-
-à mises, pour: démasquer les crimes commis à l'effet de mas-
-quer l'injustice. En agissant de la sorte, elle démasque aussi
+à mises, pour: démasquer les crimes commis à l'effet de masquer l'injustice. En agissant de la sorte, elle démasque aussi
 
 le système qui rendit ces crimes possibles et la classe qui
 s'en rendait coupable. Si d'un autre côté elle se résignait, elle
@@ -547,16 +525,14 @@ gagnant de jour en jour en force et en puissance, jointe à la
 décadence intellectuelle, politique et morale de la bourgeoisie, oblige les éléments démocrates-socialistes à s'infiltrer
 pour ainsi dire continuellement dans les organes publics?
 
-Nous voyons bien ce qui arrive. Non seulement les repré-
-sentants de la classe ouvrière pénètrent de plus en plus dans
+Nous voyons bien ce qui arrive. Non seulement les représentants de la classe ouvrière pénètrent de plus en plus dans
 les corps législatifs de l'État, de la province, de la commune,
 nous les voyons encore, comme maires, comme échevins,
 entrer dans les collèges administratifs. Même il arrive que
 où les fonctionnaires bourgeois sont élus par le peuple,
 comme en Suisse, ils remplissent des fonctions judiciaires
 et policières. On peut conclure de que le peuple, plus son
-pouvoir s'accroît, plus le suffrage universel acquiert de si-
-gaification, plus la bourgeoisie sera obligée de céder en:
+pouvoir s'accroît, plus le suffrage universel acquiert de sigaification, plus la bourgeoisie sera obligée de céder en:
 partie son pouvoir au prolétariat. Le grand avantage d'un
 tel état de choses, la tâche du prolétariat dans la lutte
 des classes, est que non seulement les hommes, dont il aura
@@ -568,19 +544,15 @@ collaboration de ces éléments également nécessaires.
 Jusqu'à quel point cette participation du prolétariat
 cialiste au pouvoir devra s'étendre, ceci dépend selon moi
 entièrement du cours des circonstances. Un parti dont la
-lutte consiste à prendre part à tout ce qui touche aux inté-
-rêts politiques et économiques du peuple est par même
+lutte consiste à prendre part à tout ce qui touche aux intérêts politiques et économiques du peuple est par même
 obligé de pénétrer partout où ses intérêts pourront être
 sauvegardés. Une grève sur ce terrain-là équivaudrait à une
-trahison. D'ailleurs, je ne puis m'imaginer pour quelle rai-
-son les conséquences naturelles de nos efforts devraient
+trahison. D'ailleurs, je ne puis m'imaginer pour quelle raison les conséquences naturelles de nos efforts devraient
 être enfermées dans de certaines limites. Il n'y a que ceux
-qui sont encore entichés des traditions soi-disant révolu-
-tionnaires du mouvement socialiste, dans un temps où il
+qui sont encore entichés des traditions soi-disant révolutionnaires du mouvement socialiste, dans un temps où il
 
 n'était encore qu'une secte agitatrice, qui peuvent raisonner de la sorte. Dans des périodes de troubles populaires,
-où on fait montre d'une force factice, au moyen de véhé-
-ments appels aux passions ou au mécontentement latent de
+où on fait montre d'une force factice, au moyen de véhéments appels aux passions ou au mécontentement latent de
 la petite bourgeoisie et des ouvriers, on peut gagner
 quelques courtes victoires pour les perdre bientôt après par
 suite du peu d'étendue de sa sphère d'influence, par suite
@@ -647,26 +619,21 @@ l'alternative: de laisser gouverner les partis bourgeois
 leur guise, ou bien de prendre la place qui, en raison de la,
 situation économique et politique, lui revient de droit.
 pr) L'occupation d'un siège ministériel par un socialiste
-y signifie néanmoins un compromis avec le parti ou les par-
-tis du gouvernement. Ce compromis diffère des compromis
+y signifie néanmoins un compromis avec le parti ou les partis du gouvernement. Ce compromis diffère des compromis
 ordinaires, acceptés par chaque député qui vote une loi,
 lui accordant seulement en partie ce qu'il aurait voulu,;en -
 ce qu'il ne concerne pas seulement quelques points de tac-
-é tique législative, mais s'applique de fait aux tendances gou-
-vernementales en général, au régime bourgeois tout entier.
+é tique législative, mais s'applique de fait aux tendances gouvernementales en général, au régime bourgeois tout entier.
 Le parti socialiste participant au pouvoir sous un régime
 bourgeois se déclare par homogène avec ce régime pour
 tout le temps que cette participation sera maintenue. Il n'a
 done plus toute sa liberté d'allures envers un système qu'il a
-pour mission de combattre et d'anéantir; à moins que la si-
-tuation politique soit telle que le parti bourgeois doit se rési-
-gner à accepter toutes Les conditions posées parles socialistes.
+pour mission de combattre et d'anéantir; à moins que la situation politique soit telle que le parti bourgeois doit se résigner à accepter toutes Les conditions posées parles socialistes.
 Ceci prouve que la social-démocratie, dans des circonstances ordinaires, et aussi longtemps qu'elle ne formera pas
 une minorité assez importante pour faire admettre par ses
 alliés son propre régime, se trouve dans l'impossibilité de
 faire partie du ministère.
-Dans des cas extraordinaires, pour sauvegarder les résul-
-tats déjà obtenus et empêcher une révolution réactionnaire,
+Dans des cas extraordinaires, pour sauvegarder les résultats déjà obtenus et empêcher une révolution réactionnaire,
 on peut faire une exception. S'il y a l'une ou l'autre ques-
 à tion d'une importance capitale pour la classe ouvrière, qui
 peut fortifier sa position dans la lutte et qu'on ne peut laisf. ser résoudre par un ministère tout à fait bourgeois, la
@@ -675,22 +642,16 @@ tient à lui confier la direction d'une affaire spéciale. Par
 exemple, j'aurais trouvé tout naturel qu'en Belgique, après
 la chute du ministère Van den Peereboom, un gouvernement radical-socialiste-démocrate-chrétien fût venu au pou-
 à voir dans le but nettement défini d'instituer le suffrage
-universel pur et simple, surtout après les troubles popu-
-laires, amenés par les socialistes: un tel ministère aurait
+universel pur et simple, surtout après les troubles populaires, amenés par les socialistes: un tel ministère aurait
 été la conséquence naturelle des événements.
 
 Surtout qu'on n'oublie pas que dans quelques pays le
 mouvement socialiste a pris des proportions telles que le
 parti peut être appelé à gouverner longtemps avant qu'il
 lui soit possible, la situation dans quelques pays de
-plus d'importance et les rapports internationaux en géné-
-ral, d'instituer un régime socialiste. Avant qu'on en soit
-les socialistes doivent-ils donc laisser la machine gouver-
-
-nementale aux mains des partis progressistes, qui proba-
-blement voudront bien leur procurer les éléments prêts
-devenir les mannequins des socialistes? Ou bien voudrontils se charger eux-mêmes de la responsabilité de la situa-
-tion donnée, en occupant la place qui leur est indiquée par
+plus d'importance et les rapports internationaux en général, d'instituer un régime socialiste. Avant qu'on en soit
+les socialistes doivent-ils donc laisser la machine gouvernementale aux mains des partis progressistes, qui probablement voudront bien leur procurer les éléments prêts
+devenir les mannequins des socialistes? Ou bien voudrontils se charger eux-mêmes de la responsabilité de la situation donnée, en occupant la place qui leur est indiquée par
 
 l'évolution historique?
 
@@ -729,19 +690,16 @@ d'où cette tentative vient.
 Il sans dire que nous avons l'obligation de soutenir le.
 parti bourgeois seulement en tant que cela n'entrave pas
 la propagation de nos idées politiques et économiques et
-sous la condition de rester pleinement fidèles à notre prin-
-cipe de la lutte de classes.
+sous la condition de rester pleinement fidèles à notre principe de la lutte de classes.
 La participation du parti socialiste aux pouvoirs publics
 de la société bourgeoise ne doit avoir lieu, selon moi, que
 dans la mesure où le parti peut entrer dans le Parlement,
 ! les municipalités ou autres corps politiques de notre État
-capitaliste, à l'aide de sa propre force et répudiant des com-
-promissions et des alliances avec les partis bourgeois.
+capitaliste, à l'aide de sa propre force et répudiant des compromissions et des alliances avec les partis bourgeois.
 Les représentants du prolétariat aux assemblées politiu ques, au service de la classe ouvrière opprimée dans ses
 droits politiques et exploitée dans ses intérêts économiques,
 ont la tâche d'intervenir dans la législation et l'adminis-
-à tration d'accord avec leurs principes pour défendre le pro-
-létariat asservi et pour empêcher les pouvoirs publics de se
+à tration d'accord avec leurs principes pour défendre le prolétariat asservi et pour empêcher les pouvoirs publics de se
 faire les instruments de la spoliation et de l'oppression de
 la masse populaire par la classe capitaliste.
 Pour cette tâche, il n'y a aucun parti bourgeois qui puisse
@@ -749,8 +707,7 @@ s'allier avec nous sans sacrifier son intérêt de classe. De
 cela il résulte en stricte logique qu'il n'y a pas de place
 dans un ministère bourgeois de n'importe quelle nuance
 pour la social-démocratie.
-L'entrée d'un social-démocrate dans un ministère bour-
-geois, qui doit servir nécessairement les intérêts de la classe
+L'entrée d'un social-démocrate dans un ministère bourgeois, qui doit servir nécessairement les intérêts de la classe
 capitaliste, ne s'accorde pas, selon moi, avec le principe de
 la lutte de classes.
 En faisant même abstraction de cette considération de
@@ -760,16 +717,14 @@ cabinet bourgeois paralyse, au sein même de ce cabinet, la
 
 force d'action de son propre parti quand il s'agit de réa- y
 liser ou même de favoriser dans une mesure plus ou moins
-notable ses idées en se déclarant solidaire avec ses collè-
-gues du ministère et étant obligé de couvrir de son nom
+notable ses idées en se déclarant solidaire avec ses collègues du ministère et étant obligé de couvrir de son nom
 leurs mesures de nature à favoriser les intérêts capitalistes
 et bourgeois.
 Pour la conquête des nouveaux droits politiques concédés
 par la bourgeoisie, tel que l'amélioration des conditions de
 salaire et de travail dans la société de classe actuelle, le
 fait de la participation d'un social-démocrate au ministère
-n'a aucune importance. Car si le parti possède la force suffisante et par conséquent l'influence nécessaire au Parle-
-ment pour imposer ces mesures, elles peuvent être réalisées
+n'a aucune importance. Car si le parti possède la force suffisante et par conséquent l'influence nécessaire au Parlement pour imposer ces mesures, elles peuvent être réalisées
 sans qu'il y ait besoin pour cela de procurer un portefeuille
 ministériel à un socialiste.
 Mais pour le cas même où il s'agit de répondre à une difficulté surgie de la politique courante /Politik des Tages),
@@ -879,8 +834,7 @@ elle se présente est à trancher chaque fois selon les circonstances.
 D'abord, naturellement, il faut savoir si, en entrant dans
 tel ministère, nos représentants pourront vraiment faire
 œuvre socialiste; car, sans cela, ils ne feraient que fournir
-à nos adversaires une enseigne trompeuse, et ils couvri-
-raient ainsi des tendances qui ne sont pas les leurs et qu'ils
+à nos adversaires une enseigne trompeuse, et ils couvriraient ainsi des tendances qui ne sont pas les leurs et qu'ils
 n'approuvent point. Ensuite, bien entendu, il faudrait que
 le ministère en question n'ait pas une couleur tellement
 marquée et que les circonstances ne soient pas telles

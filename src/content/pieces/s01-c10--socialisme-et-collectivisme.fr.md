@@ -16,17 +16,14 @@ temps, semble vouloir adopter l'étiquettesocialiste,
 dé. (Rires) Dans ces conditions, il peut être utile
 Le. marquer ce qui différencie les gens de plus ou moins
 LE LL. bonne volonté qui se réclament du socialisme, sans,
-À trop connaître la signification de ce mot, des socia-
-listes vraiment dignes de ce nom, qui savent où ils
+À trop connaître la signification de ce mot, des socialistes vraiment dignes de ce nom, qui savent où ils
 vont, qui marchent vers un but bien défini, qui
-:: he: considèrent le collectivisme comme logiquement
+he: considèrent le collectivisme comme logiquement
 à inséparable de l'idée socialiste elle-même. Ausih
 première condition pour que, dans la nébuleuse
 socialisme sentimental, se constitue le noyau
 d'un parti socialiste unifié, c'est de caractériser
-nettement les principes fondamentaux du collecti-
-
-visme, c'est-à-dire de la doctrine qui
+nettement les principes fondamentaux du collectivisme, c'est-à-dire de la doctrine qui
 propriation sociale des moyens de produ
 ont je voudrais prendre un pour ARS A
 part qui nous mit tous d'accord — panene
@@ -50,8 +47,7 @@ d'apprécier si, dans l'état actuel des choses, la pro- de De,
 individuelle peut être considérée comme le
 fruit, ou l'accessoire, du travail. Pour le soutenir y
 défenseurs du régime capitaliste font à peu près
-comme les Prussiens qui, pendant la guerre franco-
-allemande, faisaient, dit-on, marcher en
+comme les Prussiens qui, pendant la guerre francoallemande, faisaient, dit-on, marcher en
 ligne leurs alliés Saxons ou Bavarois
 restent dans une ombre pradente, a Een
 en avant, ils prétendent exposer à nos
@@ -74,8 +70,7 @@ menter, bien plutôt qu'à diminuer, dans toutes les
 À Nous ne contestons pas le fait, mais nous
 tons formellement les conclusions qu'on en tire:
 
-Et, tout d'abord, en ce qui concerne les exploita-
-tions agricoles: leur nombre est en ste considérable, mais combien n'en est-il pas qui son
+Et, tout d'abord, en ce qui concerne les exploitations agricoles: leur nombre est en ste considérable, mais combien n'en est-il pas qui son
 qu'elles ne suffisent plus à faire vivre, d'une
 humaine indépendæite, les familles de paysans qui
 les possèdent encore. Ai-je besoin de vous rappeler
@@ -85,10 +80,8 @@ mettait en pleine lumière les graves inconvénients, À à
 politiques et sociaux, de la propriété parcellaire, li-!
 mitant l'horizon intellectuel du cultivateur aux?
 bornes de son champ, et instituant un redoutable ob-
-Stacle aux progrès de l'agriculture rationnelle, Par-
-tout, d'ailleurs, où le développement de l'industrie
-réagit sur le développement de la culture, ces pro-
-priétés paysannes, exploitées en faire-valoir direct,.
+Stacle aux progrès de l'agriculture rationnelle, Partout, d'ailleurs, où le développement de l'industrie
+réagit sur le développement de la culture, ces propriétés paysannes, exploitées en faire-valoir direct,.
 tendent à faire place au faire-valoir indirect et par: "Fe
 des fermiers locataires, En Belgique par exemple,
 mil existe, d'après le dernier recensement, plus de
@@ -109,8 +102,7 @@ la domination capitaliste sont des pays de petite
 culture: l'Irlande, la Flandre, et ce qu'on appelle la
 terre de labour — terra lavoro, aux environs de
 Naples. ne
-! Par conséquent, établir que le nombre des ex-
-ploitations agricoles augmente, ce n'est pas du tout.
+! Par conséquent, établir que le nombre des exploitations agricoles augmente, ce n'est pas du tout.
 prouver que la propriété paysanne fait des progrès:
 à le plus souvent, au contraire, dans les régionssu
 populeuses, on constate double mouvement:. si
@@ -167,10 +159,8 @@ ment grandiose dans au Bonheur des Dames, con.
 chose que des dépositaires, des succursalistes, des
 °4. _Chommes de paille dépendent absolument du ca.
 p. pitalisme; ceux enfin, — et c'est la catégorie la plus
-nombreuse peut-être, — qui ne tirent de leur com-
-merce que des ressources accessoires: tels son,
-par exemple, ces ouvriers dont le sua est insuf-
-fisant, mais dont la femme a quelque loisir, et ouvre
+nombreuse peut-être, — qui ne tirent de leur commerce que des ressources accessoires: tels son,
+par exemple, ces ouvriers dont le sua est insuffisant, mais dont la femme a quelque loisir, et ouvre
 une petite boutique, de préférence un petit
 le plus commode à installer de tous les commerces}
 
@@ -187,14 +177,12 @@ Vous connaissez, à Londres, ces restaurants
 économiques, les aereted bread, où l'on vend du
 thé, du café, du chocolat, des cakes et autres gâteaux:
 
-il semble, à première vue, que chacun d'eux con-
-stitueune entreprise distincte, ils comptent pour tels
+il semble, à première vue, que chacun d'eux constitueune entreprise distincte, ils comptent pour tels
 dans les statistiques, et cependant, en réalité, ils
 appartiennent à une ou deux firmes. Il en est de SE
 même pour la plupart des pharmacies, et pour la à à
 plupart des débits de tabac et de cigares: quelques 4 4 À
-magnats capitalistes se sont emparés de ces détail-
-lants, comme ils se sont emparés des ouvriers à
+magnats capitalistes se sont emparés de ces détaillants, comme ils se sont emparés des ouvriers à
 
 En somme done, si l'on défalque du chiffre total
 des exploitants tous ceux qui ont l'air d'avoir une
@@ -211,16 +199,14 @@ ont une véritable indépendance: le deuxième, li,
 forme l'immense multitude de ceux qui sont déjà
 dans l'ombre du capitalisme et qui n'ont plus qu'un
 fantôme d'indépendance: le troisième, enfin, qui
-devient sans cesse plus nombreux: ceux quitravail-
-lent à la fabrique, qui sont des prolétaires dans.
+devient sans cesse plus nombreux: ceux quitravaillent à la fabrique, qui sont des prolétaires dans.
 toute l'acception du terme, qui constituent la
 grande armée révolutionnaire, le gros des batailLR LL. lons socialistes.
 À De plus en plus, la technique supérieure de la
 ù 3 fabrique l'emporte sur la technique inférieure du
 1 travail à domicile; la société anonyme remplace
 l'entreprise individuelle; les sociétés anonymes se
-54 fédèrent et forment des cartels, des syndicats indus-
-triels; les syndicats eux-mêmes tendent à s'unifier, à
+54 fédèrent et forment des cartels, des syndicats industriels; les syndicats eux-mêmes tendent à s'unifier, à
 sous la forme gigantesque des trusis, sirépandus
 Certes, — à ne prendre que les chiffres bruts, tels
 qu'ils nous sont livrés par les monte:
@@ -230,11 +216,9 @@ apprécier la situation réelle, c'est que les grandes à
 industries représentent, dès, à présent, la pas
 grande partie de la production, tandis que la mue
 tude des petits métiers ne gouverne au contraire
-qu'une production relativement insignifiante. Pren-
-dre le nombre des entreprises, pour juger du ne ta
+qu'une production relativement insignifiante. Prendre le nombre des entreprises, pour juger du ne ta
 industrie, c'est, à peu près, raisonner comme sil'on
-disait: ilexiste en France quatre grandes Compa-
-gnies de chemins de fer, etun nombre incalculable à
+disait: ilexiste en France quatre grandes Compagnies de chemins de fer, etun nombre incalculable à
 de bicyclettes; par conséquent l'industrie des;
 transports n'est pas du tout monopolisée. De même le
 on s'écrie: Il existe un très grand nombre de:.
@@ -261,8 +245,7 @@ paysan propriétaire? Il a disparu, ou ilest en voie
 de disparition, ou il ne possède plus que des
 parcelles insuffisantes pour le faire vivre. L'artisan?;
 il est presque toujours devenu ouvrier à domicile,
-travaillant pour le compte d'un capitaliste. Le détail-
-lant? il a perdu, les trois quarts du temps, son
+travaillant pour le compte d'un capitaliste. Le détaillant? il a perdu, les trois quarts du temps, son
 indépendance primitive. Bref, celui qui domine,
 celui qui est le véritable détenteur des moyens de
 production, ce n'est pas le producteur autonome,
@@ -288,8 +271,7 @@ Sans-travail forcés, l'armée de réserve industrielle
 de l'autre, les sans-travail volontaires, ceux qui
 ous dans leurs coffres-forts des litres de pro:
 priété qui leur permettent de vivre aux dépens
-Eh bien! je le demande à tous ceux qui m'écou-
-tent, lequel de ces deux hommes, au point de vue
+Eh bien! je le demande à tous ceux qui m'écoutent, lequel de ces deux hommes, au point de vue
 É., moral, est le plus digne d'estime et de commiséraN 4 tion: l'ouvrier qui voudrait travailler et qui n'a
 to/N pas de travail, ou bien le rentier qui s'est donné la
 à. peine de naître et qui ne veut pas travailler? Vous
@@ -302,8 +284,7 @@ l'internement dans les dépôts de mendicité..
 vail à vous donner. Le voilà donc sans salaire; il
 ne trouve pas d'autre besogne; les jours PRATE
 
-terme, le proprié-
-le moment est venu de payer son., le À
+terme, le propriéle moment est venu de payer son., le À
 taire réclame, ou l'agent du prop te
 — Je ne peux pas vous payer, mOn (ai
 Ah! ceci ne me regarde pas; vous ne pouvez (En
@@ -311,8 +292,7 @@ pas payer votre terme, je vous assigné, Je: nl!
 envoie l'huissier, je vous amène devant le juge de si
 paix qui ordonnera votre expulsion.:
 Et voilà notre homme sur la route: il rencontre
-un agent quelconque de l'autorité publique, com-
-missaire de police ou gendarme: …
+un agent quelconque de l'autorité publique, commissaire de police ou gendarme: …
 — Quels sont vos moyens d'existence?
 — Je n'en ai pas; mon patron m'a renvoyé.
 — Où est votre domicile?
@@ -368,8 +348,7 @@ mais son père a travaillé pour lui, et s'il n'avait
 pas la perspective de lui léguer cette fortune, il 2 À
 n'aurait pas travaillé.
 Admetions qu'il y ait une âme de vérité dans cet É ne.
-argument, — bien que l'on ait remarqué que sou-
-vent cest chez les célibataires les plus endurcis
+argument, — bien que l'on ait remarqué que souvent cest chez les célibataires les plus endurcis
 lon le plus d'acharnement à extraire
 raison pour que es
 pour vos héritiers testa- ni
@@ -383,8 +362,7 @@ IL sans dire que je ne songe nullement à pré.
 tendre que la transformation du régime actuel, dans
 le sens du collectivisme, s'opérera nécessairement À.
 par l'abolition ou la limitation de la propriété
-héréditaire. Je me borne à constater que l'expro-
-priation des capitalistes vivants, avec les ressources
+héréditaire. Je me borne à constater que l'expropriation des capitalistes vivants, avec les ressources
 prélevées sur les capitalistes morts, permettrait.
 À d'opérer, pacifiquement et normalement, cette iné-
 Mais alors viennent les objections. Ces objections,
@@ -401,8 +379,7 @@ cela près que la liberté n'y existe plus que +.
 égaré par aventure!:
 ina à la liberté, anéantissement de l'initia- LEE!
 tive individuelle, invasion de nouveaux barbares,
-destruction de l'art, destruction de la beauté, des-
-truction de tout ce qui fait la splendeur de no$ civi 4 à
+destruction de l'art, destruction de la beauté, destruction de tout ce qui fait la splendeur de no$ civi 4 à
 lisations: voilà ce que l'on prédit si le collectivisme.
 vient à triompher un jour.!
 Pour répondre à ces objections, nousaurions tort
@@ -459,8 +436,7 @@ verrez trop souvent de malheureux ouvriers, con-.
 duits par un contremaître, déposer dans l'urne un: à
 bulletin préparé par le patron. En Belgique, où le L'ONT
 du vote est garanti, c'est à un autre spectacle
-qu'on assiste: les électeurs se présentent pour vo-
-ter; le président du bureau leur montre une espèce
+qu'on assiste: les électeurs se présentent pour voter; le président du bureau leur montre une espèce
 de grande armoire, le couloir électoral, l'isoloir
 Le pour le secret du vote, et ce geste veut de:
 ache-toi, mon ami, tu vas exercer ton droit de
@@ -490,8 +466,7 @@ de l'État, tel qu'il est organisé aujourd'hui. L'Étt,
 
 É. ce n'est pas une personne morale; c'est une col-
 MMM lection, un agglomérat complexe de personnes
-+0 morales; l'État, c'est à la fois le ministre de l'in-
-struction publique, grand-maître de l'Université, le
++0 morales; l'État, c'est à la fois le ministre de l'instruction publique, grand-maître de l'Université, le
 à ministre de la guerre, chef de l'armée, le ministre
 de l'intérieur, chef de la police; c'est un être Je
 
@@ -503,9 +478,7 @@ de nuit, et, de l'autre, c'est l'État maître ni
 
 maître des postes et des télégraphes, et, tout au
 moins dans certains pays, directeur des chemins de
-est-il possible d'assimiler ces différentes fonc-
-
-tions? N'est-il pas de toute évidence qu'en réalité!
+est-il possible d'assimiler ces différentes fonctions? N'est-il pas de toute évidence qu'en réalité!
 l'État — suivant l'expression saint-simonienne — À
 
 représente deux choses qui devraient être absolu- 1]
@@ -513,9 +486,7 @@ représente deux choses qui devraient être absolu- 1]
 ment distinctes: d'une part, le gouvernement des
 hommes; d'autre part, l'administration des choses?
 à Et c'est précisément la confusion existant entre ces
-à deux domaines qui crée constamment dans nos es-
-
-prits des malentendus qu'il importe de faire dispa-
+à deux domaines qui crée constamment dans nos esprits des malentendus qu'il importe de faire dispa-
 
 S'il s'agissait de donner à l'État gouvernement,
 dans une monarchie absolue, par exemple, des pou- à Due
@@ -530,27 +501,23 @@ etlui permettre de fondre plus de canons ou de bâtir
 
 première condition done, pour que l'extension
 du domaine collectif soit désirable, c'est que l'on ait
-:: core dans La plupart des
+core dans La plupart des
 1 pays, Mais à un État démocratique dans lequel l'a.
 tion parlementaire et le contrôle législatif ne sont
 pas de vains mots, à un État dans lequel le suffrage
 Mais cela ne suffit Pas; encore importe-t-il que
 l'on fasse disparaître la confusion qui existe actuel.
-lement, Presque partout, entre les fonctions gouver-
-nementales et les fonctions administratives. Il
+lement, Presque partout, entre les fonctions gouvernementales et les fonctions administratives. Il
 quelques jours, dans?Économiste Français, M. Le.
 roy-Beaulieu se plaignait de « l'anarchie postale
 et en tirait argument contre le collectivisme, Mais
 la vérité, — il l'indique lui-même dans son article,
 “4 — c'est que le mal provient de ce que, pour dirige
-LC: É. les postes, on ne s'adresse pas à un homme compé-
-tent, à un technicien ayant fait ses preuves, mais
+LC: É. les postes, on ne s'adresse pas à un homme compétent, à un technicien ayant fait ses preuves, mais
 quelque homme politique, n'ayant d'autretitreque
 les services qu'il a rendre à son parti. Et il en
-4 est de même aujourd'hui pour tous les services pu-
-blics dirigés par l'État.
-Prenez par exemple les chemins fee Bel-
-gique. Pour diriger cette énorme
+4 est de même aujourd'hui pour tous les services publics dirigés par l'État.
+Prenez par exemple les chemins fee Belgique. Pour diriger cette énorme
 É. ‘exploiter ce réseau qui couvre Le à
 notre poÿr, il serait élémentaire feet
 homme du métier, à un homme qui a fait de sen
@@ -561,8 +528,7 @@ une petite ville de province un avocat, Ne
 moins disert et débrouillard; on le bombarde mi- à
 nistre des chemins de fer. Et puis l'on s'étonne que
 les services de l'État soient mal organisés: d'une à
-part, des fonctionnaires compétents, mais sans res-
-ponsabilité; d'autre part, des ministres responsables, mais sans compétence. Et, pour peu que ces
+part, des fonctionnaires compétents, mais sans responsabilité; d'autre part, des ministres responsables, mais sans compétence. Et, pour peu que ces
 ministres veuillent cumuler leurs fonctions admi- (il
 nistratives et leur action gouvernementale, ils ne à bis
 tardent pas à subir le sort de notre ancien ministre
@@ -613,13 +579,11 @@ SeONÉ nécessitées par la nature même de leur tra- à le
 vail. Et quant à la grande masse des consommateurs,
 quant à ceux qui utiliseraient les seryisee publies,
 je demande vraiment en quoi leur liberté Mis
-compromise si ces industries, au lieu d'être exploi-
-tées par des Compagnies, étaient exploitées par!
+compromise si ces industries, au lieu d'être exploitées par des Compagnies, étaient exploitées par!
 l'État? Lorsqu'il vous est arrivé de voyager sur le
 réseau de l'État, vous êtes-vous sentis moins libres
 cipalité de Paris, demain, se décidait à socialiser le
-service de l'éclairage, votre liberté serait-elle com-
-promise, parce qu'au lieu de tourner le robinet du
+service de l'éclairage, votre liberté serait-elle compromise, parce qu'au lieu de tourner le robinet du
 gaz ou le bouton électrique d'une société privée, HE.
 vous tourneriez le robinet du gaz ou le bouton électrique d'un service municipal?
 Bref, ilestévident qu'autre chose est uneextension
@@ -629,8 +593,7 @@ une extension du domaine collectif, n'ayant d'autre 4 tu
 me que d'accroître ses attributions administra-
 Plaçons-nous mai
 les stimulants point de vue: -
-rons encore les deux régi individuelle, et compa-
-gard le travail de l'ouvrier,
+rons encore les deux régi individuelle, et compagard le travail de l'ouvrier,
 
 Eh bien dit 8 direction.
 ban te 0 0 faite du Système
@@ -667,15 +630,13 @@ mune: ils sont largement payés; ils n'ont que huit
 heures par jour à besogner; et ils besognent de
 tout cœur; et s'ils chantent par moments, ce n'est; À à
 à plus la molle chanson, ce n'est plusla fade romance
-du peintreen bâtiments, c'est la chanson révolu-
-tionnaire, c'est l'hymne de joie et de délivrance des
+du peintreen bâtiments, c'est la chanson révolutionnaire, c'est l'hymne de joie et de délivrance des
 hommes libres qui, ayant déjà réalisé un fragment
 de la révolution sociale, se livrent tout entiers à la:
 pensée, à la préoccupation dominante, dela réaliser
 également pour les autres travailleurs, pour la
-grande masse du prolétariat. (Applaudissements) À?
-Voilà pour le travail d'exécution, voilà pour l'ou-
-stimulant à l'initiative privée,
+grande masse du prolétariat. (Applaudissements)
+Voilà pour le travail d'exécution, voilà pour l'oustimulant à l'initiative privée,
 pou le chef d'entreprise, le dirécteur d'industrie, Len
 seu qui joue un rôle prépondérant dans l'exploita-
 “an, ici te Comparons les deux ré-
@@ -712,15 +673,12 @@ une série de facteurs moraux qui n'agissent pas, Où
 n'agissent guère, aujourd'hui, et qui viendraient 4 il
 ajouter leur puissance à tous les motifs d'action qui
 
-En effet, peut-on dire que l'homme travaille seule-
-ment pour gagner de l'argent? Peut-on dire que.
+En effet, peut-on dire que l'homme travaille seulement pour gagner de l'argent? Peut-on dire que.
 l'intérêt pécuniaire est le seul moteur? Pour vous 5444
 répondre, je vous ramène dans nos coopératives, et a
 je puis vous montrer des hommes qui, en Bel- 4%
-d'autres encore, plus obscurs et non moins méri-
-tants, et qui, pour un salaire d'ouvrier, sans être
-plus payés que leurs camarades, ont amené les en-
-qu'ils dirigent au degré de splendeur 508 À
+d'autres encore, plus obscurs et non moins méritants, et qui, pour un salaire d'ouvrier, sans être
+plus payés que leurs camarades, ont amené les enqu'ils dirigent au degré de splendeur 508 À
 qu'elles atteignent aujourd'hui. — Mais, me direz- Le
 se, ce sont des exceptions; vous n'avez pas le
 
@@ -760,14 +718,11 @@ tutions paralysent l'initiative individuelle.
 Reste la dernière objection que je veuille exami- À
 ner avec vous.
 Je me souviens qu'ily a d'assez longues années ‘EN
-déjà, un de mes professeurs d'Université, un magis-
-trat qui tenait sans doute à me montrer qu'on peut! 4 À il
+déjà, un de mes professeurs d'Université, un magistrat qui tenait sans doute à me montrer qu'on peut! 4 À il
 être un juriste excellent et un économiste médiocre,
-me disait un jour: Billevesées que voire collecti-
-visme: liberté, initiative; et qui donc mangera les il
+me disait un jour: Billevesées que voire collectivisme: liberté, initiative; et qui donc mangera les il
 perdreaux, qui donc boira le champagne, dans la
-.Je me hâtai de le rassurer en lui faisant remar-
-quer que l'établissement du régime collectiviste
+.Je me hâtai de le rassurer en lui faisant remarquer que l'établissement du régime collectiviste
 n'implique pas le nivellement absolu et le cirage
 de bottes obligatoire. Seulement je lui concédai:
 sans aucune hésitation que, dans une société où: ne?
@@ -801,10 +756,8 @@ Au siècle de Périclès, les maisons étaient petites, À
 
 la vie était simple; mais les œuvres d'art 88 profi- a
 jaient radieuses SOUS Je ciel de la Grèce: Au Moyen-
-Age, les cathédrales gothiques célébraient la splen-
-deur du christianisme. Eh bien, n'avons-NOus pas' il
-n'avez-vous pas la conviction ardente que le socia-
-lisme saura faire naître les mêmes choses, que lui
+Age, les cathédrales gothiques célébraient la splendeur du christianisme. Eh bien, n'avons-NOus pas' il
+n'avez-vous pas la conviction ardente que le socialisme saura faire naître les mêmes choses, que lui
 aussi, dans l'avenir, aura ses temples et ses églises? ni:
 Mais, tandis que les temples antiques étaient
 fermés à la grande masse du peuple, tandis que les
@@ -813,12 +766,9 @@ ceuls ministres de Dieu sur la terre, maisons
 du peuple, nos cathédrales de l'avenir seront
 grandes ouvertes à tout le monde, à tous nos frères Le
 Renan a dit quelque part qu'au début du Chris- À
-tianisme les églises étaient tout à la fois des hôtel-
-leries, des asiles, des lieux de réunion, où les pau-
-vres se réunissaient pour avoir chaud ensemble. 2 y
+tianisme les églises étaient tout à la fois des hôtelleries, des asiles, des lieux de réunion, où les pauvres se réunissaient pour avoir chaud ensemble. 2 y
 N'est-ce pas la définition même des Maisons du a
-Peuple qui s'élèvent de tous côtés, en pays socia-
-listes, et ne sont-ce pas, déjà, les premières églises
+Peuple qui s'élèvent de tous côtés, en pays socialistes, et ne sont-ce pas, déjà, les premières églises
 devons-nous avoir la préoccupation de les
 faire de plus en plus nombreuses; et quand je dis
 que nous devons bâtir des églises, je sous-entends
@@ -830,9 +780,7 @@ Et je voudrais vous dire, au nom du Parti ouvri
 belge, combien NOUS avons été heureux de voir, au
 dernier Congrès socialiste, triompher cette idée
 que le socialisme en France doit être avant tout la
-Fédération des départements, l'organisme harmo-
-nieux des délégués de tous les Pays de France, con-
-servant leur autonomie régionale.
+Fédération des départements, l'organisme harmonieux des délégués de tous les Pays de France, conservant leur autonomie régionale.
 Je sais combien il est délicat Pour un étranger,
 alors même qu'il se réclame de l'internationalisme
 socialiste, de dire son sentiment sur ces questions
@@ -878,7 +826,7 @@ se il devient grand comme Je
 monde, il se dres
 sois ‘resse devant les Dieux épouvantés et
 il crie:
-1 Place à Tout! Je suis Pan; Jupiter! à genoux,
+Place à Tout! Je suis Pan; Jupiter! à genoux,
 Eh bien, le socialisme n'est-il pas comme le Satyre
 de la Légende? Au début, c'est le peuple sombre,
 qui sort des ruelles fangeuses, et qu'on traîne comme
@@ -926,8 +874,7 @@ Nous? vices, dont 6 aux imprimeur. Mes « ù ceux de nos eo: es Se
 nos retards successifs de Vaio a eme Lui
 abonnés fermes sans quelques écri acquiert pas
 sont en un sens une che écritures. Ces cahiers
-culières que j'ai envoyées de on, et les 300 lettres parti-
-cahiers aussi bien que la le semaines sont des
+culières que j'ai envoyées de on, et les 300 lettres particahiers aussi bien que la le semaines sont des
 Nous prions tous ceux de nnée aux imprimeurs.
 aire sans aucui ret se ferme de vouloir
 établissions ucui retard. Il à.
@@ -960,7 +907,7 @@ ments nous ont donné..... _..
 Les frais généraux et l'établissement.
 des septième et huitième cahi 931 fr.Go
 LE Nous avons donc en avril un 322 fr.
-0 Au 30 avril les ‘souscriptions et les 5.806 fre
+Au 30 avril les ‘souscriptions et les 5.806 fre
 « nous avaient donc donné.. A
 . 4 14 même date les frais Endle
 ment des huit premiers cahie

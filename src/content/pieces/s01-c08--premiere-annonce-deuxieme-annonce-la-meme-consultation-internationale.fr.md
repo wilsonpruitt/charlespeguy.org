@@ -25,8 +25,7 @@ fait importante, sinon prépondérante, à la défense du
 quartier contre les bandes antisémitiques. Cette attitude républicaine et révolutionnaire ne pouvait plaire
 au Conseil national du Parti ouvrier français. Le Groupe Vas.
 des étudiants tomba en disgrâce. Il resta insoumis. Ses
-délégués au Congrès de Montluçon furent particulière-
-ment maltraités. Il résolut dès lors de recouvrer sa ‘al
+délégués au Congrès de Montluçon furent particulièrement maltraités. Il résolut dès lors de recouvrer sa ‘al
 liberté. En vain les guesdistes essayèrent-ils de le garder 4 à
 aggloméré. Après des débats un peu troubles une majo- a
 rité consciente finit par voter l'affranchissement. Bientôt
@@ -72,33 +71,26 @@ vieux partis bourgeois sont encore capables aujourd'hui
 d'assurer le respect des faibles libertés conquises, de garantir l'avenir de la civilisation même.
 
 Au milieu du désordre des esprits et de l'anarchie sociale,
-en présence de l'impuissance radicale du libéralisme bour-
-geois à défendre les garanties démocratiques essentielles
-contre les entreprises des réactions médiévales et les sau-
-vageries du nationalisme, le prolétariat socialiste apparaît,
+en présence de l'impuissance radicale du libéralisme bourgeois à défendre les garanties démocratiques essentielles
+contre les entreprises des réactions médiévales et les sauvageries du nationalisme, le prolétariat socialiste apparaît,
 
 à l'heure actuelle, comme le seul espoir de la démocratie et
 l'unique sauvegarde des idées de progrès et de liberté.
 
-Mais ne se borne pas l'action du socialisme: théo-
-riquement, il substitue aux vieilles méthodes de raisonne-
-ment les méthodes réalistes de la science moderne. C'est )
+Mais ne se borne pas l'action du socialisme: théoriquement, il substitue aux vieilles méthodes de raisonnement les méthodes réalistes de la science moderne. C'est )
 l'observation des phénomènes sociaux, c'est la logique
 même de l'histoire qui nous ont conduits aux conclusions
 communistes: la socialisation des moyens de production et
-d'échange réalisée par l'action internationale des travail-
-leurs et l'organisation du prolétariat en parti économique
+d'échange réalisée par l'action internationale des travailleurs et l'organisation du prolétariat en parti économique
 et politique de classe.
 
 Vous viendrez à nous, Camarades, pour étudier librement
 la doctrine et l'histoire du mouvement socialiste. Vous y
-rencontrerez, au milieu du scepticisme universel, les dé-
-vouements les plus purs, et ceux d'entre vous qu'un pessimisme superficiel aurait atteints en tireront cette conclusion
+rencontrerez, au milieu du scepticisme universel, les dévouements les plus purs, et ceux d'entre vous qu'un pessimisme superficiel aurait atteints en tireront cette conclusion
 que la vie vaut tout de même la peine d'être vécue.
 
 Le Groupe des Étudiants Collectivistes de Paris fétait
-l'année dernière son sixième anniversaire. Depuis sa fon-
-dation, il a pris l'initiative de toutes les manifestations qui
+l'année dernière son sixième anniversaire. Depuis sa fondation, il a pris l'initiative de toutes les manifestations qui
 ont groupé les étudiants socialistes de l'Université de Paris,
 et il est sans contredit, à l'heure actuelle, le foyer le plus
 puissant des idées nouvelles au Quartier Latin. Il est largement ouvert à tous ceux qui acceptent le programme et la
@@ -193,8 +185,7 @@ Je sais, pour avoir les affiches familières posées
 sur les murs du quartier, que les conférences publiques
 annoncées au programme ci-dessus furent organisées.
 La conférence du citoyen Francis de Pressensé, Le « Ne
-Transvaal et l'Angleterre, fut donnée le mardi 12 dé-
-cembre 1899, sous la présidence du citoyen Jaurès; nous
+Transvaal et l'Angleterre, fut donnée le mardi 12 décembre 1899, sous la présidence du citoyen Jaurès; nous
 l'avons lue dans le Mouvement Socialiste, numéros 26 du
 
 dervelde, député de Charleroi, professeur à l'Université
@@ -205,9 +196,7 @@ Albert Poulain, député des Ardennes; sans doute parce
 qu'elle était plus générale et d'un sujet plus vaste, elle
 ne parut pas au Mouvement. La conférence de Jaurès,
 annoncée ainsi dans Petite République: Bernstein et
-l'évolution de la doctrine socialiste, fut donnée le ven-
-
-dredi 16 février (1); nous l'avons lue dans le Mouvement, numéros 29 du 1° et 30 du 15 mars, intitulée ainsi
+l'évolution de la doctrine socialiste, fut donnée le vendredi 16 février (1); nous l'avons lue dans le Mouvement, numéros 29 du 1° et 30 du 15 mars, intitulée ainsi
 Bernstein et l'Évolution de la Méthode Socialiste. La
 conférence de Enrico Ferri, professeur à l'Université de
 Rome et au Collège des Sciences sociales, député socialiste au Parlement italien, Évolution économique et Évolution sociale, avait été avancée et fut donnée le lundi
@@ -241,8 +230,7 @@ plus garanties.
 
 l'issue de la conférence, un punch sera offert au citoyen Confé- À
 rencier, avec le concours du citoyen Député, du citoyen Délégué, du
-citoyen membre du Comité général, du citoyen Conseiller municipal, du citoyen Conseiller général, du citoyen Conseiller d'arron-
-dissement, du citoyen Candidat, du citoyen Futur candidat, du?
+citoyen membre du Comité général, du citoyen Conseiller municipal, du citoyen Conseiller général, du citoyen Conseiller d'arrondissement, du citoyen Candidat, du citoyen Futur candidat, du?
 citoyen Directeur, du citoyen Rédacteur en chef, du citoyen Ré-
 dacteur, du citoyen Secrétaire, du citoyen Trésorier et de plusieurs
 Simples citoyens. Un grand nombre de citoyens Militants y prendront la parole.
@@ -252,12 +240,10 @@ savantes, à la Société nouvelle de librairie et d'édition, 17, rue
 Cujas, à la Petite République et à l'Aurore.
 
 Ces conférences traditionnelles, sérieuses, utiles,
-moitié Quartier Latin moitié Paris même, ces confé-
-rences bien rythmées se passent traditionnellement,.
+moitié Quartier Latin moitié Paris même, ces conférences bien rythmées se passent traditionnellement,.
 familièrement, presque familialement. Des orateurs
 
-habituels, Jaurès, Ferri, Vandervelde surtout, y reviennent périodiquement. Un public habituel y revient fré-
-quemment. Ce sont vraiment des conférences de travail
+habituels, Jaurès, Ferri, Vandervelde surtout, y reviennent périodiquement. Un public habituel y revient fréquemment. Ce sont vraiment des conférences de travail
 et d'étude, et non pas ce que l'on est malheureusement
 forcé de nommer des réunions publiques. À plus forte
 raison n'ont-elles rien, mais rigoureusement rien de
@@ -265,17 +251,13 @@ commun avec les réunions électorales. Toujours la discussion y est sérieuse e
 
 Ou plutôt il n'y avait jamais aucun incident vraiment désagréable, quand le Groupe des Étudiants collectivistes résolut de sacrifier, lui aussi, à ce besoin de concorde qui travaille évidemment le monde socialiste. Ou
 bien voulut-il faire à Jaurès le plaisir d'inaugurer avec
-lui aux Sociétés Savantes la méthode évangélique ré-
-cemment instituée par le citoyen tribun. Toujours est-il
+lui aux Sociétés Savantes la méthode évangélique récemment instituée par le citoyen tribun. Toujours est-il
 que pour la conférence de Jaurès la présidence fut d'un
 
-Tu as dans Petite République du dimanche 18 fé-
-vrier le compte rendu de Gaston Cagniard: « Un punch
+Tu as dans Petite République du dimanche 18 février le compte rendu de Gaston Cagniard: « Un punch
 a lieu dans une salle voisine, (1) où plus de cinquante
 personnes sont réunies et font fête à Jaurès, à Allemane,
-à Sembat, à Anatole France, à Fournière, à de Pres-
-
-sensé. » Tu as dans le Mouvement le texte sténographié de la conférence. Tu as et entendu ces belles
+à Sembat, à Anatole France, à Fournière, à de Pressensé. » Tu as dans le Mouvement le texte sténographié de la conférence. Tu as et entendu ces belles
 paroles que je ne puis m'empêcher de citer
 « Donc, ou le prolétariat n'agira pas, ou il sera conslamment mêlé à l'action d'autres classes; l'essentiel
 
@@ -283,8 +265,7 @@ Rectification peu importante: le punch a lieu ordinairement
 dans la même salle. Des citoyens garçons, s'il est permis de parler
 ainsi, passent après la conférence et distribuent des consommations
 
-c'est qu'à travers cette mêlée, ce tumulte des élé-
-ments il agisse toujours avec sa conscience de classe,
+c'est qu'à travers cette mêlée, ce tumulte des éléments il agisse toujours avec sa conscience de classe,
 avec sa force distincte et organisée, et si, parti distinct,
 il étend sa surface de contact avec d'autres classes, moi
 je ne m'en plains pas. Nous voulons la révolution, mais
@@ -301,8 +282,7 @@ hommes! (Applaudissements) » Elle n'est possible que par la propriété commune
 qui est le signe de la réconciliation. Pour moi, il ne me
 déplaît pas que, dans son mouvement, dans son développement, le parti socialiste et le prolétariat organisé
 coupent, rencontrent toutes les grandes causes. Je veux,
-nous voulons que le parti socialiste soit le lieu géomé-
-trique de toutes les grandes choses, de toutes les
+nous voulons que le parti socialiste soit le lieu géométrique de toutes les grandes choses, de toutes les
 grandes idées, et par nous ne désertons pas le combat pour la révolution sociale, nous nous armons au
 contraire de force, de dignité, de fierté pour hâter cette
 heure révolutionnaire. » Et maintenant, camarades, laissez-moi vous le dire,
@@ -326,21 +306,17 @@ Mais le bon provincial qui s'embarquerait volontaire
 sur ces rêves amis risquerait le naufrage. Un incident
 se produisit, dont je te donne un récit d'après un témoin:
 Le citoyen Sembat, président présomptif, advint en
-retard. La présidence fut donc donnée au citoyen Alle-
-mane. Le citoyen Sembat n'en prit pas moins la parole,
+retard. La présidence fut donc donnée au citoyen Allemane. Le citoyen Sembat n'en prit pas moins la parole,
 au cours de la cérémonie, au punch, autant que je me
 rappelle ce que l'on m'a dit, expliquant à l'assistance
 que les étudiants l'avaient prié de vouloir bien accepter
 la présidence pour contrebalancer, sinon pour corriger
 la conférence de Jaurès, pensant bien que Jaurès ne
-parlerait pas irréprochablement, — les étudiants n'avaient parlé ni pensé que de libre discussion, de dis-
-cussion ouverte — qu'il ne s'agissait pas de s'imaginer
+parlerait pas irréprochablement, — les étudiants n'avaient parlé ni pensé que de libre discussion, de discussion ouverte — qu'il ne s'agissait pas de s'imaginer
 que les auteurs et que les signataires du manifeste le
-regrettaient, mais qu'ils étaient heureux et fiers et con-
-tents de le maintenir, que ce manifeste était bien
+regrettaient, mais qu'ils étaient heureux et fiers et contents de le maintenir, que ce manifeste était bien
 
-fait. Telles furent à peu près les paroles du prince pré-
-sident. Elles jetèrent un froid, comme on dit. Jaurès dut
+fait. Telles furent à peu près les paroles du prince président. Elles jetèrent un froid, comme on dit. Jaurès dut
 échapper plusieurs appréciations sévères: Il nous fait
 dire ce que nous n'avons jamais dit. C'est odieux. C'est
 infâme. Ainsi plusieurs jeunes citoyens sincères laissaient échapper des paroles dreyfusistes.
@@ -367,12 +343,9 @@ l'abus à aucun citoyen français, et même étranger: ces
 ingénieux citoyens pouvaient donc se nommer groupe.
 
 Ils se nommèrent Groupe. Ensuite l'industrieuse minorité s'avisa que le mot étudiants est un nom presque
-aussi commun, plus proprement masculin, mais plu-
-
-riel, dont toutes les lois bourgeoises et dont les mœurs.
+aussi commun, plus proprement masculin, mais pluriel, dont toutes les lois bourgeoises et dont les mœurs.
 permettent l'usage et l'abusage à la plupart des citoyens
-français et de leurs concitoyens étrangers: nos ingé-
-nieux citoyens avaient quelque peu étudié; les uns
+français et de leurs concitoyens étrangers: nos ingénieux citoyens avaient quelque peu étudié; les uns
 étaient ou avaient été des étudiants véritables; et ceux
 qui n'avaient étudié ni aux lettres, ni aux sciences, ni aux
 au moins, dans les rares intervalles que leur
@@ -384,8 +357,7 @@ Parti Ouvrier Français, paraissant le dimanche (1); ils
 Groupe des Étudiants Collectivistes de Paris. Mais par
 une heureuse intervention de la modestie habituelle aux
 citoyens guesdistes, l'assemblage ne donna que ces
-mots: Groupe Étudiants Collectivistes de Paris, adhé-
-rent à l''Agglomération Parisienne du Parti Ouvrier
+mots: Groupe Étudiants Collectivistes de Paris, adhérent à l''Agglomération Parisienne du Parti Ouvrier
 Français. J'ai conté cette histoire dans revue blanche
 du 15 septembre passé. Alors on m'assurait que c'était
 bien servir le socialisme. Sept mois intervinrent. Je
@@ -418,9 +390,7 @@ plupart des citoyens conférenciers sont des citoyens
 intellectuels. Par un non moins malheureux hasard la
 plupart des citoyens intellectuels ne sont pas des citoyens guesdistes. Ils sont contaminés. Il fallait ima- à
 giner un conférencier qui ne fût pas intellectuel, inventer un intellectuel qui ne fût pas non guesdiste. Il
-n'y en avait qu'un, celui qui est ofliciellement l'intellectuel du Parti, chargé de penser pour tous les cama15
-
-rades, celui qui est intellectuel et qui ne l'est pas, celui
+n'y en avait qu'un, celui qui est ofliciellement l'intellectuel du Parti, chargé de penser pour tous les camarades, celui qui est intellectuel et qui ne l'est pas, celui
 dont on dit fièrement: C'est un intellectuel, celui-là, mais
 ce n'est pas un intellectuel comme vous: j'ai nommé
 le citoyen Lafargue. Et naturellement on choisit pour
@@ -432,9 +402,7 @@ conférence faisait pour ainsi dire époque dans la vie
 à du quartier, que tous nos camarades présents ne manqueraient pas d'y aller, que tous nos camarades absents
 regretteraient de n'y pouvoir aller. Je résolus dès lors
 de ten donner une image fidèle. Je voulus commencer
-par l'afliche. Le citoyen Henri Boivin se rendit tout ré-
-
-cemment chez l'imprimeur, qui est un peu son voisin.
+par l'afliche. Le citoyen Henri Boivin se rendit tout récemment chez l'imprimeur, qui est un peu son voisin.
 L'imprimeur déclara qu'il n'en avait plus. Je le regrettai
 vivement. D'industrieux typographes se seraient ingéniés à la reproduire pour toi dans les cahiers. Il faut
 y renoncer. Soit. Cette afliche, moitié plus petite, rappelait assez fidèlement les fréquentes affiches du Groupe
@@ -443,17 +411,14 @@ des. Mais les cartes réservées ne se trouvaient pas aux
 même adresses. En particulier la librairie Giard et
 Brière, 16, rue Soufilot, remplaçait la Société nouvelle
 de librairie et d'édition. Un passant rapide et non
-averti pouvait n'en pas voir et n'en pas faire la difé-
-rence. Le Groupe des redouta sans doute, cette fois
+averti pouvait n'en pas voir et n'en pas faire la diférence. Le Groupe des redouta sans doute, cette fois
 encore, la confusion, car je lis dans l'Aurore du jeudi
 mars, au Bulletin social, cet avertissement
-Le groupe des étudiants collectivistes de Paris nous in-
-forme que la conférence de vendredi soir, à l'hôtel des
+Le groupe des étudiants collectivistes de Paris nous informe que la conférence de vendredi soir, à l'hôtel des
 Sociétés savantes, n'est point organisée par lui.
 
 Elle l'est, en effet, par le groupe des étudiants collecti-
-Je résolus de t'envoyer une image fidèle de la confé-
-rence elle-même. Je ne pouvais y assister, car la situa- à
+Je résolus de t'envoyer une image fidèle de la conférence elle-même. Je ne pouvais y assister, car la situa- à
 tion géographique de ma maison et les interdictions
 médicales sont conjurées pour m'empêcher d'assister,
 de longtemps, à des conférences qui commencent à huit
@@ -477,15 +442,12 @@ pas que la plupart des discours livrés par la sténographie à la mémoire des 
 nillés par les orateurs. Il n'en est pas de même ici, et
 tu dois en tenir compte à l'avantage des intéressés. Je
 à souligner, ou à éclaircir quelques passages. Mais ces
-notes ne passent pas l'expression des réflexions inté-
-
-rieures qu'aurait faites pendant la conférence un citoyen ordinaire, d'intelligence moyenne, simple, volontairement discret et muet. Je me suis permis d'attribuer
+notes ne passent pas l'expression des réflexions intérieures qu'aurait faites pendant la conférence un citoyen ordinaire, d'intelligence moyenne, simple, volontairement discret et muet. Je me suis permis d'attribuer
 .au citoyen sténographe les rectifications indispen-.
 sables et les conjectures indiquées. Bien qu'ils fussent
 deux, j'ai préféré les nommer le citoyen sténographe,
 parce que ces deux frères travaillent vraiment comme
-un seul citoyen, et parce qu'il m'a plu d'écrire impersonnellement le citoyen sténographe, aussi mystérieu-
-sement et d'un air entendu, comme on disait naguère
+un seul citoyen, et parce qu'il m'a plu d'écrire impersonnellement le citoyen sténographe, aussi mystérieusement et d'un air entendu, comme on disait naguère
 le scholiaste: ici le scholiaste suppose que le poète,
 malgré les apparences, ne dit pas des bêtises.
 
@@ -496,8 +458,7 @@ mais rédigé, illustré, appuyé, assez fidèle, en plusieurs
 endroits amendé et consolidé. Le citoyen Lafargue
 avait le droit de le faire.
 
-Il est admis, commode et convenable que le confé-
-rencier donne pour la propagande une seconde édition,
+Il est admis, commode et convenable que le conférencier donne pour la propagande une seconde édition,
 une rédaction travaillée. C'est pour la même raison que
 
 le Socialiste a donné la conférence toute seule, sans
@@ -539,15 +500,12 @@ Fauteuils d'orchestre, fauteuils de balcon, 5 francs: deuxième balcon, 3 francs
 
 Le dernier jour, samedi 14, la récapitulation des ar-
 Tu connais beaucoup moins ces fêtes que tu ne connais les conférences données à l'Hôtel des Sociétés savantes par le Groupe des Étudiants Collectivistes. Elles
-sont beaucoup plus récentes. La première, à ma connaissance, remonte à peu près au temps où le socia-
-lisme avoisinait avec le dreyfusisme et où le dreyfu-
-celle-ci à ton intention. Mais je ne le pouvais, pour la
+sont beaucoup plus récentes. La première, à ma connaissance, remonte à peu près au temps où le socialisme avoisinait avec le dreyfusisme et où le dreyfucelle-ci à ton intention. Mais je ne le pouvais, pour la
 raison dessus dite. Heureusement que le camarade
 Émile Boivin, toujours ami des grandeurs, s'était fait
 nommer commissaire. J'ai ainsi quelques renseignements. Nul n'ignore que les commissaires sont des
 citoyens qui organisent le service d'ordre et seréservent
-Il y aurait beaucoup à dire et sans doute assez à criti-
-quer sur et dans ces nouvelles cérémonies. Nous le ferons
+Il y aurait beaucoup à dire et sans doute assez à critiquer sur et dans ces nouvelles cérémonies. Nous le ferons
 dès que j'y aurai assister. En attendant je veux et je
 dois contribuer à ce que tu gardes une entière mémoire -
 de celle-ci.
@@ -557,9 +515,7 @@ des citoyens, au milieu toutes les gradations indispensables. Disposition non pa
 distribution automatique selon les gradations des prix
 des places. Contribution précieuse à la théorie ou,
 comme on dit, à la conception matérialiste, en attendant la théorie mathématique, de l'histoire des repré-
-. Au moment où le public, avant toutes les représenta21
-
-tions, commence à s'impatienter, au moment où les spectateurs des galeries sublimes scandent rigoureusement
+. Au moment où le public, avant toutes les représentations, commence à s'impatienter, au moment où les spectateurs des galeries sublimes scandent rigoureusement
 de la voix et des pieds, quelquefois dela canne, sur l'air
 et sur le rythme connu: les lampions, les lampions, cette
 expression technique: au rideau, au rideau, à ce
@@ -581,13 +537,10 @@ grave de l'Internationale constituait un spectacle admi-
 - rable. Sous les flots larges la plaine étrangère, volontairement sympathique, faisait bonne contenance. Enfin
 l'hymne cessa. Mais le peuple s'enhardissant et se vulgarisant commença l'inévitable Carmagnole. Amusement
 d'un goût un peu douteux, et qui ne tardera pas à commencer à vieillir, comme tout en ce monde, peu digne,
-à peine acceptable en un grand jour de sincère mani-
-festation républicaine, un peu trop ironique, c'est-à-dire
+à peine acceptable en un grand jour de sincère manifestation républicaine, un peu trop ironique, c'est-à-dire
 malsain, et soulignant désagréablement l'incohérence
 morale de la fête, amusement douteux que de verser
-d'en haut sur les crânes inférieurs le refrain que l'his22
-
-toire nous interdit malheureusement de ne pas prendre
+d'en haut sur les crânes inférieurs le refrain que l'histoire nous interdit malheureusement de ne pas prendre
 Tous les bourgeois à la lanterne!
 Tous les bourgeois on les pendra!
 Le rideau levé Anatole France lut une allocution que
@@ -598,8 +551,7 @@ Voici le texte de l'allocution prononcée par Anatole France à la
 représentation du Théâtre-Civique, qui a lieu hier soir à la Porte- -
 Si je prends la parole, c'est pour la donner à Jaurès.
 Je ne suis pas moins impatient que vous de l'entendre.
-Il nous entretenir des destinées de l'art dans les pro-
-grès de la démocratie, et c'est un sujet qui devait attirer l'attention d'un esprit comme le sien, fortement
+Il nous entretenir des destinées de l'art dans les progrès de la démocratie, et c'est un sujet qui devait attirer l'attention d'un esprit comme le sien, fortement
 occupé du juste et du beau. Un lien, parfois presque
 insensible, mais jamais rompu, subtil et fort, conduit
 la constitution intime d'une société que résultent les
@@ -608,22 +560,19 @@ et les branches de l'arbre fait la fraîcheur du feuillage
 et l'éclat des fleurs. Mais avant d'écouter cette grande
 voix, expression d'une forte pensée, qui nous découvrira les harmonies profondes qui s'enchaînent de la
 cime aux racines de l'arbre social, je voudrais, si vous 1%
-le permettez, vous préparer quelques mots à conce-
-voir l'idée de l'art dans son unité et dans sa plénitude.
+le permettez, vous préparer quelques mots à concevoir l'idée de l'art dans son unité et dans sa plénitude.
 
 Il n'est peut-être pas inutile en effet de vous montrer
 d'un coup l'art tout entier et d'en réunir à votre pensée
 toutes les parties, après qu'on en a donné si longtemps
 une image mutilée, après qu'on a voulu le couper en
 deux tronçons, incapables de vivre isolément; après
-Le qu'on a imaginé des arts supérieurs et des arts infé-
-rieurs, et qu'on a nommé les uns beaux-arts, les autres
+Le qu'on a imaginé des arts supérieurs et des arts inférieurs, et qu'on a nommé les uns beaux-arts, les autres
 arts industriels, donnant sans doute à entendre que ces
 derniers, trop engagés dans la matière, ne s'élevaient
 point à la beauté pure; comme si la beauté n'était pas
 constituée nécessairement par des rapports et des convenances et ne tirait pas de la matière son unique
-moyen d'expression! Distinction inspirée par une mau-
-vaise métaphysique de caste, inégalité qui ne fut ni
+moyen d'expression! Distinction inspirée par une mauvaise métaphysique de caste, inégalité qui ne fut ni
 plus juste ni plus heureuse que tant d'autres inégalités
 introduites systématiquement parmi les hommes et qui
 ne proviennent point de la nature! Cette séparation ne
@@ -656,18 +605,15 @@ terre, de l'émailleur, du fondeur d'étain, de l'ébéniste
 et du jardinier appartiennent aux beaux-arts aussi bien
 que l'œuvre du peintre, du sculpteur, de l'architecte, à
 moins qu'on ne pense que l'orfèvre Benvenuto Cellini,
-le potier Bernard Palissy, l'émailleur Pénicaud, le fon-
-deur d'étain Briot, l'ébéniste Boule, le jardinier Le
+le potier Bernard Palissy, l'émailleur Pénicaud, le fondeur d'étain Briot, l'ébéniste Boule, le jardinier Le
 Nôtre, pour ne parler que des anciens, n'ont pas accompli les ouvrages d'un art assez beau. Mais vous estimez
 au contraire, citoyens, que l'artisan qui a trouvé le
 galbe d'une coupe ou obtenu la transparence d'un émail
 est le confrère de l'artiste qui a conçu les lignes d'une
 statue ou choisi les tons d'un tableau.
 
-Venez donc, vous par qui les objets usuels sont revé-
-tus de beauté, venez en foule harmonieuse, venez graveurs et lithographes, mouleurs du métal, de l'argile et
-du plâtre, fondeurs de caractères et typographes, imprimeurs sur étoffe et sur papier, peintres de décors, bijou-
-teurs, qui nous donnez la joie des formes heureuses et
+Venez donc, vous par qui les objets usuels sont revétus de beauté, venez en foule harmonieuse, venez graveurs et lithographes, mouleurs du métal, de l'argile et
+du plâtre, fondeurs de caractères et typographes, imprimeurs sur étoffe et sur papier, peintres de décors, bijouteurs, qui nous donnez la joie des formes heureuses et
 des couleurs charmantes, bienfaiteurs des hommes,
 
 venez avec les peintres, les sculpteurs et les architectes.
@@ -698,10 +644,8 @@ Quand Jaurès eut parlé, des messieurs d'en bas admiraient disant: Les théorie
 c'est beau!
 Les éminents artistes furent vivement goûtés.
 
-Le camarade Charles Rappoport nous a fait judicieu-
-sement observer que la consultation internationale que
-nous avons reproduite n'aurait pas un caractère scientifi-
-que si nous ne reproduisions pas la réponse du citoyen
+Le camarade Charles Rappoport nous a fait judicieusement observer que la consultation internationale que
+nous avons reproduite n'aurait pas un caractère scientifique si nous ne reproduisions pas la réponse du citoyen
 Liebknecht, — que nos lecteurs sans doute connaissaient
 les sentiments du citoyen Liebknecht, mais qu'ils ne les
 connaissaient que par des communications indirectes,
@@ -729,13 +673,11 @@ et dupes, sont une autre nation internationale, de telle
 sorte que nous pouvons dire: il n'y a que deux nations
 Ÿ. aujourd'hui, l'une opposée à l'autre dans tous les pays, l'une
 luttant contre l'autre dans la grande lutte de classe, qui est
-du la nouvelle Révolution. Les classes, c'est d'un côté le prolé-
-tariat, représenté par le socialisme, et, de l'autre, la boursu geoisie, représentée par le capitalisme.
+du la nouvelle Révolution. Les classes, c'est d'un côté le prolétariat, représenté par le socialisme, et, de l'autre, la boursu geoisie, représentée par le capitalisme.
 Et comme c'est le capitalisme qui gouverne. la société
 Me - bourgeoise, les gouvernements, tant que le capitalisme
 règne, sont par nécessité des gouvernements capitalistes,
-des gouvernements de classe, c'est-à-dire de la classe ré-
-gnante, servant les buts et les intérêts de la classe régnante,
+des gouvernements de classe, c'est-à-dire de la classe régnante, servant les buts et les intérêts de la classe régnante,
 +3 et destinés à organiser et à conduire la lutte de classe pour
 ‘la bourgeoisie contre le prolétariat, pour le capitalisme
 contre le socialisme, pour nos ennemis contre vous, contre
@@ -752,9 +694,7 @@ est une lutte de classe.
 Un gouvernement d'aujourd'hui, même s'il avait, par
 philanthropie, de bonnes intentions, ne peut faire rien de
 sérieux pour notre cause. Il faut se garder des illusions. Si
-le chemin de l'enfer est pavé de bonnes intentions, le che-
-min des défaites est pavé d'illusions. Dans la société d'au-
-jourd'hui un gouvernement qui n'est pas capitaliste est
+le chemin de l'enfer est pavé de bonnes intentions, le chemin des défaites est pavé d'illusions. Dans la société d'aujourd'hui un gouvernement qui n'est pas capitaliste est
 simplement impossible. Et le malheureux socialiste qui par
 hasard entre dans un tel gouvernement, s'il ne veut pas
 trahir sa classe, est condamné à l'impuissance. La bourgeoisie anglaise a compris cela depuis un siècle, et c'est
@@ -770,8 +710,7 @@ socialiste dans un gouvernement bourgeois. - AVE
 Je passe maintenant à l'autre question, à celle de l'unité. 1274
 La réponse m'est dictée par les principes et par les intérêts nus A
 du parti.. IRÈNE
-Je suis pour l'unité du parti, unité nationale et unité in-
-ternationale. Mais ce doit être l'unité du socialisme et des
+Je suis pour l'unité du parti, unité nationale et unité internationale. Mais ce doit être l'unité du socialisme et des
 socialistes. L'unité avec des adversaires, avec des hommes
 qui ont des buts et des intérêts différents et opposés, ce?
 n'est pas une unité socialiste. Il faut nous unir à tout prix,
@@ -784,8 +723,7 @@ serait-ce pas le comble de la folie? Prendre dans notre
 organisation, qui est une armée pour la lutte de classe, des de
 adversaires qui ont des buts et des intérêts opposés aux
 nôtres, serait plus qu'une folie, un suicide. 1088
-Sur le terrain de la lutte de classe, nous sommes invin-
-cibles; si nous le quittons, nous sommes perdus, parce que
+Sur le terrain de la lutte de classe, nous sommes invincibles; si nous le quittons, nous sommes perdus, parce que
 nous ne sommes plus des socialistes. La force du socia- Rue
 lisme est dans le fait qu'il y a une lutte de classe, que la
 classe travaillante est exploitée et opprimée par la classe
@@ -805,8 +743,7 @@ de classe — et de classe dominante et exploitante. Elle est
 plus consciente de ses intérêts que la masse du prolé-
 
 Je conclus: vous m'avez demandé mon opinion; je vous
-l'ai donnée. A vous de faire ce que les principes et les inté-
-rêts de notre parti vous ordonnent de faire.
+l'ai donnée. A vous de faire ce que les principes et les intérêts de notre parti vous ordonnent de faire.
 
 Vive la France ouvrière et socialiste!
 Vive le Socialisme international.
@@ -835,10 +772,8 @@ lutte de classe d'une manière également juste.
 (1) Au cinquième cahier, page 9, reproduisant les questions mêmes
 adressées par la Petite République aux militants socialistes intérna-
 
-Il y avait un temps où l'on croyait — et bien des socia-
-listes le croient encore — que la révolution sociale résulterait d'une lutte désespérée du prolétariat, misérable et ne
-profitant d'aucune manière des biens que met à notre dis-
-position la civilisation moderne. On admettait que ce
+Il y avait un temps où l'on croyait — et bien des socialistes le croient encore — que la révolution sociale résulterait d'une lutte désespérée du prolétariat, misérable et ne
+profitant d'aucune manière des biens que met à notre disposition la civilisation moderne. On admettait que ce
 ne serait qu'alors que le prolétariat n'aurait rien à perdre,
 qu'il conquerrait un monde entier. La lutte de classes
 se présentait aux esprits comme une guerre menée
@@ -847,8 +782,7 @@ de cette société — par un ennemi dont la tâche unique ‘PRE
 est de détruire tout ce qui existe, ne laissant rien derrière -
 lui. En partant de cette conception étroite de la lutte des
 classes, il était facile de prouver que l'intervention des
-socialistes dans des luttes livrées entre des fractions bour-
-geoises ne peut se concilier avec le principe de la lutte des Je
+socialistes dans des luttes livrées entre des fractions bourgeoises ne peut se concilier avec le principe de la lutte des Je
 classes. Car, disait-on, toute la bourgeoisie ne doit être
 considérée que comme formant un bloc réactionnaire, dont
 aucune partie n'est capable de désirer sincèrement la
@@ -880,8 +814,7 @@ La révolution sociale ne résultera pas d'une situation
 désespérée du prolétariat qui n'aurait rien à perdre. Elle
 sera faite par la classe ouvrière ayant alors atteint un
 niveau de culture assez élevé; elle sera prôvoquée par les
-besoins et les revendications d'un ordre matériel, intellec-
-tuel, moral et social qui se développent sans cesse et
+besoins et les revendications d'un ordre matériel, intellectuel, moral et social qui se développent sans cesse et
 qui ne peuvent trouver leur pleine satisfaction qu'après la
 suppression de la propriété privée remplacée par la possession collective des moyens de production et une organisation propre de la production nationale.
 En raison de cette considération, la lutte des classes a
@@ -933,8 +866,7 @@ bestial des chauvinistes et le fanatisme médiéval des curés
 lui sont extrêmement nuisibles,
 Voilà pourquoi je crois que l'intervention du prolétariat
 socialiste dans les luttes entre les fractions bourgeoises afin
-de porter un coup décisif à la réaction sous toutes ses for-
-mes non seulement ne se trouve pas en opposition avec le
+de porter un coup décisif à la réaction sous toutes ses formes non seulement ne se trouve pas en opposition avec le
 principe de la lutte des classes, mais est directement dicté
 par ce même principe et le sert.
 Je dois répondre dans le même sens à la deuxième question posée par vous. La participation des socialistes au
@@ -946,8 +878,7 @@ nante de les interpréter dans son propre intérêt. Personne,
 en effet, ne voudrait nier que la lutte contre Les abus du
 pouvoir, un contrôle rigoureux des actes du gouvernement,
 est autrement utile à la classe ouvrière qu'une critique
-faite après coup, post festum. Voilà pourquoi les socia-
-listes doivent tâcher partout d'avoir une part directe au'
+faite après coup, post festum. Voilà pourquoi les socialistes doivent tâcher partout d'avoir une part directe au'
 gouvernement, une part qui correspondrait à la force sociale qu'ils possèdent,
 
 Il est naturellement désagréable pour les socialistes d'être
@@ -970,8 +901,7 @@ La lutte des classes menée par le parti socialiste en Suisse
 m'a convaincu que la participation des socialistes au pouvoir n'affaiblit pas son ardeur, mais, au contraire, lui donne
 une nouvelle force. La majorité de la population s'habitue
 de plus en plus à voir dans les représentants de la classe
-ouvrière des défenseurs désintéressés et habiles des inté-
-rêts de la société. D'autre part, à mesure que notre parti
+ouvrière des défenseurs désintéressés et habiles des intérêts de la société. D'autre part, à mesure que notre parti
 renonce à une attitude exclusivement négative envers la
 
 société actuelle et commence à s'occuper des réformes positives et des améliorations partielles, son prestige croît et
@@ -994,9 +924,7 @@ Arrêté en décembre 1884, il a subi près de deux années de prison!
 « préventive et fut ensuite, par ordre administratif, mis, pour
 trois ans, sous la surveillance de la police. S'est ‘réfugié, fin 1887, à
 
-l'étranger (en Suisse), où il adhéra tout de suite à la fraction démo-
-
-crate-socialiste (marxiste) du parti socialiste russe.
+l'étranger (en Suisse), où il adhéra tout de suite à la fraction démocrate-socialiste (marxiste) du parti socialiste russe.
 
 Avant d'être élu membre de la rédaction du Rabotcheïe Délo, a
 publié, entre autres, des brochures de propagande socialiste pour
@@ -1009,8 +937,7 @@ crois cependant devoir en parler à mon tour, c'est qu'ayant
 observé les événements de près, je réussirai peut-être
 éviter des redites.
 
-L'affaire Dreyfus n'est pas la première crise que la Répu-
-blique ait à traverser. C'en est, après le boulangisme,
+L'affaire Dreyfus n'est pas la première crise que la République ait à traverser. C'en est, après le boulangisme,
 après le Panama, la troisième. Cela fait trois crises en dix
 
 Karl Marx a appelé la France la terre classique des luttes
@@ -1027,16 +954,13 @@ de violence, parce que nulle part les deux éléments en
 conflit ne sont aussi fortement développés que dans ce
 
 pays. La domination bourgeoise, souveraine ici en fait, la
-bourgeoisie ayant éliminé ou absorbé les classes dominantes de l'ancien régime, se heurte d'autant plus violem-
-ment à la démocratie, souveraine en droit, et inversement.
+bourgeoisie ayant éliminé ou absorbé les classes dominantes de l'ancien régime, se heurte d'autant plus violemment à la démocratie, souveraine en droit, et inversement.
 
 Pour parer au choc, la bourgeoisie cherche à s'entourer.
 de ce qu'on peut nommer des forces-tampons, qui sont en
 même temps destinées à atténuer les effets de la démocratie.
 
-Ces forces-tampons, systématiquement développées et cajo-
-
-lées, sont, en premier lieu, le cléricalisme, le militarisme
+Ces forces-tampons, systématiquement développées et cajolées, sont, en premier lieu, le cléricalisme, le militarisme
 À « et le chauvinisme, cette caricature du patriotisme, une Trinité réaclionnaire qui suflirait à étrangler ou tout au moins
 à fausser la démocratie et à faire déchoir la nation, si la
 domination bourgeoise n'était condamnée par sa nature
@@ -1063,17 +987,13 @@ de la réaction militariste et cléricale, que le prolétariat ne
 soit pas intéressé au triomphe de la démocratie, c'est-à-
 
 dire, à moins de retomber dans les errements de la période
-sectaire et enfantine du socialisme ou de réduire les aspi-
-
-rations du prolétariat à une question d'estomac, — il n'est
+sectaire et enfantine du socialisme ou de réduire les aspirations du prolétariat à une question d'estomac, — il n'est
 guère possible de contester le devoir du parti socialiste
 d'intervenir dans les conflits où, comme dans l'affaire
 Dreyfus, les intérêts de la démocratie sont en jeu.
 
 En prenant parti dans l'affaire Dreyfus, le prolétariat a
-lutté contre ses propres ennemis. Et son action était d'autant plus nécessaire que les éléments plus ou moins démo-
-
-cratiques de la bourgeoisie, abstraction faite des intellectuels,
+lutté contre ses propres ennemis. Et son action était d'autant plus nécessaire que les éléments plus ou moins démocratiques de la bourgeoisie, abstraction faite des intellectuels,
 agissant en dehors des partis bourgeois, ont trop longtemps
 déserté leur devoir, ont trop longtemps pensé aux circonscriptions, au lieu de penser aux intérêts véritables de
 la masse égarée.
@@ -1087,13 +1007,11 @@ avantage éphémère. Le parti socialiste, lui, a un droit historique d'aînesse
 pour un plat de lentilles.
 
 Le plat de lentilles, c'étaient, dans l'espèce, des avantages
-électoraux possibles ou probables dans le cas d'une aititude tout au moins réservée à l'égard des passions réac-
-tionnaires qui ont fini par entraîner les masses populaires.
+électoraux possibles ou probables dans le cas d'une aititude tout au moins réservée à l'égard des passions réactionnaires qui ont fini par entraîner les masses populaires.
 Eh bien, le devoir du parti socialiste était tout tracé. Il
 fallait dédaigner les considérations électorales pour ne
 penser qu'aux intérêts permanents du prolétariat, les voix
-électorales ne valant, au point de vue de la lutte proléta-
-rienne d'ensemble, qu'autant qu'elles sont le résultat d'une
+électorales ne valant, au point de vue de la lutte prolétarienne d'ensemble, qu'autant qu'elles sont le résultat d'une
 propagande de principe qui ne transige point avec les courants démagogiques. Cetle tactique, adoptée dès le début
 par quelques-uns, a été, du reste, couronnée de succès,
 puisque le prolétariat conscient l'a comprise et que même
@@ -1119,12 +1037,8 @@ devenu un mouvement de masses, le point de ralliement de
 toutes les forces vives du prolétariat et des autres couches
 démocratiques les plus accessibles aux idées socialistes.
 
-ù C'est donc, en même temps que son honneur et son pro-
-lit, un signe de clairvoyance et une preuve de la force accrue
-à du prolétariat français d'être intervenu — aussi énergique-
-ment et aussi promptement que les circonstances le per-
-
-mettaient — dans le conflit entre la réaction militariste et
+ù C'est donc, en même temps que son honneur et son prolit, un signe de clairvoyance et une preuve de la force accrue
+à du prolétariat français d'être intervenu — aussi énergiquement et aussi promptement que les circonstances le permettaient — dans le conflit entre la réaction militariste et
 cléricale et la démocratie, et d'avoir ainsi fait pencher la
 balance du côté de la démocratie.
 En ce qui concerne la portée générale ou internationale
@@ -1154,9 +1068,7 @@ socialisme peuvent seuls admettre la prise de possession (8
 partielle du pouvoir gouvernemental quelle que soit la si- à
 tuation politique. Je n'en suis pas. Je pense, au contraire,
 que l'enseignement le plus clair de l'histoire est la résistance aveugle et même féroce des classes dominantes
-l'avènement d'un ordre social qui détruirait leurs privi-
-lèges. Les classes régnantes n'abdiquent jamais volontaire-
-ment. Les transformations sociales ne se sont jamais failes
+l'avènement d'un ordre social qui détruirait leurs privilèges. Les classes régnantes n'abdiquent jamais volontairement. Les transformations sociales ne se sont jamais failes
 à l'amiable. La révolution a été toujours le point final et de
 inévitable de l'évolution.
 Si une révolution ou plutôt une série de révolutions était
@@ -1189,8 +1101,7 @@ pourrait que discréditer son parti en des compromissions
 fâcheuses avec les nécessités soi-disant gouvernementales,
 
 expression vague et euphémique pour désigner Les exigences
-de la classe dominante, la sauvegarde des intérêts perma-
-nents de la bourgeoisie.
+de la classe dominante, la sauvegarde des intérêts permanents de la bourgeoisie.
 On a bien en France même de simples radicaux, ainsi
 que des cabinets radicaux homogènes, compromettre leur
 parti, une fois arrivés au pouvoir. Et pourtant les radicaux
@@ -1238,8 +1149,7 @@ serait oiseux de vouloir indiquer d'avance les traits
 distinctifs d'une situation exceptionnelle, étant donné
 
 qu'une tellesituation contient par définition une très grande
-part d'inconnu et d'imprévu. Cependant, d'une façon géné-
-rale, il est bien clair qu'il ne saurait s'agir, en somme, que
+part d'inconnu et d'imprévu. Cependant, d'une façon générale, il est bien clair qu'il ne saurait s'agir, en somme, que
 de la défense de la démocratie contre un péril réactionnaire, contre un coup d'État imminent. En dehors de cette
 hypothèse, la participation des socialistes au gouvernement
 bourgeois ne peut devenir nécessaire et, par conséquent,
@@ -1279,15 +1189,13 @@ la résistance de leurs collègues bourgeois, ils n'ont plus
 qu'à se retirer. Ce n'est pas aux hasards des scrutins parlementaires de mettre fin à l'existence ministérielle des
 socialistes. C'est au parti lui-même de choisir l'heure de la
 démission de ses mandataires.
-Ainsi non seulement le caractère exceptionnel de la participation des socialistes au pouvoir bourgeois sera nette-
-ment marqué, mais aussi et surtout les intérêts propres du
+Ainsi non seulement le caractère exceptionnel de la participation des socialistes au pouvoir bourgeois sera nettement marqué, mais aussi et surtout les intérêts propres du
 parti seront sauvegardés le plus efficacement. Le peuple
 alors verra, pour la première fois, un parti sacrifier la
 jouissance du pouvoir aux principes ou renoncer librement,
 la tête haute, aux portefeuilles ministériels après avoir
 achevé une œuvre de salut démocratique. Dans l'un et
-l'autre cas, le parti socialiste sortira de l'épreuve ministé-
-rielle grandi et fortifié.
+l'autre cas, le parti socialiste sortira de l'épreuve ministérielle grandi et fortifié.
 
 Reims fit asseoir Zachée pendant qu'on emplissait
 sa besace.

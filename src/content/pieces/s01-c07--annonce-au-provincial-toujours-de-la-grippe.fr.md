@@ -28,8 +28,7 @@ exemplaires, marqués un franc. Les exemplaires qui
 demeuraient furent accueillis par et dans la Société
 nouvelle de librairie et d'édition.
 Ce Coltineur débile ne réussit pas beaucoup auprès
-de certains scientifiques et de plusieurs hommes sé-
-rieux. Pourquoi, nous en causerons plus tard, quand tu
+de certains scientifiques et de plusieurs hommes sérieux. Pourquoi, nous en causerons plus tard, quand tu
 auras lumière. Nous essaierons alors de savoir si
 
 ces hommes sérieux, scientifiques et difficiles avaient
@@ -60,19 +59,15 @@ nous devons à la piété fraternelle et sévère de madame
 Perier, j'ai connu en moi un double sentiment, deux
 sentiments voisins non conciliables d'abord. Je m'apercevais que ces faits m'étaient nouveaux. Je reconnaissais que ces faits m'étaient connus.
 
-Je m'apercevais que ces faits m'étaient vraiment nouveaux. J'avais pourtant lu, ou du moins j'avais par-
-couru, au temps que j'étais écolier, ce long texte
+Je m'apercevais que ces faits m'étaient vraiment nouveaux. J'avais pourtant lu, ou du moins j'avais parcouru, au temps que j'étais écolier, ce long texte
 imprimé fin, menu et dense, durant que je préparais des
 examens indispensables et des concours utiles. Mais la
 narration n'était pas entrée dans ma mémoire profonde.
 
 — Cela n'est pas étonnant, mon ami.
 
-— Cela n'est pas étonnant. Les concours et les exa-
-mens que nous devons subir et où nous contribuons
-envenimer l'antique émulation, toutes les rivalités d'en-
-
-fance, toutes les compétitions scolaires où nous nous
+— Cela n'est pas étonnant. Les concours et les examens que nous devons subir et où nous contribuons
+envenimer l'antique émulation, toutes les rivalités d'enfance, toutes les compétitions scolaires où nous nous
 faisons les complices de la vieille concurrence donnent
 malgré nous à tout le travail que nous faisons pour les
 préparer non seulement un caractère superficiel, mais
@@ -96,23 +91,13 @@ bien lire, et lire mal?
 
 — Je ne le sais; mais je sais qu'alors je ne lisais pas
 
-bien mes auteurs, que je me les réservais, et qu'à pré-
+bien mes auteurs, que je me les réservais, et qu'à présent, quand j'ai le temps, je les lis mieux. Mais ce
 
-sent, quand j'ai le temps, je les lis mieux. Mais ce
+n'était pas cela, docteur, qui me frappait le plus pendant que je vous écoutais. En ces faïts, qui n'étaient
 
-n'était pas cela, docteur, qui me frappait le plus pen-
-dant que je vous écoutais. En ces faïts, qui n'étaient
+nouveaux, je reconnaissais profondément les événements anciens qui avaient obscurément frappé mon enfance contemporaine. L'histoire du grand Blaise et l'histoire de la pauvre dame innocente et vieillie en dévotion, que je me suis permis de vous conter, c'est à bien
 
-nouveaux, je reconnaissais profondément les événements anciens qui avaient obscurément frappé mon en-
-
-fance contemporaine. L'histoire du grand Blaise et l'his-
-
-toire de la pauvre dame innocente et vieillie en dévo-
-
-tion, que je me suis permis de vous conter, c'est à bien
-
-peu près la même histoire. Admettez que pour un in-
-stant je réserve les éléments de cette histoire que je
+peu près la même histoire. Admettez que pour un instant je réserve les éléments de cette histoire que je
 crois afférents à vos interrogations. Admettez que je
 ! laisse les détails. Dans l'ensemble cette histoire est la
 même. La pauvre dame à la fluxion de poitrine, émerveillement des femmes qui allaient laver la lessive, édification des vieilles dévotes aigres, illustration des cam-
@@ -124,13 +109,11 @@ province, la pauvre dame « entortillée par les curés
 comme on disait, n'en avait pas moins toutes les passions, tous les sentiments et presque toutes les pensées
 d'un Pascal. Vraiment ils étaient les mêmes fidèles.
 Docteur je me demande si n'est pas toute la force de
-la communion chrétienne, et en particulier de la com-
-munion catholique. La malheureuse fidèle avait la
+la communion chrétienne, et en particulier de la communion catholique. La malheureuse fidèle avait la
 même foi, les mêmes élancements, la même charité, les
 mêmes sacrements. Elle aussi reçut enfin celui qu'elle
 avait tant désiré, qu'elle avait désiré de même. Et sans
-jouer immoralement avec les assimilations, je me demande si une ou plusieurs communions socialistes semblables ne seraient pas puissamment efficaces pour pré-
-parer la révolution de la santé.
+jouer immoralement avec les assimilations, je me demande si une ou plusieurs communions socialistes semblables ne seraient pas puissamment efficaces pour préparer la révolution de la santé.
 
 — Je vous entends peu, et mal.
 
@@ -138,9 +121,7 @@ parer la révolution de la santé.
 préparées. Je vous les représenterai plus tard. Mais
 voici, tout simplement, ce que je voulais dire: je constatais ou croyais constater que l'étroite parenté des
 sentiments chrétiens de ceux que nous nommons les
-grands aux sentiments chrétiens de ceux que nous nom-
-
-mons les humbles donnait une force redoutable à la religion que nous avons renoncée; ainsi je désirais qu'une
+grands aux sentiments chrétiens de ceux que nous nommons les humbles donnait une force redoutable à la religion que nous avons renoncée; ainsi je désirais qu'une
 étroite parenté s'établit ou demeurât des sentiments
 socialistes de ceux que nous nommons les savants aux
 sentiments socialistes de ceux que nous nommons les
@@ -174,8 +155,7 @@ ou bien, ce qui pour nous revient au même, il se donne
 
 certaines sévérités qui atténuent, balancent, ou surpassent l'effet des remèdes et des soins. Nous laisserons
 pour aujourd'hui la pénitence. Mais nous ne négligerons
-pas la première méthode. Selon cette méthode le chré-
-tien donne aussi bien que vous tous ses soins à la santé
+pas la première méthode. Selon cette méthode le chrétien donne aussi bien que vous tous ses soins à la santé
 de son corps. Dieu l'a créé. Dieu l'a mis au monde. Dieu
 le tient au monde. Dieu le rappellera du monde. Quand
 il a voulu. Comme il veut. Quand il voudra. La vie humaine est en un sens un dépôt. Elle est en un sens une
@@ -248,9 +228,7 @@ passé des pôles à l'équateur. Que ne puis-je continuer
 mes citations de ces citations, Vous auriez entendu
 Vico en sa Scienza nuova; vous auriez entendu Aristote
 
-et connu le Verbe, et vous auriez connu les Hecaton-
-
-chyres de la Mythologie grecque, et Fison et Howitt,
+et connu le Verbe, et vous auriez connu les Hecatonchyres de la Mythologie grecque, et Fison et Howitt,
 
 ces consciencieux et intelligents observateurs des
 
@@ -262,16 +240,12 @@ Saint-Paul et les Apôtres. Je passe Lord Carnarvon,
 
 Reminicenses Athens and Morea, et Sir Gardner
 
-Wilkinson, Dalmatia and Montenegro, et les ordon-
-
-nances d'Édouard premier d'Angleterre, et Caïn, chassé
+Wilkinson, Dalmatia and Montenegro, et les ordonnances d'Édouard premier d'Angleterre, et Caïn, chassé
 
 de son clan après le meurtre d'Abel, dans la Genèse
 Gv, 13, 14). Je passe l'Australien, et Fraser; et les
 
-mânes d'Achille, et Polyxène, la sœur de Pâris; et Dar-
-
-win rapportant dans son Voyage d'un naturaliste une
+mânes d'Achille, et Polyxène, la sœur de Pâris; et Darwin rapportant dans son Voyage d'un naturaliste une
 anecdote caractéristique: il vit un Fuégien; César et
 
 les barbares qu'il avait sous les yeux; le plus grand
@@ -354,8 +328,7 @@ peur que son Dieu ne l'ait mal reçue.
 
 — Non, docteur, je suis assuré que son Dieu lui a pardonné; car ce Dieu, tueur des dieux, a hérité des dieux
 qu'il a tués; il est devenu après Zeus le Dieu des hôtes;
-et son hospitalité est infinie; et il accueille les misé-
-rables. Il est devenu infiniment hospitalier, infiniment
+et son hospitalité est infinie; et il accueille les misérables. Il est devenu infiniment hospitalier, infiniment
 miséricordieux, et il aura bien voulu considérer que depuis le commencement de la grâce il avait admis beaucoup de saintes et beaucoup de saints tombés au même
 péché, d'avoir hâtivement désiré la cité céleste.
 
@@ -376,9 +349,7 @@ la marche et dans l'aggravation de son extraordinaire
 
 — Quels étranges médecins que ces médecins de
 Pascal. Quelle quiétude! et quelle méconnaissance.
-Mais nous aurions tort de nous imaginer que nous au-
-
-rions tout dit quand nous aurions dit qu'ils sont aussi
+Mais nous aurions tort de nous imaginer que nous aurions tout dit quand nous aurions dit qu'ils sont aussi
 les médecins de Molière. Non avertis, des médecins modernes ou contemporains ne s'y seraient pas moins
 trompés. Ils attendaient en Pascal des maladies communes, ordinaires. Je ne sais pas s'il travaillait de ces
 maladies; mais il me semble qu'il travaillait surtout du
@@ -386,16 +357,14 @@ mal de penser et de croire; il avait commencé par le
 mal de penser; il continuait par le mal de penser aggravé du mal de croire: ce sont des maux redoutables, sinon inexpiables, et que les bons médecins
 n'avaient pas en considération. Nous qui avons les
 Pensées, nous avons par même sur la vie et sur la
-mort de Blaise Pascal, sur la souffrance et le délabrement de son corps, des renseignements que ses mé-
-decins n'avaient pas; nous avons des lueurs qu'ils
+mort de Blaise Pascal, sur la souffrance et le délabrement de son corps, des renseignements que ses médecins n'avaient pas; nous avons des lueurs qu'ils
 n'avaient pas; nous avons des intelligences nouvelles;
 et, sans faire de métaphysique, nous savons que son
 corps travaillait de la souffrance de son âme. Le mal de
 croire est donné à tout le monde, et ma pauvre dame
 l'avait ainsi que l'avait Pascal. C'est un mal qui est
 devenu plus rare, Le mal de penser n'est pas encore
-donné à tout le monde. Il est resté un peu plus profes-
-sionnel. C'est, pour dire le mot, un mal intellectuel. Je
+donné à tout le monde. Il est resté un peu plus professionnel. C'est, pour dire le mot, un mal intellectuel. Je
 ne crois pas qu'il soit déshonorant. L'excès du travail
 intellectuel délabre l'âme et le corps sans déshonorer
 la personne ainsi que l'excès du travail manuel délabre
@@ -438,9 +407,7 @@ siècles de christianisme introduit chez mes aïeux, les
 onze ou douze ans d'instruction et parfois d'éducation
 catholique sincèrement et fidèlement reçue ont passé
 sur moi sans laisser de traces. Tous les camarades que
-j'avais à l'école primaire, qu'ils soient devenus des tra-
-
-vailleurs manuels ou des travailleurs intellectuels, qu'ils
+j'avais à l'école primaire, qu'ils soient devenus des travailleurs manuels ou des travailleurs intellectuels, qu'ils
 soient devenus des paysans ou des ouvriers, qu'ils
 soient devenus ou non socialistes et républicains, ne
 sont pas moins débarrassés que moi de leur catholicisme. C'est cela qui rend si inquiétant l'incontestable
@@ -579,8 +546,7 @@ Oh! qu'il est venu en grande pompe et en une prodigieuse magnificence, aux yeux 
 
 « Nous connaissons la vérité, non seulement par la
 raison, mais encore par le cœur. »
-« Ceux que nous voyons chrétiens sans la connais-
-sance des prophéties et des preuves ne laissent pas d'en
+« Ceux que nous voyons chrétiens sans la connaissance des prophéties et des preuves ne laissent pas d'en
 juger aussi bien que ceux qui ont cette connaissance.
 Ils en jugent par le cœur comme les autres en jugent
 par l'esprit. C'est Dieu lui-même qui les incline à croire;
@@ -657,9 +623,7 @@ car il connaît tout cela, et soi; et les corps, rien. »
 — « L'homme n'est qu'un roseau, le plus faible de la
 nature, mais c'est un roseau pensant. Il ne faut pas
 que l'univers entier s'arme pour l'écraser. Une vapeur,
-une goutte d'eau, suflit pour le tuer. Mais quand luni-
-
-vers l'écraserait, l'homme serait encore plus noble que
+une goutte d'eau, suflit pour le tuer. Mais quand lunivers l'écraserait, l'homme serait encore plus noble que
 ce qui le tue, parce qu'il sait qu'il meurt, et l'avantage
 que l'univers a sur lui univers n'en sait rien.
 
@@ -686,8 +650,7 @@ de juste et beaucoup de convenable fut dit avant nous
 mieux que nous ne le saurions dire.
 — Ce n'est pas moi, mon ami, qui vous en ferai un
 reproche. Moi non plus je ne cours pas après le bizarre
-comme tel. Mais quand le bizarre est juste, vrai, conve-
-nable, harmonieux, j'accueille le bizarre et même je le
+comme tel. Mais quand le bizarre est juste, vrai, convenable, harmonieux, j'accueille le bizarre et même je le
 recherche; et quand c'est le connu, le banal qui est juste,
 vrai, convenable, harmonieux, j'accueille ce banal que
 je n'ai pas à chercher. Je vous disais seulement que
@@ -702,11 +665,8 @@ redire en six pages de mauvais français tout ce que
 le grand Blaise avait si bien dit en douze lignes.
 Cet exercice conférait l'entrée à l'apprentissage des
 arts libéraux, Du baccalauréat il remontait à la licence, dispensait ainsi du service militaire pour deux
-années, conférait l'entrée universitaire et le droit ofli-
-ciel d'enseigner. Je ne suis pas assuré qu'il ne soit
-remonté plus haut encore, jusqu'à l'auguste agréga-
-tion, où les bons se distinguent décidément des mau-
-vais. Provisoirement écartés de ces grandeurs, mon
+années, conférait l'entrée universitaire et le droit ofliciel d'enseigner. Je ne suis pas assuré qu'il ne soit
+remonté plus haut encore, jusqu'à l'auguste agrégation, où les bons se distinguent décidément des mauvais. Provisoirement écartés de ces grandeurs, mon
 ami, nous n'avons pas à développer cette pensée de
 Pascal. Nous remarquerons seulement qu'elle ne porte
 
@@ -752,12 +712,10 @@ qui est la sainteté humaine, Il avait ressenti d'autant )
 plus proprement quel était l'écart intermédiaire qu'il
 avait été lui-même, et qu'il était demeuré quand même
 un géomètre, ayant abandonné bien plutôt la matière
-que la méthode et que le sens de son ancienne géomé-
-trie. Et c'est ici que nous nous retrouvons. Comme il
+que la méthode et que le sens de son ancienne géométrie. Et c'est ici que nous nous retrouvons. Comme il
 demeura ce que nous nommons un mathématicien dans
 l'exercice rigoureusement exact de la charité, ainsi et
-sans doute involontairement il demeurait un arithmé-
-ticien dans l'administration de son estomac. Toujours
+sans doute involontairement il demeurait un arithméticien dans l'administration de son estomac. Toujours
 la même quantité de nourriture, que l'estomac en voulût
 plus ou moins, qu'il en voulût ou qu'il n'en voulût pas.
 Évidemment il considérait son estomac comme une
@@ -771,28 +729,18 @@ cartésiennes, simplistes. Et il voulait régir son estomac
 
 par les lois mécaniques mathématiques, arithmétiques,
 
-par quoi les mécaniciens régissent les machines inani-
-
-mées, inorganiques. C'est qu'il ne s'était évadé de la
+par quoi les mécaniciens régissent les machines inanimées, inorganiques. C'est qu'il ne s'était évadé de la
 mathématique universelle que par la contemplation de. -
 
 la sainteté, par le sens de la charité. Au lieu que nous,
 
 qui nous sommes évadés de la mathématique et de la
 
-mécanique universelles par la considération de la mo-
-
-rale, par la volonté de l'action, par le sens de la solida-
-
-rité, outre cela nous nous sommes évadés de la méca-
-
-nique universelle, ou plutôt l'humanité moderne s'est
+mécanique universelles par la considération de la morale, par la volonté de l'action, par le sens de la solidarité, outre cela nous nous sommes évadés de la mécanique universelle, ou plutôt l'humanité moderne s'est
 
 évadée de la mécanique universelle par le progrès de
 
-la physique même et, un peu plus, de la chimie, et sur-
-
-tout par l'institution et par le progrès des sciences
+la physique même et, un peu plus, de la chimie, et surtout par l'institution et par le progrès des sciences
 
 naturelles indépendantes, par la liberté de l'histoire
 
@@ -811,8 +759,7 @@ deux ou trois formules courtes, gauches, inexactes,
 fausses, tous les événements de la vie intérieure que
 nous avons si longuement et si soigneusement tâché
 d'élucider un peu. Ne nous permettons pas de faire un
-de ces résumés qui sont commodes à lire quand on pré-
-pare un examen. Nous ne parlons pas pour les gens
+de ces résumés qui sont commodes à lire quand on prépare un examen. Nous ne parlons pas pour les gens
 pressés, pour les citoyens affairés, qui lisent volontiers
 
 les tables des matières. Nous parlons pour ceux qui
@@ -847,11 +794,7 @@ encore à faire une importante considération. Il me
 
 se semble qu'outre cela le christianisme encore démunit le
 
-chrétien devant la maladie et devant la mort. Permettez-
-
-ce moi, docteur, de vous rappeler ce que nos bons profes-
-
-seurs de philosophie nommaient l'influence du moral
+chrétien devant la maladie et devant la mort. Permettezce moi, docteur, de vous rappeler ce que nos bons professeurs de philosophie nommaient l'influence du moral
 
 à sur le physique.
 à — Je me rappelle parfaitement, citoyen: il y avait
@@ -877,9 +820,7 @@ périclitation comme la joie et le bonheur travaillent au
 rétablissement. Je crois l'avoir senti moi-même au
 temps que j'étais en danger. Il me semble que je le sens
 très bien à présent que je suis en convalescence. Et il
-me semble que c'est ici que les chrétiens sont désar-
-
-més, profondément faibles. Ceux qui ont parmi eux
+me semble que c'est ici que les chrétiens sont désarmés, profondément faibles. Ceux qui ont parmi eux
 
 l'imagination un peu eflicace doivent se représenter la
 
@@ -898,27 +839,20 @@ et je dirais presque d'un enracinement végétal. D'où
 mieux intentionnée, une certaine incertitude, inexactitude et maladresse à la vie. D'ailleurs il ne me serait
 
 pas difficile de trouver dans le christianisme un remède
-à cela. Il est dit qu'il y aura peu d'élus, et si les chré-
-tiens n'étaient pas présomptueux la peur de comparoir ne.
+à cela. Il est dit qu'il y aura peu d'élus, et si les chrétiens n'étaient pas présomptueux la peur de comparoir ne.
 les inciterait à reculer au plus loin qu'ils pourraient la
 l'heure de la mort. Mais beaucoup de chrétiens sont
 présomptueux. D'ailleurs une certaine épouvante, en
-même temps qu'elle veut échapper à la mort, peut affai-
-blir le malade jusqu'à le livrer inerte, au lieu qu'une
+même temps qu'elle veut échapper à la mort, peut affaiblir le malade jusqu'à le livrer inerte, au lieu qu'une
 certaine sécurité, en même temps qu'elle désire la mort, DO:
-peut réconforter le malade et contribuer à son rétablis-
-sement. Vous voyez comme tout cela est toujours compliqué.Ily a toujours des croisements et des bifurcations.
+peut réconforter le malade et contribuer à son rétablissement. Vous voyez comme tout cela est toujours compliqué.Ily a toujours des croisements et des bifurcations.
 — Il y a toujours des croisements et des bifurcations
 dans nos passions et dans nos sentiments. Mais il me:
-paraît incontestable que le christianisme est en parti-
-culier compliqué. Il embrasse tant de contradictions
-intérieures ou introduites qu'il peut de soi donner ré-
-ponse à tout. Il embrasse presque tous les excès, et
-ainsi les excès qui donnent réponse aux excès con-
-traires, et il enveloppe aussi les tempéraments, qui
+paraît incontestable que le christianisme est en particulier compliqué. Il embrasse tant de contradictions
+intérieures ou introduites qu'il peut de soi donner réponse à tout. Il embrasse presque tous les excès, et
+ainsi les excès qui donnent réponse aux excès contraires, et il enveloppe aussi les tempéraments, qui
 donnent réponse à tous les excès, et il embrassait les
-excès, qui donnent réponse même à l'excès du tempé-
-rament. Il paraît à première vue aussi compliqué, aussi
+excès, qui donnent réponse même à l'excès du tempérament. Il paraît à première vue aussi compliqué, aussi
 riche que la vie. Et c'est pour cela qu'il paraît souvent \4
 se suflire à lui-même. Il ne paraît se suffire à lui-même,
 citoyen, que par l'insuflisance de son exigence. Beau- )
@@ -982,8 +916,7 @@ Debout! les forçats de la faim.
 
 tout à fait ainsi, et sans nous laisser conduire aux seuls
 mots, mais en nous modelant sur la réalité, nous sommes solidaires des damnés éternels. Nous n'admettons
-pas qu'il y ait des hommes qui soient traités inhumai-
-nement. Nous n'admettons pas qu'il y ait des citoyens 5 ee:
+pas qu'il y ait des hommes qui soient traités inhumainement. Nous n'admettons pas qu'il y ait des citoyens 5 ee:
 qui soient traités inciviquement. Nous n'admettons pas
 qu'il y ait des hommes qui soient repoussés du seuil
 d'aucune cité. est le profond mouvement dont nous
@@ -1003,7 +936,7 @@ Ce ne sont pas seulement les événements individuels,
 particuliers, nationaux, internationaux, politiques et
 sociaux qui ont opposé la révolution socialiste à la
 réaction d'Église. Mais ces événements sont l'expres-
-é; sion et presque je dirais que cette opposition est le
+sion et presque je dirais que cette opposition est le
 ) à symbole d'une contrariété foncière invincible. L'imaa gination d'un exil est celle qui répugne le plus à tout
 socialisme. Jamais nous ne dirons oui à la supposition,
 à la proposition de cette mort vivante. Une éternité
@@ -1040,8 +973,7 @@ opérations distinctes. Les identifier supposerait que la
 représentation d'une statue est une petite statue et que
 la représentation d'un texte est un petit texte. Beaucoup
 d'anciens se le sont représenté communément. Mais
-nous avons renoncé à ces psychologies un peu enfan-
-tines. Souvent je préfère la représentation que j'ai à ÿ. te
+nous avons renoncé à ces psychologies un peu enfantines. Souvent je préfère la représentation que j'ai à ÿ. te
 lobjet lui-même, ce qui revient à dire que je préfère la 2120
 représentation que j'ai dans ma mémoire, l'image où;.
 tous mes souvenirs ont travaillé, à la nouvelle pré-! 1800
@@ -1054,13 +986,10 @@ librairie et d'édition, 17, rue Cujas.
 
 — Pour beaucoup de raisons que je vous donnerai
 plus tard, docteur, mais surtout parce que cette maison
-est, à ma connaissance, la première et la seule coopéra-
-tive de production et de consommation qui travaille
+est, à ma connaissance, la première et la seule coopérative de production et de consommation qui travaille
 l'industrie et au commerce du livre. En attendant que
 nous ayons le texte original, conientons-nous, docteur,
-de ce que nous avons: Antigone mise à la scène fran-
-
-çaise par Paul Meurice et Auguste Vacquerie, et nous
+de ce que nous avons: Antigone mise à la scène française par Paul Meurice et Auguste Vacquerie, et nous
 
 avons encore la musique de Saint-Saëns, partition chant
 
@@ -1117,13 +1046,13 @@ Nouvelle réflexion salutaire et nouvel et derniere
 Sur la rive traîtresse
 à En proie à tous les vents
 Des deux fils de Phinée Hu:
-6 Et leur mère, 6 ma fille,: EVER
+Et leur mère, 6 ma fille,: EVER
 D'Érechthée! et ses jeux,
 Borée étant son père, hoc
 fix Affrontaient le tonnerre ‘ke
 A Sur les monts orageux!
 pas Sur la glace, intrépide
-1 Et fière et plus rapide 71160
+Et fière et plus rapide 71160
 Qu'un cheval furieux 1780
 é Elle allait sans rien craindre.
 La Parque sut atteindre
@@ -1217,16 +1146,14 @@ doivent aux morälistes. Revenez vite, monsieur l'hoELA norable, revenez bientô
 4 3 — Hâtez-vous, monsieur le commissionnaire, hâtezvous, car j'attends mon cousin.
 — Qui donc ce cousin?
 . — Et quand mon cousin est là, docteur, on ne peut
-plus causer tranquille. Mon cousin n'aimera pas beau-
-coup les lenteurs et les longueurs de nos dialectiques
+plus causer tranquille. Mon cousin n'aimera pas beaucoup les lenteurs et les longueurs de nos dialectiques
 attentives. C'est un garçon impatient.
 — Mais qui donc, ce cousin?
 — Je vous dis qu'il est impatient comme vous. Sachez
 donc, à docteur, que j'ai en province un cousin que je
 
 nomme respectueusement et familièrement mon grand
-cousin, et qui moins respectueusement, et plus familiè-
-rement, me nomme réciproquement son petit cousin. Cet
+cousin, et qui moins respectueusement, et plus familièrement, me nomme réciproquement son petit cousin. Cet
 intitulé tient à ce qu'il est plus vieux que moi et
 qu'ainsi quand j'étais petit lui au contraire il était grand.
 
@@ -1256,8 +1183,7 @@ professionnelle. Mon grand cousin est un garçon qui
 aime à voir par lui-même. Il devait arriver cette semaine.
 — Cette semaine? L'Exposition n'ouvre que le 14 avril.
 — Justement. Mon cousin prétend que pour bien voir
-ces machines-là il faut les voir avant qu'elles aient com-
-mencé. Une idée à lui.
+ces machines-là il faut les voir avant qu'elles aient commencé. Une idée à lui.
 — Comment serait-il entré?
 — Il est des accommodements. Quelque camarade en
 fumisterie lui aurait prêté sa carte d'exposant. Mon
@@ -1314,8 +1240,7 @@ pensez bien, membre — et membre très actif — du
 Groupe d'études sociales d'Orléans, adhérent au Parti
 ouvrier français. Un vote régulier du groupe, auquel
 mon cousin avait pris part, m'avait institué délégué de
-ce groupe au futur ancien Congrès général des Organi-
-sations Socialistes Françaises. Heureusement que le
+ce groupe au futur ancien Congrès général des Organisations Socialistes Françaises. Heureusement que le
 Conseil national veillait. Survint le bon guesdiste, le
 fidèle dûment recommandé. Le groupe eut une seconde
 réunion, beaucoup plus régulière que la première, procéda ensuite à un second vote, beaucoup plus régulier
@@ -1334,8 +1259,7 @@ jusqu'à six voix — sur dix votants. Il n'y eut aucune
 Le docteur en allé revint sur ses pas
 — J'allais vous laisser le livre que j'avais apporté. Je
 n'y pensais plus. Il faut que je le rende avant les vacances de Pâques à la bibliothèque où je l'ai emprunté..
-Ce sont les Provinciales. Quand votre cousin vous de-
-mandera compte, vous pourrez lui faire quelques citations intéressantes
+Ce sont les Provinciales. Quand votre cousin vous demandera compte, vous pourrez lui faire quelques citations intéressantes
 « Et si la curiosité me prenait de savoir si ces propositions sont dans Jansénius, son livre n'est pas si
 rare, ni si gros, que je ne le pusse lire tout entier pour
 m'en éclaircir, sans en consulter la Sorbonne. »
@@ -1385,11 +1309,7 @@ une Histoire de Port-Royal qu'il a laissée en manuscrit,
 
 et qu'on a placée depuis dans ses œuvres. M. Havet
 
-y. nous a donné cet exposé au commencement des remar-
-
-nas ques sur la première provinciale. Quand le gouverne-
-
-ment et le pape étaient d'accord, on ne tenait pas
+y. nous a donné cet exposé au commencement des remarnas ques sur la première provinciale. Quand le gouvernement et le pape étaient d'accord, on ne tenait pas
 
 compte de la règle faite contre les moines.
 La Petite République du dimanche 15 octobre publiait
@@ -1409,17 +1329,14 @@ circulaire afin de ne pas porter entrave à la réunion du
 La Petite République du vendredi 17; novembre publiait
 la note et la communication suivantes: Ah
 Nous recevons de l'Agglomération bordelaise du Parti
-ouvrier français le document suivant que nous nous em-
-
-pressons d'insérer. Sur la question de l'unité socialiste il
+ouvrier français le document suivant que nous nous empressons d'insérer. Sur la question de l'unité socialiste il
 nous semble qu'on peut sans péril aller dès maintenant un
 peu plus loin que ne le disent nos amis. Mais ce n'est qu'une
 nuance: et il nous paraît que l'ensemble du problème est
 très nettement posé. Les socialistes de Bordeaux donnent
 un excellent exemple en étudiant avec soin, dès aujourd'hui,
 les questions qui seront débattues au Congrès. Si les grouj pements socialistes délibèrent partout avec le même zèle
-sur les problèmes à résoudre, le Congrès exprimera la pen-
-sée vraie et profonde de tout le prolétariat organisé.
+sur les problèmes à résoudre, le Congrès exprimera la pensée vraie et profonde de tout le prolétariat organisé.
 Le Congrès général des Organisations Socialistes Françaises
 
 Dans sa séance du dimanche 12 novembre, le Comité central, réuni
@@ -1429,8 +1346,7 @@ délégués au Congrès général du 3 décembre.
 
 1— La lutte des classes et la conquête des pouvoirs publics.
 Dans quelle mesure, et conformément au principe de la
-latte de classe, base même de l'organisation du Parti, celuici peut-il participer au pouvoir dans la commune, le dépar-
-tement et l'État?
+latte de classe, base même de l'organisation du Parti, celuici peut-il participer au pouvoir dans la commune, le département et l'État?
 
 Voies et moyens pour la conquête du pouvoir. Action
 politique {électorale ou révolutionnaire). Action économique
@@ -1439,22 +1355,16 @@ RésoLUTION. — La lutte des classes, étant le facteur
 essentiel de toute l'évolution historique de l'humanité, est
 nécessairement la base indiscutable de l'organisation du
 
-Si l'adhésion formelle à ce principe fondamental déter-
-
-mine positivement l'objectif que les socialistes ont le devoir
+Si l'adhésion formelle à ce principe fondamental détermine positivement l'objectif que les socialistes ont le devoir
 primordial de ne jamais perdre ni laisser perdre de vue en
 aucun cas, il ne s'ensuit pas nécessairement que la lutte
-des classes, elle-même, dans ses phases multiples et succes-
-sives, soit réduite à une forme unique et à une méthode
+des classes, elle-même, dans ses phases multiples et successives, soit réduite à une forme unique et à une méthode
 immuable. Plus logiquement, on peut penser qu'elle doit
 être adaptée aux conditions successives de milieu et de circonstances, pour sa plus grande eflicacité..
-Dans le milieu présent et dans les conditions où fonc-
-tionnent les pouvoirs publics en France par le mécanisme
+Dans le milieu présent et dans les conditions où fonctionnent les pouvoirs publics en France par le mécanisme
 actuel du suffrage universel, il est logique d'admettre que
-l'introduction constante et incessante des militants socia-
-listes dans tous les pouvoirs publics sans distinction —
-communaux, départementaux, législatifs ou gouvernemen-
-taux, — puisse toujours être avantageuse pour la meilleure
+l'introduction constante et incessante des militants socialistes dans tous les pouvoirs publics sans distinction —
+communaux, départementaux, législatifs ou gouvernementaux, — puisse toujours être avantageuse pour la meilleure
 utilisation de ces pouvoirs au profit de la lutte des classes
 et du mouvement socialiste, soit en atténuant la résistance
 qu'ils opposent à l'extension de ce mouvement, soit en réa- à
@@ -1489,8 +1399,7 @@ Le parti socialiste, après avoir affirmé et justifié le but
 qu'il poursuit, doit donc se réserver l'emploi de tous les
 moyens propres à y aboutir au plus tôt selon les circonstances.
 
-La seule raison légitime qui puisse déterminer la préfé-
-rence des socialistes pour tels moyens politiques ou économiques, plutôt que pour tels autres, c'est le ménagement des
+La seule raison légitime qui puisse déterminer la préférence des socialistes pour tels moyens politiques ou économiques, plutôt que pour tels autres, c'est le ménagement des
 énergies et des ressources populaires dont on a le devoir
 d'éviter tout gaspillage inutile.
 
@@ -1562,9 +1471,7 @@ Actuellement, en laissant subsister et fonctionner telles
 quelles les organisations existantes, il s'agit de les relier,
 de les solidariser et d'unifier autant que possible leur action
 à la Chambre et dans le pays, par le moyen d'un Comité
-directeur comprenant les principaux leaders de chaque frac-
-
-tion, et dont les attributions, prudemment limitées tout
+directeur comprenant les principaux leaders de chaque fraction, et dont les attributions, prudemment limitées tout
 d'abord aux cas les plus généraux, lui permettraient de
 prendre en toute autorité de rapides décisions dans les circonstances urgentes.
 
@@ -1645,8 +1552,7 @@ manœuvres: elles se retourneront avec une force terrible
 Voici le texte de la protestation dont il est question ci-dessus
 Dix députés du Parti ouvrier français ont chargé le
 citoyen Pastre d'appuyer la proposition du citoyen
-Delesalle, tendant à ce que les divers projets soient ren-
-voyés à la commission, que le rapport soit déposé demain, et qu'il n'y ait pas de vote d'escamotage.
+Delesalle, tendant à ce que les divers projets soient renvoyés à la commission, que le rapport soit déposé demain, et qu'il n'y ait pas de vote d'escamotage.
 Gabriel BERTRAND, délégué de la Fédération de
 Vaucluse; CAMELLE, conseiller général, adjoint au maire de Bordeaux; PARISoT, conseiller général de Courbevoie.
 

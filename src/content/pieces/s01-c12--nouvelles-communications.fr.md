@@ -15,8 +15,7 @@ Figurez-vous qu'après leur victoire de Paris les nationalistes veulent prêcher
 ma-t-on dit, ont projeté de venir ici le dimanche r2août
 pour donner une conférence publique au théâtre. Le
 premier mouvement des camarades a été de s'écrier
-« Nous les conspuerons et ils ne parleront pas. » Mou-
-vement qui partait évidemment d'un bon naturel, mais
+« Nous les conspuerons et ils ne parleront pas. » Mouvement qui partait évidemment d'un bon naturel, mais
 - qui donne une fâcheuse idée de leur éducation politique. Il me semble qu'il vaut mieux leur opposer un
 contradicteur. Malheureusement nous n'avons personne
 ici qui soit de taille. Ceux de nos camarades qui ont
@@ -33,8 +32,7 @@ quelque patience. Nous aimons mieux leur envoyer des réponses
 délibérées que des bavardages hâtifs.
 
 douzième et dernier cahier de la première série à
-Citoyen Péguy, puisque vos cahiers sont une insti-
-tution, je me permettrai, comme socialiste, d'attirer a
+Citoyen Péguy, puisque vos cahiers sont une institution, je me permettrai, comme socialiste, d'attirer a
 votre attention sur une campagne qui pourrait être
 menée dans vos cahiers et qui, ce me semble, serait
 beaucoup plus profitable que celle que vous menez à
@@ -54,13 +52,11 @@ de lecteurs souvent négligents de véritables procédés
 nationalistes dans la composition du journal.
 Vous avez déjà signalé, et c'est pour cela que je vous “1
 écris, l'annonce ridicule que la Petite République et
-l'Aurore avaient insérée en faveur du panorama Mar-
-chand; mais il y a des faits beaucoup plus graves et
+l'Aurore avaient insérée en faveur du panorama Marchand; mais il y a des faits beaucoup plus graves et
 qui vous révolteront sans doute autant que je l'aiété. ni.
 En voici un: a Petite République a l'habitude d'annoncer tout au long les peines encourues par les grévistes …
 arrêtés; elle s'est dispensée de le faire pour ceux de
-Chalon, bien que le total des peines distribuées ait dé-
-passé vingt-sept mois de prison. Je lis dans les Temps
+Chalon, bien que le total des peines distribuées ait dépassé vingt-sept mois de prison. Je lis dans les Temps
 Pozicr. — À Chalon-sur-Saône, les gendarmes chargeant
 brutalement la foule, un d'eux reçut une pierre. Immédias
 
@@ -121,8 +117,7 @@ Quo Vadis ((Où vas-tu? qui, sous une forme oma- IAA
 nesque, met en conflit le christianisme en Les période aus
 1, héroique et le paganisme à son apogée, apparaît comme le
 chef-d'œuvre de Sienkiewicz et de la littérature polonaise
-et comme une des œuvres capitales de la littérature univer-
-selle. Le voilà enfin, dans les Éditions de la Revue Blanche,
+et comme une des œuvres capitales de la littérature universelle. Le voilà enfin, dans les Éditions de la Revue Blanche,
 présenté au public français; mais, depuis 1895, date de son
 De nparuion, il avait déjà été traduit en une vingtaine de
 langues ou dialectes; et sa vente, dès la première année,
@@ -142,13 +137,11 @@ une beauté nouvelle; le tribun militaire Vinicius qui, sous
 . son influence, évolue vers la religion du Christ. Néron et
 l'Apôtre Pierre dominent les événements et les déterminent.
 Le géant Ursus, l'athlète Croton, le Chilon Chilonidès, cent
-autres comparses mouvementent l'action. Sans que l'origi-
-nalité foncière de l'œuvre en soit un instant compromise,
+autres comparses mouvementent l'action. Sans que l'originalité foncière de l'œuvre en soit un instant compromise,
 telles parties feront songer à l'éclat descriptif d'un Flau- DE
 5008 Bert (festin au Palatin, incendie de Rome, scènes du Cirque), SET
 à la rudesse d'un Kipling (mort de Néron), à la simplicité
-persuasive d'un Tolstoi (supplice de Pierre), au scepticisme-
-ai apérieur d'un France (conversations de Pétrone): infinie fai
+persuasive d'un Tolstoi (supplice de Pierre), au scepticismeai apérieur d'un France (conversations de Pétrone): infinie fai
 var été de tons dont les contrastes s'unifient dans l'harmo- LCR
 euse coulée du style de Sienkiewicz; variété infinie se
 d'épisodes, qui fait de ce livre de 650 pages un livre trop FNHES
@@ -159,18 +152,15 @@ douzième et dernier cahier de la première série De
 de lettres je n'enseigne rien que les mathématiques. Je
 me suis demandé longtemps ce qui avait se passer 4]
 dans l'esprit du pauvre prolétaire intellectuel chargé
-de rédiger cette affiche. Ou bien il ne sait pas le fran-
-çais, car j'ai reçu au lycée une solide instruction litté- à
+de rédiger cette affiche. Ou bien il ne sait pas le français, car j'ai reçu au lycée une solide instruction litté- à
 
-raire, et je ne puis accepter ni le ton général, ni cer-
-taines expressions particulières de cette réclame:un
+raire, et je ne puis accepter ni le ton général, ni certaines expressions particulières de cette réclame:un
 tel engouement; — mouvoir des foules; — mouvementent
 l'action; — j'en passe, et de non moins raides. Ou bien
 encore le prolétaire intellectuel s'est amusé, par manière
 de sabotage, à rédiger en un vague polonais. Ou bien
 enfin, connaissant le français quand il s'intéresse à ce
-qu'il fait, il s'est laissé aller par ennui et décourage-
-ment, par dégoût de la servitude et maladresse fade
+qu'il fait, il s'est laissé aller par ennui et découragement, par dégoût de la servitude et maladresse fade
 laisser passer toutes ces incorrections commerciales.
 Que s'il a voulu de lui-même corser son style, je le- te. »
 Remarquez bien que je n'en veux pas pour cela au
@@ -226,8 +216,7 @@ de leur séjour sera de six jours pleins; ils auront droit
 l'entrée gratuite à l'Exposition.
 Les sous-officiers non rengagés, les caporaux, brigadiers
 et soldats, qui demanderont à se rendre à Paris isolément
-et entièrement à leurs frais, pour visiter l'Exposition, pour-
-ront également obtenir les permissions nécessaires dans les Ex.
+et entièrement à leurs frais, pour visiter l'Exposition, pourront également obtenir les permissions nécessaires dans les Ex.
 Je lis dans la Petite République du dimanche 10 juin
 Tous les jours, de neuf heures à onze heures du soir, sauf
 dimanche et jours fériés, les sous-officiers, caporaux et soldats des armées de terre et de mer, en uniforme, seront
@@ -267,8 +256,7 @@ suit toujours une marche croissante. Il ne saurait en être
 autrement d'ailleurs étant donné le puissant intérêt du
 Devant le succès toujours grandissant et à la demande
 d'un grand nombre de visiteurs, le Panorama Marchand
-adopte également à partir de demain un jour select, le ven-
-dredi, avec le prix d'entrée de 2 francs.
+adopte également à partir de demain un jour select, le vendredi, avec le prix d'entrée de 2 francs.
 
 Je lis dans la Petite République du lundi 25 juin
 ‘FE Panorama de Madagascar
@@ -312,8 +300,7 @@ a C'est un spectacle fort instructif que tous les amate de A
 
 Je lis dans la Petite République du lendemain vende dredi
 Comme il fallait s'y attendre, le très retentissant et très
-à légitime succès du Panorama Marchand a amené des imita-
-tions du captivant spectacle de la mission Congo-Nil. Mais
+à légitime succès du Panorama Marchand a amené des imitations du captivant spectacle de la mission Congo-Nil. Mais
 le public ne s'y peut tromper, car le Panorama Marchand —
 au Trocadéro — est le seul qui se trouve dans l'enceinte
 de l'Exposition et le seul qui ait été officiellement admis
@@ -336,9 +323,7 @@ je Je lis dans la Petite République du lendemain lundi
 Le diorama de la Mission Marchand dit Fachoda ne se
 trouve pas dans l'intérieur de l'Exposition, mais au 16 de
 l'avenue de Suffren, tout à côté de la gare du Champ de.
-Res Ce qui explique l'immense succès qu'il remporte, c'est l'exac2
-
-douzième et dernier cahier de la première série
+Res Ce qui explique l'immense succès qu'il remporte, c'est l'exacdouzième et dernier cahier de la première série
 titude absolue avec laquelle sont reproduites les scènes
 sauvages et les paysages des rives de l'Oubanghi et du
 ‘Je lis dans la Petite République du lendemain mardi - “4
@@ -366,14 +351,12 @@ de grandeur, dans les milieux les plus divers de la société
 Celle-ci est un peu violente, comme on dit familière
 ment. Je sais bien, ou je pense que cette note est payée
 
-Se 7 qu'elle est rédigée par un commis de l'édi-
-teur, et que ce pauvre Scaramouche en est tout à faitin-
+Se 7 qu'elle est rédigée par un commis de l'éditeur, et que ce pauvre Scaramouche en est tout à faitin-
 SPOR nocent. Mais enfin cette note apposée en première page
 FHTATR l'Aurore est un peu violente. Quand on a fait un
 livre de cochonneries, on a au moins le courage de dire
 See du moins on ne fait pas ou on ne laisse pas imprimer
-et: que c'est un roman social. Pourquoi pas de la sociolo-
-gie? Toutes les tartufferies me dégoûtent. Au moins
+et: que c'est un roman social. Pourquoi pas de la sociologie? Toutes les tartufferies me dégoûtent. Au moins
 -. Vacher ne disait pas qu'il avait fait de la gynécologie.
 Je finis. Je lis dans la Petite République du jeudi
 FAN Au flot toujours montant des visiteurs au Diorama de
@@ -397,7 +380,7 @@ L'amitié de Jaurès pour Millerand le rend trop minis »
 tériel, trop optimiste. As-tu remarqué qu'il évite à pré
 sent de s'expliquer sur les questions brülantes, quil
 s'appesantit peu sur les massacres du François ou de
-3 Chalon, qu'il ne réclame plus la suppression des conseils
+Chalon, qu'il ne réclame plus la suppression des conseils
 de guerre, la suppression de la propriété du grade des
 officiers, — pierre angulaire de la société bourgeoise, ENS à
 etc., etc. Ce n'est pas en édulcorant les revendications
@@ -461,9 +444,7 @@ il a droit.
 Sincèrement je ne le crois pas, mais pas du tout, “150
 
 loin de là.
-L'affaiblissement du prolétariat sera, selon moi, irré-
-
-médiable si ses membres ne savent pas modifier. leurs
+L'affaiblissement du prolétariat sera, selon moi, irrémédiable si ses membres ne savent pas modifier. leurs
 
 _idées, leurs aspirations, s'ils continuent à vivre d'idées
 fausses et d'illusions dangereuses pour la plus grande
@@ -494,18 +475,15 @@ feront éclater du premier coup.
 etla liberté — et je maintiens que la liberté est néces- are
 saire à l'humanité.
 Je ne veux pas dire qu'il n'y ait rien à faire, loin
-En 1869 nous fondions à Orléans une société coopé-
-rative n'a péri que devant l'indifférence absolue des
+En 1869 nous fondions à Orléans une société coopérative n'a péri que devant l'indifférence absolue des
 FAN » qui periq
 A ouvriers, plutôt hostiles même qu'indifférents.
 Il semble que depuis lors les idées — mettons socié- NE
 taires — ont progressé, quoique certaines écoles socia-,
-SANT listes les proscrivent comme n'étant propres qu'à éner-
-ver l'action socialiste.
+SANT listes les proscrivent comme n'étant propres qu'à énerver l'action socialiste.
 Elles ont progressé surtout hors de France, mais soutre à vent aussi elles ont dévié.
 Quoi qu'il en soit ces idées sont à mon sens les seules
-puissent améliorer le sort des Prolétaires, les con-
-du non pas à la destruction, mais à la conquête du
+puissent améliorer le sort des Prolétaires, les condu non pas à la destruction, mais à la conquête du
 capital, chose indispensable pour eux.
 Je dis du capital, c'est-à-dire de tout ce qui produit de
 2 — soit naturellement, soit industriellement, soit par
@@ -522,8 +500,7 @@ Par leur organisation en sociétés de production,
 
 douzième et dernier cahier de la première série
 de consommation, de secours et de retraites, les
-prolétaires accompliront le progrès en montant len-
-tement mais sûrement à la possession du capital réel, #2
+prolétaires accompliront le progrès en montant lentement mais sûrement à la possession du capital réel, #2
 le seul qui compte, et en se formant à leur nouveau
 Hors de là, il n'y a que trouble, division, confusion.
 Il vous est loisible de croire que le fonctionnement des
@@ -558,8 +535,7 @@ Le socialisme est un grand mal présent.
 souhaite, mais un parti socialiste, non.
 En 1848 le socialisme jeta les libéraux dans la réacA tion. Nous en sommes encore aujourd'hui et ce qui
 nous attend c'est une république réactionnaire et cléri__ cale avec César.
-à en [Len serait tout autrement si le parti ouvrier, légiti-
-mement et légalement uni, fort de sa vraie force qui est
+à en [Len serait tout autrement si le parti ouvrier, légitimement et légalement uni, fort de sa vraie force qui est
 le nombre, se contentait-de s'organiser pacifiquement
 pour la coñquête du capital qui sera son instrument de,
 travail et d'émancipation.
@@ -576,8 +552,7 @@ Le ôte tout moyen d'envisager clairement l'avenir de l'hu-
 Nous devons nous borner à travailler pour le progrès
 réel, scientifique et certain, nos descendants verront
 peut-être mieux que nous.
-— Je suis et veux rester un soldat obscur de la démo-
-cratie. Je hais le bruit. Je voudrais seulement, dans
+— Je suis et veux rester un soldat obscur de la démocratie. Je hais le bruit. Je voudrais seulement, dans
 “4 'intérèt même de vos idées et pour votre satisfaction,
 
 dousième et dernier cahier de la première série
@@ -602,8 +577,7 @@ l'esprit politique commande une insincérité quelconque,
 c'est qu'il n'en faut plus. Il y a dix-huit mois, au plus
 chaud de l'affaire, j'ai bien cru que cette vérité élémen- à
 taire finirait par s'implanter, je ne dis pas dans les
-masses — c'est une idée trop simple pour que les mas-
-ses y prennent goût— mais dans la conscience de quel- À
+masses — c'est une idée trop simple pour que les masses y prennent goût— mais dans la conscience de quel- À
 ques intellectuels devenus militants. Je croyais que le
 
 dreyfusisme avait appris cela aux meilleurs des socia
@@ -636,8 +610,7 @@ Jénésais si je me déciderai à rester ici définitivement. de
 
 Le milieu anglais me paraît triste dans tous les sens du
 
-ot. Vous vous plaignez des nationalistes: en Angle-
-terre je crois bien qu'il y en à vingt millions. Ils mon- ce
+ot. Vous vous plaignez des nationalistes: en Angleterre je crois bien qu'il y en à vingt millions. Ils mon- ce
 ten sur les chaises des jardins publics pour expliquer
 qu'ils ont seuls des droits en Chine et qu'il importe de
 se débarrasser au plus vite de l'ignoble bande de Krü- de
@@ -654,8 +627,7 @@ devenir nationaliste. Plus je connais l'étranger, plus je
 trouve que les Français ne s'estiment pas ce qu'ils
 valent. Je t'expliquerai quand je te verrai; j'ai peur
 de ne pas pouvoir obtenir cette année le moindre congé,!
-à cause des affaires de Chine qui nous donnent beau-
-coup de travail. Je tiens à te dire que les cahiers mem
+à cause des affaires de Chine qui nous donnent beaucoup de travail. Je tiens à te dire que les cahiers mem
 pêchent de m'endormir dans l'abrutissement d'une vie
 mécanique. Je ne suis pas internationaliste, comme +4
 vous. Mais j'aime tes cahiers, parce que je suis encore
@@ -696,17 +668,13 @@ de patience et il ne me plaît pas qu'on me fasse poser.
 On parlait du bouquin de Mirbeau: quelle saleté!
 disaient les hommes — quelle œuvre, inscrivaient les
 journalistes; quelles immondices! disaient les hommes
-— quelles admirables observations, inscrivaient les jour-
-nalistes; quel ignoble bouquin, disaient les hommes,
+— quelles admirables observations, inscrivaient les journalistes; quel ignoble bouquin, disaient les hommes,
 tous les hommes; — études sociales prodigieuses, inscri-
 à vaient les journalistes, tous les journalistes. Le même
 individu qui vous disait couramment: ein! est-ce
 eh cochon? commençait le soir dans son journal: C'est un
-spectacle merveilleux que celui d'un talent qui se renou-
-
-douzième et dernier cahier de la première série
-velle aussi remarquablement que celui de M. Octave Mir-
-beau. C'est à lever le cœur. Comme Octave Mirbeau doit?
+spectacle merveilleux que celui d'un talent qui se renoudouzième et dernier cahier de la première série
+velle aussi remarquablement que celui de M. Octave Mirbeau. C'est à lever le cœur. Comme Octave Mirbeau doit?
 mépriser tous ces journaleux qui ont réussi à être encore
 un peu plus dégoûtants que lui, par camaraderie et
 platitude professionnelle. On ne sait pas si vous êtes
@@ -749,8 +717,7 @@ Lundi de Pâques 16 avril 1900
 Je ne puis m'empêcher de te conter une histoire
 bien pénible qui vient de nvarriver. Nous avons fondé
 ici une espèce d''Université populaire, la Tourbière.
-Nous recevons quelquefois le soir et toujours le di-
-manche les hommes, les femmes et les enfants qui
+Nous recevons quelquefois le soir et toujours le dimanche les hommes, les femmes et les enfants qui
 veulent bien venir. Nous faisons des lectures en com-
 (1) Ce billet portait en haut à gauche un admirable cachet bleu
 ovale: Cercle Edgar Quinet. — Université populaire de Bourgues. —
@@ -783,8 +750,7 @@ coup leur habitude. Nos pépulations sont indolentes. Je La.
 me doutai du coup. Ils avaient en mains deux numéros
 de La revue blanche.
 Il faut te dire que depuis trois mois que la revue
-blanche publie les saletés de Mirbeau, je suis de quin-
-zaine en quinzaine envahi d'une rage intérieure qui AS )
+blanche publie les saletés de Mirbeau, je suis de quinzaine en quinzaine envahi d'une rage intérieure qui AS )
 
 » croissait et me mangeait. Je suis rageur. Je suis
 devenu rageur. Je suis rageur. Si j'avais un mètre
@@ -843,14 +809,12 @@ trouvé ingénieux d'adapter à ses nouvelles convictiôns la
 vieille chanson de marche: dix-huit cents kilomètres
 sans boire, où le nombre des kilomètres varie à volonté..
 Cetie adaptation a réussi beaucoup auprès du grand
-public, c'est-à-dire auprès des trente et quelques per-
-sonnes qui travaillent avec nous.
+public, c'est-à-dire auprès des trente et quelques personnes qui travaillent avec nous.
 ï Quand nous fûmes seuls, mon collègue d'anglais me
 dit tout navré: Vous avez oublié, monsieur Souvestre,
 que c'était moi qui étais de service. Vous n'aviez pasà
 intervenir dans cette malheureuse affaire. — Il avait
-raison. Je ne répondais rien. M. Thomas était fort em-
-barrassé. Il avait rapporté du régiment cette conviction
+raison. Je ne répondais rien. M. Thomas était fort embarrassé. Il avait rapporté du régiment cette conviction
 profoæde que l'on ne doit jamais se mêler du service
 quand on n'est pas de semaine. Il finit pourtant par
 dire: Moi je pense que c'est M. Souvestre qui a raison,
@@ -873,8 +837,7 @@ vous. Vous verrez que c'est la seule manière de traiter
 véritablement les questions.
 é Ce M. Thomas avait tort. J'aimerais mieux avoir
 è traité véritablement cette question. Je me suis réveillé
-ce matin très embarrassé, un peu vexé. Je suis bien dé-
-cidé à n'accepter pas que nos élèves lisent les ignomi3 nies de ce roman. Mais aussitôt quelles complications.
+ce matin très embarrassé, un peu vexé. Je suis bien décidé à n'accepter pas que nos élèves lisent les ignomi3 nies de ce roman. Mais aussitôt quelles complications.
 - Et quelles contradictions. Non pas que j'aie un seul re_ mords pour la brutalité un peu vive avec laquelle j'ai
 4 traité l'auteur et sa marchandise. Mais je suis ému de
 …_. la contradiction. Quels discours et quelles conférences
@@ -900,10 +863,7 @@ ler. Je brülerai. Je ne sais pas bien pourquoi suis
 
 décidé. Mais j'y suis décidé. Ma décision est irrévo- me
 cable. Pour n'avoir pas à brûler la suite, nous nous À
-désabonnerons de la revue blanche, au moins momen-
-
-tanément. Que de violences! Que d'embarras de con-
-science. Que d'exercices d'autorités. Je suis encombré nee
+désabonnerons de la revue blanche, au moins momentanément. Que de violences! Que d'embarras de conscience. Que d'exercices d'autorités. Je suis encombré nee
 comme dans un embarras de voitures. Pourquoi faut-il
 qu'il y ait des cochons. Tout serait si simple si tout le
 monde était propre.:
@@ -925,8 +885,7 @@ remettre la suite à un prochain cahier, Lau 4: (1
 partir au commencement des vacances.
 
 Il est facile à toi de me raïller agréablement sur ce que
-je n'ai pas encore donné mon histoire projetée de la dé-
-composition du dreyfusisme en France. Mais nous avons
+je n'ai pas encore donné mon histoire projetée de la décomposition du dreyfusisme en France. Mais nous avons
 le temps. Le dreyfusisme continue à se décomposer. Tu
 admets sans doute avec moi que tous les citoyens qui
 sont devenus ou deviennent partisans d'une certaine
@@ -938,9 +897,7 @@ et les abdications se sont multipliées et se multiplient
 
 parmi nos protagonistes, parmi nos chefs et parmi
 sous-chefs. Au moment où l'amnistie antidreyfusiste
-comparaissait devant le Sénat, le citoyen Jaurès renon-
-çait avec un certain éclat. M. Waldeck-Rousseau renon-
-çait avec une véritable éloquence. Tout le gouvernement renonçait. Le Sénat renonçait. La Chambre
+comparaissait devant le Sénat, le citoyen Jaurès renonçait avec un certain éclat. M. Waldeck-Rousseau renonçait avec une véritable éloquence. Tout le gouvernement renonçait. Le Sénat renonçait. La Chambre
 
 n'avait pas même à renoncer. Les électeurs non
 plus. Le Congrès national des Organisations socidlistes françaises avait renoncé au milieu d'un enthousiasme indescriptible. Autour de nous, parmi nos
@@ -969,16 +926,13 @@ bien avec le Comité général. Assurément si j'avais
 présenté moi-même ta requête à ce vénérable Comité,
 sans aucuns débats il serait passé à l'ordre du jour,
 comme un simple Conseil d'arrondissement passe outre
-à la pétition d'un obscur cantonnier ou d'un télégra-
-phiste importun. Heureux encore s'il ne n'eût pas fléti
+à la pétition d'un obscur cantonnier ou d'un télégraphiste importun. Heureux encore s'il ne n'eût pas fléti
 par et dans un ordre du jour fortement motivé. Mais le
-grand désir que j'avais de te donner une réponse authen-
-tique me rendit astucieux. J'allai trouver un indépen- LA
+grand désir que j'avais de te donner une réponse authentique me rendit astucieux. J'allai trouver un indépen- LA
 dant, non pas un de ces indépendants qui dépendent,: Le
 mais un indépendant qui ne dépendait pas. Il yena a
 plusieurs. Je ne te dirai pas son nom, car il seraït perdu
-d'honneur socialiste si l'on savait qu'il a des communi-
-cations avec ces cahiers. Il voulut bien présenter au
+d'honneur socialiste si l'on savait qu'il a des communications avec ces cahiers. Il voulut bien présenter au
 Comité vénérable, dont il fait partie, cette requête:
 
 Que devons-nous faire des Juifs quand les antisémites
@@ -990,14 +944,10 @@ Ajournée de semaine en semaine, la requête vint enfin
 le samedi 35 juillet dernier. (1) La séance du vénérable
 
 Comité s'annonçait comme une séance orageuse.
-11 yavait beaucoup de ministériels et beaucoup d'an-
-
-tiministériels. Mais il y avait peu de véritables socia-
+11 yavait beaucoup de ministériels et beaucoup d'antiministériels. Mais il y avait peu de véritables socia-
 
 Listes et de véritables révolutionnaires. Il yavait des
-délégués titulaires et des délégués suppléants. Les gues-
-
-distes étaient tous venus, suppléants ou titulaires,
+délégués titulaires et des délégués suppléants. Les guesdistes étaient tous venus, suppléants ou titulaires,
 
 à comme toujours, et manœuvraient avec une admirable y
 
@@ -1016,9 +966,7 @@ au diminuer Jaurès. D'heureux antécédents leur faisaient
 
 De Les blanquistes faisaient la même chose que les gues-
 
-N. distes. Les allemanistes se demandaient par quelle exac-
-
-titude ils réussiraient à sauver les vieux principes sans
+N. distes. Les allemanistes se demandaient par quelle exactitude ils réussiraient à sauver les vieux principes sans
 
 43 … faire le jeu de la démagogie astucieusement attentive.
 
@@ -1035,10 +983,8 @@ aucune arrière-pensée. Le seul Jaurès pensait ardem-
 qu'il s'agit ici de l'ancien Comité général,
 
 douzième et dernier cahier de la première série
-ment aux moyens de consolider encore cette unité socia-
-liste qui lui apparaissait fortement instituée.
-La prudence la plus élémentairé m'interdisait de lais-
-ser voir dans les parages de l'auguste Assemblée les
+ment aux moyens de consolider encore cette unité socialiste qui lui apparaissait fortement instituée.
+La prudence la plus élémentairé m'interdisait de laisser voir dans les parages de l'auguste Assemblée les
 traits importuns d'un visage défavorable et défavorisé.
 description que tu attendais à bon droit. Je ne sais rien
 de cette rue Portefoin, sinon ce que ta sagacité a en
@@ -1053,12 +999,11 @@ réunissait d'abord au 17, siège que le Comité général
 avait hérité de son antécédent le Comité d'entente.
 C'était au fond d'une cour l'habituelle salle de petite Le (
 réunion. Beaucoup de ceux qui vinrent là, fraîchement
-investis par le Congrès de l'autorité souveraine, s'ima-
-ginaient sincèrement qu'ils tenaient en leurs faibles
+investis par le Congrès de l'autorité souveraine, s'imaginaient sincèrement qu'ils tenaient en leurs faibles
 mains les destinées de la grande Révolution. Ils délibé-,
 raient sérieusement aux lueurs des lumières mal éclai- que
 rantes. Ils négligeaient de savoir, mon ami, quela réac
-tion sociale est sensiblement égale à l'action, etqu'iln'est …; à
+tion sociale est sensiblement égale à l'action, etqu'iln'est à
 pas d'agitation formelle ou de combinaison qui puisse
 remplacer le sincère labourage des consciences (t)..
 (1) Je laisse dans cette réponse l'expression que j'y avais mise au.,
@@ -1098,8 +1043,7 @@ H'Le tiers des indépendants, radicaux assez peu socialis DRE
 tes, avant tout ne voulaient pas déplaire aux guesdistes,
 
 douzième et dernier cahier de la première série
-puisqu'ils étaient leurs ennemis. Les indépendants révo-
-lutionnaires sympathisaient aux allemanistes. Sur tout
+puisqu'ils étaient leurs ennemis. Les indépendants révolutionnaires sympathisaient aux allemanistes. Sur tout
 on avait un commun désir d'en venir aux mains une
 Jaurès parla longtemps. Jamais il ne fut plus beau.
 se donnait tout entier, comme s'il eût parlé devant les
@@ -1110,8 +1054,7 @@ Nourri de tout le vin de la générosité humaine, il parla Save
 deux heures, et de loin en loin et peu à peu de plus en
 plus pressé le rythme de son oraison reconduisait la; Le
 gravité de ce refrain: les Juifs sont des hommes comme.
-nous. L'orateur haletant touchait au seuil de sa pérorai-
-son quand le citoyen Ebers, animé d'une négligence: à
+nous. L'orateur haletant touchait au seuil de sa péroraison quand le citoyen Ebers, animé d'une négligence: à
 mauvaise, laissa tomber, de cette voix grinçante et
 graisseuse de Montmartre que vous ne connaissez pas,
 vous qui n'avez pas le bonheur d'assister au pre
@@ -1131,9 +1074,7 @@ penser que le citoyen Ebers avait rendu heureux plu-; à
 
 4 - sieurs citoyens. D'une voix plus grave encore, et, en un
 
-se sens, plus redoutable, il recommença la parole et la res-
-
-piration: Comment, citoyens, disait-il, comment, au
+se sens, plus redoutable, il recommença la parole et la respiration: Comment, citoyens, disait-il, comment, au
 
 moment même où dans ce Comité nous donnons tous
 nos soins à bien traiter les questions capitales qui nous
@@ -1144,9 +1085,7 @@ citoyens qui se soient imaginé témérairement que nous
 
 étions préoccupés de la forme que revêtaient nos idées.
 
-— Il continua ainsi, mais négligea de donner sa pre-
-
-mière péroraison. Il sentait, et on sentait que cela était
+— Il continua ainsi, mais négligea de donner sa première péroraison. Il sentait, et on sentait que cela était
 
 Après le citoyen Jaurès le citoyen François Desmarais,
 
@@ -1192,8 +1131,7 @@ après le citoyen Jaurès. Pendant trois bons quarts
 d'heure il prononça sur la lutte de classe un discours
 qu'il ne savait pas mal, non pas que ce discours touchât
 àla requête que l'on avait présentée, mais parce que
-tel était le discours électoral qu'il avait conçu l'espé-
-rance de prononcer la semaine suivante à Nogent-le-
+tel était le discours électoral qu'il avait conçu l'espérance de prononcer la semaine suivante à Nogent-le-
 Rotrou, circonscription où il parlerait en public pour la
 première fois de sa vie, et où, comme il disait dans les Un
 moments d'abandon, il chauffait le siège du député
@@ -1207,8 +1145,7 @@ véritables ennemis. Toutefois il ne jugea pas opportun
 de servir ce passage au Comité général.
 Tout le reste y fut. A la fin le jeune orateur éprouva
 le besoin de rattacher à la requête le discours électoral;
-qu'il avait récité. Il y réussit en invectivant familiè-
-rement Jaurès, qui laissait complaisamment faire. C'est
+qu'il avait récité. Il y réussit en invectivant familièrement Jaurès, qui laissait complaisamment faire. C'est
 un genre et un ton que se sont donnés récemment les
 jeunes gens de l'Agglomération parisienne, adhérente
 au Parti Ouvrier Français, que de traiter Jaurès comme
@@ -1251,11 +1188,9 @@ socialisme a charge de l'humanité; UNS:
 douzième et dernier cahier de la première série
 Considérant que tous les Juifs sont des hommes en
 attendant que tous les Juifs soient des citoyens
-le Comité général décide que nous devons nous oppo-
-ser de toutes nos forces à la barbarie antisémitique et
+le Comité général décide que nous devons nous opposer de toutes nos forces à la barbarie antisémitique et
 en tout cas sauver autant que nous les pourrons sauver
-tous les Juifs menacés dans leur personne civile, poli-
-tique ou morale et dans leur famille.
+tous les Juifs menacés dans leur personne civile, politique ou morale et dans leur famille.
 Telle était la motion que le citoyen Jaurès devait si
 
 d'abord présenter à l'approbation du Comité général.
@@ -1301,8 +1236,7 @@ plus tard à mieux guider le parti unifié. Mais il fallait
 ne réaliser d'abord l'unité du Parti.
 
 Ces deux raisons, les divisions et les subdivisions de
-ces raisons encombraient l'esprit de Jaurès, confusé-
-ment claires, mais d'autant plus redoutables dans la
+ces raisons encombraient l'esprit de Jaurès, confusément claires, mais d'autant plus redoutables dans la
 croissance de la fatigue. Justement le citoyen Vaillant
 manifestait l'intention de n'accabler pas ses adversaires, pourvu qu'ils se rendissent à discrétion. Tant
 . de bonté fondit toute résistance. Vraiment Jaurès ne
@@ -1364,18 +1298,16 @@ de couper sa signature en deux et de s'intituler Roger
 du Manoir. Le citoyen Dumanoir avait fini par oublier
 totalement son nom véritable et ses camarades l'avaient.
 oublié avec lui.
-Le citoyen Vaillant s'arrêta comme il avait comx mencé, en plein, et sans aucune raison. Il eut seule-
-ment soin que la dernière phrase finit sur a lutte
+Le citoyen Vaillant s'arrêta comme il avait comx mencé, en plein, et sans aucune raison. Il eut seulement soin que la dernière phrase finit sur a lutte
 de la classe ouvrière contre la classe capitaliste.
 Aussitôt qu'il eut fini le citoyen Jacob Isaac dit froiDe dement
-à; — Je m'en tiens à la conclusion indiquée par le discours du citoyen Jaurès.
+— Je m'en tiens à la conclusion indiquée par le discours du citoyen Jaurès.
 Le citoyen Jaurès fut désolé que quelqu'un s'en fût
 tenu au discours qu'il avait prononcé lui-même au comus mencement de la séance. Heureusement que le citoyen
 frs Roger Dumanoir vint à son aide. Le citoyen Roger
 Dumanoir s'éleva vivement et un peu vulgairement
 contre la manie:que l'on avait à présent de vouloir jours sauver tout le monde et son père. Ici Nivet sourit
-doucement, parce qu'il paraît que c'était une méchan-
-ceté très spirituelle et d'un usage fréquent contre le
+doucement, parce qu'il paraît que c'était une méchanceté très spirituelle et d'un usage fréquent contre le
 citoyen Jacob Isaac, dont le père est connu pour
 n'avoir pas précisément des opinions socialistes.
 Même qu'il vient de déshériter son fils avec un certain
@@ -1394,16 +1326,13 @@ Vaillant, quand il s'est brusquement arrangé pour qu'on
 ne le dît plus.
 
 Depuis au moins deux heures le vieux Longuet ne
-tenait plus en place. Il grommelait tout haut et se dis-
-putait avec ses voisins. C'est un homme qui n'aime pas
+tenait plus en place. Il grommelait tout haut et se disputait avec ses voisins. C'est un homme qui n'aime pas
 beaucoup les escamotages. Et il se débattait contre un
 escamotage qu'il sentait venir. Il avait une indignation
 comparable à celle que nous lui avons connue à la fin (4
 du Congrès national, avant-dernière séance, quand il
 vit bien que l'on s'arrangerait d'un commun accord
-pour ne pas revenir sur l'affaire Dreyfus. Comme quel-
-
-qu'un qui veut en finir, le vieux Longuet demanda la
+pour ne pas revenir sur l'affaire Dreyfus. Comme quelqu'un qui veut en finir, le vieux Longuet demanda la
 
 — Je dépose la motion suivante, vous savez bien
 
@@ -1448,8 +1377,7 @@ $. blées délibérantes porte que l'on met d'abord aux voix
 les propositions les plus éloignées, les amendements les
 plus éloignés du texte proposé par la commission. Nous
 pouvons envoyer à la commission de contrôle, — car il
-D. … s'agit au fond d'un contrôle à exercer sur les antisé-
-mites, — ou à telle commission qu'il vous plaira la
+D. … s'agit au fond d'un contrôle à exercer sur les antisémites, — ou à telle commission qu'il vous plaira la
 à 4 motion de l'honorable citoyen Longuet. Ou plutôt il
 , …. nous est permis de présumer que nous pouvons consi74 dérer la motion de l'honorable citoyen Longuet comme
 se étant moins distinctive, moins éloignée du texte qui
@@ -1512,8 +1440,7 @@ Maiïsil s'arrêta, pensant, non sans raison, qu'il en
 En vain le citoyen Longuet, par un dernier effort,
 demanda-t-il qu'on votât par division sur chacun des
 considérants et sur le dispositif. On lui refusa bruyam-
-“TER ment la division. Il oublia qu'elle était le droit. L'ensemble fut voté à mains levées. Le seul citoyen Lon-
-guet leva la main à la contre-épreuve.
+“TER ment la division. Il oublia qu'elle était le droit. L'ensemble fut voté à mains levées. Le seul citoyen Longuet leva la main à la contre-épreuve.
 “NES … — N'oublions pas, dit le citoyen Desmarais, que nous
 devons donner à la décision un sens restrictif, c'est_ à-direlimitatif.
 4 ï Le citoyen Dumanoir avait déjà rédigé la phrase. Il
@@ -1536,19 +1463,16 @@ nous n'avons qu'à insérer, après la phrase:
 décide qu'il sera donné aide et protection à tout Juif
 à qui sera du Parti;
 cette explication: ne
-c'est-à-dire qui fera une adhésion explicite au programme commun à toutes les fractions du Parti Socia-
-liste: ni
+c'est-à-dire qui fera une adhésion explicite au programme commun à toutes les fractions du Parti Socialiste: ni
 Entente et action internationales des travailleurs: organisation politique et économique du prolétariat pour
 la conquête du pouvoir et la socialisation des moyens de
 production et d'échange, c'est-à-dire la transformation
 de la société capitaliste en une société collectiviste où
-— Je propose, dit le citoyen Nivet, que le Comité gé-
-néral remplace les mots fera une adhésion explicite par
+— Je propose, dit le citoyen Nivet, que le Comité général remplace les mots fera une adhésion explicite par
 les mots aura fait une adhésion explicite. Il ne s'agit
 pas que les Juifs ne donnent leur adhésion qu'au moment
 même où ils seront en danger.
-— semble que cette observation est fort judi-
-cieuse, dit le citoyen Dumanoir.
+— semble que cette observation est fort judicieuse, dit le citoyen Dumanoir.
 
 — Mais comment saurons-nous, dit le citoyen IsamEn … bert, comment saurons-nous que tel ou tel Juif aura
 fait ou n'aura pas fait l'adhésion explicite? Et comput. ment distinguerons-nous l'explicite et l'implicite?
@@ -1557,11 +1481,10 @@ une attestation ainsi conçue
 Se Je, soussigné,.… Jules Simon Weill,….. à Paris le
 à. du Temple, déclare que je fais une adhésion explicite
 +. au programme commun à toutes les fractions du Parti
-480 Entente et action internationales des travailleurs;
+Entente et action internationales des travailleurs;
 “el - ici le citoyen Dumanoir eut l'élégance, la suprême
 élégance de réciter à haute et intelligible voix sans
-consulter son texte, comme l'écolier qui sait admirable-
-ment sa leçon:
+consulter son texte, comme l'écolier qui sait admirablement sa leçon:
 etéconomique du prolétariat pour la conquéte du
 pouvoiret la socialisation des moyens de production et
 d'échange, c'est-à-dire la transformation de la société
@@ -1577,8 +1500,7 @@ dousième et dernier cahier. de la première série
 à Paris, le 35 juillet 1900, valable à partir du 35 janvier 1901. C'est facile et nous éviterons les surprises.
 La délibération commune était devenue un dialogue
 accommodant de plusieurs citoyens.
-— Ilne me semble pas, recommencça le citoyen Desma-
-rais, que ceite attestation puisse avoir quelque valeur
+— Ilne me semble pas, recommencça le citoyen Desmarais, que ceite attestation puisse avoir quelque valeur
 si elle d'esi pas contresignée par quelqu'un qui nous
 — Parfaitement, répondit le citoyen Dumanoir. Nous
 aurons ou plutôt nous exigerons que deux signatures,
@@ -1590,13 +1512,11 @@ que nous lui accordons si elle n'est pas officielle,
 — Parfaitement, répondit le citoyen Dumanoir, par- Le
 faitement. Nous exigerons que cette attestation porte “4
 la signature d'un membre du Comité général.
-— Si cette attestation nous est garantie par la signa-
-ture d'un membre du Comité général, nous avons le
+— Si cette attestation nous est garantie par la signature d'un membre du Comité général, nous avons le
 droit et le devoir d'exiger qu'elle soit plus explicite et =.
 que l'autorité de ce Comité général y soit formellement
 — Parfaitement. Après les mots: collectiviste ou (4
-communiste, nous ajoutons cette phrase: Autorité sou-
-veraine incontestée du Comité général institué par les
+communiste, nous ajoutons cette phrase: Autorité souveraine incontestée du Comité général institué par les
 Congrès, avec pouvoir d'appel au prochain Congrès
 tous les ans pendant plusieurs jours.
 — me semble, dit Desmarais, que nous pouvons
@@ -1615,7 +1535,7 @@ demandes que nous aurons examinées en premier.
 _. — Alors, dit Desmarais, je demande que l'appel soit
 suspensif, c'est-à-dire que pendant tout le temps de
 Vinstance le Juif bénéficiaire n'ait pas le bout de
-5 A — Il serait préférable que cette attestation fût scellée
+A — Il serait préférable que cette attestation fût scellée
 si dun sceau officiel. Mais nous n'avons aucun sceau off-
 … — C'est vrai, dirent les assistants, effarés à la pensée
 soudaine qu'ils n'avaient aucun sceau officiel.
@@ -1624,7 +1544,7 @@ En Parfaitement, dit Dumanoir. Nous mettons à l'ordre
 d'un sceau officiel.
 — Mais comment pourrons-nous éviter les attesta74 tions fausses, dit le citoyen Bracqueur. Ce dernier avait
 net une peur épouvantable des faux depuis qu'il avait
-éprouvé que tous les faux de l'État Major n'avait servi «!
+éprouvé que tous les faux de l'État Major n'avait servi
 qu'à étayer les Preuves de Jaurès.
 - — Un des meilleurs moyens d'éviter les faux, dit Du-
 
@@ -1637,8 +1557,7 @@ néral du Parti socialiste francais. Nous exigerons que ï TE
 les attestations soient données sur ce papier. —Pas
 d'opposition? C'est entendu.
 — Attendez, dit le citoyen Dumanoir. Il ne suffit pas et
-d'avoir décidé. Il faut nommer. Comment nommerons-
-nous dans nos procès-verbaux les citoyens qui auront
+d'avoir décidé. Il faut nommer. Comment nommeronsnous dans nos procès-verbaux les citoyens qui auront
 obtenu l'attestation? ina a
 45 — Nous les avons nommés les citoyens bénéficiaires,
 dit froidement le citoyen Jacob Isaac. per
@@ -1646,8 +1565,7 @@ dit froidement le citoyen Jacob Isaac. per
 signature du citoyen bénéficiaire?
 — Les citoyens témoins, bien. Le citoyen membre du
 Comité général... n'ATR du.
-— Nous pouvons encore les nommer les citoyens par-
-rains, dit froidement le citoyen Jacob Isaac. Han
+— Nous pouvons encore les nommer les citoyens parrains, dit froidement le citoyen Jacob Isaac. Han
 Il faut que je te dise que le citoyen Jacob Isaac avait
 conçu l'ingénieux dessein d'emmener, comme on dit, lei:
 citoyen Dumanoir. Et le citoyen Dumanoir, ner; Du
@@ -1656,12 +1574,10 @@ Pol — Les citoyens parrains, bien. Le citoyen membre du
 te — Quand il y aura une citoyenne, recommençafroi- 4 FAX
 dement le citoyen Jacob Isaac, nous aurons le citoyen
 
-à — La citoyenne marraine. Entendu. Le citoyen mem-
-bre du Comité général...
+à — La citoyenne marraine. Entendu. Le citoyen membre du Comité général...
 — Il vaut mieux que ce soit toujours le même membre
 du Comité général qui soit préposé à la signature des,
-— Bien entendu. Comment nommerons-nous le ci-
-toyen membre du Comité général qui sera préposé
+— Bien entendu. Comment nommerons-nous le citoyen membre du Comité général qui sera préposé
 signature des attestations.
 à — Nous le nommons évidemment le citoyen garde
 des sceaux, dit Jacob Isaac.
@@ -1670,8 +1586,7 @@ le bout de papier, le billet?
 Isaac laissa dire.
 — Altestations de profession de foi, proposa Bracqueur, dont la langue s'embarrassait un peu.
 — Non, dit rapidement Dumanoir. Il y a trop de mots
-à en {ion là-dedans. Et le mot de foi est un mot catholi-
-que, un mot clérical. Nous ne pouvons pas. Il faut aussi
+à en {ion là-dedans. Et le mot de foi est un mot catholique, un mot clérical. Nous ne pouvons pas. Il faut aussi
 remplacer attestation, qui est lourd.
 à — Attestation de profession de foi socialiste, hasarda
 Te — Cela ne fait que souligner la relation cléricale.
@@ -1679,11 +1594,8 @@ Nous avons besoin d'un seul mot qui remplace profession de foi.
 — Confession, dit posément le citoyen Jacob Isaac.
 Nous nommons l'acte un billet de confession.
 « 1 Dumanoir soudain pâlit de colère. Il venait de s'aperA cevoir que tous les mots adoptés à l'instigation de
-Ne g'arde des sceaux étaient des mots éminement bour-
-
-douzième et dernier cahier de la première série
-geois et cléricaux. Profondément humilié d'avoir mar-
-ché, il dit vivement, balbutiant un peu:
+Ne g'arde des sceaux étaient des mots éminement bourdouzième et dernier cahier de la première série
+geois et cléricaux. Profondément humilié d'avoir marché, il dit vivement, balbutiant un peu:
 — Nous renvoyons à une séance ultérieure le choix +05
 définitif de tous ces vocables.
 On partait. Le citoyen Grados, qui ne suivait plus la
@@ -1702,8 +1614,7 @@ s'aperçurent que le citoyen Isaac leur avait jouéunmau …
 vais tour. Ils en furent très profondément vexés. Ilsfurent
 aussi très profondément vexés, et sincèrement surpris,
 de ce que, pour désigner une action bourgeoise et clé- de:
-ricale, on avait été naturellement conduit à des expres-
-sions cléricales et bourgeoises.
+ricale, on avait été naturellement conduit à des expressions cléricales et bourgeoises.
 Le citoyen Loyal aimait les affaires bien faites.
 Puisque nous passons un contrat avec les Juifs, dit-il,
 
@@ -1712,7 +1623,7 @@ positions que vous avez arrêtées me semblent sages,
 
 mais incomplètes. Vous avez négligé de fixer la durée
 de la validité de ce billet. Vous penserez avec moi
-qu'un an suffira, c'est-à-dire que les bénéficiaires auront …: 68)
+qu'un an suffira, c'est-à-dire que les bénéficiaires auront 68)
 
 à le renouveler tous les ans. Vous avez négligé de
 régler la question des duplicata. Vous penserez avec. t\)
@@ -1729,13 +1640,13 @@ Jelai perdu à l'hôtel de Notre-Dame du Bon-Secours
 . dans mon dernier voyage à Perpignan. — C'est
 fort bien. Je ne vous connais pas. Mais faites une
 br. demande en règle et dans six mois vous repasserez.
-3 Enfin vous avez négligé de prévoir le cas de force
+Enfin vous avez négligé de prévoir le cas de force
 a majeure: Un Juif est poursuivi à Versailles par une
 nue foule furieuse. Il est inadmissible qu'un brave citoyen,
 qu'un honorable militant, précieux au Parti, et dont la
 (Se perte serait irréparable, risque de se faire casser les
 reins pour subvenir à ce Juif. Ainsi vous penserez avec
-à, - moi que dans la motion que nous avons votée, après la
+- moi que dans la motion que nous avons votée, après la
 Autorité souveraine incontesiée du Comité général
 institué par les Congrès, avec pouvoir d'appel au proFA chain Congrès tous les ans pendant plusieurs jours;
 nous devons ajouter
@@ -1759,8 +1670,7 @@ Il faut que je te dise ici que ce M. Loyal, connu
 comme antisémite, avait reçu et recevait quelque
 argent des grands Juifs, ce qui l'encourageait à leuren.
 — Nous ne pouvons pas donner à ces Juifs ce qui
-nous aura coûté à fabriquer. Nous sommes des commer-
-çants comme eux. Ils doivent nous payer au moins le
+nous aura coûté à fabriquer. Nous sommes des commerçants comme eux. Ils doivent nous payer au moins le
 prix de revient, où je compte les frais généraux. Ils
 doivent enfin nous payer l'efficacité de la protection
 que nous leur accordons. Messieurs, continua-t-il,
@@ -1775,8 +1685,7 @@ en nous envoyant des documents et renseignements.
 Nous prions ceux de nos abonnés qui nous envoient des noms et adresses de vouloir bien prévenir
 eux-mêmes les personnes à qui, sur leur indication,
 nous envoyons les cahiers. Rien ne vaut la propagande
-Nous prions ceux de nos abonnés qui nous en-
-voient des documents et des renseignements de vouloir
+Nous prions ceux de nos abonnés qui nous envoient des documents et des renseignements de vouloir
 bien écrire très lisiblement et d'un seul côté de la page.
 Quand leurs études sont d'ensemble et un peu longues,
 les rédiger. Mais toutes les fois qu'ils nous
@@ -1792,8 +1701,7 @@ la rédaction
 ( Eine le jeudi soir de deux heures à sept heures et de
 Le vendredi matin de huit heures à onze heures.
 Adres: à M. André Bourgeois, administrateur des Lee
-cal iers, 16, rue de la Sorbonne, Paris, la corr'espon-
-fée d'administration: abonnements et réabonnements,
+cal iers, 16, rue de la Sorbonne, Paris, la corr'esponfée d'administration: abonnements et réabonnements,
 rectifications et changements d'adresse, cahiers manquants, mandats, indication de nouveaux abonnés.
 Adresser à M. Charles Péguy, gérant des cahiers,
 rédaction et d'institution. Toute correspondance d'administration adressée à M. Péguy pourrait entrainer pour

@@ -17,8 +17,7 @@ Notre camarade Anseele, député à la Chambre belge et un des
 socialistes les plus qualifiés du socialisme international, écrit
 des Gand, 14 juillet
 Laissez-moi, mon cher Millerand, vous féliciter pour
-votre courage d'avoir accepté le poste de combat au minis-
-tère dans les circonstances connues.
+votre courage d'avoir accepté le poste de combat au ministère dans les circonstances connues.
 La même Petite République avait donné les citations
 Le Voriwaerts publie le manifeste du Parti ouvrier français et du
 Parti socialiste révolutionnaire et le fait suivre des commentaires?
@@ -32,8 +31,7 @@ l'entrée de Millerand dans un ministère sans une décision
 
 de l'ensemble du parti, nous ne perdons pas l'espoir que les
 Ni antagonismes seront résolus par là.
-À L'Avanti de Rome, organe central du parti socialiste italien, con-
-sacre à la crise qui travaille en ce moment le socialisme français mis
+À L'Avanti de Rome, organe central du parti socialiste italien, consacre à la crise qui travaille en ce moment le socialisme français mis
 a un long article que nous traduisons presque en entier, laissant de
 4] côté seulement les citations empruntées au premier article de Jaurès
 "ru sur la question.!
@@ -76,8 +74,7 @@ défense républicaine, a cédé à une nécessité suprême créée
 par les événements, ou bien s'il a suivi seulement son ambition? Les guesdistes ne se soucient pas de rechercher
 cela: ils affirment qu'aucun socialiste ne peut aller au
 pouvoir sinon avec un gouvernement socialiste. Et puis,
-que leur importe un Dreyfus? Il est — écrivait il y a quel-
-ques jours Lafargue — un fils de la bourgeoisie et nous
+que leur importe un Dreyfus? Il est — écrivait il y a quelques jours Lafargue — un fils de la bourgeoisie et nous
 devons nous occuper des enfants du prolétariat dont beau- y
 coup souffrent autant que lui et plus que lui. Lutte de classe
 donc et dans sa signification la plus étroite: que chacun
@@ -106,8 +103,7 @@ pas de milieu et il est même à souhaiter que la décision
 soit claire et sans équivoque.
 Pour ce qui concerne notre opinion, il n'y a pas de doute
 possible. Sans vouloir nous octroyer le droit d'intervenir
-en qualité de juges dans les différends des socialistes fran-
-çais.. nous sommes pour la participation du prolétariat
+en qualité de juges dans les différends des socialistes français.. nous sommes pour la participation du prolétariat
 toutes les luttes politiques, à tous les grands conflits
 sociaux qui se préparent en Europe.
 
@@ -148,9 +144,7 @@ en silence cette armée nouvelle, l'histoire doit s'arrêter?
 Non, elle continue sa marche. Les passions politiques
 s'entrechoquent autant qu'avant, les grands conflits nationaux et sociaux éclatent aussi fréquents qu'avant.
 
-Et nous, avec notre armée de prolétaires, nous ne pou-
-
-vons demeurer avec les armes au pied en attendant que
+Et nous, avec notre armée de prolétaires, nous ne pouvons demeurer avec les armes au pied en attendant que
 prenne fin la lutte des autres et que nos ennemis, avertis de
 notre présence, contractent une alliance entre eux. Au contraire, il faut que cette alliance n'ait lieu que bien tard et,
 s'il est possible, jamais. Il faut, dans l'intérêt de la civilisation, que la bourgeoisie qui lutte pour Dreyfus ne soit pas
@@ -206,9 +200,7 @@ libre développement social — comme on aime la lumière,
 
 Citoyen, faites tous les sacrifices, faites tous les actes
 d'abnégation, et vous aurez conservé, même aux socialistes
-intransigeants qui vous blàment, le moyen de réaliser gra-
-
-duellement ce qu'il y a de réalisable dans leur idéal, qui
+intransigeants qui vous blàment, le moyen de réaliser graduellement ce qu'il y a de réalisable dans leur idéal, qui
 est aussi le nôtre.
 
 Je suis probablement un inconnu pour vous, mais j'ai
@@ -247,8 +239,7 @@ pour le même idéal, forment bloc contre la réaction etne
 donnent pas, à nos adversaires, le spectacle de leurs divisions.
 Sachant que c'est votre plus cher désir, nous sommes fra- … ne
 ternellement à vous,
-manque la signature de cinq députés socialistes qui n''assis-
-taient pas, mercredi, à la séance de la Chambre.;
+manque la signature de cinq députés socialistes qui n''assistaient pas, mercredi, à la séance de la Chambre.;
 
 La Petite République du jeudi 17 août publiait la note
 Des Militants Socialistes sur l'Affaire Dreyfus et la participation
@@ -278,14 +269,12 @@ de la puissance ministérielle par le parti socialiste?
 . Il nous semble qu'il y a le plus haut intérêt à ce que
 ces questions soient examinées à fond par le prolétariat
 
-français, avant la tenue du Congrès, et nous avons pro-
-jeté d'ouvrir là-dessus une libre et amicale consultation, auprès de nos amis de France et des autres
+français, avant la tenue du Congrès, et nous avons projeté d'ouvrir là-dessus une libre et amicale consultation, auprès de nos amis de France et des autres
 pays:
 
 Il nous paraît, en effet, que les questions posées ont
 un intérêt international et qu'il serait bon, pour les
-résoudre, d'avoir les lumières du socialisme interna-
-tional. Nous vous serons donc très reconnaissants
+résoudre, d'avoir les lumières du socialisme international. Nous vous serons donc très reconnaissants
 de nous adresser sur ce sujet une lettre ou un article
 que nous publierons intégralement dans la Petite Répu-
 
@@ -299,8 +288,7 @@ Suède et Norvège. — Ludwig Meyer.
 Recevez, cher citoyen, nos salutations fraternelles,
 
 Une lettre de Bebel
-Nous avons déjà reçu quelques réponses que nous publierons tra-
-duites avec une fidélité servile. Voici en quels termes notre éminent
+Nous avons déjà reçu quelques réponses que nous publierons traduites avec une fidélité servile. Voici en quels termes notre éminent
 ami Bebel nous annonce la sienne
 
 J'enverrai lundi ma réponse aux questions que vous n'avez posées. Je ne suis pas de votre avis sur tous les points,
@@ -341,8 +329,7 @@ La Petite République du lundi 28 août publiait la
 Adresse des députés socialistes italiens à Jean Jaurés Fa)
 Le groupe parlementaire socialiste s'est réuni aujourd'hui
 pour la direction du parti. Il vousenvoie et, par votre entre:
-mise, envoie aussi aux camarades du parti socialiste fran-
-çais l'expression de sa solidarité enthousiaste dans lalutte
+mise, envoie aussi aux camarades du parti socialiste français l'expression de sa solidarité enthousiaste dans lalutte
 noble et courageuse engagée, avec conscience révolution nt,
 souhaite qu'à celle-ci soit assurée la victoire définitive.
 Le secrétaire du groupe parlementaire socialiste dE sie
@@ -405,12 +392,9 @@ classes s'oppose-t-il absolument et dans tous les cas à la
 prise de possession partielle de la puissance ministérielle
 par le parti socialiste?
 
-Cette grave question, qui gagnera chaque jour plus d'im-
-
-portance dans les luttes de notre temps, ne peut recevoir
+Cette grave question, qui gagnera chaque jour plus d'importance dans les luttes de notre temps, ne peut recevoir
 une réponse générale. Il faudrait examiner chaque cas spé- à
-cial, d'après le pays, le développement économique, l'his-
-toire parlementaire et la lutte actuelle des classes, en un
+cial, d'après le pays, le développement économique, l'histoire parlementaire et la lutte actuelle des classes, en un
 mot d'après les forces en conflit.
 La question est tellement compliquée et demande la com-:
 paraison de circonstances si diverses, que dans chaque
@@ -424,8 +408,7 @@ militarisme livrent un assaut furieux à chaque velléité de
 progrès, le devoir du socialiste est de s'emparer autant que
 possible des pouvoirs publics.
 Les réformes eflicaces de notre programme minimum ne +04
-seront réalisées qu'au moment où les socialistes dispose-
-ront au moins en partie du pouvoir gouvernemental.
+seront réalisées qu'au moment où les socialistes disposeront au moins en partie du pouvoir gouvernemental.
 Qui veut la fin, doit vouloir les moyens. Dans beaucoup
 de cas, de plus en plus fréquents, il sera de notre devoir
 non seulement d'entrer dans les:conseils communaux et
@@ -438,10 +421,8 @@ ouvriers, que nous deviendrons la classe dirigeante dans la
 société et que nos idées régneront dans l'Etat.
 Nous deyrons d'abord donner des preuves de capacité,
 montrer une honnêteté au-dessus de tout soupçon, et pour Ne,
-cela il faut que les nôtres exercent le pouvoir et le parta-
-gent temporairement avec d'autres partis. Me
-Si en prenant une des rênes du gouvernement nous gardons pur l'idéal socialiste, nous restons fidèles à ses prin-
-cipes sans compromis ni transigeance; si alors, restant
+cela il faut que les nôtres exercent le pouvoir et le partagent temporairement avec d'autres partis. Me
+Si en prenant une des rênes du gouvernement nous gardons pur l'idéal socialiste, nous restons fidèles à ses principes sans compromis ni transigeance; si alors, restant
 sur le terrain de la lutte des classes, nous nous montrons
 ennemis des riches et amis des déshérités, si alors nous
 luttons sans relâche au nom du socialisme contre le régime (YU
@@ -478,8 +459,7 @@ la révolution.
 Il fallait des actes; la critique ne pouvait plus suflire, il
 était urgent de prouver que les socialistes savent non seulement démolir mais sont aussi capables de jeter les fondements d'un pouvoir nouveau.
 
-Une réorganisation politique et économique devra pré-
-céder l'avènement du socialisme, le temps est venu de
+Une réorganisation politique et économique devra précéder l'avènement du socialisme, le temps est venu de
 faire les premiers essais et de briser les chaînes qui pourraient entraver la marche en avant.
 
 Le pouvoir politique menaçait de tomber aux mains de
@@ -489,8 +469,7 @@ laquelle on faisait obstacle.
 
 Plus grand sera notre pouvoir dans l'État, plus grands
 seront les résultats qu'on obtiendra.
-Trop faibles encore pour imposer la volonté du proléta-
-riat, nous devons accepter tout ce qui peut améliorer la
+Trop faibles encore pour imposer la volonté du prolétariat, nous devons accepter tout ce qui peut améliorer la
 situation de la classe ouvrière, augmenter ses droits, agran- (es
 dir sa puissance. « Accepter le progrès le plus minime quand
 il est seul possible » (Vaillant) est souvent notre devoir,
@@ -499,8 +478,7 @@ elle n'a entravé que trop longtemps le mouvement ouvrier
 en marche vers la victoire.
 
 Si c'est possible, nous devons éviter la révolution violente
-en favorisant par des réformes eflicaces et continues l'évolu-
-tion politique et sociale du genre humain.
+en favorisant par des réformes eflicaces et continues l'évolution politique et sociale du genre humain.
 Et si on veut des réformes sérieuses, il faudra, dans la
 mesure des moyens, saisir le pouvoir, poser des actes,
 montrer des résultats. La force de recrutement du parti ee.
@@ -510,8 +488,7 @@ voriser la venue de l'ère nouvelle. sa
 
 Nous devons être la force motrice dans la rue et dans les
 Parlements, dans les fabriques conme dans les ministères,
-aller de l'avant partout et toujours, mettre le levain socia-
-liste dans chaque loi, dans tout acte de pouvoir où nous (4
+aller de l'avant partout et toujours, mettre le levain socialiste dans chaque loi, dans tout acte de pouvoir où nous (4
 pourrons faire agir notre influence. Il y a un long chemin
 à parcourir, ce n'est que pas à pas qu'on pourra avancer Eee
 dans le terrain ennemi, mais on ne doit jamais hésiter à
@@ -520,12 +497,9 @@ C'est malgré eux qu'ils subissent notre présence, signe
 certain de leur affaiblissement, présage heureux de notre
 
 En plantant fièrement au Parlement le drapeau rouge du
-prolétariat, en faisant pénétrer l'esprit et la politique pro-
-létariens dans les palais bourgeois, nous ferons œuvre diffi-
-cile, mais utile et inévitable. Le combat sera dur et sans
+prolétariat, en faisant pénétrer l'esprit et la politique prolétariens dans les palais bourgeois, nous ferons œuvre difficile, mais utile et inévitable. Le combat sera dur et sans
 trêve, peut-être succomberons-nous dans la lutte, mais nous
-garderons intacts l'esprit et les principes socialistes en ac-
-complissant notre devoir.
+garderons intacts l'esprit et les principes socialistes en accomplissant notre devoir.
 Puisse le Congrès national socialiste français, qui formera ant
 la cour suprême dans cette question de tactique, appuyer
 
@@ -542,9 +516,7 @@ ment acceptée nous auront rendus unis et forts.
 
 La Petite République du samedi 16 septembre publiait la réponse de Bebel
 
-Le citoyen Bebel, député au Reichstag allemand, dont nous pu-
-
-blions aujourd'hui la réponse, est un des représentants les plus
+Le citoyen Bebel, député au Reichstag allemand, dont nous publions aujourd'hui la réponse, est un des représentants les plus
 autorisés, une des gloires, devrions-nous dire, de la démocratie so-
 
 Retracer la vie de Bebel, c'est faire l'histoire du mouvement socialiste allemand, Entré au parti il y a trente et quelques années,
@@ -581,12 +553,9 @@ lois qui règlent les élections aux assemblées législatives, etc.
 C'est cet état de choses lamentable à la multiplicité
 des États qui crée le plus d'embarras au parti.
 l'exception du Wurtemberg, aucun État allemand ne
-possède le suffrage universel égal et direct; les lois électo-
-rales des États allemands présentent une collection de dis-
-positions les plus absurdes et les plus insensées, ayant
+possède le suffrage universel égal et direct; les lois électorales des États allemands présentent une collection de dispositions les plus absurdes et les plus insensées, ayant
 toutes un but, celui d'exclure la classe ouvrière de toute
-représentation politique. La même situation que nous con-
-statons pour les assemblées législatives existe aussi pour la
+représentation politique. La même situation que nous constatons pour les assemblées législatives existe aussi pour la
 Dans leur tendance naturelle à acquérir de la puissance.
 et de l'influence dans ces assemblées, les membres du parti
 ont conclu en vue des élections, dans plusieurs de ces États,.
@@ -691,8 +660,7 @@ disposait. C'est malgré Dreyfus que sa cause est devenue
 Je ne cache pas que l'immense majorité des camarades
 allemands n'a pas comprendre, et ne comprend pas encore, comment dans l'affaire Dreyfus le parti socialiste
 
-En supposant que le cas Dreyfus avec toutes ses consé-
-quences, au lieu de se produire en France, se fût produit en
+En supposant que le cas Dreyfus avec toutes ses conséquences, au lieu de se produire en France, se fût produit en
 Allemagne, il n'y a pas de doute qu'en faveur de Dreyfus
 l'ensemble de la démocratie socialiste allemande serait in-
 -tervenue unanimement, avec à sa tète Liebknecht.
@@ -711,8 +679,7 @@ n'est susceptible d'abandonner: le militarisme, le « marinisme les impôts indi
 de l'Église, la façon dont sont dirigées les affaires étrangères et coloniales, l'usage qui est fait de l'administration, etc.
 Ensuite, donnant lieu à des divergences profondes, les revendications relatives à la protection ouvrière et aux ré-
 La question de savoir si un socialiste peut entrer dans
-un gouvernement bourgeois ne peut être prise en considé-
-ration que dans les États qui sont;des démocraties pures,
+un gouvernement bourgeois ne peut être prise en considération que dans les États qui sont;des démocraties pures,
 comme la Suisse, ou dans les États gouvernés parlementairement, c'est-à-dire dans lesquels le chef de l'État est
 toujours forcé de prendre ses ministres dans la majorité parlementaire du moment. Ne peuvent être comptés parmi ces
 Etats ni l'Empire allemand, ni les différents États allemands.
@@ -720,18 +687,15 @@ domine encore, malgré la représentation populaire par- 1]
 lementaire, la volonté du prince régnant, qui choisit ses
 ministres d'après son propre jugement et sans tenir compte
 de la majorité parlementaire.
-Admettons maintenant le cas où dans un État parlemen-
-taire existe une majorité socialiste à la Chambre. Alors les
-socialistes seraient naturellement obligés de prendre le gou-
-vernement. Leur devoir serait de manier le pouvoir dans
+Admettons maintenant le cas où dans un État parlementaire existe une majorité socialiste à la Chambre. Alors les
+socialistes seraient naturellement obligés de prendre le gouvernement. Leur devoir serait de manier le pouvoir dans
 le sens de la majorité du peuple qu'ils auraient derrière eux de
 et de transformer l'État et la société.
 Mais la question se présente sous un jour différent: Un
 socialiste entre dans un ministère dont la grande majorité
 est la représentation de partis bourgeois, parce que la majo-?
 rité parlementaire est essentiellement composée de ces
-Un gouvernement doit être, en principe, composé d'élé-
-ments homogènes, ou il n'est pas un gouvernement. Un
+Un gouvernement doit être, en principe, composé d'éléments homogènes, ou il n'est pas un gouvernement. Un
 gouvernement qui est divisé sur toutes les questions importantes ne peut pas gouverner longtemps. Un ministre
 socialiste, auquel ses camarades du parti doivent demander
 d'agir selon ses propres convictions, entrera forcément en
@@ -744,8 +708,7 @@ sérieuses il sera en guerre permanente avec ses collègues.
 Pour ces raisons, un socialiste ne pourra devenir dans un
 ministère bourgeois ni ministre de la guerre, ni ministre de
 la marine, ni ministre des cultes, ni ministre de l'intérieur
-ou des affaires étrangères. On lui donnera la place dans la-
-quelle il sera le moins nuisible.
+ou des affaires étrangères. On lui donnera la place dans laquelle il sera le moins nuisible.
 
 Une considération s'y ajoute. Un parti qui a un ministre
 dans un gouvernement est lié par rapport à l'ensemble de
@@ -768,17 +731,12 @@ plaisir au socialiste qui en fait partie: alors il commet une
 trahison à l'égard de ses principes, il provoque le gâchis
 et la division dans ses propres rangs et se détruit luimême.
 
-La question se présenterait sous un aspect un peu diffé-
-rent au cas où la majorité parlementaire serait composée
+La question se présenterait sous un aspect un peu différent au cas où la majorité parlementaire serait composée
 de socialistes et de bourgeois radicaux disposés à marcher
 la main dans la main pour réaliser les revendications que
 nous réclamons de l'État et de la société actuelle. Mais un
 tel parti radical n'existe ni en France ni ailleurs, et, par
-conséquent, nous n'avons pas à nous occuper de cette éven-
-
-tualité. D'autant plus que c'est un fait acquis que les bour-
-
-geois radicaux deviennent partout d'autant plus réaction- LAS
+conséquent, nous n'avons pas à nous occuper de cette éventualité. D'autant plus que c'est un fait acquis que les bourgeois radicaux deviennent partout d'autant plus réaction- LAS
 
 naires que la démocratie socialiste devient plus puissante. Me,
 
@@ -790,8 +748,7 @@ l'affaire Dreyfus dans le sens conforme à la justice et
 Il faut reconnaître que, dans ce cas, la question se pré- 0304
 sente un peu différemment. Mais le même butne pourrait-il;
 pas être atteint sans que Millerand entràt au ministère?
-Lorsque les socialistes déclarent à la Chambre: Nous sou-
-tiendrons un gouvernement qui promette d'intervenir pour "2030
+Lorsque les socialistes déclarent à la Chambre: Nous soutiendrons un gouvernement qui promette d'intervenir pour "2030
 faire respecter la justice et la loi dans l'affaire Dreyfus, le
 
 résultat cherché était pleinement atteint. Te
@@ -804,9 +761,7 @@ discussions qui ont suivi son entrée au ministère nous “4 bai
 paraît plus grand que les avantages qu'on peut en tirer. En
 aucun cas, il n'aurait accepter son portefeuille sans le
 
-Et maintenant comment faut-il envisager l'entrée d'un so-
-
-cialiste au gouvernement dans un État démocratique? On a
+Et maintenant comment faut-il envisager l'entrée d'un socialiste au gouvernement dans un État démocratique? On a
 indiqué dans la presse socialiste allemande au sujet du cas
 Millerand que nos camarades suisses ont déjà donné
 
@@ -832,27 +787,21 @@ haute (Sénat); le gouvernement cantonal n'a pas non plus
 conseils cantonaux, mais il est élu pour un temps déterminé
 par le peuple.
 
-La démocratie socialiste dispose donc dans le gouverne-
-ment d'autant de force qu'elle peut en conquérir aux élec-
-tions. Si celui qui a été élu membre du gouvernement ne
+La démocratie socialiste dispose donc dans le gouvernement d'autant de force qu'elle peut en conquérir aux élections. Si celui qui a été élu membre du gouvernement ne
 remplit pas son devoir et la tâche que l'on attendait de lui,.
-il ne sera plus réélu. Les conditions sont donc essentielle-
-
-ment différentes de celles que présentent la France etles
+il ne sera plus réélu. Les conditions sont donc essentiellement différentes de celles que présentent la France etles
 - autres pays. Je suis donc forcé de répondre à votre deuxième
 question de la façon suivante
 Je considère comme une erreur et une cause de désorganisation pour le parti l'entrée d'un socialiste dans le gouver- à
 nement d'un État parlementaire
 
 Que pour une tâche spéciale, un socialiste entre dans un
-ministère, je considère cela comme très délicat et ne pou-
-vant être admis qu'avec le consentement du parti.
+ministère, je considère cela comme très délicat et ne pouvant être admis qu'avec le consentement du parti.
 La question se présente sous un autre aspect dans les
 démocraties où les ministres sont élus et où, par conséquent,
 l'élu est le mandataire Vertrauensmann) du parti.
 La Petite République du jeudi 21 septembre publiait ‘#0
-Émile Vandervelde, avocat à la Cour d'appel de Bruxelles, repré-
-sente le collège électoral de Charleroi à la Chambre des députés de 137200
+Émile Vandervelde, avocat à la Cour d'appel de Bruxelles, représente le collège électoral de Charleroi à la Chambre des députés de 137200
 Tous les lecteurs de la Petite République connaissent notre ami et mie
 tous nous ont gré d'avoir souvent publié, dans nos colonnes, ses
 communications. Elles seraient plus fréquentes si les nécessités de la AS URR
@@ -905,9 +854,7 @@ vernement des cantons n'est pas pris dans la majorité des
 conseils cantonaux, mais il est élu pour un temps déterminé
 par le peuple.
 
-La démocratie socialiste dispose done dans le gouverne-
-ment d'autant de force qu'elle peut en conquérir aux élec-
-tions. Si celui qui a été élu membre du gouvernement ne
+La démocratie socialiste dispose done dans le gouvernement d'autant de force qu'elle peut en conquérir aux élections. Si celui qui a été élu membre du gouvernement ne
 remplit pas son devoir et la tâche que l'on attendait de lui,
 
 il ne sera plus réélu. Les conditions sont done essentielle- à
@@ -926,8 +873,7 @@ démocraties où les ministres sont élus et où, par conséquent, es par
 l'élu est le mandataire /Vertrauensmann) du parti. Modernes,
 La Petite République du jeudi 21 septembre publiait
 la réponse de Vandervelde:
-Émile Vandervelde, avocat à la Cour d'appel de Bruxelles, repré-
-sente le collège électoral de Charleroi à la Chambre des députés de
+Émile Vandervelde, avocat à la Cour d'appel de Bruxelles, représente le collège électoral de Charleroi à la Chambre des députés de
 Tous les lecteurs de la Petite République connaissent notre ami et,
 tous nous ont gré d'avoir souvent publié, dans nos colonnes, ses #4]
 communications. Elles seraient plus fréquentes si les nécessités de la
@@ -1008,8 +954,7 @@ a toutes les gradations, toutes les transitions possibles?
 Dès l'instant où l'on admet que, dans certains cas, l'intérêt
 de la démocratie socialiste exige que l'on ait recours à des
 compromis, des alliances, des coalitions, il devient impossible de soutenir, a priori, que jamais, en aucun cas, et
-quoi qu'il arrive, les socialistes ne doivent prendre « pos-
-session, partiellement, de la puissance ministérielle ».
+quoi qu'il arrive, les socialistes ne doivent prendre « possession, partiellement, de la puissance ministérielle ».
 Des circonstances exceptionnelles peuvent exiger des
 
 Mais, ces réserves faites, je dois ajouter qu'en règle
@@ -1018,8 +963,7 @@ taires socialistes dans un gouvernement bourgeois, si démocratique qu'il puisse
 Le peu de bonnes choses qu'ils pourraient y faire ne
 compenseraient pas la somme des choses mauvaises dont
 forcément ils devraient se rendre solidaires.
-En supposant que — dans un pays donné — la souverai-
-neté parlementaire appartienne à une coalition de radicaux
+En supposant que — dans un pays donné — la souveraineté parlementaire appartienne à une coalition de radicaux
 et de socialistes, nous serions beaucoup plus forts en soutenant condilionnellement un ministère de radicaux qu'en
 nous compromettant avec eux dans l'exercice du pouvoir.
 
@@ -1028,8 +972,7 @@ nécessaire pour gouverner, au nom de ses principes, il ne
 doit pas — sauf en des cas exceptionnels — participer
 une action gouvernementale qui se fonde sur des principes
 
-Avec mes vœux les plus ardents pour que l'union socia-
-liste triomphe dans votre prochain Congrès, et assure le
+Avec mes vœux les plus ardents pour que l'union socialiste triomphe dans votre prochain Congrès, et assure le
 succès du Congrès international de 1900, je suis fraternellement vôtre.
 
 La Petite République du vendredi 22 septembre publiait
@@ -1065,13 +1008,10 @@ diverses fractions bourgeoises, toutes les fois qu'il le trouvera utile pour les
 Mais cette intervention ne saurait être utile aux intérêts du
 
 mouvement révolutionnaire, et ne devrait avoir lieu, que
-dans les cas où elle pourrait rendre plus active et plus énergique la lutte entre la bourgeoisie — c'est-à-dire les posses-
-seurs des moyens de production — d'un côté, et le proléta-
-riat — c'est-à-dire la classe exploitée par les possesseurs de
+dans les cas où elle pourrait rendre plus active et plus énergique la lutte entre la bourgeoisie — c'est-à-dire les possesseurs des moyens de production — d'un côté, et le prolétariat — c'est-à-dire la classe exploitée par les possesseurs de
 ces moyens — de l'autre.
 Pour que la lutte entre la bourgeoisie et le prolétariat
-devienne plus active et plus énergique, il faut que le prolé-
-tariat soit de plus en plus pénétré par la conscience de l'antagonisme de ses intérêts avec ceux de ses exploiteurs. La
+devienne plus active et plus énergique, il faut que le prolétariat soit de plus en plus pénétré par la conscience de l'antagonisme de ses intérêts avec ceux de ses exploiteurs. La
 conscience révolutionnaire du prolétariat, c'est la terrible
 dynamite des socialistes qui fera sauter la société actuelle.
 Tout ce qui rend cette conscience plus nette qu'elle n'a été
@@ -1087,8 +1027,7 @@ aurait pour conséquence l'affaiblissement de la conscience
 révolutionnaire du prolétariat. Je sais pourtant qu'il n'y a
 pas de règle sans exception et que tout principe conçu d'une
 façon absolue devient par cela même métaphysique. J'admets donc la possibilité des cas exceptionnels où le parti
-socialiste se verrait forcé de faire entrer un de ses repré-
-sentants dans un ministère bourgeois, mais c'est toujours
+socialiste se verrait forcé de faire entrer un de ses représentants dans un ministère bourgeois, mais c'est toujours
 au parti tout entier et non pas à tel ou tel de ses membres
 pris individuellement qu'appartient le droit de se prononcer
 dans de pareils cas. Il faut ajouter aussi et bien noter que
@@ -1102,8 +1041,7 @@ C'est lui qui a arraché les travailleurs socialistes de la péninsule aux
 erreurs et aux incohérences de la théorie et de la tactique anarchiste etles a amenés à se grouper pour une action concertée sur le
 terrain de la lutte de classe.
 
-Publiciste à la plume acerbe, il mène avec vigueur dans Socia-
-lista la lutte contre le capitalisme et ses suppôts, le militarisme et le”
+Publiciste à la plume acerbe, il mène avec vigueur dans Socialista la lutte contre le capitalisme et ses suppôts, le militarisme et le”
 cléricalisme. Orateur à la parole entraînante et chaude, il multiplie
 les meetings et les réunions sur la surface entière de l'Espagne.
 
@@ -1121,9 +1059,7 @@ du prolétariat de la conscience de ses intérêts, en tout ce
 qui amène l'organisation et une plus grande liberté pour
 travailler à la disparition du régime bourgeois.
 
-Je crois que l'intervention dans l'affaire Dreyfus était né-
-
-cessaire afin de combattre les courants réactionnaires qui y
+Je crois que l'intervention dans l'affaire Dreyfus était nécessaire afin de combattre les courants réactionnaires qui y
 étaient impliqués. Cependant je suis aussi d'avis que quelques-uns parmi les socialistes qui ont participé à l'agitation
 sont allés plus loin qu'ils ne devaient, en lui donnant une
 
@@ -1149,8 +1085,7 @@ nous adresse les lignes ci-dessous, et de fait notre vaillant camarade
 a déjà passé la moitié de son existence soit en exil sur la terre de
 France, soit dans les geôles du roi Humbert.
 Éloquent, actif, infatigable, par-dessus tout homme d'organisation,
-Andrea Costa cumule les fonctions de député avec celles de secré-
-taire du parti socialiste italien.
+Andrea Costa cumule les fonctions de député avec celles de secrétaire du parti socialiste italien.
 Prison de Imola (Italie), septembre
 C'est ici, en prison, où je me trouve depuis le 1° juillet
 et où je resterai une quarantaine de jours encore pour y
@@ -1177,14 +1112,12 @@ sinon le plus autorisé, du socialisme scientifique. Sociologue d'une
 
 renommée européenne, Ferri était professeur à l'Université de Pise -
 quand, en 1893, il adhéra publiquement au socialisme et se vit pour
-ce fait révoqué par le gouvernement, Depuis, il n'a cessé de poursuivre la lutte sur tous les terrains contre la classe capitaliste. Confé-
-rencier, publiciste, orateur, il est presque aussi connu à Paris et
+ce fait révoqué par le gouvernement, Depuis, il n'a cessé de poursuivre la lutte sur tous les terrains contre la classe capitaliste. Conférencier, publiciste, orateur, il est presque aussi connu à Paris et
 Bruxelles qu'à Rome ou à Florence. Enrico Ferri représente à la
 Chambre italienne la circonscription de Mantoue.
 
 Pour donner une réponse aux deux questions qui agitent
-maintenant les différents groupes du parti socialiste fran-
-çais, il faut d'abord s'entendre sur ce que c'est que le socialisme, en tant qu'il est le programme et la boussole d'un
+maintenant les différents groupes du parti socialiste français, il faut d'abord s'entendre sur ce que c'est que le socialisme, en tant qu'il est le programme et la boussole d'un
 
 J'entends par socialisme la doctrine, en même temps sociologique et politique, que Marx surtout a établie dans ses
 lignes fondamentales en accord complet (et c'est sa force)
@@ -1193,8 +1126,7 @@ contemporaine, qui du transformisme universel (évolution) et du transformisme b
 
 La doctrine marxiste n'est pas, naturellement, le produit
 immuable d'une intelligence surhumaine; elle est — comme
-toute autre doctrine scientifique — susceptible de développement et de correction, tout en restant positive et iné-
-branlable dans ses lignes fondamentales.
+toute autre doctrine scientifique — susceptible de développement et de correction, tout en restant positive et inébranlable dans ses lignes fondamentales.
 
 Le fait et l'induction du surtravail (salariat) comme effet
 inséparable de la forme capitaliste de la propriété privée,
@@ -1202,16 +1134,13 @@ qui est la grande découverte marxiste sur le terrain technique de l'économie p
 constitution du prolétariat en parti de classe, foncièrement
 opposé à tous les partis bourgeois, quelle que soit leur nuance.
 
-L'inévitabilité de la socialisation des moyens de produc-
-
-tion et de travail — comme processus naturel et évolutif de
+L'inévitabilité de la socialisation des moyens de production et de travail — comme processus naturel et évolutif de
 de la société bourgeoise — constitue la donnée sociologique
 fondamentale et partant la boussole du prolétariat, en tant
 que parti politique.
 
 Enfin, ce qu'on appelle le matérialisme historique et que
-je préfère appeler déterminisme économique est la bous-
-sole scientifique pour voir clair et loin dans la mêlée des
+je préfère appeler déterminisme économique est la boussole scientifique pour voir clair et loin dans la mêlée des
 faits sociaux et politiques, dans ce sens que — ainsi que
 dans la vie psychologique les sensations sont la base déterminante de tout autre phénomène, tel que les sentiments
 et les idées — de même dans la vie sociale les conditions
@@ -1315,31 +1244,22 @@ révolution totale et monolithique, mais participer à l'administration privée 
 œuvres pies, etc.), pour apprendre à connaitre et régler la
 réalité des choses sociales. Mais ils doivent toujours le
 faire en vue et au nom de l'idéal socialiste (lutte de classe
-et propriété collective). Autrement ils s'atrophient et dégé-
-nèrent dans le réformisme stérile, en perdant toute force
+et propriété collective). Autrement ils s'atrophient et dégénèrent dans le réformisme stérile, en perdant toute force
 révolutionnaire de régénération sociale et humaine.
 
-Vis-à-vis de la misère, par exemple, on peut prendre l'at-
-
-titude de la bienfaisance (réformisme) ou bien de la socia-
-
-lisation des moyens de production (révolution sociale).
+Vis-à-vis de la misère, par exemple, on peut prendre l'attitude de la bienfaisance (réformisme) ou bien de la socialisation des moyens de production (révolution sociale).
 
 Et vis-à-vis d'un homme qui a faim, le réformiste et le
 révolutionnaire peuvent accomplir le même acte (par
 exemple en lui donnant à manger), mais pour le réformiste
-ce secours est La fin de son activité; pour le révolution-
-
-naire il n'en est que le commencement.
+ce secours est La fin de son activité; pour le révolutionnaire il n'en est que le commencement.
 
 Le parti socialiste approuve et accepte les réformes compatibles avec le régime bourgeois (par exemple les huit
 heures, la coopération, la pension aux invalides du travail,
 etc.) mais en les prenant toujours comme station de départ
 vers l'idéal socialiste, au lieu de les prendre comme station
 d'arrivée à l'amélioration de la société actuelle, réformée
-dans les détails, mais conservée sur ses bases fondamen-
-
-tales (propriété privée et, partant, domination de classe).
+dans les détails, mais conservée sur ses bases fondamentales (propriété privée et, partant, domination de classe).
 
 Et alors: peuvent-ils, les socialistes, aller au gouvernement de l'État de même qu'ils vont à l'administration
 d'une commune?
@@ -1495,19 +1415,14 @@ Il y a plus: Avant d'aboutir à l'idéal, nous devons pas-
 
 - ser par une période de transition et de préparation. C'est
 
-pourquoi tous les partis socialistes, à côté de leurs déclara-
+pourquoi tous les partis socialistes, à côté de leurs déclarations de principes, ont rédigé un programme de réformes
 
-tions de principes, ont rédigé un programme de réformes
-
-Le but, c'est de rendre les hommes plus heureux, maté-
-riellement, et meilleurs, moralement.
+Le but, c'est de rendre les hommes plus heureux, matériellement, et meilleurs, moralement.
 
 Ce résultat peut être obtenu, en grande partie, par l'action du gouvernement, par une législation plus juste et
 plus humaine.
 
-Et alors se pose cette question: cette œuvre d'améliora-
-
-tion matérielle et morale de la condition des masses populaires ne peut-elle être entreprise que lorsque le parti socialiste sera majorité, ou doit-elle être secondée et activée
+Et alors se pose cette question: cette œuvre d'amélioration matérielle et morale de la condition des masses populaires ne peut-elle être entreprise que lorsque le parti socialiste sera majorité, ou doit-elle être secondée et activée
 par le concours du parti socialiste, prenant part, pour une
 partie seulement, à la constitution d'un gouvernement?
 Refuser d'entrer dans un ministère non complètement
@@ -1539,9 +1454,7 @@ admirables. Die Neue Zeit a conquis une notoriété universelle. Les
 socialistes du monde entier y collaborent. Dans ses nombreux écrits
 il vulgarise et développe les idées de Marx et de Engels. Son ouvrage
 
-sur la question agraire marque une date dans la littérature socia-
-
-liste. Son dernier livre, destiné à un grand suecès, combat avec
+sur la question agraire marque une date dans la littérature socialiste. Son dernier livre, destiné à un grand suecès, combat avec
 
 vigueur les tendances opportunistes de Bernstein.
 
@@ -1575,9 +1488,7 @@ conception étroite de la lutte de classe, d'après laquelle le
 prolétariat ne devrait se soucier que de ses intérêts particuliers et non pas aussi des intérêts généraux de l'évolution
 sociale. Mais ces deux penseurs étaient, au contraire, d'avis
 que les deux catégories d'intérêts étaient liées de la façon
-la plus intime et que le prolétariat devait participer énergi-
-
-quement à toute lutte intéressant le progrès social, même
+la plus intime et que le prolétariat devait participer énergiquement à toute lutte intéressant le progrès social, même
 
 dans le cas où aucun intérêt prolétarien ne serait directe-
 
@@ -1604,8 +1515,7 @@ L'intervention des partis socialistes dans les luttes intestines de la bourgeois
 sont plus puissants, car leur neutralité apparente devient
 en fait, dans la même mesure, une protection des éléments
 
-C'est un fait désagréable, mais inévitable, que la crois-
-sance des partis socialistes s'effectue au détriment du
+C'est un fait désagréable, mais inévitable, que la croissance des partis socialistes s'effectue au détriment du
 radicalisme bourgeois; car ce sont précisément les couches
 populaires où la démocratie bourgeoise recrute ses éléments
 les plus énergiques qui sont les plus accessibles à la propagande socialiste. Et, au fur et à mesure que les prolétaires
@@ -1614,17 +1524,13 @@ pour la démocratie bourgeoise; ils commencent à avoir
 peur du prolétariat et deviennent réactionnaires. En même
 temps que le socialisme, croît la réaction.
 
-De cette façon les partis bourgeois radicaux s'affai-
-
-blissent et s'effritent des deux côtés par suite des progrès
+De cette façon les partis bourgeois radicaux s'affaiblissent et s'effritent des deux côtés par suite des progrès
 de la propagande socialiste et deviennent de plus en plus
 incapables de remplir leur rôle historique. Mais, si les
 socialistes affaiblissent par leur propagande la démocratie
 bourgeoise et en même temps restent à l'écart dans les
 luttes de celle-ci contre la réaction croissante, qu'est-ce
-dire, si ce n'est favoriser cette dernière? Plus nous affai-
-
-blissons la démocratie bourgeoise par notre propagande et
+dire, si ce n'est favoriser cette dernière? Plus nous affaiblissons la démocratie bourgeoise par notre propagande et
 la rendons incapable de remplir sa mission historique, plus
 nous sommes forcés de nous substituer à elle dans cette
 mission. Ce n'est que sur la base d'une république démocratique que peut s'élever une république socialiste.
@@ -1649,9 +1555,7 @@ Son activité dans un tel ministère ne pourrait avoir
 d'autre résultat que de le corrompre et de le compromettre
 lui-même, ainsi que le parti qui le soutient. Je ne voudrais
 pas prétendre par cela que, sans violer le principe de la
-lutte de classe, les socialistes ne puissent pas, dans des cir-
-
-constances exceptionnelles et pour un but déterminé,
+lutte de classe, les socialistes ne puissent pas, dans des circonstances exceptionnelles et pour un but déterminé,
 
 collaborer avec des démocrates bourgeois dans le même
 pouvoir exécutif contre un ennemi commun. Un tel acte
@@ -1721,11 +1625,7 @@ ou non, intéressent presque toujours la classe ouvrière.
 
 Or, que penser d'un principe qui défend à celle-ci d'intervenir dans ces conflits au moment où ils cessent d'être
 simples querelles intimes de boutiques et deviennent des
-batailles ayant pour enjeu la liberté politique ou l'humanité? Cela équivaudrait pour le prolétariat à une inter-
-
-diction de défendre ses propres intérêts et ses idées huma46
-
-nitaires. On se trouverait alors en face d'un principe d'im- QU.
+batailles ayant pour enjeu la liberté politique ou l'humanité? Cela équivaudrait pour le prolétariat à une interdiction de défendre ses propres intérêts et ses idées humanitaires. On se trouverait alors en face d'un principe d'im- QU.
 bécillité, mais pas d'un principe de lutte de classe. ‘el
 La non-intervention peut être défendue en se basant sur,
 la faiblesse ou l'inexpérience d'un parti, ou sur la futilité de?
@@ -1737,8 +1637,7 @@ Quant aux questions humanitaires, le simple fait que le
 parti socialiste ouvrier est le parti des opprimés indique +414
 déjà qu'aucune de ces questions ne peut lui être étrangère.
 Il suffit ici de se rappeler l'attitude de l'Internationale en ‘ES
-présence de la guerre civile des États-Unis, ce « seul événe-
-ment grandiose de l'histoire moderne comme Marx la
+présence de la guerre civile des États-Unis, ce « seul événement grandiose de l'histoire moderne comme Marx la
 appelée dans Le Capital. Bien que les Yankees du Nord 1$0
 fussent des bourgeois, l'Internationale se prononça en leur
 Ceux qui nient l'intérêt du parti socialiste dans l'affaire
@@ -1751,14 +1650,12 @@ avoir la conception étroite d'un vilain.
 Ces considérations m'amènent à la deuxième question. En
 principe, j'y ai déjà répondu par les déclarations faites
 plus haut.
-Quand on admet la nécessité de l'action politique en gé-
-néral et quand on reconnaît qu'une société ne peut ni:
+Quand on admet la nécessité de l'action politique en général et quand on reconnaît qu'une société ne peut ni:
 franchir en sautant les étapes obligatoires de son évolution
 ni les éliminer par des décrets Marx), on doit reconnaître “1
 aussi que, dans l'évolution des nations modernes, des
 phases peuvent se présenter où la prise de possession par- me.
-tielle de la puissance ministérielle peut, pour le parti ou-
-vrier socialiste, devenir plus qu'une chose permise, mais
+tielle de la puissance ministérielle peut, pour le parti ouvrier socialiste, devenir plus qu'une chose permise, mais
 un devoir de première importance.
 Dans quelle mesure cette participation au pouvoir peutelle ou doit-elle avoir lieu? Cela dépend de la situation
 respective des partis et de la nature de la constitution politique d'un pays. Dogmatiser d'avance sur ce point serait
@@ -1805,8 +1702,7 @@ Léon Defuisseaux fut élu pour la première fois député en 1870, par
 
 les électeurs de l'arrondissement de Mons. C'était sous le régime
 censitaire. Après avoir siégé pendant dix ans à la Chambre belge et (+728
-y avoir défendu les principes de la démocratie, parmi lesquels figu-
-rait au premier rang le suffrage universel, il donna, en 1881, sur
+y avoir défendu les principes de la démocratie, parmi lesquels figurait au premier rang le suffrage universel, il donna, en 1881, sur
 cette question, sa démission, qui eut un retentissement énorme et
 prépara les voies au suffrage universel.
 En quittant la Chambre censitaire, il annonça sa prochaine rentrée au Parlement avec ses amis socialistes. Cette prophétie s'est
@@ -1821,11 +1717,8 @@ tout de bonté et de générosité, qui fut en Belgique le précurseur et
 l'apôtre du suffrage universel et de l'idée républicaine. ce.
 
 Vous me demandez si je crois que le prolétariat socialiste
-peut, sans manquer au principe de la lutte des classes, in-
-tervenir dans les conflits des diverses fractions bourgeoises, cac
-soit pour sauver la liberté politique, soit, comme dans l'af-
-
-faire Dreyfus, pour défendre l'humanité. 41008
+peut, sans manquer au principe de la lutte des classes, intervenir dans les conflits des diverses fractions bourgeoises, cac
+soit pour sauver la liberté politique, soit, comme dans l'affaire Dreyfus, pour défendre l'humanité. 41008
 J'estime que non seulement le prolétariat socialiste peut
 intervenir dans de tels conflits, mais encore que c'est son a
 devoir le plus sacré.
@@ -1883,13 +1776,11 @@ Ami intime de Karl Marx, Lavrov était toujours partisan de la Val
 théorie de la lutte des classes, et il se dit même très modestement
 élève du grand penseur, en économie politique; mais il s'est toujours
 refusé à l'interprétation étroite de la philosophie de son génial ami, Su.
-en opposant aux adeptes russes de cette interprétation une philoso-
-phie plus large, plus solide et non moins scientifique.
+en opposant aux adeptes russes de cette interprétation une philosophie plus large, plus solide et non moins scientifique.
 La rédaction de La Petite République me demande mon
 opinion sur deux questions, qui vont être l'objet d'une
 
-1.— Le prolétariat socialiste peut-il, sans manquer au prin-
-cipe de la lutte des classes, intervenir dans les conflits des
+1.— Le prolétariat socialiste peut-il, sans manquer au principe de la lutte des classes, intervenir dans les conflits des
 différentes fractions bourgeoises, soit pour sauver la liberté
 politique, soit, comme dans l'affaire Dreyfus, pour défendre
 l'humanité?
@@ -1924,8 +1815,7 @@ une base internationale pour détruire le régime capitaliste
 crois que c'est admis par tous les socialistes de notre
 Mais si on considère attentivement le cours de l'histoire
 ï humaine dans son ensemble, on trouve, à ce qu'il me paraît,
-en premier lieu, que la lutte du prolétariat contre le capi-
-talisme n'est que la forme actuelle d'une tendance fort anj cienne et fort générale à transformer un état social donné
+en premier lieu, que la lutte du prolétariat contre le capitalisme n'est que la forme actuelle d'une tendance fort anj cienne et fort générale à transformer un état social donné
 en un état meilleur, ou, comme je voudrais le formuler, à
 se rapprocher plus ou moins du règne de la justice dans
 une humanité solidaire.
@@ -1950,14 +1840,12 @@ l'apparition de l'Internationale on avait croire que
 
 l'organisation du prolétariat en sections, en conseils fédé- )
 raux, et en congrès ouvriers internationaux, avec l'organe
-permanent d'un Conseil général, pourrait devenir immé-
-diatement la base et la préparation d'un état social réalisant
+permanent d'un Conseil général, pourrait devenir immédiatement la base et la préparation d'un état social réalisant
 l'union internationale des travailleurs, union qui étoufferait
 dans les mailles innombrables de ce réseau les éléments
 actuels du monde capitaliste, qui a pour base la concurrence
 des individus, la lutte de groupes, la haine des nations et des
-États. Mais le courant des événements a prouvé que l'avè-
-nement du régime socialiste demande encore une période de
+États. Mais le courant des événements a prouvé que l'avènement du régime socialiste demande encore une période de
 préparation: il s'agit encore actuellement de préparer le
 prolétariat des divers pays à la conception socialiste des
 rapports sociaux, car on est encore bien loin du moment
@@ -1979,8 +1867,7 @@ trop souvent en face de questions insolubles, car bien des
 victoires momentanées n'aboutissent qu'à un état de choses
 qui détermine la démoralisation des combattants et même
 une série de défaites des plus graves. Mais lorsqu'on prend
-en considération le grand but de la solidarité internatio-
-nale des travailleurs et l'avènement du règne de la justice
+en considération le grand but de la solidarité internationale des travailleurs et l'avènement du règne de la justice
 sociale, ou lorsqu'on se représente clairement les suites de
 telle ou telle autre manière d'agir pour la préparation de
 la future révolution sociale, les questions particulières
@@ -1995,11 +1882,9 @@ le prolétariat socialiste organisé a à prendre parti dans une
 lutte sociale — quels que soient les partis qui y sont le plus
 immédiatement intéressés — où il s'agit de questions humanitaires. Dès que nous y avons constaté un élément strictement socialiste nous ne pouvons éluder la conséquence
 que le devoir des socialistes est d'y prendre part. Mais il y
-a encore autre chose. Il me paraît évident que, pour pré-
-parer son avènement historique, le socialisme a le devoir,
+a encore autre chose. Il me paraît évident que, pour préparer son avènement historique, le socialisme a le devoir,
 ù dans un cas de lutte pour une question de cet ordre, de se
-mettre à La tête d'un pareil mouvement, d'y prendre lini-
-tiative, de le faire sien.
+mettre à La tête d'un pareil mouvement, d'y prendre linitiative, de le faire sien.
 à Car cest de cetle manière — et peut-être même uniquement de celle-là — que les socialistes habitueront les
 masses à voir que c'est leur parti qui fournit les lutteurs
 ? les plus avancés dans toutes les combinaisons des
@@ -2023,8 +1908,7 @@ au principe de la luite des classes, mais encore au principe
 du socialisme prolétarien. Cependant, il me semble que le
 parti socialiste n'a pas à se désintéresser de cette lutte et à
 laisser indifféremment triompher, selon l'occasion, l'un
-ou l'autre parti politique. Toute opposition à un abso-
-lutisme, même mitigé, est une meilleure préparation à ne
+ou l'autre parti politique. Toute opposition à un absolutisme, même mitigé, est une meilleure préparation à ne
 l'avènement du socialisme que le triomphe de l'absolu-
 Donc, au nom des intérêts socialistes, il n'y a pas à
 s'abstenir, mais à voter, dans le sens d'une opposition au L',
@@ -2032,8 +1916,7 @@ parti le plus dangereux. Il est encore plus évident, à ce
 qu'il me paraît, que dans un empire franchement absolu et
 réactionnaire les socialistes non seulement n'ont pas le droit,?
 au nom de leurs principes, d'ignorer la question politique
-et de s'occuper uniquement de la lutte contre le capita-
-lisme, mais que c'est leur devoir socialiste de prendre
+et de s'occuper uniquement de la lutte contre le capitalisme, mais que c'est leur devoir socialiste de prendre
 l'initiative du mouvement politique et révolutionnaire sr.
 contre l'absolutisme.
 J'arrive au cas le plus compliqué, et c'est celui dont il
@@ -2044,8 +1927,7 @@ ministère, soutenu par un Parlement bourgeois, qui possède
 — du moins officiellement — le pouvoir suprême dans
 l'État, et, par cela même, ne représente aucun élément Ne
 d'opposition à la direction des affaires dans le sens des
-Pour ceux qui voient dans le socialisme actuel uni-
-quement la lutte des classes, le problème admet différentes
+Pour ceux qui voient dans le socialisme actuel uniquement la lutte des classes, le problème admet différentes
 solutions selon des circonstances tout à fait éventuelles. Il
 s'agit d'apprécier les combinaisons qui permettraient à une
 individualité socialiste — et que je suppose complètement
@@ -2054,33 +1936,26 @@ sincère dans ses convictions — de donner à la législation
 du pays une poussée dans un sens favorable au socialisme
 comme principe et au prolétariat comme classe sociale.
 une question posée dans un sens si particulier il est presque
-impossible de répondre d'une manière plus ou moins géné-
-rale, Désirant, comme je l'ai dit, rester dans les généralités
+impossible de répondre d'une manière plus ou moins générale, Désirant, comme je l'ai dit, rester dans les généralités
 (surtout comme étranger), je m'abstiens d'y répondre.
 
 Même en se plaçant à un point de vue plus large sur le
 socialisme, on se trouve en présence de grandes complications. Admettons qu'il s'agisse d'un moment historique où
 
-la lutte des partis est très ardente, où les partis réac-
-
-tionnaires sont groupés dans une opposition assez
+la lutte des partis est très ardente, où les partis réactionnaires sont groupés dans une opposition assez
 menaçante, tandis que le ministère est momentanément —
 
 peut-être uniquement jusqu'à la prochaine réunion des
 Chambres — le représentant des tendances plus libérales.
 
-Quelle est la ligne, d'action que peut accepter le parti socia-
-
-liste, au nom du socialisme considéré comme tendant à la
+Quelle est la ligne, d'action que peut accepter le parti socialiste, au nom du socialisme considéré comme tendant à la
 solidarité universelle et au nom de son devoir de préparer
 l'avènement de la révolution sociale? Serait-il utile, dans
 ce cas, qu'une personnalité éminente du parti socialiste
 acceptät un rôle ministériel pour préparer la révolution
 
 la première de ces deux questions je crois pouvoir
-répondre affirmativement. Pour préparer un meilleur avenir le parti socialiste me semble devoir aider le gouverne-
-
-ment relativement plus libéral qui est sérieusement menacé
+répondre affirmativement. Pour préparer un meilleur avenir le parti socialiste me semble devoir aider le gouvernement relativement plus libéral qui est sérieusement menacé
 d'être remplacé par un gouvernement franchement réactionnaire. Je dirai même que, dans ce cas, comme dans bien
 d'autres, les socialistes, loin de se désintéresser de cette
 lutte, devraient peut-être se mettre à la tête d'un mouvement
@@ -2093,8 +1968,7 @@ d'un membre du Parti socialiste, dont les talents et l'activité énergique ont 
 ses coreligionnaires et dont la conduite dans des cas
 
 teux put leur servir d'exemple. Ce qui est surtout grave il ne
-ici, ce ne sont pas les résultats immédiats du fait accom-
-pli; c'est, pour un avenir plus ou moins prochain, l'admis- a
+ici, ce ne sont pas les résultats immédiats du fait accompli; c'est, pour un avenir plus ou moins prochain, l'admis- a
 sion d'un compromis dangereux. Un lutteur sûr de lui-même
 peut ne pas redouter d'être obligé à des compromis ébran- LA
 lant les bases morales du parti auquel il appartient; mais
@@ -2118,8 +1992,7 @@ peut-être mieux de ne pas risquer l'avenir d'un grand parti
 qui est à la tête d'un mouvement humanitaire pour une
 victoire plus ou moins précaire dans une lutte qui absorbe
 et qui absorbera encore peut-être les forces de plus d'une
-génération. Je ne veux pas parler de la possibilité de pro-
-miscuités déplorables avec des personnalités dont le nom
+génération. Je ne veux pas parler de la possibilité de promiscuités déplorables avec des personnalités dont le nom
 même est passé à l'état de symbole.
 Je sais que mes arguments n'ont pas une grande valeur,
 pour ceux des socialistes qui n'admettent, comme principe,
@@ -2202,8 +2075,7 @@ avec nous, serait montrer que nous ne sommes pas bien
 sûrs de nos propres principes.
 du De même, quoique les Irlandais soient presque tous catholiques fanatiques et complètement en désaccord avec
 nous sur des questions que nous considérons comme primordiales, nous n'avons cependant pas hésité à agir avec le
-parti irlandais, quoique purement bourgeois, dans le Parle-
-ment comme le pays, afin d'obtenir pour eux cette justice
+parti irlandais, quoique purement bourgeois, dans le Parlement comme le pays, afin d'obtenir pour eux cette justice
 politique et sociale que nous demandons pour nousmêmes.
 La question religieuse ne peut être considérée, aussi bien
 chez nous que dans les autres pays, comme ayant quelque
@@ -2214,8 +2086,7 @@ agissant ainsi nous nous trouvons plus ou moins sur un
 te terrain commun avec les protestants dissidents etautres non
 conformistes, dont nous sommes sur d'autres points les
 Assurément si un cas comme celui du capitaine Dreyfus
-s'était produit en Angleterre, nous aurions, nous les socia-
-listes anglais, demandé justice pour l'innocent, et j'espère
+s'était produit en Angleterre, nous aurions, nous les socialistes anglais, demandé justice pour l'innocent, et j'espère
 que nous aurions montré dans de telles circonstances un
 courage et un dévouement aussi grand que nos camarades
 français. Inutile de dire que nous aurions accueilli sur ce
@@ -2223,8 +2094,7 @@ terrain, comme ils l'ont fait, des hommes aveclesquels nous
 sommes d'ordinaire en désaccord à tous les points de vue.
 Je répondrai donc à votre première question que pour ce
 quiest de la tactique et de la lutte quotidienne, il est absolument impossible au socialisme, en tant que parti politique
-militant, de ne pas tenir compte d'événements qui inté-
-ressent l'ensemble de la société, quand bien même leur
+militant, de ne pas tenir compte d'événements qui intéressent l'ensemble de la société, quand bien même leur
 action les mettrait en contact et les ferait lutter d'accord,
 temporairement, avec d'autres partis. Ceci ne me semble
 pas devoir le moins du monde compromettre le principe de
@@ -2236,8 +2106,7 @@ frage universel. Mais le jour où ils auront obtenu l'égalité.
 politique, ils seront aussi antagonistes qu'auparavant. Ils
 ne sont d'accord que pour atteindre un but nettement
 
-Ilestbeaucoup plus difficile de répondre à la deuxième ques-
-tion qu'à la première. Personne ne conteste, si ce n'est les
+Ilestbeaucoup plus difficile de répondre à la deuxième question qu'à la première. Personne ne conteste, si ce n'est les
 anarchistes, que l'on doive pénétrer où c'est possible dans
 les conseils municipaux. Une foislà, les socialistesne peuvent
 pas ne pas prendre part au travail administratif, côte à côte,
@@ -2257,8 +2126,7 @@ pouvions, un social-démocrate comme Lord-Maire de Londres. Mais nous compterion
 des travailleurs de Londres et à la diffusion des principes
 du socialisme.
 
-Mais, dans tous ces cas, il ne s'agit pas de situation ma-
-lencontreuse. Par exemple M. Asquith (ministre radical en
+Mais, dans tous ces cas, il ne s'agit pas de situation malencontreuse. Par exemple M. Asquith (ministre radical en
 1895) prit sur lui-même de faire tirer sur les mineurs
 en grève à Featherstone et voulut ensuite justifier ce
 
@@ -2269,8 +2137,7 @@ un cabinet dont M. Asquith eût été membre? Certainement
 non. À moins que le parti socialiste tout entier, par un
 referendum général ou par la voix de ses délégués se fût
 déclaré à une énorme majorité pour notre entrée dans un
-Je reconnais parfaitement que dans une période de tran-
-sition nous avons tout intérêt, qu'on peut même juger que
+Je reconnais parfaitement que dans une période de transition nous avons tout intérêt, qu'on peut même juger que
 c'est nécessaire pour nous d'agir d'accordavec les adversaires
 du militarisme, de l'impérialisme, du cléricalisme et que
 même cela peut aller jusqu'à nous obliger à entrer dans un
@@ -2282,8 +2149,7 @@ socialisme international, puisse être laissé aux chefs du
 parti, quelque estimés et éminents qu'ils puissent être.
 Il me semble, en effet, que le devoir d'hommes auxquels
 leur intelligence et leurs qualités morales ont donné une
-influence exceptionnelle est de donner l'exemple de la sou-
-mission à la majorité de leurs camarades de lutte. Qu'il y
+influence exceptionnelle est de donner l'exemple de la soumission à la majorité de leurs camarades de lutte. Qu'il y
 ait danger que cette opinion soit erronée, je n'en doute pas
 — compter le nombre de nez pour et contre ne fournit pas
 infailliblement le criterium de la vérité — mais c'est un
@@ -2292,8 +2158,7 @@ de résoudre une question aussi importante. Les démocraties,
 et surtout les démocraties socialistes, sont souvent dans
 l'erreur et victimes des préjugés, mais elles deviennent
 graduellement des organismes conscients et intelligents.
-C'est pourquoi tout acte qui à l'encontre de leur sentiment a beaucoup de chance de faire plus de mal dans l'ave-
-nir qu'il ne peut faire de bien au point de vue de la tactique
+C'est pourquoi tout acte qui à l'encontre de leur sentiment a beaucoup de chance de faire plus de mal dans l'avenir qu'il ne peut faire de bien au point de vue de la tactique
 - En attendant, et quelle que soit l'impression désagréable
 que me cause la présence de Millerand dans le même cabinet que Galliffet et Waldeck-Rousseau, j'espère que le
 prochain Congrès national du Parti socialiste français
@@ -2302,8 +2167,7 @@ la grande cause du socialisme international à des avantages
 passagers de tactique.
 
 La Petite République du jeudi 5 octobre publiait cette
-Le parti socialiste de Danemark est un des plus fortement orga-
-nisés d'Europe. Grâce à la souplesse de sa méthode, grâce aussi
+Le parti socialiste de Danemark est un des plus fortement organisés d'Europe. Grâce à la souplesse de sa méthode, grâce aussi
 au sens pratique caractéristique de la race, il a réalisé en peu
 d'années des progrès considérables. Il compte aujourd'hui près de
 100,000 adhérents groupés dans leurs syndicats et agissant avec une
@@ -2323,8 +2187,7 @@ l'importance toute spéciale qu'elles présentent pour la situation actuelle de 
 tous les pays.,
 
 Nous autres socialistes-démocrates de Danemark sommes
-dans l'heureux cas de pouvoir donner une réponse collec-
-tive représentant notre opinion générale sur les rapports
+dans l'heureux cas de pouvoir donner une réponse collective représentant notre opinion générale sur les rapports
 de la classe ouvrière avec la bourgeoisie. Nous pouvons
 d'autant plus facilement nous prononcer à l'unisson sur ce
 sujet, que, de notre côté, nous avons eu, il y a des années
@@ -2344,9 +2207,7 @@ peuvent se mêler aux conflits des fractions bourgeoises,
 mais qu'ils ont la charge de le faire. Et voici pour quelles
 La démocratie socialiste n'est pas une secte dont les
 adeptes sont revêtus d'un uniforme rouge pour se distinguer.
-des autres partis. Sa tâche consiste à utiliser toute situa-
-
-tion en faveur du progrès matériel, politique et moral dela. -
+des autres partis. Sa tâche consiste à utiliser toute situation en faveur du progrès matériel, politique et moral dela. -
 classe ouvrière. Par conséquent, dans sa lutte contre la
 réaction noire, la démocratie socialiste se rangera du côté
 du bleu politique, soit de la bourgeoisie, tandis que, dans
@@ -2363,9 +2224,7 @@ Sous les drapeaux du Parti ouvrier, il n'existe qu'une
 seule politique, c'est-à-dire celle du prolétariat socialiste;
 
 elle a pour but de réunir tout ce qui n'est pas capitaliste et
-de profiter des divergences existant, au point de vue éco-
-
-nomique et moral, entre les diverses fractions de la bourgeoisie. Toute émeute se produisant dans le camp capitaliste
+de profiter des divergences existant, au point de vue économique et moral, entre les diverses fractions de la bourgeoisie. Toute émeute se produisant dans le camp capitaliste
 
 est un gain pour la classe ouvrière. Quand le libre-échange
 est aux prises avec le protectionnisme, le régime socialiste
@@ -2413,8 +2272,7 @@ qu'on a opposée à ce que la démocratie socialiste renonce
 entraîner en dehors de son programme. nous ne partageons pas cette crainte. Car s'il y avait aucun danger à ce
 qu'un démocrate-socialiste fût incorporé dans un ministère,
 le danger y serait déjà du moment que des représentants
-de la classe ouvrière siègent danses assemblées législa-
-tives, où la bourgeoisie est toujours en majorité absolue.
+de la classe ouvrière siègent danses assemblées législatives, où la bourgeoisie est toujours en majorité absolue.
 Mais la politique socialiste réclame justement que ses représentants entrent aussi bien dans les Chambres législatives que dans les Conseils municipaux; elle veut pénétrer
 partout où se constate la moindre brèche dans la construction sociale de la bourgeoisie, afin d'y opérer l'explosion,
 qui fera s'écrouler les vieilles lois et institutions. Voilà la
@@ -2425,19 +2283,13 @@ Les ouvriers français ont fait entrer dans le ministère un
 de leurs représentants, socialiste et démocrate. La question
 est maintenant de savoir si sa couleur ternir. Il siège
 côté du meurtrier de la Commune, de Galliffet. Mais Galliffet
-fàt-il Lucifer en personne, il s'agit pour le socialiste Millerand de mettre en jeu l'énergie même de Lucifer pour étran-
-
-gler le jésuitisme et détroniser le militarisme. Que la ten-
-
-tative échoue, Millerand n'en restera pas moins socialiste.
+fàt-il Lucifer en personne, il s'agit pour le socialiste Millerand de mettre en jeu l'énergie même de Lucifer pour étrangler le jésuitisme et détroniser le militarisme. Que la tentative échoue, Millerand n'en restera pas moins socialiste.
 
 Mais si elle réussit, ce sera un grand pas en avant pour le
 
 prolétariat; de nouvelles coalitions se formeront contre
 
-les principes dont Galliffet est le symbole, et la classe tra-
-
-vailleuse, encouragée par ses succès, s'acheminera à pas
+les principes dont Galliffet est le symbole, et la classe travailleuse, encouragée par ses succès, s'acheminera à pas
 
 rapides vers le pouvoir, vers la réalisation de ses nobles
 
@@ -2459,12 +2311,10 @@ compagnon de lutte estimé.
 Les deux questions que vous me posez sont d'un intérêt
 si capital pour les socialistes de tous les pays, que je crois
 qu'il n'y aurait aucune excuse à un refus d'y répondre.
-Je crois qu'il est non seulement possible au Parti socialiste de prendre part aux conflits qui se produisent périodi-
-quement entre les partis bourgeois, sans violer d'aucune
+Je crois qu'il est non seulement possible au Parti socialiste de prendre part aux conflits qui se produisent périodiquement entre les partis bourgeois, sans violer d'aucune
 façon le principe de la lutte des classes, mais je crois encore
 que c'est son devoir absolu de le faire, dans l'intérêt du
-socialisme lui-même aussi bien que pour la cause de la jus-
-tice, de la liberté et de l'humanité.
+socialisme lui-même aussi bien que pour la cause de la justice, de la liberté et de l'humanité.
 C'est ainsi qu'à la Fédération Démocrate-Socialiste, à laquelle on a reproché souvent d'être trop exclusive et trop
 doctrinaire, nous nous sommes joints aux libéraux et
 quelques autres non-socialistes pour condamner les évictions
@@ -2510,9 +2360,7 @@ La Petite République du mercredi 11 octobre publiait
 la réponse de Labriola
 
 Antonio Labriola, professeur de philosophie à l'Université de
-Rome, est un des théoriciens les plus distingués du socialisme international. Tout le monde connaît ses essais sur la conception ma-
-
-térialiste de l'histoire et sur le manifeste communiste, qui ont
+Rome, est un des théoriciens les plus distingués du socialisme international. Tout le monde connaît ses essais sur la conception matérialiste de l'histoire et sur le manifeste communiste, qui ont
 l'honneur de plusieurs traductions. Ils ont paru aussi en français
 chez Giard et Brière, suivis bientôt d'un deuxième volume, recueil
 de lettres spirituelles adressées au citoyen Sorel sur des questions
@@ -2541,8 +2389,7 @@ de l'infatigable Jaurès. Il n'a pas besoin de demander aux
 camarades un « bill d'indemnité et les socialistes qui auraient l'intention de le lui accorder ne feraient que tort
 eux-mêmes, accusant ainsi leur manque de bon sens.,
 Ceux qui entrent en lutte — on le sait bien — ne peuvent
-choisir toujours le champ où ils descendront pour y combattre bravement. C'est pour cette raison qu'à nous socia-
-listes, qui jusqu'à ce moment ne sommes pas les maîtres du
+choisir toujours le champ où ils descendront pour y combattre bravement. C'est pour cette raison qu'à nous socialistes, qui jusqu'à ce moment ne sommes pas les maîtres du
 
 monde, les hasards heureux de la vie échoient comme aux
 autres mortels. Mais pouvait-il advenir à un parti une meilleure fortune que de pouvoir atteindre, en même temps,
@@ -2564,8 +2411,7 @@ l'espère est le présage de la véritable union définitive, ne
 souffriront pas, en tout cas, qu'un semblable péril — résultat
 probable d'un simple malentendu — persiste longtemps.
 Jaurès sera le premier qui trouvera la manière et l'occasion
-pour démontrer avec évidence, par les faits et par sa puis-
-sante éloquence, que ce qui peut être occasion ou oppor-
+pour démontrer avec évidence, par les faits et par sa puissante éloquence, que ce qui peut être occasion ou oppor-
 ) Lunité de lutte n'en est jamais le but.
 
 Quant à la seconde question, je ne puis répondre d'une
@@ -2580,8 +2426,7 @@ entrée de Millerand au gouvernement; d'autant plus qu'ici
 
 les opinions des camarades français apparaissent très dis- À
 cordantes sur ce point et que le récit de Rouanet dans La
-Revue socialiste est venu rendre encore plus difficile l'ap-
-préciation exacte du cas dans ses minuties. En face des
+Revue socialiste est venu rendre encore plus difficile l'appréciation exacte du cas dans ses minuties. En face des
 optimistes qui entrevoient déjà le commencement de la Ré- à
 publique sociale, en face des pessimistes, qui dénoncent les
 corruptions de l'ambition, moi pour mon compte je ne vois
@@ -2595,8 +2440,7 @@ Le mécanisme de l'état moderne bourgeois et capitaliste,
 surtout en France, où à la disparition de toute trace de
 selfgovernment correspond une centralisation intense, ne
 donne pas faculté au socialiste, qui arrive {out seul au a
-gouvernement, de faire quoi que ce soit qui dépasse le dé-
-cret platonique, ou l'ordre... qu'on n'écoute pas.
+gouvernement, de faire quoi que ce soit qui dépasse le décret platonique, ou l'ordre... qu'on n'écoute pas.
 Mais il s'agissait de sauver la République! répète-t-on.
 Certainement les socialistes peuvent, et selon le cas doivent
 être les alliés naturels des fractions de la bourgeoisie qui ta
@@ -2608,16 +2452,12 @@ alliés en tant qu'organisation politique du prolétariat, qui,
 du fait de son indépendance conserve son initiative propre
 et la liberté de ses mouvements. Dans tous les cas ils doivent 1%
 être alliés sans aucune de ces connivences quise résolvent,
-à la fin, en dangereuses responsabilités et en vaines pro-
-messes, tandis qu'elles portent dans les rangs du prolétariat
+à la fin, en dangereuses responsabilités et en vaines promesses, tandis qu'elles portent dans les rangs du prolétariat
 Millerand pourra demander un bill d'indemnité, et je crois
-que les socialistes auront d'ici peu l'occasion de le lui accorder, parce qu'il le demandera comme ministre démission-
-naire et comme camarade désabusé.
+que les socialistes auront d'ici peu l'occasion de le lui accorder, parce qu'il le demandera comme ministre démissionnaire et comme camarade désabusé.
 Dans cette réponse je me rapproche, comme vous voyez,
 pour ce qui est des conclusions, mais non du ton, du coloris
-et des motifs, de l'opinion de Kautsky, que je trouve repro-
-duite dans le Mouvement socialiste. Mais moi je ne demanderai pas pardon, comme mon ami Kautsky, de me pro-
-noncer d'une façon approfondie sur les événements français.
+et des motifs, de l'opinion de Kautsky, que je trouve reproduite dans le Mouvement socialiste. Mais moi je ne demanderai pas pardon, comme mon ami Kautsky, de me prononcer d'une façon approfondie sur les événements français.
 Vous Français, vous êtes si proches de nous, par antique et
 par récent commerce! Est-ce que, par exemple, quand je
 lis les romans d'Anatole France, je ne dis pas continuellement: voilà, je suis chez moi?

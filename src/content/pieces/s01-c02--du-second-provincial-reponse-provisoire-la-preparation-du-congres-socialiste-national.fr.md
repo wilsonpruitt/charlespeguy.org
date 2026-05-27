@@ -13,7 +13,7 @@ Du second Provincial. Réponse provisoire. La préparation du congrès socialist
 La guerre= Les alliances - La paix
 
 La loi scolaire; le budget de
-l'enseignement; A; Les écoles militaires; la loi
+l'enseignement; Les écoles militaires; la loi
 
 enseignement primaire: l'en- militaire le budget de La
 peuple par les instituteurs; 4 à
@@ -35,8 +35,7 @@ d'Huist; sacres d'Arménie; la guérre de”
 
 Science et socialisme; l'indépendance crétoiseslaguerren
 
-des socialistes dans l'enseigne-
-ment bourgeois; La guerre hispano*américaine;
+des socialistes dans l'enseignement bourgeois; La guerre hispano*américaine;
 
 La question sociale dans l'en- mers
 seignement. L'affaire de Fashoda.
@@ -70,8 +69,7 @@ idées, je le veux bien. Mais il n'est pas bon qu'elle
 déclare tout de suite et brutalement qu'elle (donne
 tort au Congrès, qui « a piétiné sur un de nos plus
 Il est plus mauvais encore que toutes ces attaques
-contre le Congrès et que le Triomphe de la Répu-
-blique et que l'affaire Liebknecht se résolvent en
+contre le Congrès et que le Triomphe de la République et que l'affaire Liebknecht se résolvent en
 insinuations contre le parti guesdiste, et en assauts
 furieux ou en coups d'épingle irritants contre
 Guesde, Zévaès. Je ne les défends pas, ne veux
@@ -114,8 +112,7 @@ sommes un essai d'institution communiste et non pas
 une réussite d'entreprise capitaliste individuelle, nous!
 envoyons nos cahiers à ceux de nos amis qui nous les
 demandent. Je reviendrai plus tard sur cetteinstitution. »
-Tu retrouveras dans le premier cahier quelques ré-
-ponses provisoires à tes critiques particulières: j'ai
+Tu retrouveras dans le premier cahier quelques réponses provisoires à tes critiques particulières: j'ai
 supposé que mon lecteur serait et resterait abonné
 la Petite République, à l'Aurore, au Matin, et surtout
 au Mouvement Socialiste; je n'ai donc jamais entendu
@@ -175,26 +172,21 @@ organisations nationalement constituées. La résolution
 du Congrès n'a pas prononcé sur des raisons données
 un jugement, contestable ou incontestable: non, elle
 a défendu, interdit que l'on présentât même certaines
-raisons. Ayant à les présenter, je suis forcé de les pré-
-senter dans un cahier libre: car tu penses bien que jene
+raisons. Ayant à les présenter, je suis forcé de les présenter dans un cahier libre: car tu penses bien que jene
 veux pas les présenter chez des bourgeois, même républicains.
 
 Je reviendrai, dans les mêmes conditions, sur les
 obligations du délégué envers les résolutions du Congrès.;
-Je ne te permets pas de supposer que toutes ces atlaques contre le Congrès et que le Triomphe de la Répu-
-
-blique et que l'affaire Liebknecht soient présentés
+Je ne te permets pas de supposer que toutes ces atlaques contre le Congrès et que le Triomphe de la République et que l'affaire Liebknecht soient présentés
 seule fin d'insinuer contre les guesdistes, insinuations
 contre le parti guesdiste et assauts furieux ou coups
 d'épingles irritants contre Zévaès et Guesde, J'admets
-seulement que tu constates, comme tu l'as fait très his-
-toriquement, que les premiers se résolvent dans les
+seulement que tu constates, comme tu l'as fait très historiquement, que les premiers se résolvent dans les
 seconds. Je parle souvent des guesdistes, en particulier
 de Zévaëès et de Guesde, pour deux raisons: la première
 est de mon institution même: je parle souvent d'eux
 parce que les périodiques autorisés n'en parlent pas
-selon toute la vérité; je fais donc l'appoint, le complé-
-ment; je fais alors cette fonction complémentaire dont
+selon toute la vérité; je fais donc l'appoint, le complément; je fais alors cette fonction complémentaire dont
 je t'ai plus haut donné à peu près la définition; ainsi
 les guesdistes ont dans mes cahiers une place plus
 grande que celle qu'ils ont dans la réalité; la seconde
@@ -211,8 +203,7 @@ est presque injurieux que tu aies supposer que
 j'aie choisi ou incliné les réalités pour y trouver le
 guesdisme. J'ai trouvé le guesdisme dans le socialisme
 comme j'ai trouvé le jésuitisme dans le catholicisme.
-On peut nier qu'il y soit ainsi. Je serai heureux de dis-
-cuter les négations. Ce n'est pas de ma faute si j'ai
+On peut nier qu'il y soit ainsi. Je serai heureux de discuter les négations. Ce n'est pas de ma faute si j'ai
 les guesdistes au Congrès. Ce n'est pas de ma faute si
 Liebknecht a écrit dans une revue publique, — les revues étrangères sont tout de même publiques, et publiées, — qu'il était, — tu sais pourquoi, et comment,
 — contre les dreyfusards; ce n'estpas de ma faute si
@@ -221,11 +212,7 @@ ensuite M. Marcel Hutin rapporte et publie, dans l'Écho
 de Paris, que Liebknecht lui a nommé « Guesde et.
 
 Lafargue, les principaux représentants du socialisme
-scientifique en France si M. Hutin publie que M.Lieb-
-
-knecht lui a dit: « J'entretiens avec Guesde une corres-
-
-pondance assidue. » Ce n'est pas de ma faute si j'ai
+scientifique en France si M. Hutin publie que M.Liebknecht lui a dit: « J'entretiens avec Guesde une correspondance assidue. » Ce n'est pas de ma faute si j'ai
 
 sur les murs de Paris, avant le Triomphe de la République, l'affiche des guesdistes avec celle de M. Paulin
 
@@ -253,22 +240,14 @@ comme ils ne veulent pas qu'on les nomme. Il y a
 réconciliation. » Sur le moment j'acquiesçai, n'aimant
 
 pas à faire des ennuis. Puis je me ressaisis, et il me
-sembla que cette fois encore j'étais obligé à l'impoli-
+sembla que cette fois encore j'étais obligé à l'impolitesse: car si l'expression d'allemanistes par exemple est
 
-tesse: car si l'expression d'allemanistes par exemple est
+une expression commode et inexacte, que les allemanistes sont des hommes libres et n'ont aucun chef,
 
-une expression commode et inexacte, que les alle-
-
-manistes sont des hommes libres et n'ont aucun chef,
-
-l'expression de guesdistes au contraire est une expres-
-
-sion commode et rigoureusement exacte, en ce sens qu'il
+l'expression de guesdistes au contraire est une expression commode et rigoureusement exacte, en ce sens qu'il
 
 y à au moins plusieurs guesdistes qui ne sont pas des
-hommes libres. C'était donc bien guesdistes que je vou-
-
-lais dire, et non pas Parti ouvrier français. J'aurais
+hommes libres. C'était donc bien guesdistes que je voulais dire, et non pas Parti ouvrier français. J'aurais
 
 donc changé une expression dans mon compte rendu,
 non point parce qu'elle aurait été inexacte, comme on
@@ -397,16 +376,13 @@ français, nous, Fédérations socialistes de l'Est, qui avons une
 égale estime et une même confiance dans les grandes organisations socialistes, nous sommes douloureusement surpris par les divisions et les luttes qui surgissent de toutes
 
 Nous espérions, dernièrement, que le Comité d'entente
-était un premier pas vers l'unité socialiste, et nous souhaitions de toutes nos forces voir enfin le Parti socialiste fran-
-çais unifier sa tactique d'un bout du territoire à l'autre.
+était un premier pas vers l'unité socialiste, et nous souhaitions de toutes nos forces voir enfin le Parti socialiste français unifier sa tactique d'un bout du territoire à l'autre.
 
 Car il nous est impossible à nous, fédérations de province, de pouvoir établir des différences entre telles ou
 telles organisations et jeter l'anathème, aujourd'hui sur
 telle personnalité, demain sur telle autre..
 
-En fait, l'opinion publique, la classe prolétarienne, confond en un même parti tous ceux qui se réclament du so-
-
-cialisme; et si nous devons nous séparer de quelques
+En fait, l'opinion publique, la classe prolétarienne, confond en un même parti tous ceux qui se réclament du socialisme; et si nous devons nous séparer de quelques
 citoyens compromettants, cette exécution doit se faire au
 nom du parti socialiste tout entier.
 
@@ -433,8 +409,7 @@ nous étonnons de voir fleurir dans d'autres régions d'aussi
 singulières alliances, parce que nous les croyons contraires
 aux principes essentiels de notre parti.
 
-Les élections sénatoriales sont aussi Le sujet des interpré-
-tations les plus contraires. Et la part que le socialisme
+Les élections sénatoriales sont aussi Le sujet des interprétations les plus contraires. Et la part que le socialisme
 prend dans les pouvoirs publics de la République bourgeoise n'est pas décidée d'une facon uniforme dans lesprit
 de chaque socialiste.
 
@@ -524,8 +499,7 @@ nous devons rester, n'envoyant des nôtres dans le Parlement et autres assemblé
 C'est dans cet esprit que, depuis un siècle, c'est sur
 ce terrain que, depuis la Commune notamment, s'organisent et agisseni les classes ouvrières des Deux Mondes
 en un grand parti international, dont nous eussions été
-indignes et qui eût justement nous accuser de dé-
-sertion, si, sur le champ de bataille national dont nous
+indignes et qui eût justement nous accuser de désertion, si, sur le champ de bataille national dont nous
 sommes responsables, nous n'avions maintenu la tactique en dehors de laquelle il n'y a pas de victoire possible,
 
 Décidés à mener jusqu'au bout cette œuvre de salut
@@ -561,9 +535,7 @@ parti. Mais la condamnation qu'ils portent contre nous
 bien au delà de la crise ministérielle et remonte bien
 plus haut.
 
-Lorsque le manifeste dit: « Nous comptons sur les tra-
-
-vailleurs de France pour répondre à notre appel en
+Lorsque le manifeste dit: « Nous comptons sur les travailleurs de France pour répondre à notre appel en
 
 Prétendront-ils que quand ils ont prononcé, tout est
 dit? Je ne suppose pas qu'ils veuillent imposer au
@@ -594,9 +566,7 @@ disparition de l'autre.
 
 Les prolétaires modernes, à demi affranchis dans
 l'ordre politique, aspirent à l'affranchissement économique. Ils prétendent à l'indépendance, au bien-être, au
-plein exercice de toutes leurs facultés. Or, il n'y a indé-
-
-pendance, bien-être, maîtrise de soi que par la propriété.
+plein exercice de toutes leurs facultés. Or, il n'y a indépendance, bien-être, maîtrise de soi que par la propriété.
 
 Et comme dans le système capitaliste et bourgeois la
 propriété est le privilège d'une minorité, les travailleurs, les prolétaires ne pourront arriver tous à la propriété qu'en révolutionnant le système même de la
@@ -617,8 +587,7 @@ comme son droit. Elle pourra, ou par philanthropie, ou
 réforme, tel ou tel sacrifice, mais quand il faudra « faire
 le saut franchir le pas décisif, passer du système
 capitaliste au système communiste, elle résistera de
-toutes ses forces. C'est donc de lui-même que le prolé-
-tariat doit attendre le salut: il ne doit être une annexe,
+toutes ses forces. C'est donc de lui-même que le prolétariat doit attendre le salut: il ne doit être une annexe,
 une dépendance d'aucun parti bourgeois; il doit se
 constituer en parti distinct, en parti de classe, en parti
 
@@ -627,8 +596,7 @@ Mais je le demande à tous les militants; je le demande
 et les jours qui suivront bien d'autres questions encore
 à leur poser: Est-ce que le prolétariat, ainsi constitué
 
-révolutionnairement en parti de classe, se désinté-
-resser de toutes les agitations du milieu capitaliste et
+révolutionnairement en parti de classe, se désintéresser de toutes les agitations du milieu capitaliste et
 bourgeois? Est-ce qu'il dire: &IÏl y a des questions
 qui ne me regardent pas. La question Dreyfus est hors
 de ma sphère. Que l'État-Major ait condamné et torturé
@@ -652,8 +620,7 @@ force morale de ce combat!
 
 Guesde nous a dit souvent: « Regardons-les se battre,
 marquons les coups et tirons parti contre tous des vérités révélées par eux. » Mais le but de la Révolution prolétarienne, c'est de créer enfin l'humanité, et quand,
-autour d'un homme accablé par la puissance des bour-
-reaux conjurés une bataille s'engage, le prolétariat ne
+autour d'un homme accablé par la puissance des bourreaux conjurés une bataille s'engage, le prolétariat ne
 regarde pas les autres se battre: il se bat lui-même.
 Nous qui voulons détruire tous les parasitismes, nous
 ne voulons pas être les parasites des vérités trouvées
@@ -669,10 +636,8 @@ siens. Car le moyen le plus décisif d'annuler une classe,
 c'est d'exercer à sa place, et pour elle, les hautes fonctions qu'elle ne sait plus, qu'elle ne peut plus remplir.
 
 Même dans les conflits d'ordre purement économique,
-même dans les grèves, c'est une force pour les prolé-
-taires de se sentir fiers de leur classe, et je plains ceux
-qui s''imaginent, en éteignant la grande flamme inté-
-rieure du prolétariat, hâter l'heure du soulèvement.
+même dans les grèves, c'est une force pour les prolétaires de se sentir fiers de leur classe, et je plains ceux
+qui s''imaginent, en éteignant la grande flamme intérieure du prolétariat, hâter l'heure du soulèvement.
 
 Mais quoi que fassent les chefs de groupe obstinés
 en de mauvaises bouderies, le résultat est acquis: il
@@ -732,8 +697,7 @@ encore tout le loisir de nous reprocher « nos compromissions bourgeoises ».
 
 demain, pour la suite du débat, jusqu'à ce que nous
 puissions nous expliquer avec nos accusateurs devant
-notre juge suprême, devant le parti socialiste tout enLier, réuni en un Congrès national pour dégager sa mé-
-thode, préciser sa tactique, organiser son unité et
+notre juge suprême, devant le parti socialiste tout enLier, réuni en un Congrès national pour dégager sa méthode, préciser sa tactique, organiser son unité et
 apaiser de sa volonté souveraine les discordes des
 groupes et les rivalités des hommes.
 
@@ -773,17 +737,14 @@ du massacreur de Mai, il fût encore possible au Parti ouvrier
 de rallier tous les socialistes autour du drapeau.
 
 Ce devoir une fois accompli, il fallait éviter tout reproche ettoute attaque à des hommes qui ont accepté notre
-doctrine, et dont la tactique seule ne peut plus être ap-
-prouvée par nous. Si l'avenir nous donne raison, je veux
+doctrine, et dont la tactique seule ne peut plus être approuvée par nous. Si l'avenir nous donne raison, je veux
 pouvoir tendre une main fraternelle à ceux qui auront
 se tromper sur les moyens à employer pour atteindre le but
 que nous poursuivons ensemble, mais que je crois de bonne
 
 J'accepte donc du manifeste du Conseil national tout ce.
 qui explique et justifie ma conduite; mais non ce qui peut
-être de nature à froisser des hommes que je respecte, en je-
-
-tant la suspicion sur leurs intentions que, malgré les divisions du moment, je continue à croire bonnes.,
+être de nature à froisser des hommes que je respecte, en jetant la suspicion sur leurs intentions que, malgré les divisions du moment, je continue à croire bonnes.,
 
 Recevez, mon cher Guesde, l'expression de mes sentiments
 affectueux et dévoués.
@@ -847,9 +808,7 @@ résurrection de la classe ouvrière couchée depuis vingt
 
 ans dans sa servitude comme en un tombeau. Nous
 vivions, nous vivons encore en communauté absolue de
-conscience et de pensée — et nous publions sa signa-
-
-ture au bas d'un manifeste qui ne nous désavoue pas
+conscience et de pensée — et nous publions sa signature au bas d'un manifeste qui ne nous désavoue pas
 seulement, qui nous flétrit.
 Il y a quatre jours, à la demande des militants de
 Gentilly, nous avons été, Gérault-Richard et moi, y
@@ -867,8 +826,7 @@ parole: il a constaté la force croissante du socialisme
 qui obligeait la République bourgeoise elle-même, aux
 heures de péril, à faire appel à l'énergie socialiste.
 m'a dit, avec une haute sagesse, qu'au lendemain de la
-constitution du ministère, il avait convoqué les militants pour qu'on se gardât de céder à des idées irréflé-
-chies, et il était troublé par la complexité du problème.
+constitution du ministère, il avait convoqué les militants pour qu'on se gardât de céder à des idées irréfléchies, et il était troublé par la complexité du problème.
 
 Coutant, qui présidait, s'est écrié en terminant:
 « Maintenant, j'ai une déclaration à faire. Je tiens à
@@ -896,8 +854,7 @@ groupes du Parti ouvrier nous ont appelés à Troyes et
 socialisme? Avons-nous tenté de profiter de l'affaire
 Dreyfus pour atténuer la pensée socialiste, voiler la
 lutte de classe, faire subir à l'idée ou au parti une
-) déviation? C'est le collectivisme intégral et révolution32
-naire que nous avons exposé et défendu, et nous avons
+) déviation? C'est le collectivisme intégral et révolutionnaire que nous avons exposé et défendu, et nous avons
 dénoncé, dans l'abominable crime militariste couvert
 par la complicité de Méline, une nouvelle forme de la
 décomposition bourgeoise. C'est bien ainsi que l'entendait la classe ouvrière de Grenoble se développant dans
@@ -988,8 +945,7 @@ donner une conférence sur l'affaire Dreyfus, m'écrivait
 
 en toute hâte: « C'est sous les auspices du Parti ouvrier que nous vous prions de venir. » Bien mieux,
 avant-hier, le jour même où Guesde lançait son manifeste flétrissant et où Delory, maire de Lille, contresignait de son nom respecté la dénonciation haineuse
-dirigée contre nous, de Pressensé allait faire une confé-
-rence à Lille sur l'affaire Dreyfus. La conférence avait
+dirigée contre nous, de Pressensé allait faire une conférence à Lille sur l'affaire Dreyfus. La conférence avait
 lieu sous les auspices de la Ligue des Droits de homme,
 mais c'est un adjoint de la municipalité socialiste,
 membre du Parti ouvrier, qui allait attendre de Pressensé à la gare. C'est un autre adjoint de la municipalité
@@ -1047,9 +1003,7 @@ payer le troisième four, à moitié fait déjà et qui sera
 
 fini en septembre. Si la Bourse du Travail estime
 
-que nous sommes en eflet des « socialistes préten-
-
-dus » ayant détourné le prolétariat de ses devoirs et
+que nous sommes en eflet des « socialistes prétendus » ayant détourné le prolétariat de ses devoirs et
 
 intérêts de classe, il est indigne d'elle d'accepter notre
 Des groupes blanquistes, rattachés au Parti socialiste
@@ -1058,8 +1012,7 @@ Vaillant m'ont invité, depuis que le groupe Vaillant a
 quitté le groupe socialiste, à aller donner une conférence
 à Bourges le 30 juillet. Nos camarades me disent dans
 leur lettre qu'ils déplorent ces scissions et qu'ils veulent
-lutter avec nous pour l'unité socialiste. Nous les remer-
-cions de tout cœur, et c'est avec joie que nous leur
+lutter avec nous pour l'unité socialiste. Nous les remercions de tout cœur, et c'est avec joie que nous leur
 avons promis d'y aller. Mais, depuis, le manifeste offensant de leur organisation a paru. Ils comprendront qu'il
 ne nous convienne pas d'aller chez eux comme à la
 dérobée. Nous prenons donc publiquement acte de leur
@@ -1110,8 +1063,7 @@ en hâte, au retour de la grève de Dijon, et c'est eux qui
 me le montrèrent, dans un journal de l'État-Major. Cinq
 minutes après, je pouvais le lire dans un autre journal
 réactionnaire, l'Écho du Nord, qui étalait sa joie en
-pleine première page, à renfort de titres et de sous-
-ütres où chantaient les espérances de l'ennemi.
+pleine première page, à renfort de titres et de sousütres où chantaient les espérances de l'ennemi.
 
 — Donc, nous voilà ennemis? dis-je à un camarade
 de luttes de vingt ans.
@@ -1189,8 +1141,7 @@ ordres de ses chefs?
 
 Pressensé raconte les infamies que vous savez dans
 un admirable exposé de l'affaire. On l'acclame. Pierre
-Quillard raconte les horreurs de l'antisémitisme algé-
-rien, puis fait le procès des lois scélérates qui tiennent.
+Quillard raconte les horreurs de l'antisémitisme algérien, puis fait le procès des lois scélérates qui tiennent.
 au bagne des innocents. On l'acclame.
 
 Bien, me dis-je, Pressensé est un nouveau, on lui fait
@@ -1250,14 +1201,12 @@ le Congrès; mais elle garderait toujours le droit d'en
 demander la modification au Congrès suivant. Voilà la
 pratique des partis organisés.
 à Ici, nous n'avons aucune discussion théorique sérieuse;
-il n'est procédé à aucun examen d'ensemble des pro-
-blèmes; les groupes hostiles les tranchent en quelques
+il n'est procédé à aucun examen d'ensemble des problèmes; les groupes hostiles les tranchent en quelques
 phrases sommaires, au hasard de leurs rivalités.
 La question n'est pas aussi simple que paraissent le
 dire Vaillant et Guesde. Ils admettent eux-mêmes les
 cartels électoraux: plusieurs élus de leur groupe n'ont
-été nommés, plusieurs municipalités de leurs organisa-
-tions n'ont été constituées qu'après entente ouverte,
+été nommés, plusieurs municipalités de leurs organisations n'ont été constituées qu'après entente ouverte,
 précise, avec les partis radicaux. Si Guesde et Vaillant
 le contestaient, je multiplierais les exemples.
 
@@ -1267,8 +1216,7 @@ ministère Brisson à la Chambre même en plein combat,
 se rattachait à un plan d'insurrection militaire et de
 coup d'État nationaliste, le groupe socialiste de la
 
-Chambre a signé officiellement un ordre du jour répu-
-blicain à côté de tous les autres groupes de gauche.
+Chambre a signé officiellement un ordre du jour républicain à côté de tous les autres groupes de gauche.
 
 Plus récemment un Comité parlementaire de défense
 républicaine s'est constitué, comprenant des délégués de
@@ -1292,9 +1240,7 @@ la fois de puissance et d'imprévu: il s'est formé un véritable cartel révolu
 bourgeois, et des démocrates chrétiens des Flandres,
 conduits par l'abbé Daëns. Je dis révolutionnaire: car
 si le ministère clérical Vandenpeereboom commettait le
-plus odieux des crimes en abusant de sa majorité réac-
-
-tionnaire pour mutiler le droit de suffrage et fausser la
+plus odieux des crimes en abusant de sa majorité réactionnaire pour mutiler le droit de suffrage et fausser la
 consultation prochaine du pays, il était resté dans la
 lettre de la Constitution: et les socialistes, les libéraux,
 les démocrates ne pouvaient parer ce coup qu'en étant
@@ -1354,8 +1300,7 @@ fond, il faut dire qu'elle fut une combinaison étrange
 de légalité républicaine et d'esprit révolutionnaire. Dans
 l'enceinte du pesage, les proscrits de la Commune, les
 révolutionnaires communistes comme Vaillant, acclamaient, à côté des opportunistes les plus connus, le
-Président de la République bourgeoise; et la bour-
-geoisie républicaine, menacée par le fanatisme clérical,
+Président de la République bourgeoise; et la bourgeoisie républicaine, menacée par le fanatisme clérical,
 la barbarie antisémite, la stupide folie nationaliste,
 regardait passer les bataillons révolutionnaires, fleuris
 de roses rouges, avec un singulier mélange d'inquiétude
@@ -1384,8 +1329,7 @@ intransigeante. je lis dans cette déclaration le
 « Il peut d'ailleurs, dans le développement ou plutôt
 dans le déclin de la société capitaliste, y avoir des
 ‘moments où la prise de possession définitive du pouvoir
-par les représentants du prolétariat soit encore impos-
-sible et où pourtant leur participation au gouvernement
+par les représentants du prolétariat soit encore impossible et où pourtant leur participation au gouvernement
 bourgeois apparaisse comme nécessaire, notamment
 
 quand il s'agit de la liberté du pays ou des conquêtes
@@ -1418,9 +1362,7 @@ international. Et je ne serais point surpris qu'à propos
 des moyens d''émancipation de la classe ouvrière, elle
 fat soulevée devant le Congrès international de Paris
 de 1900. La France ouvrière et socialiste se résignerat-elle à n'avoir là-dessus que des opinions improvisées
-ou contradictoires? Il faut que nous organisions natio-
-
-nalement le parti socialiste pour pouvoir prendre part
+ou contradictoires? Il faut que nous organisions nationalement le parti socialiste pour pouvoir prendre part
 
 avec utilité et dignité au Congrès international.
 
@@ -1478,12 +1420,9 @@ Jaurès me communique la lettre de Paul Lafargue que le journal
 publie. Elle contient un détail épisodique dont mon respecté ami
 me permettra de rectifier l'erreur qui me concerne.
 
-Je n'ai jamais pris ni sollicité la parole dans aucun meeting organisé par la Ligue des Droits de l'homme ou des revisionnistes bour-
-geois. Si ma première protestation en faveur d'Alfred Dreyfus
+Je n'ai jamais pris ni sollicité la parole dans aucun meeting organisé par la Ligue des Droits de l'homme ou des revisionnistes bourgeois. Si ma première protestation en faveur d'Alfred Dreyfus
 remonte à l'inoubliable matinée de sa dégradation; si j'ai, ily a
-plus de trois ans, encouragé Bernard Lazare à poursuivre les re-
-
-cherches qui devaient aboutir à l'éclatante lumière d'aujourd'hui
+plus de trois ans, encouragé Bernard Lazare à poursuivre les recherches qui devaient aboutir à l'éclatante lumière d'aujourd'hui
 si j'ai, avant tout autre, dénoncé dans des réunions publiques les
 crimes de l'Etat-Major contre un juif innocent, j'ai toujours trop
 passionnément souhaité que le parti socialiste gardât l'exclusif
@@ -1506,8 +1445,7 @@ Je vous serre cordialement la main.
 
 Je remercie le citoyen Lafargue de ses déclarations.
 Elles sont d'autant plus importantes qu'elles viennent
-d'un des trois rédacteurs du document. IL serait inté-
-ressant de savoir le sens que lui donnent les deux autres.
+d'un des trois rédacteurs du document. IL serait intéressant de savoir le sens que lui donnent les deux autres.
 Mais je suis obligé de dire que toute la France ouvrière
 et socialiste lui donne le même sens que nous. Comment
 le citoyen Lafargue peut-il admettre que deux groupes
@@ -1570,8 +1508,7 @@ toute la question à un drame individuel? Le discrédit
 de la justice militaire est pour tous les socialistes un
 des effets de cette grande lutte. Il en est de bien plus
 profonds et de bien plus révolutionnaires. Et que nous
-importe vraiment que M. Trarieux ou tel autre bourgeois « dreyfusiste » ne veuillent pas tirer, contre la jus-
-tice militaire et le militarisme, les conclusions de l'affaire Dreyfus? Il ne dépend point d'eux d'arrêter le
+importe vraiment que M. Trarieux ou tel autre bourgeois « dreyfusiste » ne veuillent pas tirer, contre la justice militaire et le militarisme, les conclusions de l'affaire Dreyfus? Il ne dépend point d'eux d'arrêter le
 mouvement des esprits et des choses.
 Lafargue en revient à cette chimérique tactique d'immobilité contemplative; il fallait laisser les deux fractions bourgeoises se battre, et ramasser les vérités
 qu'elles laissaient tomber au cours de la lutte, comme
@@ -1598,8 +1535,7 @@ bonne heure, et nous acceptons de grand cœur, Mais
 n'eût-il pas mieux valu discuter avant de nous jeter
 l'anathème? IL était facile avant de quitter le groupe
 socialiste de discuter avec Fournière, Rouanet, Viviani.
-On ne leur a même pas adressé la parole. On s'est sé-
-paré d'eux comme d'hommes contaminés, et, après un
+On ne leur a même pas adressé la parole. On s'est séparé d'eux comme d'hommes contaminés, et, après un
 manifeste violent, quand le pays socialiste s'étonne,
 s'afflige ou s'indigne, on offre la discussion. Oui, nous
 la voulons, mais publique, mais entière, devant tout le
@@ -1619,16 +1555,14 @@ place dans ce courrier à la discussion de la loi sur le
 travail des enfants, des filles mineures et des femmes
 dans les établissements industriels. Je ramassai donc
 tous mes documents, et je m'en allai trouver le citoyen
-docteur socialiste révolutionnaire moraliste internationaliste. Mais j'étais un peu confus de ce que je lui appor-
-tais. Car j'avais en mains un cahier presque tout entier
+docteur socialiste révolutionnaire moraliste internationaliste. Mais j'étais un peu confus de ce que je lui apportais. Car j'avais en mains un cahier presque tout entier
 plein de personnalités. on m'a dès longtemps et fort
 pertinemment enseigné à négliger les personnalités;
 nous devons, m'avait-on dit, négliger les personnalités;
 nous sommes les soldats d'une armée universelle; nous
 travaillons et nous combattons pour un idéal universel;
 nous préparons la révolution sociale universelle: nous
-n'avons à considérer ni les spécialités, ni les particu-
-larités, ni les individualités, ni même les personnalités,
+n'avons à considérer ni les spécialités, ni les particularités, ni les individualités, ni même les personnalités,
 mais seulement les généralités et les universalités
 ainsi me l'enseignaient naguère des maîtres que j'avais.
 Je présentai mes scrupules au docteur, car étant moraliste il est casuiste: j'entends par qu'il travaille dans
@@ -1638,8 +1572,7 @@ pour la résolution de ces cas les solutions qui lui
 paraissent conformes à la raison.
 — Citoyen docteur, je voulais faire un cahier avec
 les documents et les renseignements que j'aurais sur la
-préparation du Congrès socialiste national, tout ré-
-cemment tenu à Paris, dans un gymnase mémorable.
+préparation du Congrès socialiste national, tout récemment tenu à Paris, dans un gymnase mémorable.
 Mais nous ne pouvons pas maîtriser le destin. J'avais
 résolu de commencer par classer tous les documents et
 tous les renseignements personnels; je négligeais artificieusement les documents et les renseignements venus
@@ -1662,8 +1595,7 @@ fois s'imposant aux conciliabules des chefs. J'aurais
 mis enfin dans ce cahier, avec la conversation des
 chefs et l'envahissement du peuple, tout ce travail
 organique et officiel des organisations, qui dès le
-jeudi 20 juillet aboutissait à cette acceptation qui per-
-mettait à la Petite République d'annoncer en une robuste manchette les États-Généraux du Parti socialiste.
+jeudi 20 juillet aboutissait à cette acceptation qui permettait à la Petite République d'annoncer en une robuste manchette les États-Généraux du Parti socialiste.
 Telles étaient les trois parties dont j'avais pensé que
 se composerait ce cahier. Première partie: attaque soudaine et précautionneusement violente des principaux
 
@@ -1671,9 +1603,7 @@ défense et contre-attaque mesurée des hommes librès
 aux manifestants; intervention générale des amis et
 des camarades; conversation générale et de plus en
 plus broussailleuse. Deuxième partie: le peuple silencieux longtemps et indéfiniment patient des simples
-soldats et des simples citoyens a été intimement se-
-
-coué, remué à des profondeurs insoupçonnées par l'injustice du manifeste; le peuple s''émeut redoutablement; le chœur s'émeut et du fond des provinces et du
+soldats et des simples citoyens a été intimement secoué, remué à des profondeurs insoupçonnées par l'injustice du manifeste; le peuple s''émeut redoutablement; le chœur s'émeut et du fond des provinces et du
 fond de Paris commence à faire parvenir la voix de ses
 résolutions; gagnant de proche en proche le mouvement redoutable se propage immense; les chefs et les
 manifestants commencent à s'apeurer, les hommes
@@ -1722,9 +1652,7 @@ quand elle nous présente l'action personnelle des personnalités?
 — Quand la question est ainsi posée, il me semble,
 citoyen, que la réponse n'est pas douteuse.
 
-— Aussi n'est-ce pas ainsi que la question m'embar-
-
-rasse. Un jeune camarade, un citoyen des mieux renseignés, disait un jour devant moi: « Nous ne devons
+— Aussi n'est-ce pas ainsi que la question m'embarrasse. Un jeune camarade, un citoyen des mieux renseignés, disait un jour devant moi: « Nous ne devons
 jamais faire de personnalités. Quand même on nous
 attaquerait avec des personnalités, nous devons négliger
 ce moyen de défense. En combattant les idées et les
@@ -1808,9 +1736,7 @@ fidèles, et que l'on ait soin de les rapporter en définitive à la réalité c
 
 — Rapportons, citoyen docteur, voulez-vous?
 
-— L'exemple est tout choisi: je constate que le mani-
-
-feste se produit: on dira que nous faisons des personnalités si nous attribuons à la personnalité même de
+— L'exemple est tout choisi: je constate que le manifeste se produit: on dira que nous faisons des personnalités si nous attribuons à la personnalité même de
 Vaillant, de Lafargue et de Guesde la plupart de cet
 
 — Mais alors, citoyen docteur, comment ne pas faire
@@ -1863,8 +1789,7 @@ avaient de régenter la cour des grands, où je venais
 d'arriver; je m'étais vivement insurgé contre ces brimades par lesquelles on voulait nous démontrer la supériorité des anciens sur les nouveaux et des militaires
 sur les civils; ces élèves supérieurs des classes dirigeantes voulurent à peu près me mettre en quarantaine,
 et cela, si je n'avais peur d'employer un gros mot, pour
-me persécuter: ce fut ainsi que je connus le commence-
-ment de l'antisémitisme; je fus heureusement défendu
+me persécuter: ce fut ainsi que je connus le commencement de l'antisémitisme; je fus heureusement défendu
 par un bon nombre de civils aux poings vigoureux, qui.
 sauvaient en moi le président d'une association scolaire
 d'exercices physiques et jeux de plein air; les civils battirent les militaires, comme il arrive assez souvent quand
@@ -1883,14 +1808,12 @@ m'insurger contre ces brimades; je ne sais si j'ai le
 bonheur de tomber sur une compagnie ou sur un bataillon ou dans un régiment mieux recruté; sinon je proposerais cette simple explication, que les régiments sont
 surtout fournis par le peuple, que l'immense majorité de
 mes anciens étaient des hommes du peuple, que le véritable esprit de camaraderie est plus florissant dans le
-peuple, que l'esprit de parti et l'esprit d'autorité y sé-
-vissent moins que dans la bourgeoisie; je ne parle pas
+peuple, que l'esprit de parti et l'esprit d'autorité y sévissent moins que dans la bourgeoisie; je ne parle pas
 de la discipline, entendue le plus souvent comme une
 brimade collective; dans ma ville de province les conservateurs m'interdisaient parce que je devenais républicain, les catholiques m'interdisaient parce que je devenais libre penseur, les bonnes gens m'interdisaient
 parce que je faisais de la politique, — c'est ainsi qu'ils
 nomment l'action les bourgeois m'interdisaient parce
-que j'étais socialiste; plus tard les antisémites m'inter-
-dirent parce que j'étais dreyfusard; il se peut que le
+que j'étais socialiste; plus tard les antisémites m'interdirent parce que j'étais dreyfusard; il se peut que le
 Parti socialiste un jour m'interdise parce que je suis
 anarchiste; et je ne désespère pas qu'un jour plus tard
 quelque anarchiste ne m'interdise parce que je suis un
@@ -1952,9 +1875,7 @@ soient pour un temps les plus forts, et je n'ignore pas
 qu'à force d'avoir été mis en interdit par tout le monde
 on finit par se trouver tout seul, et que les amitiés
 se font rares, et qu'en face d'un parti commode
-ses partisans celui qui est seul et malheureux finit tou-
-
-jours par avoir tort.
+ses partisans celui qui est seul et malheureux finit toujours par avoir tort.
 
 Le docteur continuait lentement et bassement; il
 regardait en soi et parlait tristement; je le laissais
@@ -2047,11 +1968,7 @@ personnalités comme du reste: quand leur influence est
 réelle, on doit la constater; quand leurinfluence est nulle,
 on doit constater qu'elle est nulle; quand elle est faible, on
 doit constater qu'elle est faible; et quand elle est forte
-on doit constater qu'elle est forte. Et quand c'est tou-
-
-jours la même chose, on doit constater que c'est tou-
-
-jours la même chose. On ne doit pas faire des person- Rat
+on doit constater qu'elle est forte. Et quand c'est toujours la même chose, on doit constater que c'est toujours la même chose. On ne doit pas faire des person- Rat
 nalités en ce sens qu'on inventerait, qu'on imaginerait
 
 des personnalités qui ne seraient pas réelles; mais on
@@ -2066,8 +1983,7 @@ dans la pleine complexité des événements?
 — C'est bien ce qui n'inquiétait. Mon camarade
 alla jusqu'à dire, emporté par sa bonté dans le feu de la
 discussion: « Quand même je saurais que c'est pour une
-raison personnelle qu'un adversaire m'attaque, l'historien doit tout expliquer par des considérations géné-
-rales. » Je protestai en moi contre ces paroles.
+raison personnelle qu'un adversaire m'attaque, l'historien doit tout expliquer par des considérations générales. » Je protestai en moi contre ces paroles.
 
 — Vous avez protesté avec raison. Nous devons
 expliquer par des considérations générales tous les
@@ -2082,9 +1998,7 @@ circonstances individuelles. Nous ne devons attribuer
 l'histoire aucune valeur nouvelle, aucune dignité artificielle, aucune étrangère noblesse. L'histoire est l'image
 des événements. L'histoire des personnalités est personnelle, comme l'histoire des généralités est générale,
 comme l'histoire des beautés est belle, comme l'histoire
-des laideurs est laide; l'histoire des indignités est in-
-
-digne, l'histoire des infamies est infâme, l'histoire des
+des laideurs est laide; l'histoire des indignités est indigne, l'histoire des infamies est infâme, l'histoire des
 
 petitesses est petite. Pourquoi mettre à l'histoire des
 histoire anoblie est d'autant faussée. Ne faisons pas
@@ -2110,10 +2024,7 @@ pour les minutes récentes; elle ne doit avoir aucun âge.
 
 Et pendant que j'approchais de la porte le docteur
 achevait: Et quand on manque à la vérité, mon ami, on
-manque forcément à la justice: à vérité incomplète, jus-
-
-tice incomplète, c'est-à-dire injustice; la part des évé-
-nements, causée par des personnalités, que nous refusons d'attribuer à ces personnalités, pour les ménager,
+manque forcément à la justice: à vérité incomplète, justice incomplète, c'est-à-dire injustice; la part des événements, causée par des personnalités, que nous refusons d'attribuer à ces personnalités, pour les ménager,
 nous l'attribuons forcément, pour masquer la vacance,
 à quelqu'un ou à quelque chose: quelqu'un et quelque
 plus considérable, et ménageable, mais humble, et assurément négligeable. C'est toujours le vieux système
@@ -2223,12 +2134,10 @@ qu'il nous faut!
 
 M. Le MINISTRE... réclamé depuis très longtemps par tous
 ceux qui veulent que les lois sur le travail soient appliquées
-{Interruptions à droite), attendu qu'avec quatre ou cinq caté-
-gories de travailleurs ayant des durées d'heures différentes,
+{Interruptions à droite), attendu qu'avec quatre ou cinq catégories de travailleurs ayant des durées d'heures différentes,
 il est impossible aux inspecteurs d'inspecter d'une façon
 suflisamment eflicace et par conséquent impossible d'assurer
-le respect de la loi. /Très bien! très bien! à gauche et sur di-
-vers bancs au centre)
+le respect de la loi. /Très bien! très bien! à gauche et sur divers bancs au centre)
 Mais il y a dans les résolutions de la commission un
 second point qui n'est pas d'une moindre importance. La
 Chambre a voté en 1891 le principe de la journée de dix
@@ -2299,8 +2208,7 @@ On nous a dit que la discussion du budget était pressante,
 et on nous propose d'entamer une discussion qui ne peut
 pas se terminer, comme l'a dit le ministre, en une heure,
 une discussion que nous soutiendrons aussi longtemps qu'il
-le faudra pour montrer au pays que Gouvernement et Par-
-lement seraient véritablement déshonorés si la législation
+le faudra pour montrer au pays que Gouvernement et Parlement seraient véritablement déshonorés si la législation
 lui faisait faire un tel pas en arrière. /Applaudissements sur
 divers bancs à l'extrême gauche)
 
@@ -2339,8 +2247,7 @@ que votre hâte de voter le budget se traduisit par un vote
 de renvoi après sa discussion, et je viens vous demanderde
 ne pas passer à la discussion des articles. J'espère, en effet,
 que vous comprendrez toute l'importance du vote qu'on
-vous demande et que vous reculerez devant les responsa-
-bilités qu'il entraïnerait.
+vous demande et que vous reculerez devant les responsabilités qu'il entraïnerait.
 Il faut bien se persuader que la question qui vous est
 soumise est celle-ci: la loi du 2 novembre 1892 a apporté
 de nouvelles garanties pour le travail des enfants, une
@@ -2482,21 +2389,15 @@ la durée du travail pour les adultes; mais des lois ont peu
 
 point d'appui, de départ nécessaire dans la lutte pour la
 
-réduction de la journée de travail de l'adulte. Et cette iné-
+réduction de la journée de travail de l'adulte. Et cette inégalité de temps de travail qu'on veut nous faire corriger a
 
-galité de temps de travail qu'on veut nous faire corriger a
-
-été la cause de ce progrès. La machine desservie par l'en-
-
-fant devant s'arrêter à la fin de sa journée, l'ouvrier adulte
+été la cause de ce progrès. La machine desservie par l'enfant devant s'arrêter à la fin de sa journée, l'ouvrier adulte
 
 a demandé, exigé qu'elle s'arrêtät aussi pour lui et il a lutté
 
 pour conquérir cette réduction de sa journée de travail,
 
-réduction qu'il a conquise avant que la loi ait la sanc-
-
-tionner, et par sa volonté elle la sanctionnera quand il
+réduction qu'il a conquise avant que la loi ait la sanctionner, et par sa volonté elle la sanctionnera quand il
 l'exigera.
 
 Les ouvriers anglais, par leur organisation syndicale, ont
@@ -2524,8 +2425,7 @@ l'enfant avec la durée du travail de l'adulte; on a réduit
 comme je l'ai dit dans l'industrie textile le temps de l'enfant à la moitié de celui de l'adulte, c'est-à-dire que le travail de l'adulte représente deux fois le travail de l'enfant.
 Par la réforme que nous proposons, deux équipes très distinctes, séparées par le repas de midi, ne se pourraient confondre. Et la journée étant de huit heures, le travail de l'enfant serait de quatre heures par jour seulement.
 
-En adoptant notre amendement, que fera-t-on? On proté-
-gera davantage l'enfant et on arrivera à l'unification des
+En adoptant notre amendement, que fera-t-on? On protégera davantage l'enfant et on arrivera à l'unification des
 heures du travail par la réduction coordonnée pour tous de
 
 Mais ce n'est pas ce que proposent le Gouvernement et la
@@ -2585,8 +2485,7 @@ les adultes par leurs propres efforts? N'avez-vous pas
 les efforts magnifiques et efficaces qui ont été faits à Brünn
 et à Zwickau et qui ont abouti à l'établissement de la
 journée de dix heures pour les tisseurs? Est-ce que vous
-n'avez pas la classe ouvrière combattre avec une admi-
-rable énergie pour arriver au but principal qu'elle pour-,
+n'avez pas la classe ouvrière combattre avec une admirable énergie pour arriver au but principal qu'elle pour-,
 suivait: la réduction à dix heures de la journée de travail?
 Croyez-vous qu'elle aurait faire cet effort aussi eflicacement, s'il n'y avait pas des lois protectrices de l'enfance? et l'appui économique qui en résulte?
 
@@ -2649,8 +2548,7 @@ onze heures non seulement pour les adultes, mais pour les
 enfants, qui ont maintenant celle de dix heures.
 
 C'est abominable, cela ne peut pas être /Très bien! très
-bien! à l'extrême gauche); nous protestons contre une pro-
-position semblable, et nous demandons à la Chambre de
+bien! à l'extrême gauche); nous protestons contre une proposition semblable, et nous demandons à la Chambre de
 ne pas la voter. Nous ajoutons qu'en réalité si la loi de 1892
 n'a pas été appliquée, — vous le savez trop, — c'est à cause
 justement de cette résistance, que nous voyons apparaître
@@ -2687,8 +2585,7 @@ Nous avons cependant l'espoir que cette loi serait appliquée, car par une circu
 avait déclaré qu'il l'appliquerait à partir du 1* janvier 1900.
 C'est ce que nous demandons. Mais le rapport vous dit: Si
 vous votez le texte qui vous est proposé, ce texte ira au
-Sénat. /Très bien! très bien!) Quel sera le résultat immé-
-diat? C'est que le ministre sera dispensé, et il l'a dit, de
+Sénat. /Très bien! très bien!) Quel sera le résultat immédiat? C'est que le ministre sera dispensé, et il l'a dit, de
 faire appliquer à partir du 1° janvier 1900 la loi de 1892.
 
 M. LeMIRE. — Voilà le danger. Je demande la parole.
@@ -2744,17 +2641,14 @@ patronales qu'il faut dire que la classe ouvrière est infidèle
 
 Non, car dans toute sa partie consciente et organisée elle
 est unanime à réclamer comme la meilleure des réformes qui,
-sous le régime capitaliste actuel, peut être réalisée, la ré-
-duction des heures de travail. C'est ainsi que la journée de
+sous le régime capitaliste actuel, peut être réalisée, la réduction des heures de travail. C'est ainsi que la journée de
 huit heures est devenue le mot d'ordre des revendications
 ouvrières, célébrées par tout le monde ouvrier au 1” mai.
 
 Dans ces conditions, qu'avons-nous à demander? C'est
 que l'évolution naturelle, le développement historique des
-revendications manifestées partout au point de vue dela ré-
-duction des heures de travail ne soient pas enrayés en
-France. Tis le ‘seraient par la proposition qui vons-est pré-
-sentée par le Gouvernement et par commission du travail: historiquement c'est un fait exact qui ne soulève
+revendications manifestées partout au point de vue dela réduction des heures de travail ne soient pas enrayés en
+France. Tis le ‘seraient par la proposition qui vons-est présentée par le Gouvernement et par commission du travail: historiquement c'est un fait exact qui ne soulève
 aucune contradiction. Si malheureusement, par je ne sais
 quel sentiment hostile à la classe ouvrière, vous votiez cette
 proposition, ce serait contre la classe ouvrière et contre le
@@ -2785,14 +2679,12 @@ mesure et dans la possibilité de défendre ses intérêts et, par
 son organisation, d'obtenir par elle-même, en attendant
 que la loi la lui donne, la limitation des heures de travail.
 Si vous voulez voter le maintien de la loi de 1892 et son
-application au 1” janvier 1900, comme l'a promis le Gouver-
-nement, votez contre le passage à la discussion des articles,
+application au 1” janvier 1900, comme l'a promis le Gouvernement, votez contre le passage à la discussion des articles,
 comme je vous le demande; si vous votiez le passage à la
 discussion des articles, si vous marchiez avec le Gouvernement, vous agiriez contre la classe ouvrière, contre le progrès social et républicain, et vous vous rendriez coupable
 d'un véritable crime. J'espère que vous ne voudrez pas le
 commettre. fApplaudissements à l'extrème gauche et sur.
-demandons l'urgence et le passage à la discussion des ar-
-ticles. /Très bien! très bien!)
+demandons l'urgence et le passage à la discussion des articles. /Très bien! très bien!)
 Sur divers bancs. — A demain!
 
 M. Henri LANIEL. — Je demande le renvoi à demain.
@@ -2872,9 +2764,7 @@ loi contient des contradictions et des imperfections, etnous
 
 ne tenons pas moins que vous pouvez y tenir vous-même,
 monsieur le rapporteur, à les effacer, et nous tenons plus
-encore à y introduire plus de protection pour les travail-
-
-leurs dont nous désirons réduire encore plus la durée du
+encore à y introduire plus de protection pour les travailleurs dont nous désirons réduire encore plus la durée du
 
 C'est ainsi qu'avec la commission nous proposerions la
 suppression de ces équipes volantes et alternantes qui permettent aux industriels de tourner et de violer la loi.
@@ -2931,9 +2821,7 @@ très bien, en ce sens qu'on ne peut pas avoir, en agissant
 ainsi, d'autre but que de dégager la parole du ministre du
 commerce et de lui permettre de ne pas appliquer la loi
 
-Je vous l'ai dit hier: il résulte du témoignage de la com-
-
-mission supérieure du travail, qui est hostile à la loi de 1892,
+Je vous l'ai dit hier: il résulte du témoignage de la commission supérieure du travail, qui est hostile à la loi de 1892,
 qu'elle ne rencontre plus de résistance. On est en train de
 l'appliquer, on peut donc l'appliquer; il suffit pour y arriver
 que le gouvernement ordonne une inspection sérieuse,
@@ -2942,8 +2830,7 @@ En 1896, tous ceux qui réclamaient, la réforme de la loi de
 ont des témoignages d'inspecteurs qui indiquaient
 que les résistances diminuaient de jour en jour. Aujourd'hui
 
-elles ont presque disparu. Pourquoi se confie-t-on au Gou-
-vernement et lui demande-t-on d'intervenir pour empêcher
+elles ont presque disparu. Pourquoi se confie-t-on au Gouvernement et lui demande-t-on d'intervenir pour empêcher
 d'appliquer la loi?
 
 Si vous repoussez la disjonetion et si vous obligez le
@@ -2983,9 +2870,7 @@ avait repoussées.
 semble même que le Gouvernement n'ait pas trouvé
 l'application de cette loi assez difficile. IL est, en effet,!
 intervenu par des règlements d'administration publique. Il
-a accumulé les contradictions, les difficultés et les excep-
-
-tions, de telle sorte que la loi est devenue encore plus difficile à appliquer que le jour où elle est sortie des délibérations du Parlement. /Très bien! très bien! à l'extrême
+a accumulé les contradictions, les difficultés et les exceptions, de telle sorte que la loi est devenue encore plus difficile à appliquer que le jour où elle est sortie des délibérations du Parlement. /Très bien! très bien! à l'extrême
 
 Eh bien, si, de bonne foi, on voulait appliquer cette loi,
 ne se bornerait-on pas à demander qu'on l'améliore, qu'on
@@ -3041,8 +2926,7 @@ mentir à nos promesses, c'est de maintenir et de faire appliquer la loi du 2 no
 l'ordre du jour de la prochaine session la discussion de
 l'ensemble de cette loi, afin que nous puissions en faire
 disparaître tout ce qui en rend l'application difficile et de
-repousser, dès maintenant, la disjonction, car cette dis-
-jonction montre exactement, et d'une façon très précise, le
+repousser, dès maintenant, la disjonction, car cette disjonction montre exactement, et d'une façon très précise, le
 mal, le crime que l'on veut vous faire commettre contre
 
 Cette proposition est éminemment dangereuse et aggrave
@@ -3053,8 +2937,7 @@ nous ne nous opposerions nullement à la discussion de la
 loi tout entière, car nous aurions tous un intérêt égal à la
 discuter avec ampleur, pour y introduire les améliorations
 
-désirables. Chacun de nous, à quelque doctrine qu'il appar-
-tienne, se trouverait dans les meilleures conditions pour en
+désirables. Chacun de nous, à quelque doctrine qu'il appartienne, se trouverait dans les meilleures conditions pour en
 éliminer tous les éléments malfaisanis. C'est dans ces conditions seules que nous pouvons accepter la discussion.
 Remarquez aussi que si vous acceptiez l'inscription
 l'ordre du jour de la prochaine session de l'étude générale
@@ -3106,8 +2989,7 @@ l'inviter à maintenir le vote qu'à la majorité de 400 voix -
 contre 107 elle a émis hier, à refuser, aujourd'hui comme
 hier, d'ajourner après le vote du budget la discussion du
 projet de loi qui lui est soumis, et pourquoi, en même temps,
-je la prie de voter la motion de disjonction qui lui est pré-
-sentée par la commission. Pour la convaincre, il me semble
+je la prie de voter la motion de disjonction qui lui est présentée par la commission. Pour la convaincre, il me semble
 que le seul moyen est de lui montrer qu'elle ne peut faire
 une œuvre utile et eflicace qu'à la condition d'accepter cette
 
@@ -3115,16 +2997,11 @@ Je comprends très bien le regret qu'éprouve un homme
 comme M. Dron, qui a étudié de près la loi de 1892, qui en
 connaît toutes les imperfections, qui les a signalées dans
 un rapportremarquable, je comprends le regret qu'il éprouve
-à être obligé de laisser subsister dans cette loi tant d'im-
-perfections et à devoir limiter l'effort réformateur de la
+à être obligé de laisser subsister dans cette loi tant d'imperfections et à devoir limiter l'effort réformateur de la
 Chambre à un point unique. Ce regret, je le partage. Mais,
-en vérité, comment pourrais-je, comment la Chambre pour-
-rait-elle se rallier à la motion de M. Dron, qui, sous prétexte
-que la loi telle que la lui présente la commission ne réali-
-
-serait pas tous nos desiderata, vous demande quoi? de n'en
-réaliser aucun, de ne rien faire et de laisser la loi tout en-
-tière telle qu'elle est? /Très bien! Très bien!)
+en vérité, comment pourrais-je, comment la Chambre pourrait-elle se rallier à la motion de M. Dron, qui, sous prétexte
+que la loi telle que la lui présente la commission ne réaliserait pas tous nos desiderata, vous demande quoi? de n'en
+réaliser aucun, de ne rien faire et de laisser la loi tout entière telle qu'elle est? /Très bien! Très bien!)
 Messieurs, je comprends autrement notre devoir. Je vous
 demande de réaliser tout de suite quelque chose, et ma.
 seule démonstration, celle qui, je l'espère, emportera l'ad-
@@ -3341,8 +3218,7 @@ bancs à l'extrême gauche et au centre)
 
 nous dit qu'il se contente d'inscrire dans la loi ce qui est
 déjà une réalité. Mais, quand nous lui demandons de tenir
-sa parole et d'appliquer la loi du 2 novembre 1892, c'est pré-
-cisément pour qu'il fasse en sorte que ce qui est la lettre
+sa parole et d'appliquer la loi du 2 novembre 1892, c'est précisément pour qu'il fasse en sorte que ce qui est la lettre
 de la loi soit une réalité, c'est-à-dire que la journée de l'enfant soit, non plus seulement dans une partie des ateliers,
 mais dans la totalité des ateliers, une journée de dix heures.
 
@@ -3406,9 +3282,7 @@ vous rappelle que ces contradictions ont été introduites par
 les volontés contraires du Sénat et de la Chambre. La
 Chambre voulait la journée de dix heures, le Sénat n'en
 voulait pas; la Chambre ne voulait pas des équipes volantes, tournantes et alternantes, ni de ces relais chevauchant les uns sur les autres, qui permettent toutes les
-fraudes; c'est le Sénat qui a introduit toutes ces disposi-
-
-tions dans la loi. Eh bien! nous voulons, nous, faire disparaître de la loi ces imperfections et ces contradictions;
+fraudes; c'est le Sénat qui a introduit toutes ces dispositions dans la loi. Eh bien! nous voulons, nous, faire disparaître de la loi ces imperfections et ces contradictions;
 nous voulons introduire dans la loi des dispositions claires,
 nettes, qui ne permettent pas aux règlements d'administration publique de faire le mal qu'ils ont déjà fait, qui ne leur
 permettent pas de venir compliquer la loi, de la contredire
@@ -3433,13 +3307,11 @@ face devant le Sénat? IL ne considérera que la face qui
 aggrave le travail des enfants et, quant à l'autre, il ne
 voudra pas en prendre connaissance; il la repoussera, et
 vous aurez ainsi purement et simplement augmenté le
-temps de travail des enfants; ce sont les malheureux en-
-fants qui auront été sacrifiés! /Applaudissements à droite et
+temps de travail des enfants; ce sont les malheureux enfants qui auront été sacrifiés! /Applaudissements à droite et
 sur plusieurs bancs à l'extrême gauche)
 BREUIL, COMTE DE PONTBRIAND. — Nous ne pouvons pas sacrifier l'enfance!
 M. ÉpouarD VarcLanT. — Cela ne fait pas l'ombre d'un
-doute; mais permettez-moi d'ajouter une autre considéra-
-tion très brève que je développerai davantage à propos
+doute; mais permettez-moi d'ajouter une autre considération très brève que je développerai davantage à propos
 des amendements: c'est que, dans le monde entier, la diminution du travail pour les enfants entraine, pour les
 adultes, la diminution du temps de travail, par suite du
 
@@ -3487,8 +3359,7 @@ c'est déclarer que vous voulez réformer toutes les dispositions sur lesquelles
 tous les points sur lesquels elle peut être tournée, fraudée,
 
 Si, au contraire, vous prononcez la disjonction, vous permettez au ministère de ne pas tenir sa parole, de ne pas
-appliquer rigoureusement la disposition de la loi sur la ré-
-duction du travail des enfants à dix heures, à partir du
+appliquer rigoureusement la disposition de la loi sur la réduction du travail des enfants à dix heures, à partir du
 janvier prochain. En un mot, non seulement vous permettez au patronat de violer la loi, mais vous faites disparaître toute loi qui pourrait réprimer l'exploitation de
 l'enfant.
 
@@ -3501,8 +3372,7 @@ ou celle de dix, ou même celle de onze heures pour les
 adultes, comme vous la déciderez, mais du moins nous
 n'aurons pas aggravé la situation pour l'enfance; nous n'aurons pas porté de dix à onze heures la journée de travail
 pour l'enfant.
-C'est dans ces conditions que je tiens à ce que vous com-
-preniez toute la responsabilité de votre vote, et que je vous
+C'est dans ces conditions que je tiens à ce que vous compreniez toute la responsabilité de votre vote, et que je vous
 demande de repousser par voie de scrutin la disjonction
 qui est, je le répète, de la part de la commission, une pro- à
 position tellement grave, tellement fâcheuse et détestable,
@@ -3514,8 +3384,7 @@ Nous demandons la division jusqu'à la date.
 
 M. LE PRÉSIDENT. — La division étant demandée, je mets
 aux voix le premier paragraphe de la proposition de résolution de M. Dron
-La Chambre, approuvant le Gouvernement d'avoir formellement exprimé son intention de faire appliquer inté-
-gralement la loi du 2 novembre 1892...
+La Chambre, approuvant le Gouvernement d'avoir formellement exprimé son intention de faire appliquer intégralement la loi du 2 novembre 1892...
 
 Il y a une demande de scrutin, signée de MM. Vaillant,
 
@@ -3608,8 +3477,7 @@ M. LE PRÉSIDENT. — Je mets aux voix ces deux para-
 
 prRésipenr. — Nous passons au projet de résolution
 de la commission qui est ainsi conçu
-« Sont disjoints de la proposition de loi soumise aux dé-
-libérations de la Chambre et renvoyés à la commission du
+« Sont disjoints de la proposition de loi soumise aux délibérations de la Chambre et renvoyés à la commission du
 
 travail, avec les amendements qui s'y réfèrent, tous les
 articles de la loi du 2 novembre 1892, sauf l'article 3. »
@@ -3657,8 +3525,7 @@ la discussion générale de la loi, mais il suflira que je développe mes observ
 
 Le deuxième paragraphe de cet article porte qu'au bout
 d'une période de trois années, la durée du travail ne sera plus
-que de dix heures et demie, et qu'au bout d'une nouvelle pé-
-riode de trois années, cette durée ne sera plus que de dix
+que de dix heures et demie, et qu'au bout d'une nouvelle période de trois années, cette durée ne sera plus que de dix
 
 J'estime que cette loi n'est faite que contre les enfants et
 les mineurs, auxquels elle fait supporter la mauvaise volonté des patrons qui se refusent à appliquer les lois les
@@ -3788,9 +3655,7 @@ Dufaure, avec cette rude éloquence qui portait parfois
 de si terribles coups, appelait ses adversaires le « parti
 sans nom ». Nous pouvons ajourd'hui reprendre cette
 expression. Quel nom donner, en effet, à ceux que nous
-avons en face de nous? Quel nom prennent-ils eux-
-mêmes? Sont-ce des royalistes? Sont-ce des impéria-
-listes? Ils le savent peut-être, ils le savent certainement,
+avons en face de nous? Quel nom prennent-ils euxmêmes? Sont-ce des royalistes? Sont-ce des impérialistes? Ils le savent peut-être, ils le savent certainement,
 mais ils se gardent bien de le dire. (Sourires)
 Entre eux, même, y a-t-il un accord sur quelque programme d'action au lendemain de leur victoire, si
 jamais ils étaient vainqueurs? Pas davantage. Ils se
@@ -3816,8 +3681,7 @@ pour l'armée comme pour la patrie: qui donc a le droit
 de parler au nom de l'armée sinon la souveraineté
 nationale tout entière, sinon la nation? (Très bien! très
 bien J'ai bien envie de leur dire: qui donc peut ravir
-à l'un d'entre nous ce patrimoine commun des Fran-
-çais, quand l'armée n'est que la nation jeune et
+à l'un d'entre nous ce patrimoine commun des Français, quand l'armée n'est que la nation jeune et
 
 Que l'on compare — et ce sera intéressant de le faire
 avec eux, lors des discussions électorales — que l'on
@@ -3903,17 +3767,14 @@ dans ces dernières années, qu'en vérité il fallait connaître bien peu le su
 suffrage restreint, pour s'imaginer qu'il suffirait d'une
 pareille tactique pour franchir le petit défilé du scrutin.
 
-ce propos, je voudrais dissiper dans l'esprit de cer-
-tains d'entre nous l'idée que pourrait faire naître le
+ce propos, je voudrais dissiper dans l'esprit de certains d'entre nous l'idée que pourrait faire naître le
 résultat de: lélection toute récente de Tournon. Ce
-résultat serait je ne sais quelle victoire des nationa-
-listes due à une lettre envoyée de Paris par la Patrie
+résultat serait je ne sais quelle victoire des nationalistes due à une lettre envoyée de Paris par la Patrie
 française. Le hasard ma fait me rencontrer avec des
 électeurs de cette circonscription. Ils m'ont dit: La
 lettre de la Patrie française? Elle n'est pas arrivée dans
 les villages (Sourires), elle n'a pas été connue. Ce n'est
-pas là-dessus que s'est faite l'élection. La circon-
-scription de Tournon est très divisée entre protestants
+pas là-dessus que s'est faite l'élection. La circonscription de Tournon est très divisée entre protestants
 et catholiques, ç'a été la question déterminante dans le
 scrutin. J'en parle à mes collègues de la Chambre avec
 une attention particulière et je les prie d'y prêter une
@@ -3960,8 +3821,7 @@ riches et redoutables.
 
 Contre les congrégations
 
-Il y a peu de jours, je regardais une carte publiée ré-
-cemment sur la situation de la propriété immobilière
+Il y a peu de jours, je regardais une carte publiée récemment sur la situation de la propriété immobilière
 des congrégations. On ne connaît pas leur fortune mobilière, personne ne peut l'évaluer; mais on connaît
 tant bien que mal leur fortune immobilière. Un pareil
 travail laisse de côté tout ce qui a été dissimulé par
@@ -4020,8 +3880,7 @@ de l'Eglise catholique elle-même ne peuvent en arrêter
 le développement ou en empêcher les excès.
 
 Il faut aller droit à cette question, et je dirais volontiers que c'est celle qu'aux élections prochaines je voudrais voir traiter avant toutes les autres. Il faut engager
-la lutte contre les congrégations, non pas par des me-
-sures simplement administratives, comme au temps des
+la lutte contre les congrégations, non pas par des mesures simplement administratives, comme au temps des
 décrets, vous avez qu'elles n'ont pas sufli, parce que
 la sanction définitive de la loi leur manquait, mais par
 le vote aussi rapide que possible de lois énergiques.
@@ -4047,8 +3906,7 @@ prends la liberté de mettre sous vos yeux, et quin'a
 beaucoup frappé: « Ces congrégations, où sont leurs
 chefs? A l'étranger. Que sont leurs chefs? Des étrangers. Ludovic Martin, général des jésuites, est Espagnol; le supérieur général des dominicains est Prussien; le ministre général des franciscains, étranger
 étrangers également celui des barnabites, le recteur,
-curateur et procurateur des rédemptoristes, des pré-
-montrés, — je passe les noms — des capucins, des
+curateur et procurateur des rédemptoristes, des prémontrés, — je passe les noms — des capucins, des
 bénédictins, etc. Tous ces cosmopolites combinent
 Rome le plan d'asservissement de notre pays. (Longs
 
@@ -4111,8 +3969,7 @@ développer longuement devant vous? Je viens de parler
 de ce qui pouvait donner lieu à des discussions passionnées. Sur l'ensemble de notre programme économique,
 fiscal et social, ne sommes-nous pas tous d'accord? Ne
 luttons-nous pas depuis quatre ans pour le défendre?
-Nous voulons la réforme profonde de l'impôt, cette ré-
-forme qui, en faisant entrer la progression dans notre
+Nous voulons la réforme profonde de l'impôt, cette réforme qui, en faisant entrer la progression dans notre
 
 Nous voulons établir l'assurance sociale dans tous les
 
@@ -4168,11 +4025,9 @@ véritables; ils ne se laissent guider que par des raisons
 de principe. Notre Constitution, débile dès sa naissance — tous ceux qui l'ont mise au monde vous le
 diraient — a été depuis lors passablement secouée par.
 les événements, ses vices initiaux ont été légèrement
-aggravés par la fatigue inévitable d'une course si pé-
-nible à travers les obstacles. Il faut lui infuser un sang
+aggravés par la fatigue inévitable d'une course si pénible à travers les obstacles. Il faut lui infuser un sang
 nouveau; il faut la transformer dans un sens vraiment
-démocratique en ayant ces deux idées toujours pré-
-sentes à l'esprit: faire en sorte que le suffrage universel
+démocratique en ayant ces deux idées toujours présentes à l'esprit: faire en sorte que le suffrage universel
 ait toujours le dernier mot sur toutes les questions et
 que le pouvoir issu de la volonté générale ait la durée,
 
@@ -4181,8 +4036,7 @@ la force et la responsabilité qui conviennent au gouvernement d'un grand pays. 
 Fidèles à notre drapeau
 
 Voilà ce que nous défendions il y a quatre ans, ce
-que nous pensions lors des dernières élections géné-
-rales, ce que nous avons fait comprendre et accepter
+que nous pensions lors des dernières élections générales, ce que nous avons fait comprendre et accepter
 par une grande partie des citoyens de notre pays.
 Voilà pour notre compte sans y changer un mot, en
 restant fidèles aux mêmes idées et aux mêmes principes, quel est encore aujourd'hui notre programme
@@ -4193,8 +4047,7 @@ de défendre avec nous.
 
 N'ayons aucune crainte. On nous parlait hier, à la
 notre pays, beaucoup de fils de Rabelais et de La
-Fontaine, qui n'ont pas perdu le vieux bon sens fran-
-çais et qui sont parfaitement capables de montrer
+Fontaine, qui n'ont pas perdu le vieux bon sens français et qui sont parfaitement capables de montrer
 ceux qui espèrent les leurrer par de grands mots que,
 sous les grands mots, il y a de petites choses, et
 derrière les grands sentiments de mauvaises intentions.
@@ -4243,8 +4096,7 @@ choïisissaient le champ de combat, comme si la force
 des événements ne marquait pas à tous l'heure et le
 lieu de la rencontre. Mais cette fois M. Léon Bourgeois
 est très net et presque violent. Il dénonce la cohue nationaliste comme « le parti sans nom comme le rassemblement de toutes les forces de reaction qui, n'osant
-arborer leur drapeau traditionnel, leur emblème monar-
-chique ou leur bannière cléricale, haussent au-dessus
+arborer leur drapeau traditionnel, leur emblème monarchique ou leur bannière cléricale, haussent au-dessus
 de leurs passions rétrogrades et de leurs convoitises
 contradictoires l'image profanée de la patrie.
 C'est bien: et M. Léon Bourgeois, allant au fond
@@ -4276,8 +4128,7 @@ Mais prenez garde. D'abord, M. Léon Bourgeois évite
 avec soin de dire à ses amis: Il faut soutenir le ministère, il faut l'aider à vivre. » Sur ce point, il glisse avec
 une sorte d'habileté équivoque. Il allègue qu'il se propose de traiter un objet plus général et plus haut et que
 son parti n'est pas un parti « de portefeuilles ». Mais
-le meilleur moyen de le prouver ne serait-il pas pré-
-cisément d'inviter ses amis à défendre jusqu'à l'entier
+le meilleur moyen de le prouver ne serait-il pas précisément d'inviter ses amis à défendre jusqu'à l'entier
 accomplissement de sa tâche le gouvernement républicain? M. Léon Bourgeois, sur ce point décisif, se
 dérobe. Sans doute M. Mesureur et quelques autres radicaux impatients ne lui ont pas permis de les engager.
 Aussi M. Bourgeois, sans parler de l'avenir, qui est ce
@@ -4307,8 +4158,7 @@ socialistes; et, quand on le lui reprochait, il répondait
 « Les socialistes sont des républicains. » Il semble
 que ces temps sont loin de nous. M. Léon Bourgeois a
 constaté que la collaboration directe d'un ministre
-socialiste à l'œuvre gouvernementale de défense répu-
-blicaine grandissait l'autorité morale de notre parti, et
+socialiste à l'œuvre gouvernementale de défense républicaine grandissait l'autorité morale de notre parti, et
 il ne lui déplaît pas d'être agréable aux modérés et à un
 certain nombre de radicaux, en annonçant que les
 socialistes seront désormais exclus de toute combinaison.
@@ -4321,9 +4171,7 @@ contre le nationalisme, mais on recevra aimablement en
 grâce les nationalistes les plus compromis. Et surtout,
 on éliminera décidément les socialistes et on recommencera à les dénoncer au pays comme l'ennemi.
 
-Or, cette tactique de M. Léon Bourgeois est fort ha-
-
-bile: mais elle enveloppe une contradiction. Car au
+Or, cette tactique de M. Léon Bourgeois est fort habile: mais elle enveloppe une contradiction. Car au
 
 point où en sont les choses, je défie que l'on combatte,
 
@@ -4331,15 +4179,11 @@ même mollement, le nationalisme et le mélinisme sans
 
 le concours des socialistes, « des collectivistes ». Se
 
-passer d'eux est impossible, à plus forte raison les com-
-
-battre serait une folie. Quoi que fassent M. Bourgeois
+passer d'eux est impossible, à plus forte raison les combattre serait une folie. Quoi que fassent M. Bourgeois
 
 et les habiles qui manœuvrent dans son ombre, le
 
-socialisme est entré si profondément dans la Répu-
-
-blique même bourgeoise qu'on ne l'en arrachera plus.
+socialisme est entré si profondément dans la République même bourgeoise qu'on ne l'en arrachera plus.
 
 Ce cahier est composé par des ouvriers syndiqués
 Suresnes. — Imprimerie GA. Ricanp CW, 9, rue du Pont.
@@ -4396,9 +4240,7 @@ Enfin la publication tout entière sera sous le contrôle de la
 commission que vous désignerez ensuite. Le prix de l'ouvrage,
 pour les exemplaires de propagande, sera fixé aussi bas que
 possible: un franc au minimum, deux francs au maximum.
-Vous serez invités, par des circulaires qui vous seront adressées, à indiquer, pour chacun des délégués, s'il veut souscrire. Vous serez invités encore, si vous acceplez ces propo-
-
-silions, à demander aux groupes s'ils veulent souscrire et-à
+Vous serez invités, par des circulaires qui vous seront adressées, à indiquer, pour chacun des délégués, s'il veut souscrire. Vous serez invités encore, si vous acceplez ces proposilions, à demander aux groupes s'ils veulent souscrire et-à
 dans quelle mesure. me:
 
 L'intérêt de ces mesures sera d'abaisser, autant qu'il sera
@@ -4415,8 +4257,7 @@ Le citoyen Président. — Je mets aux voix cette proposilion…. Se
 Un délégué: — Je n'ai que ceci à dire: Au lieu de nommer
 une nouvelle commission, pourquoi ne prendrait-on pas la
 commission des rédacteurs?
-Le citoyen-Président. — Y a-t-il des oppositions à ces pro-
-positions"? Puisqu'il n'y en a pas, il en est ainsi décidé.
+Le citoyen-Président. — Y a-t-il des oppositions à ces propositions"? Puisqu'il n'y en a pas, il en est ainsi décidé.
 Vient de paraître à la Société Nouvelle de Librairie
 et d'édition, 17, rue Cujas. Paris,
 

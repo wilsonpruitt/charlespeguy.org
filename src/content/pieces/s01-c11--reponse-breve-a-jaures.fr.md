@@ -12,13 +12,11 @@ triste. Il avait en mains, comme tout le monde, le ss.
 vement Socialiste, — numéros 33 et 34 du premier et du
 mai. Il avait et venait de relire attentivement le
 compte rendu sténographique de la conférence donnée
-par Jaurès à la Porte-Saint-Martin sur l'art et le socia-
-lisme. Sérieusement il marchait sous le vieux poirier
+par Jaurès à la Porte-Saint-Martin sur l'art et le socialisme. Sérieusement il marchait sous le vieux poirier
 — J'ai connu par les journaux, me dit-il, que ce!
 compte rendu paraissait aussi dans la Reoue Socialiste, DU
 numéro 185 du 15 mai 1900. Je ne suis pas heureux
-qu'un même compte rendu paraisse en deux publica-
-tions — surtout socialistes — simultanément. Sans
+qu'un même compte rendu paraisse en deux publications — surtout socialistes — simultanément. Sans
 doute je connais à cet arrangement cordial mutuellement conclu que les deux grandes revues socialistes
 vivent en bonne intelligence, et mieux vaut la Bonne
 intelligence que la concurrence bourgeoise. Mais mieux à
@@ -65,18 +63,14 @@ oncée par Jaurès. Gardons-n0t!
 la rigueur j'admets, provisoirement et par con
 dance, qu'un journal, écrasé de charges financières,
 emporté par les mœurs quotidiennes, soigne sa vente
-‘en proposant à sa clientèle bourgeoise des noms popu-
-laires. Je consens qu'on organise des conférences reten-
-tissantes et qu'on mette un nom populaire au programme::
-c'est satisfaire loyalement et modestement aux exi-
-gences de l'action journalière. Mais heureusement les …
+‘en proposant à sa clientèle bourgeoise des noms populaires. Je consens qu'on organise des conférences retentissantes et qu'on mette un nom populaire au programme::
+c'est satisfaire loyalement et modestement aux exigences de l'action journalière. Mais heureusement les …
 révues sont encore les revues, — et les cahiers sont À il
 encore les cahiers. Les revues ont leurs mœurs, et heu- ce
 reusement les mœurs des revues'ne sont pas les mœurs à -
 quotidiennes. Soyons conservateurs quand il convient.
 Conservons soigneusement les mœurs des revues. Ce
-qui était l'article intense d'action quotidienne ou le dis-
-cours vibrant d'émotion publique devient dans la revue
+qui était l'article intense d'action quotidienne ou le discours vibrant d'émotion publique devient dans la revue
 et, un peu moins, dansle cahier, une simple contribution se
 à une étude. J'attends le jour où à la première page de
 - la Revue Socialiste il y aura: Lire dans le Mouvement
@@ -116,13 +110,12 @@ partie. Jelis attentivement. J'ai relu. Elle m'a laissé une
 Cest un discours d'apparat, prononcé dans une céré
 monie d'apparat. Vous savez combien ces luxueuses
 0 représentations, — moralement luxueuses, — me sont
-4 peu intéressantes, représentations, auditions et spec-
-tacles où des bourgeois viennent se donner le plaisir
+4 peu intéressantes, représentations, auditions et spectacles où des bourgeois viennent se donner le plaisir
 nouveau d'une socialiste éloquence. Mais passons pour
 si aujourd'hui. Tout ce que je retiens, c'est que le a
 est malheureusement fait pour l'assistance, et que
 
-spect du discours est conforme à: ma
+spect du discours est conforme ma
 involontairement le discours s'ordonne sur l'O ‘ie
 du théâtre, et comme ces représentations
 sont le commencement de nos séances académiques,
@@ -156,8 +149,7 @@ sue de la première série
 a ce Koréts mais elle n'entendai point
 Pas automatique, sans Comprendr!
 cette chanson de rêve que murmurait à a
-qu'elle avait emporté... Eh bien, le prolé-
-taire paysan marche ainsi, enveloppé du souffle de la
+qu'elle avait emporté... Eh bien, le prolétaire paysan marche ainsi, enveloppé du souffle de la
 nature, mais il ne l'entend pas.
 Vous avez bien écouté: il y a dedans au moins
 deux représentations qui sont d'un grand poète, c'est-à-
@@ -195,8 +187,7 @@ révolution bourgeoise continue à illuminer encore les
 œuvres des hommes, même à l'heure où l'aurore d'une
 Je ne prétends pas non plus résumer dans la brève ne:
 sécheresse d'une formule l'œuvre de création et de À
-beauté accomplie depuis cent vingt ans, sous l'inspira-
-tion de la pensée révolutionnaire bourgeoise; je reprends Dur)
+beauté accomplie depuis cent vingt ans, sous l'inspiration de la pensée révolutionnaire bourgeoise; je reprends Dur)
 mon image de tout à l'heure, et je dis que, de même
 que dans une journée d'été chaque minute a sa nuance,
 sa coloration propre, de même, dans cette longue et De
@@ -243,17 +234,14 @@ cela dépend des espèces. La conception que itudes
 ises. Comme socialistes nous travaillons?
 en affranchir. Pareillement nous éviterons
 nos forces à l'en aïiranc des servitudes
-soigneusement qu'elle ne retombe eme ré-
-tendues socialistes. La révolution sociale, au sens où ni!
-nous l'entendons, nous donnera la libération de la con-
-ception que nous avons de l'art.:
+soigneusement qu'elle ne retombe eme rétendues socialistes. La révolution sociale, au sens où ni!
+nous l'entendons, nous donnera la libération de la conception que nous avons de l'art.:
 Plus encore il y aurait danger à laisser croire qu'il
 peut y avoir un art socialiste. Il ne peut pas plus y avoir!
 un art socialiste qu'il ne peut y avoir une histoire socialiste. Soyons socialistes, et, si nous sommes historiens,
 faisons de l'histoire. Soyons socialistes, et, si nous: il
 sommes artistes, faisons des œuvres d'art. Ne soyons:..H il
-pas historiens socialistes. Ne soyons pas artistes socia-
-listes. Ou plutôt ces derniers mots et ces avant-derniers
+pas historiens socialistes. Ne soyons pas artistes socialistes. Ou plutôt ces derniers mots et ces avant-derniers
 n'ont aucun sens. La création d'art contemporaine se
 heurte aux servitudes bourgeoises. Comme socialistes,
 nous travaillons de toutes nos forces à l'affranchir de
@@ -261,8 +249,7 @@ toutes les servitudes. La révolution sociale nous donnera
 la libération de l'art. Elle nous donnera un art libre,
 mais non pas un art socialiste, Du
 art CE nous nOMMONS ainsi la représentation en art
-anité ne sera pas socialiste ainsi qu'elle fut chré-
-üenne et païenne, au sens où elle fut l'humanité anti Le
+anité ne sera pas socialiste ainsi qu'elle fut chréüenne et païenne, au sens où elle fut l'humanité anti Le
 et l'humanité moderne. Elle sera libre.
 libre de nous. Lib sas mo" surtout, nie
 par nos efforts, mais libre
@@ -291,14 +278,12 @@ tentés d'aller vers la vie militante, d'y chercher un À à
 à principe nouveau, une force nouvelle de beauté,
 à Singuliers militants, mon ami, que ceux qui seraient
 Ter 4 tentés d'aller chercher dans La vie militante un principe
-Cr: nouveau, une force nouvelle de beauté. Singuliers mili-
-tants, et dont je m'inquiète un peu. Braves gens sans
+Cr: nouveau, une force nouvelle de beauté. Singuliers militants, et dont je m'inquiète un peu. Braves gens sans
 doute, et hommes de bonne volonté, mais tout de même
 . #4 un peu apparentés à eeux que nous nommons Îes snobs
 eLà ceux que nous nommons les cabotins.
 ceux qui vont chercher dans la vie militante ce qu'elle
-n'est pas faite pour donner, pour nous donner. Malhen-
-reux ceux qui n'y cherchent pas uniment la réalisation
+n'est pas faite pour donner, pour nous donner. Malhenreux ceux qui n'y cherchent pas uniment la réalisation
 du modeste idéal. Malheureux d'abord parce que Sans
 
 doute ils sont immoraux- Malheureux ne parce
@@ -354,8 +339,7 @@ eflicace et la passion nourricière, accompagnait l'opé-.. À
 ration. même était, en un sens, la vertu de l'opéra.
 tion. La fat la cause et la condition de sonincomparable
 TA réussite. Non qu'il n'y ait dans les Preuves, une fois
-A rassemblées en un volume, plusieurs hésitations d'écri-
-ture et plusieurs métaphores incertaines. Seulement
+A rassemblées en un volume, plusieurs hésitations d'écriture et plusieurs métaphores incertaines. Seulement
 :“}. l'incertitude et l'hésitation vegaient de l'action même,
 rapide, chaude et lourde, elles ne venaient pee en
 d'un arrangement. Ainsi les gaucheries des pie es
@@ -369,14 +353,11 @@ tienne accorder à ces jeunes gens Ce qu'il se See:
 à luimême, ce qu'il ne s'est jamais accordé. Gardon:
 nous du snob et du faux artiste. Gardons-nous faux
 homme d'action. Séparons les fonctions. Distinguons
-les fonctions séparées. J'admets que l'action, drama-
-nelle aux grands poètes, et aux petits garçons qui #1
+les fonctions séparées. J'admets que l'action, dramanelle aux grands poètes, et aux petits garçons qui #1
 ‘commencent. Il est permis aux tout jeunes gens de;
 s'imaginer que l'action est un combat, qu'elle est une 1 Il
-bataille, qu'elle est une guerre, et d'y avoir les sen-
-timents mélés des militaires militaristes. Mais nous:
-avons dès longtemps renoncé, mon ami, à ces compa-
-raisons et à ces assimilations militaristes. Nous savons
+bataille, qu'elle est une guerre, et d'y avoir les sentiments mélés des militaires militaristes. Mais nous:
+avons dès longtemps renoncé, mon ami, à ces comparaisons et à ces assimilations militaristes. Nous savons
 *. de certain que l'action contemporaine est un perpétuel
 effort, un perpétuel travail, un perpéluel essai de la
 guérison d'une majorité malade par une minorité saine.
@@ -388,8 +369,7 @@ as iédemande qu'au moins le médecin garde quelque
 de ceci: qu'il est institué pour soigner des
 alades. Nous n'acceptons pas volontiers les
 médecins et 1 à que les
-Le les prêtres aient une certaine gaîté inso-
-aie. La plupart des médecins ont un arrière il
+Le les prêtres aient une certaine gaîté insoaie. La plupart des médecins ont un arrière il
 saine tristesse. Ils nous plaisent ainsi Malh fond de hi.
 cin qui se laisserait sédhire à à eur au méde- Ll:
 
@@ -432,7 +412,7 @@ nous l'eussions demandée ni aux benmmé##
 ments. Et je suis assuré que Zola, et je suis pur
 Jaurès ont fait comme ils ont dû, c'est-à-dire a
 pour ainsi dire fait ces chefs-d'œuvre de l'action à
-corps défendant. Ils ont moralement fait tout ce qu'ils «!
+corps défendant. Ils ont moralement fait tout ce qu'ils
 ont pour n'avoir pas à nous donner le premier sa
 Lettre au Président de la République et le deuxième ses
 immortelles Preuves. Récemment encore soyez assuré il.
@@ -481,12 +461,10 @@ E., Je vous perais exagérer, mon ami. Espérer-le. Je suis
 méfiant parce que je suis malheureux. Je le suis aussi
 k. parce que j'ai acheté quelque expérience. Gardons-nous,
 Ce que l'on nomme inexactement le parti anarchiste fut
-a naguère envahi par une quantité de géns qui n'y cher-
-chaïent pas uniment la réalisation de la liberté univer.
+a naguère envahi par une quantité de géns qui n'y cherchaïent pas uniment la réalisation de la liberté univer.
 “4 selle. J'ai peur que ce que l'on nomme un peu moins
 inexactement le parti socialiste ne soit un jourenvahi
-par beaucoup de gens qui n'y chercheraient pas uni-
-ment l'arrachement de tout le monde aux servitudes
+par beaucoup de gens qui n'y chercheraient pas uniment l'arrachement de tout le monde aux servitudes
 économiques. On me dit qu'il y a des jeunes gens qui
 vont au peuple, C'est bien. Mais soyons du peuple,
 Le À Ils ne se sont pas demandé, ils ne me demandent pas
@@ -540,8 +518,7 @@ deau des besoins matériels, AAA le far.
 des bourgeois Parasitaires, Que s'ils sont sont!
 Par leurs familles, ce que je ne sais pas, Je Dourris
 1% blème se pose au deuxième depré le même pro.
-à et puis Parce qu'ils ont qu'à travérs les formes suc-
-pessites des sociétés, l'art trouvait toujours moyen de il
+à et puis Parce qu'ils ont qu'à travérs les formes sucpessites des sociétés, l'art trouvait toujours moyen de il
 se faire sa place. lis savent que, lorsqu'une société
 attache à l'idée de beauté le prix qu'elle y doit mettre,
 c'est-à-dire le prix souverain, elle trouve toujoms
@@ -551,8 +528,7 @@ vie aux ouvriers de la beauté devenus les frères et les
 Évitons ici un contre-sens: l'auteur n'a pas dit que
 dans tous les âges de l'humanité l'art avait trouvé
 moyen de se faire sa place. Il a bien fait, de ne pas le
-dire, parce que vraiment ce serait un peu fort. L'au-
-es teur a dit seulement que:àtraversiafmemes
+dire, parce que vraiment ce serait un peu fort. L'aues teur a dit seulement que:àtraversiafmemes
 ne e. sives de la société, des sociétés, l'art trouvait toujours
 à moyen de se faire sa place. Nous retombons ainsi de
 ô l'histoire, qui, ainsi affirmative, serait inexacte, à
@@ -582,8 +558,7 @@ nous voyons les rames et les morceaux de toile accro- ne
 chés aux murailles des temples par ceux des fidèles qui
 ont échappé au péril de la mer. Savons-nous pour cela
 combien de fidèles ont subi jusqu'au bout leur mauvaise
-fortune. Il est pénible que les vieux sophismes repa-
-raissent aussi infatigables. Cela dénote une mauvaise
+fortune. Il est pénible que les vieux sophismes reparaissent aussi infatigables. Cela dénote une mauvaise
 économie du travail humain. Diagoras étant venu à ne
 Samothrace, Diagoras que l'on nomme 'Athée: Toi qui 4. Pre
 penses, lui dit un ami, que les dieux négligent les 4 -
@@ -603,14 +578,13 @@ là-dessus. Par quelle gratuité de complai est fondée
 leur accorder leurs faux postulats? ran fausse
 adresse de la complaisance. Datique a
 gréable. Mais la maladresse ne m'est pas moins désa.
-à, éable, quand elle est fausse. De-tous les hommes les
+éable, quand elle est fausse. De-tous les hommes les
 artistes sont les plus difficiles à vivre. En ce sens notam-
 : ment queries mauvais engouements mis à part, — et
 les mauvais engouements ne vont jamais aux bons
 artistes, — c'est aux artistes qu'il est le plus difficile de.
 gagner le pain quotidien. Les deux principales causes
-de cette infériorité commerciale sont la singulière pré-
-occupation du travail et la particulière apparente inutil: lité de l'œuvre. Si done les artistes réussissaient
+de cette infériorité commerciale sont la singulière préoccupation du travail et la particulière apparente inutil: lité de l'œuvre. Si done les artistes réussissaient
 gagner leur pain dans la présente société bourgeoise,
 comme Jaurès paraît se l'imaginer, à plus forte raison
 54 "4 les autres y réussiraient-ils. Et alors nous n'aurions pas!
@@ -633,15 +607,13 @@ la vie supérieure soit fermée pour cet homme, il se
 trouve dans une situation beaucoup plus favorable —
 non, je lis mal: — dans une situation mille fois plus
 favorable au développement philosophique que les trois a
-quarts de ceux qui occupent des positions dites libé-
-rales. La plupart des positions libérales, en effet, LE
+quarts de ceux qui occupent des positions dites libérales. La plupart des positions libérales, en effet, LE
 absorbent tous les instants, et, qui pis est, toutes les LE il
 pensées; au lieu que le métier, n'exigeant aucune 4 il
 réflexion, aucune attention, laisse celui qui l'exerce à 4: {1
 vivre dans le monde des purs esprits. Pour ma part,.
 j'ai souvent songé que, si l'on m'offrait un métier "#4
-manuel qui, au moyen de quatre ou cinq heures d'occu-
-pauon par jour, pût me suflire, je renoncerais pour ce
+manuel qui, au moyen de quatre ou cinq heures d'occupauon par jour, pût me suflire, je renoncerais pour ce
 métier à mon titre d'agrégé de philosophie;:
 — Heureux homme: il pouvait renoncer à ce titre.
 Je vous préviens que vos interruptions me dé- È à +7
@@ -657,8 +629,7 @@ Occupation manuelle. esprit qui excluent toute
 de lois: J'acquerrais pendant ces
 loisir les connaiss SE es heures?
 ances positives, je
-dent les autres ce que j'aurais, Je ruminerais pen-
-méti de la première série
+dent les autres ce que j'aurais, Je ruminerais penméti de la première série
 1 €rs qui devrai
 ice alent être les métiers réservés des
 Sophes, comme labourer la terre, scier Jes phi-
@@ -666,7 +637,7 @@ Pousser la navette du tisserand, et te
 ne de Sons qui
 mandent absolument que le mouvement de la main
 Ici une note mal intéressante, Je Continue le texte
-;: Toute complication, touté chose qui exigerait la
+Toute complication, touté chose qui exigerait la
 moindre attention, serait un Vol fait à sa pensée, Le
 ï travail des manufactures serait même à cet égard bien
 he. Croyez-vous qu'un homme, ‘dans cette position, ne
@@ -706,8 +677,7 @@ machines seraient employées non pour se passer de
 das mais pour soulager ses bras et abréger ses.
 travail; dans une telle société, dis-je, je suis Te 2%
 +... Perenadé (bien que je ne sois nullement compétent en
-dep qu'un très petit nombre d'heures, de tra-
-vail suffiraient pour le bien de la société, et TER
+dep qu'un très petit nombre d'heures, de travail suffiraient pour le bien de la société, et TER
 besoins de l'indivi et pour les
 individu; le reste serait à l''espri: à
 requo dit Aristote, pouvait, sur un ordre
@@ -724,8 +694,7 @@ ers et les maîtres d'esclaves. »(1)
 spirituel, dit Renan, ne vit jamais de l'es-
 ! de son Perte ne vécut pas de ses découvertes; il véent
 1; gxactitude au chœur comme chanoine de Thorn,
-bénédictins du dix-septième siècle vécurent d'an-
-fondations n'ayant en vue que les pratiques mo-
+bénédictins du dix-septième siècle vécurent d'anfondations n'ayant en vue que les pratiques mo-
 De nos jours, le penseur et le Savant vivent de
 l'enseignement, emploi social qui n'a presque rien de
 commun avec la science.
@@ -761,13 +730,11 @@ que Renan sont devenus ce que je ne sais. Mais les per- LE;
 sonnages qu'ils nous ont légués sont encore vivants
 parmi nous, agissants parmi nous. Il me paraît incon- ou!
 testable que cette représentation du socialisme, que il
-cette approbation au socialisme, qui n'ont déter-
-miner M. Renan à participer à l'action socialiste, ont
+cette approbation au socialisme, qui n'ont déterminer M. Renan à participer à l'action socialiste, ont
 déterminé beaucoup de ce que vous me permettez de
 nommer des vocations socialistes. Beaucoup de ces
 Ronnie que nous nommons socialistes le sont devenus
-Y Fxemple et par les leçons de ce personnage inou-
-inoublieux. La république ainsi représentée par je
+Y Fxemple et par les leçons de ce personnage inouinoublieux. La république ainsi représentée par je
 ,. Renan est aussi ma république.
 sua ne tous nos républiques, cités que nous Pa:
 et dont nous préparons la naissance et la vie. ‘À: SFR:
@@ -778,7 +745,7 @@ cité idéale et qui qui l'on demande quelle est leur
 main sur les poches de 1: passant la
 leur gilet: Non monsieur. je n'ai
 pas cela sur moi, — ceux-là: ur, je n'ai
-A? MOn ami, ont tout
+MOn ami, ont tout
 une république, mais ils ont une républi
 Ceux qui vont demander à la soci Fins dissimulée.
 histoire les lois de leur et à la seule
@@ -788,7 +755,7 @@ république, done, est en an.
 done, est en
 république où lie Avant tout une
 république, on lais “rquilles Dansma
-à, sera les gens le plus tranquilles
+sera les gens le plus tranquilles
 pas en vain que les anciens philosoopes a.
 perfection de <"ens philosophes ont amnqncé
 ten in, que l'on ne fasse point de mal à ses concitoyens.
@@ -824,7 +791,7 @@ moralement meilleur à l'homme, ce à quoi Fhomme à.
 droit en premier,-c'est l'exercice de 8 tranquillité. Ma
 cité donnera donc aux citoyens les moyens de leur Laos?
 quillité du même geste que les moyens de leur exis=!
-à: tance, de leur vie corporelle. Ma cité n'aura pas même
+tance, de leur vie corporelle. Ma cité n'aura pas même
 à encourager les arts, car ils n'y auront besoin d'aucun "2
 encouragement. Comme ‘ellé n'aura jamais bésoin de
 commander aucune réquisition pour l'exercice du tra- Me
@@ -859,11 +826,9 @@ dépenser de son esprit et s'occuper sérieusement de
 choses mesquines, comme le négoce, la banque, etc.
 Effectivement, ces professions n'ont pas produit un seul
 homme qui marque dans l'histoire de l'esprit humain.
-Je ne veux pas fermer ce livre sans vous citer quel-
-ques passages de la table, simplement, où je suis tombé
+Je ne veux pas fermer ce livre sans vous citer quelques passages de la table, simplement, où je suis tombé
 en cherchant l'indication de ce que nous avons lu. Je
-trouve à la table analytique des matières, au cha-
-be, Plus de barbares! Dangers du suffrage universel avec
+trouve à la table analytique des matières, au chabe, Plus de barbares! Dangers du suffrage universel avec
 des barbares. L'intrigue et le mensonge aux enchères.
 ren É Le souverain de droit divin, c'est la raison. La majoSR A rité ne fait pas la raison.;
 - Je passe l'idée d'un gouvernement scientifique. Je continue:
@@ -885,13 +850,9 @@ pas besoin. Ou plutôt il vend aux artistes ce que ma
 cité donnera aux hommes. Je lis mon texte:
 Ils ne s'effraient point à l'idée que les œuvres d'art,:
 cessant d'être la propriété individuelle de quelques
-amateurs privilégiés, deviendront la propriété collec-
-tive, commune, de tous les hommes admis à les con-
-templer et à les admirer; ils ne s'en effraient point car
-c'est vers la propriété collective, vers la propriété com-
-mune, que naturellement l'œuvre de beauté. Un chef-
-d'œuvre est diminué à n'être possédé que par quelques-
-uns! Comme un miroir qui ne réfléchirait éternellement
+amateurs privilégiés, deviendront la propriété collective, commune, de tous les hommes admis à les contempler et à les admirer; ils ne s'en effraient point car
+c'est vers la propriété collective, vers la propriété commune, que naturellement l'œuvre de beauté. Un chef-
+d'œuvre est diminué à n'être possédé que par quelquesuns! Comme un miroir qui ne réfléchirait éternellement
 qu'un même visage, et qui contracterait lui-même les
 rides de ce visage obstiné et importun, le chef-d'œuvre
 est TRS à n'être admiré que par quelques-uns; le
@@ -913,15 +874,14 @@ puisqu'elle suppose que l'artiste, le créateur, sortant des
 limites étroites et misérables de son individualité, a
 donner à son œuvre une valeur impersonnelle et étere
 nelle; elle est le communisme puisque par elle l''huma:
-à; nité tout entière S''approprie les plus hautes richesses
+nité tout entière S''approprie les plus hautes richesses
 Les de l'esprit humain, et qu'à chaque génération les esprits
 qui passent tirent un sens nouveau, uné force nouvelle
 et une nouvelle joie de l'œuvre éternelle, immuablegt
 toujours renouvelée! (Vifs applaudissements)
 Ce morceau de mon texte est si copieux que je ne
 sais par où commencer. Je laisse comparaison du
-. miroir, qui est fausse: on n'a jamiais miroir con-
-tracter les rides d'un visage obstiné et importon. C'est
+. miroir, qui est fausse: on n'a jamiais miroir contracter les rides d'un visage obstiné et importon. C'est
 même cela qui est extraordinaire: que tout vivant conDA Le tracte l'habitude, et qu'en un sens aucun non vivant ne
 mini contracte aucune habitude. Il est dommage que pour la
 Liconviendrait que mon commentaire fût ordonné ne
@@ -983,8 +943,7 @@ que je sois, nous savons à présent ce qu'il y a de saletés
 et de platitudes sous une gloire bien bâtie. Nous savons
 combien il y avait de mensonge démagogique et de
 hs. lâcheté sous une gloire échafaudée comme était celle de
-No. Victor Hugo. Nous savons assimiler la réclame édito-
-re) Le riale à toute la réclame électorale, ou plutôt nous
+No. Victor Hugo. Nous savons assimiler la réclame éditore) Le riale à toute la réclame électorale, ou plutôt nous
 : reconnaissons l'identité des deux. Nous savons qu'il ne
 faut pas avoir commis moins de laideurs pour open
 un tirage à cent quarante mille que PORE
@@ -1013,11 +972,9 @@ homme s'est brusquement ressaisi, et d'un grand geste
 civique il s'est rejeté sans retour dans la salubre impo- "150
 pularité. Car il est marqué pour la vie, n'en doutez pas,?
 et sa mémoire seule pourra s'en sauver. Demandez-vous
-parmi les anciens, parmi les modernes et les contem-
-porains qui furent et qui sont glorieux, demandez-vous
+parmi les anciens, parmi les modernes et les contemporains qui furent et qui sont glorieux, demandez-vous
 si ce fut pour leurs meilleures qualités qu'ils devinrent Us,
-le plus glorieux. Et si ce ne fut pas souvent parles mau-
-vaises, par les pires. Demandez-vous ce qui dans Pasteur de
+le plus glorieux. Et si ce ne fut pas souvent parles mauvaises, par les pires. Demandez-vous ce qui dans Pasteur de
 a séduit la foule et ce qui dans Renan a séduit les bour- me
 geois. Bien entendu j'omets l'épreuve inverse, j'omets
 toutes les gloires qui ont crevé à la mort des glorieux
@@ -1041,8 +998,7 @@ la cité socialiste es gloires seront pures comme leg
 hommes seront purs, que, Par élargissément étendu
 jusqu'à l'universel, dans la cité socialiste la gloire sera
 justement ce que sera devenue la réputation profession.
-nelle que j'admets. On tient ce langage aussi de l'ému-
-lation; et l'on s'efforce d'imaginer des émulations qui
+nelle que j'admets. On tient ce langage aussi de l'émulation; et l'on s'efforce d'imaginer des émulations qui
 seraient pures. Vanité de ces ménagements, Ce n'est
 pas seulement parce que la gloire s'exerce dans la
 redoute, c'est aussi et surtout parce qu'elle est profondément bourgeoise. Elle est bourgeoise en elle-même,
@@ -1072,10 +1028,8 @@ collective, commune, est encore de la propriété, sociale.
 Nous demandons le déclassement de Part et de la
 science. Nous demandons que le travail de science et Le
 que le travail d'art soïent libres, c'est-à-dire soustraits,.
-à l'action sociale aussi. Nous demandons que les sa-
-vents, comme savants, et les artistes, comme artistes, à
-soient dans la cité affranchis de la cité. Nous deman-
-dons que science, l'art et la philosophie ne soient pas à d:.
+à l'action sociale aussi. Nous demandons que les savents, comme savants, et les artistes, comme artistes, à
+soient dans la cité affranchis de la cité. Nous demandons que science, l'art et la philosophie ne soient pas à d:.
 socialisés, justement parce que la socialisation des
 Line moyens de production et d'échange, ou plutôt du LES
 indispensable pour assurer la vie corporelle de
@@ -1100,15 +1054,13 @@ désirée, l'auront voulue, l'auront eue. Ton
 Présentement toutes les servitudes bourgeoises
 Ï de tout leur poids surtoute la production de l'art ne
 elles pèsent toutes sur tout le travail humain. Nous ne
-remarquons d'ordinaire que les manifestations exté-
-rieures ou accidentelles de cette pesée. Mais les asser
+remarquons d'ordinaire que les manifestations extérieures ou accidentelles de cette pesée. Mais les asser
 vissements intérieurs constants sont beaucoup plus
 redoutables. Nous n'avons pas à redire ici les histoires
 incroyables que vous connaissez de la vente et de
 l'achat des œuvres de la peinture et de la statuaire.
 ! catement senti, quel métier plus déplorable pour
-l'artiste que d'enseigner le dessin comme un tra-
-vailleur mercenaire à l'élève souvent mal doué, sinon
+l'artiste que d'enseigner le dessin comme un travailleur mercenaire à l'élève souvent mal doué, sinon
 le lamentable métier d'exécuter des tableaux et des
 bustes pour le bourgeois mauvais payeur? Quel métier
 plus déplorable pour le compositeur que d'enseigner
@@ -1154,8 +1106,7 @@ camarades étudiant qué: de vos amis ou de
 un ouvrier manuel quar 4." "2 Professeur 1)
 , #5 quand instituteur désapn.. quand ii:
 ième cahier de la première série
-rapebe enis; et vous répon-
-vient vous trouver: vous
+rapebe enis; et vous réponvient vous trouver: vous
 causez tous les deux; vous présentez vos raisons tous
 les deux; vous discutez raisonnablement; vous dis.
 cutez en hommes libres; vous êtes égaux. Mais votre
@@ -1167,13 +1118,10 @@ présentez sincèrement et fortement vos raisons. Puis
 à cinq heures votre ami vous conduit à la gare et vous
 quitte. Il vous quitte libre. S'en allant il vous laisse
 libre. Abandonnant vos raisons vous adoptez librement
-les siennes, ou s'il vous plaît vous vous en tenez au juge-
-ment que vous aviez d'abord formé, ou enfin vous com- à
-posez les deux jugements, ou vous faites ce que vous vou-
-lez. Votre ami en partant vous a laissé libre. Parce qu'il
+les siennes, ou s'il vous plaît vous vous en tenez au jugement que vous aviez d'abord formé, ou enfin vous com- à
+posez les deux jugements, ou vous faites ce que vous voulez. Votre ami en partant vous a laissé libre. Parce qu'il
 sait bien que vous êtes un honnête homme, un homme a
-de. ordinaire, que vous travaillez du mieux que vous pou-
-vez. D'ailleurs, et sans se faire aucune illusion me la
+de. ordinaire, que vous travaillez du mieux que vous pouvez. D'ailleurs, et sans se faire aucune illusion me la
 à valeur que vous pouvez avoir, il sait de certait
 . À Péguy abruti d'objurgations vaut encore moins qu'un
 Péguy laissé libre et seul avec son travail
@@ -1196,21 +1144,18 @@ beaucoup le Mathieu Froment de Zola parce Ne
 sait presque indéfiniment des enfants sans consi
 qu'il instituait ainsi commencement de race env
 sante, un commencement de peuple conquérant, un
-commencement de nation. Que dirons-nous de l'enfante-
-ment d'art. Au lieu que l'œuvre d'art pousse libre à côté
+commencement de nation. Que dirons-nous de l'enfantement d'art. Au lieu que l'œuvre d'art pousse libre à côté
 de l'œuvre d'art libre, ensemble avec l'œuvre d'art, — par se
 l'implacable organisation de la concurrence bourgeoise
 elle pousse à présent contre l'œuvre d'art. Le journal Der.
 tue le journal, comme la revue tue la revue, et malgré à
 toutes les précautions que vous avez prises ne soyez pas es
-aussi assuré que vos cahiers ne soient pas un peu meur-
-triers. Le drame tue le drame, etle poème le poème, et le
+aussi assuré que vos cahiers ne soient pas un peu meurtriers. Le drame tue le drame, etle poème le poème, et le
 poète le poète. Le livre tue le livre. L'artiste tue l'artiste.
 Ayant saupoudré Paris de monuments rapides, M. Denis
 ou Denys Puech n'a pas seulement encombré nos voies à
 et nos carrefours comme un repavage en bois, il n'a
-Pas seulement encombré nos pelouses et diminué injus-
-tement le royaume des fleurs, il n'a pas seulement ère
+Pas seulement encombré nos pelouses et diminué injustement le royaume des fleurs, il n'a pas seulement ère
 'ompu nos plus belles perspectives anciennes: il a tué
 sans doute avant leur éclosion des monuments qui
 je plains le malhogres …e"."'ainent tue l'artiste. Et
@@ -1225,8 +1170,7 @@ d'ailleurs à chaque instant limité, toute force
 à onnée au travail d'art est directement une force
 à en travail social insuffisant. Toute force donnée
 l'œuvre d'art est directement une force ôtée à l'action 1 à
-à sociale. Je plains tout artiste où cette Constatation n'au-
-ralt pas un profond retentissement. Un grand poète,
+à sociale. Je plains tout artiste où cette Constatation n'auralt pas un profond retentissement. Un grand poète,
 qui est vraiment mort il y a quelques années, M. Sully- a
 Prudhomme, ayant vivement senti comme il estredou.
 table de fonder une race, n'a pas moins justement senti (
@@ -1305,8 +1249,7 @@ Jaurès ne répond qu'en donnant la réponse présente
 Dep: universalisée: les artistes seront de bons citoyens parce
 qu'ils seront de bons artistes. Cest parler avec Sully-
 Prudhomme. Je demande le déclassement, qui me parait
-à 2: nouveau, qui me paraît convenable, qui me paraît in-
-dispensable, qui me paraît: Les artistes seront de
+à 2: nouveau, qui me paraît convenable, qui me paraît indispensable, qui me paraît: Les artistes seront de
 bons citoyens comme tous les citoyens. Un point: Un
 
 tiret. — Les artistes seront librement des artistes.
@@ -1327,8 +1270,7 @@ rappelez la tombée du jour et ces ne
 précèdent le congé. Vous vous rappelez me (ll
 s'empare de l'esprit devant tous ces chefs TA
 assemblés et offerts à l'admiration de tous les hommes;
-on dirait un Olympe où il n'y a que des Dieux emplis-
-sant l'espace sacré de leurs rêves. Oui, c'est 1 la ande
+on dirait un Olympe où il n'y a que des Dieux emplissant l'espace sacré de leurs rêves. Oui, c'est 1 la ande
 beauté, celle qui est faite pour tous. Attention, jeune il
 homme, attention. Nous avons nous aussi gardé quelque À
 mémoire de ces sentiments. Quand de nos provinces
@@ -1343,12 +1285,10 @@ vivants nous eûmes un émoi religieux comparable à
 celui qui nous envahit à la première de ces visitations.
 Mais enfin nous ne connaissons les sentiments humains da.
 de l'amour qu'un peu longtemps après que nous en
-avons franchi anxieusement le seuil religieux. Pareille-
-ment nous avons connu les sentiments humains de l'art
+avons franchi anxieusement le seuil religieux. Pareillement nous avons connu les sentiments humains de l'art
 assez longtemps après que nous en eûmes religieu- -
 
-» J'y réussis assez volontiers, car l'ini-
-marque de Sa nuance pour ainsi dire tous les
+» J'y réussis assez volontiers, car l'inimarque de Sa nuance pour ainsi dire tous les
 iments qui suivent, et derrière ces sentiments je
 ne cahier de la première série
 ï la revoi
@@ -1360,8 +1300,7 @@ Puyait incontestablement sur beaucoup de sentiments -
 secondaires qui me sont devenus ennemis parce qu'ils
 me paraissent mauvais. Il Y avait sans doute en moi
 comme une admiration servile ou serve à l'égard de
-à ces maîtres obscurément contemplés comme desautorités d'art et comme des autorités sociales. Mysté-
-rieusement, religieusement soumis et flatté comme un
+à ces maîtres obscurément contemplés comme desautorités d'art et comme des autorités sociales. Mystérieusement, religieusement soumis et flatté comme un
 fidèle introduit, j'admirais, j'adorais, je priais, je!
 servais. Je ne voyais pas. S'il m'était resté à présent
 quelque respect humain, je rougirais en moi-même au
@@ -1398,21 +1337,18 @@ ment les plus inébranlables se déclassaient ou s'éloi- LE
 gnaient, laissant l'introduction libre à des amitiés d'élec-;
 tion, bien ou mal choisies, mais librement. Comme à nos ren
 risques et dangers humains nous avons peu à peu, et
-presque involontairement, mais spontanément et toujours librement choisi ceux de nos camarades qui deve-
-naïient nos amis, abandonnant pour les affinités d'élec- à
+presque involontairement, mais spontanément et toujours librement choisi ceux de nos camarades qui devenaïient nos amis, abandonnant pour les affinités d'élec- à
 tion les fatalités religieuses des confinités naturelles, à
 peu près ainsi nous avons choisi les œuvres d'art qui as
 a dire amies. Que nous ayons bn,
 nous aurions à Ses quon à laquelle
 de l'art; mais nous établie si nous traitions
 ancions dans la
-Man Le “œuvres, nous cessions de nous trans-
-selon nos pos Don érPenter des kilomètres. Mais ni
+Man Le “œuvres, nous cessions de nous transselon nos pos Don érPenter des kilomètres. Mais ni
 esoins, nes peines et nbs désir
 cherchant et demandant l'enco d'hommes,
-uragement ou la conso-
-cahier de la première série
-à; Cherchant l'impression du beau
+uragement ou la consocahier de la première série
+Cherchant l'impression du beau
 ou l'impression d'art, ou toute impression qu'il y'avait
 lieu, nous allions voir certaines œuvres et nous n'allions
 pas voir certaines œuvres. Un commerce proprement et
@@ -1428,8 +1364,7 @@ intention de commandement, d'autorité, de priorité
 de méritoire, les œuvres ne se classaient pas, mais elles se
 situaient parmi nous, elles se disposaient, se compo.
 saient, s'habituaient, choisissaient librement elles
-bi. mêmes la situation qui leur convenait parmi nos senti-
-ments et nos occupations. Combien de désillusions
+bi. mêmes la situation qui leur convenait parmi nos sentiments et nos occupations. Combien de désillusions
 dy. É accompagnaient ce travail involontaire et peu à peu
 voulu, et combien de pénibles éliminations. Le Louvre
 n'était plus un Olympe où il n'y avait des Dieux
@@ -1437,7 +1372,7 @@ emplissant de rêves l'espace religieux, tal bre: » pour nous ce que vous savez
 de. un musée, un monument humain où résidant
 ; lies et placées plus ou moins PRES
 conservateurs, emplissant les salles humaines 67 8%
-à: onnés, les productions,
+onnés, les productions,
 sant les murs humainement maÇç à d'artistes,
 les essais d'œuvre et les ere a ANA ES
 mesure que nous avancions ans! 4 a
@@ -1450,11 +1385,9 @@ rien appris, nous sommes comme tout le monde, til
 sommes de ceux qui ne savent pas beaucoup ayant
 tâché de se donner beaucoup de connaissances. Etla
 science et l'art de voir, comme tout ce qui est humain, LE hi)
-d'un côté n'est jamais inventé ou suppléé par l'ensei-
-gnement, mais d'un côté ne prospère jamais sans les
+d'un côté n'est jamais inventé ou suppléé par l'enseignement, mais d'un côté ne prospère jamais sans les
 soins de l'enseignement. Tandis que le religieux peut il
-pousser comme un sauvageon, j'entends surtout le reli-
-gieux païen, qui est le plus profondément religieux.
+pousser comme un sauvageon, j'entends surtout le religieux païen, qui est le plus profondément religieux.
 mesure que s'avançait l'apprentissage, l'espace nous
 devenait non plus religieux mais proprement artistique.
 Nous osions penser et sentir humainement devant les
@@ -1510,8 +1443,7 @@ cette imagin degrés, passage graduel, gradation,
 talent il y AUPRNARE grès d'une
 ériation. Mais il se peut aussi que les progrés
 hologie nous conduisent un jour à modifier ne”
-à adie alors du génie au talent diffé-
-rence de mature non pas seulement distance
+à adie alors du génie au talent différence de mature non pas seulement distance
 degré, différence comparable par exemple à celle Le:
 peut séparér la vie de la non vie. Les œuvres du génie,
 mal ou bien, séraient vivantes, et les productions du il
@@ -1530,8 +1462,7 @@ art, mais non pas sans doute la révolution de l'art ES:?
 même, Car l'artattend guère, et n'a pas attendu la ‘Æ&°
 critique d'art et l'histoire de l'art, — cette hypothèse con- à
 sidérable vint en son temps. et passa posément devant
-nous, parmi les idées et les hypothèses neuves innom-
-brables du cours. Nous l'accueillimes, Et nous la re- à
+nous, parmi les idées et les hypothèses neuves innombrables du cours. Nous l'accueillimes, Et nous la re- à
 tinmes. Je vous rappellerais pour quelles raisons puis-
 ; DOS causions de l'art. Nous l'avons retenue
 ous l'entendons en deux sens. Maïs nous causons EriS
@@ -1547,12 +1478,9 @@ umains de l'art. Et nous avions peu à peu l'audace
 de nous avouer à nous-mêmes ces sentiments. Les
 tableaux nous devenaient familiers, en un sens, et les
 statues nous devenaient familières. Nous osions regarder. Nous osions voir. Nous osions, audace capitale,
-audace inévitable, audace indispensable, aimer ou n'ai-
-mer pas, comme dans la vie. Les artistesnous devenaient
+audace inévitable, audace indispensable, aimer ou n'aimer pas, comme dans la vie. Les artistesnous devenaient
 des hommes, les œuvres nous devenaient humaines.
-Oubliant volontairement, spontanément et heureuse-
-ment le peu que l'on nous avait enseigné d'histoire clas-
-sificatrice toute faite, acquérant le plus que nous poua. vions d'histoire narrative explicative bien faite, nous
+Oubliant volontairement, spontanément et heureusement le peu que l'on nous avait enseigné d'histoire classificatrice toute faite, acquérant le plus que nous poua. vions d'histoire narrative explicative bien faite, nous
 nous mettions nous-mêmes devant les œuvres ellesLe mêmes. Et nous osions discerner. Combien d'œuvres
 ? alors mouraient à nos regards! Mais combien d'œuvres
 ù naissaient ou renaissaient de l'extase religieuse, qui sa
@@ -1623,9 +1551,7 @@ sentiment religieux beaucoup de vanités et beaucoup
 d'émulation. Vanités de parvenus. Nous étions admis,
 nous petites gens, à la contemplation des grandès -
 œuvres. Nous étions introduits, nous, pauvres et fils;
-de pauvres, à la contemplation, presque à la fré-
-quentation de trésors uniques, de richesses incom-
-parables. Nous étions introduits au magistral. Nous
+de pauvres, à la contemplation, presque à la fréquentation de trésors uniques, de richesses incomparables. Nous étions introduits au magistral. Nous
 Es: étions introduits au temple. Nous étions introduits
 au palais. Nous étions introduits à la contemplation
 À de ce qui n'est pas ailleurs, de ce que tant d'hommes
@@ -1657,8 +1583,7 @@ démolisse nos musées. Pas plus que vous je n'ignore: uit
 que dans la peine et dans la laideur universelle, nos:..
 musées demeurent les derniers asiles de l'art véritable Le
 et de la véritable beauté. Je ne suis nullement pour que
-l'on démolisse les consolations et les refuges. Mais en-
-cité qui n'ait besoin d'aucun refuge, puisqu'elle n'aura
+l'on démolisse les consolations et les refuges. Mais encité qui n'ait besoin d'aucun refuge, puisqu'elle n'aura
 aucune connaissance de la peine et de la laideur.
 Je 5 oublierai jamais tout ce que: nous devons
 es, Pour tout dire d'un mot, je n'oublierai jariais
@@ -1685,8 +1610,7 @@ distances, au long de la route kilométrée, j'expliquais
 mon Caporal, un brave et doux Solognot soumis foncié- -
 rement anarchiste, que j'étais hypermétrope, c'est-à-dire
 que je voyais normalement à l'infini, comme tout le
-! monde, mais que j'accommodais mal aux petites di-
-stances, D'où mon binocle pour lire. Mon caporal
+! monde, mais que j'accommodais mal aux petites distances, D'où mon binocle pour lire. Mon caporal
 “il m'écouta longuement. Puis il me répondit, sérieusement,
 doucement: Je vous entends bien. Vous êtes bon vision:
 naire au loin. Mais de près vous vous fatiguez. Cecaporal
@@ -1710,13 +1634,12 @@ Ce serait une imagination grossiére ésent, qui
 croire que ceux qui sont comme afranchis
 inairement neufs parce qu'il avait des VUS LiÉ
 exactement vieilles. Comme historien, il sen 4 Hal
-ment l'insuffisance artistique et historique des À!
+ment l'insuffisance artistique et historique des
 pour deux raisons. Il savait comment se sont faits les (É:
 musées. Il savait comme ils sont artificiels, et comme:.-
 ils sont militaires. Quand nous contemplons les tableaux
 alignés et les statues plantées, nous oublions volontiers
-Jeut histoire. Plus mou de tendresse, Michelet se remé-
-morait sans doute l'histoire des acquisitions. Depuis les
+Jeut histoire. Plus mou de tendresse, Michelet se remémorait sans doute l'histoire des acquisitions. Depuis les
 guerres d'Italie et les conquêtes de François premier:; à
 jusqu'aux guerres de l'Empire en passant par les
 conquêtes de Louis XIV, toute cette histoire se résume 3 LE
@@ -1752,13 +1675,12 @@ négociations françaises aient utilisé l'écrasement bar:
 bare de la Grèce. Nous admettons que les-Italiens +.
 modernes aient pris des mesures contre le jeu spécieu- En
 à sement libre de la loi de l'offre et de la demande, contre
-à la vente et l'achat des chefs-d'œuvre dont ils soût pro-
-visoirement et nationalement les propriétaires, dont
+à la vente et l'achat des chefs-d'œuvre dont ils soût provisoirement et nationalement les propriétaires, dont
 ne ils sont régionalement les dépositaires. Nousne pouvons.
 pas nous dissimuler que sans l'invasion des Romains
 barbares, des Chrétiens croisés, des Turcs, la Vénus de
 Milo ne serait pas à Paris. Nous. nous associôns donc
-en nous-même au vœu de Renan. Nous prévoyons les …!
+en nous-même au vœu de Renan. Nous prévoyons les
 grégé leurs musées nationaux, reportant les œuvres de -
 l'art hellénique dans la région maternelle et dans le:
 climat. Il sans doute quelque remords dans

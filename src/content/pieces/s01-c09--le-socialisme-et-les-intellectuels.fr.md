@@ -11,14 +11,12 @@ de: Citoyennes et Citoyens,
 Les organisateurs de cette réunion m'ont offert, et j'ai
 accepté volontiers, cette présidence comme un signe de
 l'alliance qui réunit dès maintenant dans une action commune le Parti Ouvrier Français et le Parti Socialiste Révo1e lutionnaire,
-à à Cette union n'est pas un fait accidentel, elle s'est pro-
-duite déjà plus d'une fois, mais j'espère que, cette fois-ci,
+à à Cette union n'est pas un fait accidentel, elle s'est produite déjà plus d'une fois, mais j'espère que, cette fois-ci,
 : elle sera définitive et produira tous ses effets.
 a Déjà, il y a une douzainé d'années, nous avons assisté
 des événements semblables à ceux qui se sont produits!
 dans ces derniers temps; nous avons un gouvernement
-opportuniste reniant ses promesses, déchirant ses pro-
-grammes, lasser tellement le pays que le césarisme avait
+opportuniste reniant ses promesses, déchirant ses programmes, lasser tellement le pays que le césarisme avait
 cru le moment venu pour l'attaquer et le remplacer. Alors,
 certains socialistes se sont laissé entrainer, les uns d'un
 côté, les autres de l'autre (1); nous avons, les uns et les
@@ -41,8 +39,7 @@ de la Révolution, si nous voulons que cette Révolution
 triomphe, que la classe ouvrière s'émancipe.
 C'est dans ces conditions que nous nous sommes rencontrés de nouveau et, de même que douze ans auparavant nous
 avions fait un manifeste dans lequel nous déclarions qu'il
-fallait que le parti socialiste restât le parti de la Révolu-
-tion, de même par un nouveau manifeste nous déclarions
+fallait que le parti socialiste restât le parti de la Révolution, de même par un nouveau manifeste nous déclarions
 que nous ne pouvions accepter aucune déviation qui nous
 ferait changer cette ligne par des actes ou des paroles; que
 note resterions fidèles à l'idée de la Révolution, à l'idée de
@@ -56,15 +53,13 @@ Das nous avons tous les Lie ses me Dar
 dire, dans le giron de la révolution, cui doter -
 [1 tous les socialistes, même ution, qui doit comprendre
 séparer pour une action 5 4 on peut s'en
-tions historiques. Je le dis, il dans certaines condi-
-unis Pour cette grande lutte y por que nous resterons
+tions historiques. Je le dis, il dans certaines condiunis Pour cette grande lutte y por que nous resterons
 qui n'est plus le continue tous les jours,
 l'union se fait dans le Parti de plus en plus be.
 Conscience les uns et les autr Ocialiste; mais nous avons
 Parti Socialiste Révolutio res, Parti Ouvrier Français et Le
 duit c'est parce quil Se que si cette union se
-croyons que l'uni et dans le cerveau de tous: évo-
-lon est le produit de cette f. res
+croyons que l'uni et dans le cerveau de tous: évolon est le produit de cette f. res
 orce, que l'unité,
 
 élaborée par cette
@@ -73,8 +68,7 @@ du parti socialiste qu'à la condition développement
 ration de l'unité nous donnions au Pal Se Prépathode, la direction et les principes de CE #elu mé.
 la force du Parti Socialiste jusqu'ici
 . A pre OCiauste Jusqu'ici, et qui la' feront plus
-14; encore avec l'Unité réalisée dans un Parti ayant la Révo-
-lution pour guide et pour but.
+14; encore avec l'Unité réalisée dans un Parti ayant la Révolution pour guide et pour but.
 de Ù Voilà, citoyens, ce que nous avons pensé, et actuellement
 Ne avons-nous à faire en dehors de cette union, et de cette
 action commune qui a produit de grands résultats et en
@@ -82,16 +76,13 @@ produira de plus grands encore? C'est d'examiner toutes
 : les circonstances qui se produisent, de telle façon que
 notre propagande autant que notre action en public soit
 formée de tout ce qui concerne le Parti Socialiste, non pas
-à seulement comme événements incertains, mais comme évé-
-ce nements très certains, qui doivent nous permettre de
+à seulement comme événements incertains, mais comme évéce nements très certains, qui doivent nous permettre de
 4 5: retrouver au milieu des conflits la complexité de la vie;
 à. voilà la manière que nous devons suivre, le but vers lequel
 doit tendre tout l'effort socialiste.
 C'est ainsi que nous avons le développement du sociaL) lisme prendre des proportions de plus en plus considéraci bles; nous avons la masse ouvrière préoccupée par la
-propagande socialiste et nombre d'ouvriers, restés long-
-temps indifférents, chez qui la conscience de classe n'était
-pas éveillée, venir rejoindre les rangs organisés des syndi-
-cats et des comités politiques; par le fait que cette masse a
+propagande socialiste et nombre d'ouvriers, restés longtemps indifférents, chez qui la conscience de classe n'était
+pas éveillée, venir rejoindre les rangs organisés des syndicats et des comités politiques; par le fait que cette masse a
 be. été pénétrée, le parti socialiste grandissait de pus
 Le. et nous n'avons aucune inquiétude, car si quelque
 "us tion pouvait se produire, il était évident que les Len
@@ -133,8 +124,7 @@ les intellectuels aux manuels, il est bien évi-
 : ris qué nous concevons qu'il y a une diffé- À
 nee. nos habitudes; ce que nous voulons,
 ne d'intelligence, mais apportant leur effort 2 -
-ulement pour l'action socialiste, telle qu'elle a été déter-
-minée non pas par la fantaisie de l'un ou de l'autr De
+ulement pour l'action socialiste, telle qu'elle a été déterminée non pas par la fantaisie de l'un ou de l'autr De
 pas par des conceptions particuliè as UOn
 par des vues intéressé ières et spéciales, non pas
 essées et personnelles que nous répudi né"
@@ -144,8 +134,7 @@ mot pour son PTE émancipation,enun,
 Lives événement du monde. volationnaire, qui est le a
 ans ces conditions il me sembl
 uen plus intéressante que a pas de
-or, que vous allez entendre Farah est propo-
-ppée avec cette En
+or, que vous allez entendre Farah est propoppée avec cette En
 
 ! té, cette netteté, cette force de pensée et d'ex
 qui sont la Caractéristique du citoyen Lafar
@@ -153,7 +142,7 @@ Suite je donne la parole. {Applaudissements a a
 à its commencerai par vous demander votre indulgence
 grippe; si je n'avais peur de désappointer des cam.
 rades, et de vous avoir fait venir pour rien, je serais dans
-#1 mon lit au lieu d'être ici à causer avec vous. Mais je suis
+1 mon lit au lieu d'être ici à causer avec vous. Mais je suis
 venu coûte que coûte, nous allons faire le possible et avec
 Pet votre indulgence je crois que je réussirai.
 Je commence par dire que je me félicite de faire cette
@@ -174,8 +163,7 @@ sont dernièrement venus en plus ou moins gra
 y A dans la société actuelle, quel est le rôle strict Rates
 dans le siècle, et comment la bourgeoisie a tenu les
 'elle leur avait faites au siècle dernier.
-PRESSE iècle dernier la Révolution fut pré-
-dr: Vous savez qu'au siecle ne Encyclopédistes, philo-
+PRESSE iècle dernier la Révolution fut prédr: Vous savez qu'au siecle ne Encyclopédistes, philo-
 A parée par les intellectuels,
 
 sophes du dix-huitième siècle. Jamais dans Yhistoire il n'y
@@ -183,8 +171,7 @@ a un tel déploiement d'intelligence, d'énergie qu'il en a
 été déployé dans la seconde moitié du dix-huitième siècle.
 Ainsi donc la bourgeoisie avait le devoir de récompenser
 les intellectuels. Elle leur promit que dans le monde qu'elle
-allait fonder, ils auraient honneur et avantages, et, annon-
-çant que ce monde-là allait être entièrement nouveau, elle
+allait fonder, ils auraient honneur et avantages, et, annonçant que ce monde-là allait être entièrement nouveau, elle
 disait qu'elle apportait des principes éternels, nouveaux,
 quoique éternels ils étaient nouveaux, c'était drôle tout de
 même. Elle annonçait cela. Aussi des intellectuels, entre
@@ -201,8 +188,7 @@ que n'étant pas formulés écrit H:Que 6 DrneIpes, que
 lation done de” 4 nulle part, ont trouvé leur
 bares vivant sous le régi sauvages, dans des tribus barMais il avait régime communiste.
 aujourd'hui, pour le jusqu'à un siècle, jusqu'à
-effet, le jour même qu'ell: urgeol-
-conmenpall es beutiérouts. et ouvrait boutique, elle
+effet, le jour même qu'ell: urgeolconmenpall es beutiérouts. et ouvrait boutique, elle
 nale qui rédigeait les droits même Assemblée Natio- +.
 établissait l'égalité légale de du citoyen, qui
 votait la loi électorale qui é ous les citoyens devant la loi
@@ -234,7 +220,7 @@ enfance, et pendant tout le Moyen-A. été poréher dans son
 jalousement d'attirer dans: si occupé
 Et tous les savant EN ROME
 et ceux qui ne voulaient
-res ceux qui voulaient rester en Ales a!
+res ceux qui voulaient rester en Ales
 à étendait sur eux sa mai!
 était très eflicace. Non seulement elle des a
 elle leur laissait absolu titierté, à cette
@@ -242,8 +228,7 @@ dant, c'est-à-dire de développer leur science comme islen.
 mais en gardant toujours les dehors religieux.
 insi Copernic put écrire son livre sur les Révolutions des
 corps célestes, où il déclare que c'est la terre qui tourne
-autour du soleil, au lieu d'être le centre du monde plané-
-taire; son livre fut dédié au pape, et jamais Copernic ne
+autour du soleil, au lieu d'être le centre du monde planétaire; son livre fut dédié au pape, et jamais Copernic ne
 fut tracassé; il était chanoine et de plus le livre était écrit
 en latin. Mais un sièclé plus tard, quand Galilée professa, à
 Venise et à Florence, la théorie de Copernic, qu'il la sortit
@@ -257,8 +242,7 @@ hommes comme par exemple Mersenne, qui était de l'ordre » des moines, et fut g
 seau, Jean-Baptiste Rousseau. » Le citoyen sténographe a corrigé.
 
 et précurseur de Descartes; cet homme religieux correspon- à
-dait librement avec Hobbes, le père du catholicisme (1) mo-
-derne, ainsi qu'on le voit dans la correspondance avee de
+dait librement avec Hobbes, le père du catholicisme (1) moderne, ainsi qu'on le voit dans la correspondance avee de
 Sorbières (9), et le traité de Give.
 est vrai que l'Église avait ses raisons pour montrer
 libéralisme; elle a voulu monopoliser la science, elle a
@@ -271,10 +255,8 @@ On ne peut pas accuser la bourgeoisie d'avoir un amour
 désintéressé pour la science; non, la science, pour elle,
 n'existe qu'à la condition d'avoir des applications indus-
 ! trielles; elle ne voit dans la science que des applications
-pratiques; elle n'a aucune curiosité pour les hautes spécula-
-tions, et si elle les permet à ses savants, c'est bien à son se
-corps défendant. La meilleure preuve du mépris de la bour-
-dés boueyogise: IL: carne si bien l'esprit grossier
+pratiques; elle n'a aucune curiosité pour les hautes spéculations, et si elle les permet à ses savants, c'est bien à son se
+corps défendant. La meilleure preuve du mépris de la bourdés boueyogise: IL: carne si bien l'esprit grossier
 Eh bien, pour montrer la sollicitude que la bourgeoisie a
 à érer la situation
 qui est faite à la propriété de sant
@@ -284,8 +266,7 @@ qu'aucun pouvoir puisse arrête ansmet de père en fils, sans
 que les phénomènes économi: cette transmission. Il n°ÿ a ENT"
 paraître de la famille. Quels « qui peuvent la faire dis- De En
 propriété matérielle boecie que soit la source de la "rs
-Inment sacrée, elle est sacro-s cette propriété est abso-
-ce fait est. ce qui s'est passé la meilleure preuve de Fe.
+Inment sacrée, elle est sacro-s cette propriété est absoce fait est. ce qui s'est passé la meilleure preuve de Fe.
 sémaphore de Durban, qui à ernièrement: l'exécution du
 à voyait des dépêches héliogra-!
 aux Bocrs, leur ann:
@@ -342,8 +323,7 @@ deux ou trois ans, qu'elle s'est décidée; c'est-à-dire qu'au-: A
 jourd'hui Auer n'a plus son brevet. (Mouvements divers)
 Et ce sont non seulement les inventions les plus utiles,
 les plus difficiles, qui ruinent l'inventeur, ce sont quelque-.
-fois les plus simples, celles qui sont immédiatement réali-
-sables. Ainsi dernièrement, mourait à Paris, dans la misère,
+fois les plus simples, celles qui sont immédiatement réalisables. Ainsi dernièrement, mourait à Paris, dans la misère,
 ! un homme qui a enrichi les Compagnies de chemins de fer,
 les Compagnies minières, et leur a fait gagner des centaines
 de mille franes, des millions: c'est l'homme qui a l'idée
@@ -387,8 +367,7 @@ CE Le d'inventions; en effet, les principales inventions, les prin-
 ù des ouvriers au cours de leur travail; mais comme l'ouvrier
 n'avait pas d'argent pour prendre le brevet, et
 moins pour utiliser son invention, c'est le patron qui pren
-le brevet en son nom, et quand le ministre veut récompen-
-de 1 ser le travail, c'est le patron qu'il décore... {Rires et
+le brevet en son nom, et quand le ministre veut récompende 1 ser le travail, c'est le patron qu'il décore... {Rires et
 pe” dissements à gauche) L'ouvrier, lui, continue à ren
 40 — il n'est pas un intellectuel — il turbine sous Sa
 1 (1) Le citoyen sténographe a conjecturé ici: garanti que
@@ -414,24 +393,20 @@ avec le Conseil Municipal, et le dét int à Paris, s'entendit
 d'années de cela; je ne sais pas: (. Il y a une vingtaine
 au débat: ces écoles est encore le cas, mais
 écoles communales: c'étaient les personnel dans les
-telligents, ceux qui avaient l'es its garçons les plus in-
-choisis pour recevoir cette ni rit le plus éveillé, qui étaient EE,
+telligents, ceux qui avaient l'es its garçons les plus inchoisis pour recevoir cette ni rit le plus éveillé, qui étaient EE,
 étaient en partie nourris très supérieure; ils
 matin et 50 francs par ma. aient le petit déjeuner le
 garçon n'allait pas à RARE rouvaient en ce que le
 ment cette fabrique, cette écol d'hui il y a non seule- Dre
 la bourgeoisie fabrique en ole, mais une foule d'autres; NE
-et d'autres en des chimistes, des ingé-
-en pas la première fois que cel:
-les anciens, les grands a arrive dans l'huSr maitres d'esclaves de l'an-
-pale de Physique et de Chimie industrielle,
+et d'autres en des chimistes, des ingéen pas la première fois que cel:
+les anciens, les grands a arrive dans l'huSr maitres d'esclaves de l'anpale de Physique et de Chimie industrielle,
 
 tiquité, mais ils développaient
 leurs esclaves, ils en faisaient Le
 des littérateurs, leur apprenai faisaient
 l'Odyssée, pour LP"enaient, par exemple, l'liade et
-y se Pour être toujours à côté du maître qui les ache-
-pour que le maître pût briller non pas à leurs dé.
+y se Pour être toujours à côté du maître qui les achepour que le maître pût briller non pas à leurs dé.
 Pens, mais à cause de leur talent.
 
 ne Mais ce qu'il y a de curieux, c'est que, dans l'antiquité
@@ -449,8 +424,7 @@ Le lanthrope, ne donne l'instruction que pour diminuer la
 à valeur des intellectuels. Midas, d'après la fable antique,
 avait le propre de transformer tout en or; la bourgeoisie!
 à transforme en marchandise tout ce qu'elle touche; aujour-
-d'hui les capacités intellectuelles sont devenues une mar-
-chandise; on achète des chimistes, on achète des ingénieurs,
+d'hui les capacités intellectuelles sont devenues une marchandise; on achète des chimistes, on achète des ingénieurs,
 des pharmaciens, comme on achète du guano.. {Rires et
 à Une voix. — Et comme on achète des députés aussi! /Ap- Ni
 plaudissements et protestations)
@@ -461,12 +435,9 @@ devenues une marchandise, elles doivent RAR
 bissent le sort des marchandises; quand, as Mais quil
 À beaucoup d'huiles, le prix des
 un le prix des hui
-les arrivages sont rares, 'ingénieurs, de chi-
+les arrivages sont rares, 'ingénieurs, de chino. quand sur le marché, il y dites diminue;
 
-no. quand sur le marché, il y dites diminue;
-
-à mistes, le prix des chimistes les à de Chimie fonc-
-tionne, depuis qu'elle jette tous les ans,
+à mistes, le prix des chimistes les à de Chimie fonctionne, depuis qu'elle jette tous les ans,
 
 rix des chimistes
 puis chimistes Phys Vingaine d'années
@@ -483,9 +454,7 @@ renvoie avec les manœuvres; le patron dit à son
 crever où tu voudras, parce que je suis sûr qui -
 pagne prochaine, j'en “HAE autant que jen
 ne pas seulement ainsi pour les chimistes, vous
-le savez bien, mais dans toutes les branches, il y a abon-
-dance d'intellectuels; quand une place est libre, il tou-
-jours non seulement des dizaines, mais des centaines de
+le savez bien, mais dans toutes les branches, il y a abondance d'intellectuels; quand une place est libre, il toujours non seulement des dizaines, mais des centaines de
 concurrents, et ce sont ces centaines d'intellectuels, qui se
 pressent pour obtenir cette place, qui fait que son prix
 baisse, et tombe même quelquefois au-dessous du salaire
@@ -496,8 +465,7 @@ eux que pour l'ouvrier; l'ouvrier, depuis l'enfance, a été
 rue et partout, son corps est dur, il peut supporter cela;
 tandis que l'intellectuel a été élevé en serre chaude; il a 7".
 été obligé de passer des années dans les écoles; son système «
-nerveux s'est affiné; mais il souffre dix fois plus que l'ou-
-vrier; ses souffrances sont exagérées, et à côté de l'ouvrier À
+nerveux s'est affiné; mais il souffre dix fois plus que l'ouvrier; ses souffrances sont exagérées, et à côté de l'ouvrier À
 qui, lui, met son bourgeron et c'est suflisant, il faut qu'il ait, de
 » quan ce serait seulement le blanchissage..
 Ainsi, aujourd'hui, la situation de l'intellectuel est infé- à
@@ -520,11 +488,9 @@ considérait descendre au rang des esclaves quand il venLe Son travail. Cicéron
 attaqué les sophistes qui faisaient payer leurs leçons; ils
 disaient 4 non, la pensée est tellement grande, tellement
 Le haute, qu'elle ne doit jamais être payée! {Vifs applaudis-
-4 Aujourd'hui, qu'ils sont devenus mercantiles, les intellec-
-tuels ne sentent pas cette dégradation; aussi, quand ils se
+Aujourd'hui, qu'ils sont devenus mercantiles, les intellectuels ne sentent pas cette dégradation; aussi, quand ils se
 n. trouvent en présence de socialistes, ils leur demandent
-mais comment, dans la société future, être payé le tra-
-vail intellectuel?.. /Rires). — Est-ce qu'il sera mis sur le
+mais comment, dans la société future, être payé le travail intellectuel?.. /Rires). — Est-ce qu'il sera mis sur le
 pied d'égalité avec le travail manuel?...
 Mais, imbéciles d'intellectuels, c'est bourgeoisie qui
 fait cette grossière égalité; aujourd'hui c'est elle qui, non
@@ -547,9 +513,7 @@ Le citoyen LAFARGUE: Après avoir examiné la situation
 faite aux intellectuels, nous allons examiner leur rôle historique!
 à Une voix. — Vous confondez l'ouvrier intellectuel avec
 l'ouvrier et l'intellectuel, ce n'est pas la même chose! {Mouvement. — Cri: Silence les ministériels)
-Le citoyen LAFARGUE. — a en France des gouver-
-nements nombreux qui se sont succédé, plus ou moins réac-
-tionnaires; ils ont trouvé toujours les intellectuels prêts
+Le citoyen LAFARGUE. — a en France des gouvernements nombreux qui se sont succédé, plus ou moins réactionnaires; ils ont trouvé toujours les intellectuels prêts
 les servir. (Approbation à gauche)
 Et ce ne sont pas seulement les professeurs de Facultés
 qui ont ou 6000 ou 10000 francs par an, qui ont une
@@ -582,8 +546,7 @@ service au gouvernement et à la bourgeoisie. /Exclamations
 7. 1 Je vous disais qu'au dix-huitième siècle il y eutun bien beau
 “à, mouvement intellectuel avec les Encyclopédistes. La science
 à alors était démolisseuse, elle était révolutionnaire. Pourquoi? Parce que la bourgeoisie était révolutionnaire, parce
-que la bourgeoisie avait besoin de détruire l'idéologie aris-
-tocratique, et l'idéologie chrétienne. Mais une fois que la
+que la bourgeoisie avait besoin de détruire l'idéologie aristocratique, et l'idéologie chrétienne. Mais une fois que la
 Le bourgeoisie est arrivée au pouvoir, la bourgeoisie a pensé
 À maintenant que je suis maîtresse de toutes dE
 a j'ai besoin de la religion pour me soutenir. Elle a es
@@ -649,13 +612,11 @@ grande masse de l'humanité? C'est que les ateliers qui,
 avant, étaient fermés pendant la nuit, sont ouverts la
 nuit et le jour, et les hommes, les femmes, les enfants du
 
-prolétariat ont été tenus à la tâche la nuit et le jour, juste-
-
-ment à cause des progrès de la science. /Applaudissements
+prolétariat ont été tenus à la tâche la nuit et le jour, justement à cause des progrès de la science. /Applaudissements
 
 à gauche. — Exclamations à droite) N'est-ce pas une ban-
 
-0 Ceux qui ont les journaux de la révolution doivent
+Ceux qui ont les journaux de la révolution doivent
 PT: A savoir que, lorsqu'on s'occupa de l'abolition des privilèges
 A aristocratiques; il y eut un cri général dans tous les journaux, parce qu'on disait qu'il y avait des nobles qui faisaient
 , battre les étangs la nuit par les serfs pour faire taire les
@@ -689,13 +650,11 @@ on M. Giffen, le grand statisticien de Londres, se seres nos chifres contre la c
 n'a jamais été plus heureuse qu'
 anjourd'hni, reuse qu'elle ne l'est a
 se Le Sul nomistes, aujourd'hui, ils sont des aboyeurs
-,: autres voleurs ont lancé
+autres voleurs ont lancé
 l'économiste qui était à é leurs mines d'or
-gistes, car la bourgeoisie qui et ils sont aussi des apolo-
-qui n'a pas l'éducation Se on LE qui est incapable, ne
+gistes, car la bourgeoisie qui et ils sont aussi des apoloqui n'a pas l'éducation Se on LE qui est incapable, ne
 et pour combattre le socialisme, dons éfendre ses théories
-mistes qui sont des apologistes, onne ce rôle aux écono-
-contre le socialisme » Qui, pour argent comptant, À
+mistes qui sont des apologistes, onne ce rôle aux éconocontre le socialisme » Qui, pour argent comptant, À
 es intellectuels de la littéra
 flatieurs, des Pen mon Dieu, ce sont des
 les œuvres dont ont besoin de PRIMES ils lui font
@@ -725,8 +684,7 @@ socialisme. Car à cette époque c'étaient des prêtres, Huet,
 ne peut rien connaître, sa raison ne vaut rien; il faut qu'il
 Es. s'incline toujours, c'est la foi seule qui peut l'éclairer. Et
 . Molière s'est moqué de cela dans cette admirable comédie
-ns. qu'est Sganarelle; mais il faut remonter à l'époque athé-
-nienne, à Aristophane, pour trouver des poètes avec lesquels
+ns. qu'est Sganarelle; mais il faut remonter à l'époque athénienne, à Aristophane, pour trouver des poètes avec lesquels
 AGE à les événements politiques et philosophiques soient montrés
 À. sur la scène. On a signalé peut-être ce côté, mais très
 Mais il y a l'autre côté que jamais on n'a vu: c'est l'homme
@@ -771,9 +729,7 @@ sociétés secrètes; j'ai fait partie de éette délé Rene
 à trouver le roi pour lni demander gràc de a
 voyez, aujourd'hui, je sui À grâce de Barbès;
 Eh bien, les bour suis un très bon bonapartiste
-tendent même pas réa tellectuels, aujourd'hui, ils n'atntrer dans leurs foyers, ils n'at69
-
-tendent pas d'avoir
+tendent même pas réa tellectuels, aujourd'hui, ils n'atntrer dans leurs foyers, ils n'attendent pas d'avoir
 socialisme; immédiatement sers Le tendon
 onverlis, ils deviennent des anti-socialistes..
 ne voix. — Et les députés Socialistes?
@@ -817,10 +773,8 @@ qu'il y a des ouvriers qui sont rentiers, ayant un livret de
 caisse d'épargne, ou qui ont une ou deux ou trois actions,
 tandis qu'il y a des rentiers qui travaillent pour compléter
 leurs rentes ».. Mais à ce compte-là il n'y aurait pas de
-règne animal, ni de règne végétal, puisqu'on ne peut éta-
-blir la démarcation entre les deux règnes; il n'y aurait non
-plus plus de jour ni de nuit, parce qu'on ne peut établir clairement la démarcation entre le jour et la nuit; si vous dé-
-cidez d'une manière pour le méridien de Paris, dix lieues
+règne animal, ni de règne végétal, puisqu'on ne peut établir la démarcation entre les deux règnes; il n'y aurait non
+plus plus de jour ni de nuit, parce qu'on ne peut établir clairement la démarcation entre le jour et la nuit; si vous décidez d'une manière pour le méridien de Paris, dix lieues
 plus basil faut l'établir différemment; et s'il fait nuit ici, aux
 antipodes il fait jour. Par conséquent, il n'y a ni jour ni
 nuit... (Rires et exclamations à droite) Permettez, c'est le
@@ -852,8 +806,7 @@ absolue ignorance des phénomènes économiques. Au siècle
 dernier Adam Smith reconnaissait déjà, en Angleterre, pour
 un pays très développé à l'époque, que 3 était un
 je taux normal pour les capitaux de tout repos qui ne courent aucun risque, comme ceux qu'on place sur fonds
-|3 d'Etats, de &ouvernements; en France, un économiste con-
-sidérait que c'était 4°, parce que la France est à un degré
+|3 d'Etats, de &ouvernements; en France, un économiste considérait que c'était 4°, parce que la France est à un degré
 ne de développement économique inférieur à celui de l'Anglest. terre; aujourd'hui les financiers considèrent que 3 c'est
 
 le taux normal de tous les capitaux qui ne courent aucun
@@ -895,15 +848,13 @@ d'assister à un congrès dans le Centre, et je vous assure
 que je n'avais jamais tant d'ardeur parmi nos camarades, comme à Melun, dimanche, et le fait que nous sommes ici, Vaillant et moi, non seulement décidés à marcher
 la main dans la main, aujourd'hui, mais dans l'avenir,
 prouve que cette crise a été on ne peut plus utile pour le
-! ne nous sommes unis, que nous sorti-
-as toutes ces luttes et de toutes ces en-
+! ne nous sommes unis, que nous sortias toutes ces luttes et de toutes ces en-
 Mais les intellectuels ont Ô à
 cienne production artisane le travail intellectuel -
 De étaient combinés. Liheue de Pénre)
 la production moderne ces n. ais aujourd'hui dans So)
 le travail intellectuel, Bien entend Menus Paie
-Vriers manuels qui font un avai, à beaucoup d'ou-
-le mécanicien, mais il Cagnes à semi-intellectuel, comme
+Vriers manuels qui font un avai, à beaucoup d'oule mécanicien, mais il Cagnes à semi-intellectuel, comme
 “ie deux fonctions. Ysion très nette établie
 à bien aujourd'hui
 Jourd'hui on ne peut Concevoir la production
@@ -966,8 +917,7 @@ parce a le roi de Perse n'est pas assez riche pour les
 :!... (Applaudissements} On ne vendra pas son traauste, on sera seulement heureux de trouver des
 La en et on n'aura pas même besoin de
 ments de travail seront cite pan
-que tous les:, lors-
-dinifines La seront utilisés pour
+que tous les:, lorsdinifines La seront utilisés pour
 sera affranchie. Eh bien! Sos a pensée sera libre, À
 Venez avec nous pour affranchi sons aux intellectuels:
 salariat. Venez avec la pensée du joug du
@@ -977,8 +927,7 @@ De la division du travait social. Alcan.
 €z-la pour en faire un
 l'humanité; voilà votre pin; - bonheur pour
 Ne nous vous appelons, Applandissements Pride
-Avant de donner la Parole aux personnes qui la demanha deront, je crois que je devrai adresser tous mes remercie-
-ments au citoyen Lafargue pour l'intéressante conférence
+Avant de donner la Parole aux personnes qui la demanha deront, je crois que je devrai adresser tous mes remerciements au citoyen Lafargue pour l'intéressante conférence
 qu'il vient de faire.
 a certaines interruptions qui se sont produites,
 a.. Comme si, une façon queleonque, Lafargue avait attaqué
@@ -990,12 +939,11 @@ absolument égoïstes, et il célébrait le moment où, dans la
 société prochaine, ces organes étant rendus à la fonction,
 à les hommes étant dignes de cette fonction, nous ne pour-
 à rons que louer ceux qui donneraient des moyens plus
-grands à l'humanité, C'est pourquoi je crois que la confu-
-sion qui a naître est maintenant dissipée à la seule
+grands à l'humanité, C'est pourquoi je crois que la confusion qui a naître est maintenant dissipée à la seule
 réflexion. Mais cependant si quelqu'un a des observations
 de à faire, sur la demande du citoyen Lafargue, je lui donne
 J'ai demandé la parole, parce que je crois. a
-4 Lafargue a beaucoup généralisé. Vous laisser de
+Lafargue a beaucoup généralisé. Vous laisser de
 che à Taine, c'est de prendre des petits fai
 . Le citoyen Crépin est, me dress secrétaire
 populaire du quinzième arrondissement. Er:
@@ -1008,14 +956,12 @@ suis bien peu qualifié pour prendre leur ense,
 entré à l'âge de treize ans dans l'usine — parce quon
 peut entrer plus tôt — mais j'ai de longues fréquentations avec Guesde et Vaillant et Lafargue. Souvent vous
 savez qu'il y a des proscriptions contre les socialistes —
-j'ai remarqué ceci: quand on se frotie contre un mur frai-
-chement peint, on attrape de la peinture; quand on se
+j'ai remarqué ceci: quand on se frotie contre un mur fraichement peint, on attrape de la peinture; quand on se
 frotte avec des personnes intelligentes, on finit par avoir,
 non pas de l'esprit, mais plus de compréhension.
 Vous avez entendu parler des Universités populaires; je
 ne saurais pas défendre leur cause, c'est une très belle
-cause, mais avec un mauvais avocat; elle se défendra elle-
-même, si je puis vous expliquer ce que nous espérons faire,
+cause, mais avec un mauvais avocat; elle se défendra ellemême, si je puis vous expliquer ce que nous espérons faire,
 et comment certains intellectuels viennent à nous. Si vous
 voulez bien me le permettre, je vous lirai le programme
 que nous avons rédigé
@@ -1028,8 +974,7 @@ a peuple pour discuter avec lui.
 jan “un mouvement très marqué; et j'ai rencontré des
 Jeunes gens qui m'interrogeaient, me disaient, me mont Dee -
 des brochures de Viviani; ils ne veulent pas faire 1 pre eur
-rité, cela les dégoû: a cha-
-de.. A et quand ils trouvent, faisant partie
+rité, cela les dégoû: a chade.. A et quand ils trouvent, faisant partie
 lon des visites, des ouvriers malheur
 égagent du Mont-de-Piété eux, ils
 été le paletot d'un pauvre
@@ -1087,8 +1032,7 @@ mouvement politique, eh bien dans le premier et le nr.
 deuxième il est défendu de s'occuper de politique. Faites »
 du socialisme avec cela.
 Voilà done un mouvement nouveau; avec le mouvement
-coopératif, il y a les universités populaires, et le mou-
-vement politique. S'il faut qu'il n'en reste qu'un, je voterai
+coopératif, il y a les universités populaires, et le mouvement politique. S'il faut qu'il n'en reste qu'un, je voterai
 ! pour le mouvement politique; mais du moment qu'avec le “4
 mouvement syndical, il y en a Quatre, et du moment
 qu'avec celui-ci les ouvriers peuvent s'instruire et arriver
@@ -1097,8 +1041,7 @@ Voilà ce que je voulais dire. {Vive approbation à droite) Fe:
 Quand on nous a annoncé une confé?
 et Intellectuels, surtout lorsque ss, jet a pes.
 . dE nee un des représentants les plus auto- De
-tendre à une définit pren j'avais le droit de m'at-
-constaté qu'il s'est produi,; en effet, j'ai
+tendre à une définit pren j'avais le droit de m'atconstaté qu'il s'est produi,; en effet, j'ai
 qui a un sens qui n'a pas été encore pen tUAliSMe,
 si on indique la source où ce core peut-être défini. Mais
 Vous verrez qu'il a une signifi a pris naissance, alors
@@ -1107,8 +1050,7 @@ actuelle sociqliste intellectuel, que lorsqu'on dit à l'époque » ce ne sont p
 à la défense d'une certaine pas Se Justice, se sont
 Lavrov: le ne Nha du Philosophe russe
 à. les œuvres de Lavrov, po. qui conie cré la moitié de ses fins à consa-
-) nalité humaine, le rôle Dre rôle de la person-
-phase du mouvement révolutionnaire oéas Crtaine
+) nalité humaine, le rôle Dre rôle de la personphase du mouvement révolutionnaire oéas Crtaine
 ! à His » Contre l'absolutisme et contre le Capitate 4 Eh bien, chez Lavrov Vous trouverez non pas seulement
 à 11 définition, mais le développement de ce qu'il appelle
 se intellectuel; vous verrez que Lavrov lui attribue un très
@@ -1148,8 +1090,7 @@ Vous verrez que, dans la bourgeoisie française, il y a a
 cette double caractéristique: esprit critique et désir de servir la cause des déshérités. Supposons enfin, pour parler
 de cette cause particulière, que ce ne füt pas un individu MES
 de la classe bourgeoise qui ait été injustement condamné...
-Voix diverses. — Ah!enfin.. Nous y voilà. {Vive appro-
-bation et protestations bruyantes) #.
+Voix diverses. — Ah!enfin.. Nous y voilà. {Vive approbation et protestations bruyantes) #.
 de Parlez! Parlez! — Il répond très bien)
 — de ferai simplement
 que Lafargue n'a pas parlé de cela!
@@ -1170,7 +1111,7 @@ ce Parce que le fruit de son travail lui est volé une injustice
 ne suis convaincu qu'une partie de daté “és Eh bien, je
 commencé son action par une sim ourgeoisie, qui
 uneinjustice individuelle, si elle appli e"#4i0n Contre
-ni que, elle viend ue, si elle applique son esprit critin. à, Viendra certainement au socialisme...
+ni que, elle viend ue, si elle applique son esprit critin. Viendra certainement au socialisme...
 à. Le choy en VAILLANT. — Nous n'avons pas à entrer dans
 ces questions.
 Le citoyen RuBANovrreu. — J'ai fini; eh bien, je dis qu'il
@@ -1199,28 +1140,23 @@ peuple et de cette union sont sorties de grandes choses,
 comme vous le savez.
 {Vifs applaudissements à droite et dans les tribunes)
 Rubanovitch a répondu à des choses que Lafargue n'a
-pas dites et c'est qu'est la confusion; Lafargue n'a nulle-
-ment critiqué le rôle de l'intelligence dans le développe-
-ment du socialisme, il a critiqué le rôle d'individus et non
+pas dites et c'est qu'est la confusion; Lafargue n'a nullement critiqué le rôle de l'intelligence dans le développement du socialisme, il a critiqué le rôle d'individus et non
 le que. rôle o ces hommes devienne tellement adé-
 a fonction qu'ils doivent rempli ‘il
 de critiques à leur adr mplir qu'il n'y aura plus
-Se ner adresser; ils deviennent les collabora-
-arti, mais tant qu'ils joueront un rôle indivi
+Se ner adresser; ils deviennent les collaboraarti, mais tant qu'ils joueront un rôle indivi
 il place pour sa critique. individuel
 crois par consé: -
 les Fra a sis citoy en Rubanovitch, dans
 lrque n'a pas répondu au citoyen La-
 Quand le cito.; LL:
-rence sur les intellectuels. ne: annoncé une confé-
-dans les journaux sociali quand il a maintes fois dénoncé Le
+rence sur les intellectuels. ne: annoncé une confédans les journaux sociali quand il a maintes fois dénoncé Le
 danger social, lalistes, que les intellect
 OClal, je me suis toujours rec uels sont un
 que ce danger social n'ait emandé comment il se
 Ras qui a analysé tous les de prévu par Marx.
 iste, qui a prévu toutes les de la société capitarienne aurai difficultés que la
-cest ait à vaincre, qui a pré que la classe proléta-
-geois, le socialigme le socialisme petit
+cest ait à vaincre, qui a pré que la classe prolétageois, le socialigme le socialisme petit
 en, tous les socialismes,
 
 le enfin, comment n'a:t-il as pré
@@ -1231,16 +1167,14 @@ prolétariat qui souffre et les Mtellegiee de
 dans le Manifeste un à uels; ily a encore
 historique: les Passage où Marx parle de l'évolution
 de dit Pas un mot sur le danger que les intellectuels Pourront
-ni. y a encore un autre fondateur du socialisme scienti-
-fique, Lassalle, qui a Prononcé un grand discours:
+ni. y a encore un autre fondateur du socialisme scientifique, Lassalle, qui a Prononcé un grand discours:
 danger des intellectuels, mais l'utilité des intellectuels.
 É Alors, je me demande comment un des représentants du
 socialisme scientifique peut maintenant trouver tout
 à coup un danger qui n'a pas été aperçu de ceux-là pendant
 tout le mouvement socialiste. Je crois qu'il ne s'agit pas ici
 des intellectuels en eux-mêmes, mais des intellectuels qui
-ne sont pas venus à telle ou telle fraction. {Longue agita-
-tion). Si les intellectuels étaient venus à cette fraction, le
+ne sont pas venus à telle ou telle fraction. {Longue agitation). Si les intellectuels étaient venus à cette fraction, le
 citoyen Lafargue ne les aurait pas dénoncés.. (Approbation,
 applaudissements et murmures),
 bi: 54 Une voix. — C'est une affaire de boutique!
@@ -1253,10 +1187,9 @@ par la fenêtre. fRires et piandieennen venez
 , 4 montré danger qu'ils sont etil a fini en disan: ven
 Fe. nous. Il a parlé des intellectuels anti-darwiniens, qui
 fité de la science. pour défendre les intérêts capitalistes,
-A; ou Darwin aussi était un intellectuel dont la science
+ou Darwin aussi était un intellectuel dont la science
 dia intellectuels socialistes et des intellectuels, anti
-socialistes. {Applaudissemenis, agitation, la voix de l'ora-
-teur est couverte par des interruptions continues) Ce
+socialistes. {Applaudissemenis, agitation, la voix de l'orateur est couverte par des interruptions continues) Ce
 On ne peut pas attaquer les intellectuels en général,
 comme on ne peut pas attaquer les juifs en général, parce 1 A
 qu'il y en a des bourgeois et des prolétaires. Il ne faut pas
@@ -1265,8 +1198,7 @@ part; et voilà pourquoi Marx, qui est le véritable fondateur
 du socialisme scientifique, et qui n'a opéré qu'avec des
 notions claires et définies, n'a pas parlé des intellectuels.
 Je vous demande pardon que ce soient deux Russes l'un
-après l'autre qui viennent parler et je demande votre indul-
-gence pour ma prononciation, j'ai le tort non seulement
+après l'autre qui viennent parler et je demande votre indulgence pour ma prononciation, j'ai le tort non seulement
 d'être un intellectuel, mais un intellectuel russe; et si les ne
 intellectuels russes prennent ici la parole, c'est qu'ils ont
 une douloureuse, longue expérience.
@@ -1296,8 +1228,7 @@ contre les Sités et rancunes
 Le récemment à Saint-Pétersbourg des mouvements Purement
 : "4 ouvriers qui ont rejeté les intellectuels 3 ont dit, les synMe. dicalistes, il ne faut pas d'intellectuels, parce qu'ils
 demandent la lutte politique et des places de députés.
-n'en faut pas. (Rires et applaudissements) et c'est main-
-tenant Plekhanov qui demande grâce pour les intelleciuels
+n'en faut pas. (Rires et applaudissements) et c'est maintenant Plekhanov qui demande grâce pour les intelleciuels
 atlaqués jadis par lui. Mais je crois qu'ils n'ont qu'un tort,
 es les intellectuels: allant dans le Parti Ouvrier, ils seraient
 Je bien reçus. (Applaudissements et longues Protestations)
@@ -1314,7 +1245,7 @@ semble qu'il se soit éta » quive sellectuel. ét; sait
 cette équivoque certainement les difficultés qui
 n'auraient pas été faites. avec éloquence
 Les camarades précédents nous ont parlé avec éloqu
-à, ngrès le Groupe d'action
+ngrès le Groupe d'action
 Le citoyen De postes Socialiste Rérlnior
 licaine socialiste de 1 tes-Alpes), du
 É.. et le Groupe socialiste de Veynes (Hautes-Alp
@@ -1328,8 +1259,7 @@ par une simple définition. Je ne veux pas la prendre lans
 mon cerveau, mais dans l'histoire des évolutions qui se
 sont-produites, Il s'agit de savoir ce quest un intellectuel
 qu'est-ce qu'un intellectuel? Étymologiquement c'est un
-homme qui s'occupe des questions d'intelligence. Un ou-
-vrier finissant son a ouvrant un livre, par cela même
+homme qui s'occupe des questions d'intelligence. Un ouvrier finissant son a ouvrant un livre, par cela même
 c'est un intellectuel. Et alors la discussion n'existe plus.
 Mais il y a une autre définition de ce mot, c'est la définition que l'usage lui a donnée: un intellectuel, c'est un
 homme qui s'occupe ordinairement et fait profession de
@@ -1379,13 +1309,12 @@ abdiquer leur bourgeoisie, leur famille, qui n'ont pas
 1 1 connu la faim pendant quelques jours, fussent-ils avocats,
 4 professeurs, qui n'ont pas fait à leurs idées le sacrifice de
 leur vie, qui sont venus à nous avec tous les préjugés de la
-tradition bourgeoise qui tient en ses mains tout l'enseigne-
-ment classique; et de même qu'on avait fondé pour des
+tradition bourgeoise qui tient en ses mains tout l'enseignement classique; et de même qu'on avait fondé pour des
 bourgeois et des fils de bourgeois des universités, ils ont
 voulu fonder dans un excellent sentiment...
 Po. Une voix. — C'est un discours électoral! Allez, on vous
 Le. nommera député, ne dites plus rien!
-#4 À Le citoyen DazLy. — Je ne suis pas candidat...:
+4 À Le citoyen DazLy. — Je ne suis pas candidat...:
 d'y 1 Une voix. — Vous le serez!
 À Le citoyen DLL. — Ils sont venus à nous avec des idées » 7 ni bourgeoises, préconçues, quiléir avaient tie Le
 4) leurs maîtres, qu'on n'enseigne que par les Universités. les
@@ -1403,8 +1332,7 @@ votre enseignement, c'est la liberté de ce même peuP
 Une voix. — Réduisez, c'est une répétition générale. — On
 vous nommera, allons, vous serez nommé
 (L'orateur ne peut continuer par suite des interruptions}
-Tous ceux qui sont venus à cette tribune n'ont pas atla-
-qué la conférence. (Rires) Ils ont dit: vous eussiez
+Tous ceux qui sont venus à cette tribune n'ont pas atlaqué la conférence. (Rires) Ils ont dit: vous eussiez
 définir l'intellectuel. Marx n'a pas dit cela, n'a pas fait cela.
 Nous, marxistes, nous ne voyons pas par Marx, mais eux,!
 qui ne sont pas marxistes, ne jurent que par Marx. /Rires)
@@ -1413,17 +1341,14 @@ avais pas parlé; on est venu parler des affaires russes, des
 crises qu'il y a en Russie entte les intellectuels et les
 ouvriers. Cela peut être très intéressant, je ne le conteste
 pas, mais cela n'est pas en question. {Mouvement prolongé) Ne
-J'ai dit que, dans la production artisane, le travail intel-
-lectuel de le travail manuel sont fondus dans la même per- »
+J'ai dit que, dans la production artisane, le travail intellectuel de le travail manuel sont fondus dans la même per- »
 sonne; j'ai montré dans tout mon discours que les intel-
 Molière PAFARGUE, — J'arriverai tout à l'heure à Lee
 J'ai dit que les intellectu: été pis
 els ont iqué
 - bourgeoisie, comme on Bleue de ne por
 audissements) Et que cette fabricati: sures...
-dante que la valeur eorication avait été si abon-
-dessous de la vale: avail intellectuel est tombée au-
-que toute espèce de formule algébri Cela vaut mieux
+dante que la valeur eorication avait été si abondessous de la vale: avail intellectuel est tombée auque toute espèce de formule algébri Cela vaut mieux
 de Marx, je vous dirai que l'on me Min et puisqu'on a parlé
 dans tout Le Capital. trouve pas une définition
 
@@ -1446,7 +1371,7 @@ et les intellectuels, qui, au siècle dernier, étaient des
 lutionnaires, étaient des esprits d'attaque qui démo‘issaient
 toute l'idéologie de l'ancienne société aristocratique et féodale, et qui, aujourd'hui, ne sont que de misérables domeshe. tiques de la classe capitaliste. fApplaudissements)... Ils
 à 4 ne comprennent pas...
-53 Une voix. — Et Anatole France?
+Une voix. — Et Anatole France?
 a à Le citoyen LAFARGUE. — Remarquez qu'il y a des excepL tions. Anatole France est un des esprits les plus émancipés
 ne Le citoyen LararGue. — Mais est-ce qu'il n'y a pas ensuite
 tous les pornographes qui écrivent dans les journaux, des
@@ -1474,8 +1399,7 @@ qu'ils étaient sous le joug patronal direct, qu'ils étaient
 Éeligies dans une production commune et qu'ils voyaient
 ï ne pouvaient s'émanciper individuellement.
 . est différent; il croit que, par sa roublardise... ifs applaudissements à gauche)... que par son
-intelligence, ses Connaissances, il pourra s''émanciper indi-
-an {Vifs applaudissements à gauche)... Vous
+intelligence, ses Connaissances, il pourra s''émanciper indian {Vifs applaudissements à gauche)... Vous
 es: ce n'est pas vrai! Je suis heureux de cette parole NT: à
 et je voudrais que tous les intellectuels en disent int
 nisée, la classe on hui la classe ouvrière s'est orga-: À nes
@@ -1488,13 +1412,11 @@ actifs que nous ayons sa des Propagandistes les plus
 tout; il ne reste pas au le parti socialiste; il court parle pays — avec le permi alais-Bourbon, il circule
 de voyager des Co: ans tout
 
-4 Nous aimerions avoir des intellectuels Parmi nous, des
+Nous aimerions avoir des intellectuels Parmi nous, des
 
 intellectuels venant parmi nous apprendre la science socia.
 
-liste et ne s'improvisant pas socialistes pour Nous impo-
-
-ser un socialisme de leur fabrication. (Applandissements
+liste et ne s'improvisant pas socialistes pour Nous imposer un socialisme de leur fabrication. (Applandissements
 
 Rappoport croyait me lancer une pointe terrible en disant:
 
@@ -1522,7 +1444,7 @@ La Les camarades Sarraute et Estève demandent la parole, qui leur
 
 a a est refusée,
 
-È! di. Le citoyen EsTÈève. — Merci, citoyen Vaillant,
+di. Le citoyen EsTÈève. — Merci, citoyen Vaillant,
 : La séance est levée.
 
 notre Maître Villiers de l'Isle-Adam
@@ -1548,8 +1470,7 @@ e. rizières, dans les plantations de théiers et de
 Se É caféiers. Tous les mois ils recevaient d'un planteur
 voisin une revue qu'ils passaient, après l'avoir lue,
 à un autre voisin. Le dimanche, ils allaient à la
-2 É. messe à vingt kilomètres de leur maison. Ils accueil-
-lirent amicalement leur nouveau frère. Mais ils
+É. messe à vingt kilomètres de leur maison. Ils accueillirent amicalement leur nouveau frère. Mais ils
 furent déçus par le maigre développement de
 à corps. Clément s'étonna de la petitesse du pre où
 tournait la pensée de ces grands garçons qui ne
@@ -1584,7 +1505,7 @@ sont envolés: et ma mère, émue par la beauté du
 spectacle ‘et oublieuse, m'a dit: Regarde leurs
 À queues éployées! — Mes dents se sont serrées, et je
 : me suis retenu de pleurer.
-à: Mes frères me méprisent pour ma faiblesse; mon
+Mes frères me méprisent pour ma faiblesse; mon
 père est une intelligence caduque. Maître, je.
 n'aurais pas venir ici: meurs d'ennui. La
 fête de cette nature qui est autour de moi, et qui
@@ -1644,8 +1565,7 @@ que ce pays que Clément n'aimât pas; mais c'est nous
 qu'il n'aime pas. Il a vécu trop longtemps sans nous
 connaître. Nous avons poussé ici comme des jeunes
 arbres, de jeunes animaux, de jeunes sauvages. Lui,
-il aime une civilisation exquise, que nous ne pou-
-vons soupçonner mes frères ni moi. Il nous trouve «
+il aime une civilisation exquise, que nous ne pouvons soupçonner mes frères ni moi. Il nous trouve «
 des barbares, il regrette la nature et plus encore les
 hommes de l'Europe occidentale. Le
 Les six garçons répétèrent ensemble:
@@ -1693,11 +1613,10 @@ grand ennui? pourquoi tant regretter l'Europe?
 m'aimez; je voudrais revoir Majorel. Vous l'avez
 connu cet esprit divin! 11 me donnait l'illusion que 4 se Fr.
 j'étais un homme comme un autre, il ouvrait pour à
-moi les portes du monde visible. C'était un enchan-
-menait dans le passé, dans le présent, dans l'avenir, RSS
+moi les portes du monde visible. C'était un enchanmenait dans le passé, dans le présent, dans l'avenir, RSS
 il exaltait ma vie.
 sou clame” atst pri été sous
-É, Comme toi. Aime-t-il toujours le cinquième siècle de la Grèce?
+Comme toi. Aime-t-il toujours le cinquième siècle de la Grèce?
 la lumière
 Souviens de son enthousiasme
 parlait de ce temps où la vie de quel
@@ -1820,11 +1739,9 @@ Il a tant d'amour autour de toi qu'il devrait en
 se te faisons tous ici le don de nos cœurs. Ne le.
 À dédaigne pas.
 Clément essaya de dissimuler son ennui. pri
-plaisir, le soir, à entendre la musique des indi-
-gènes, revenus des champs. Il restait très
+plaisir, le soir, à entendre la musique des indigènes, revenus des champs. Il restait très
 dans la nuit, écoutant sans lasser des histoires
-accompagnées par des flûtes, des cithares, un vio-
-lon européen. Des battements de gongs rythmaient Le
+accompagnées par des flûtes, des cithares, un violon européen. Des battements de gongs rythmaient Le
 d'incompréhensibles mélodies qui engourdissaientla
 pensée de Clément. Des harmonies, entendues sous
 d'autres cieux, accouraient du fond de sa mémoire.
@@ -1858,8 +1775,7 @@ que des ruines. — Une statue de Siva, haute de dix
 pieds, enfoncée jusqu'au nombril dans les trachytes
 à épanchés du volcan supérieur, dominait ce masd. sacre. La voûte qui protégeait sa tête contre les
 pluies et le soleil, dans sa chute écorna sa tiare,
-cassa deux de ses quatre bras, brisa son chasse-
-mouches. Il gardait dans une de ses mains une fleur
+cassa deux de ses quatre bras, brisa son chassemouches. Il gardait dans une de ses mains une fleur
 de lotus.
 :. À ses pieds, sa femme Dourga, la vierge pure, À
 gisait en deux morceaux, démontée de son taureau
@@ -1910,8 +1826,7 @@ imaginé que son Maître pouvait mourir. L'homme
 qui lui avait appris l'histoire des vieilles civilisa- - … #1!
 tions humaines dans les plaines sacrées de l'Eu- à
 phrate, du Gange et du Nil était le contemporain
-de ces âges reculés, et comme sa naissance se perdait dans le Mystérieux Autrefois, sa fin était réser-
-vée à un incalculable avenir. — Il se retira pour le
+de ces âges reculés, et comme sa naissance se perdait dans le Mystérieux Autrefois, sa fin était réservée à un incalculable avenir. — Il se retira pour le
 pleurer au bord d'un étang des bois. Il se tenait
 accroupi au milieu des fougères, si immobile, que
 des chevreuils et des cerfs, près de lui, venaient A RENT
@@ -1938,8 +1853,7 @@ Madame Saint-Adjutory répondit avec fierté
 que tu nous donnerais la tendresse qui ne pourrait
 plus aller à un autre.
 — Vous avez joué avec ma douleur. Je veux.
-partir. Quand je serai loin de vous je vous pardon-
-nerai votre mensonge..
+partir. Quand je serai loin de vous je vous pardonnerai votre mensonge..
 Madame Saint Adjutory se révolta contre la
 — Pourquoi me parles-tu ainsi? Tu n'as donc
 jamais menti? Pars. Emporte à ton ami ton cœur
@@ -1960,8 +1874,7 @@ bois, la culture des rizières, le métrage des champs.
 Il se demanda même avec intérêt si la récolte de
 coton partirait par voie anglaise? La question
 n'était pas encore résolue à son départ.
-Une vieille manie de son enfance le tour-
-menta. Avec ses doigts il refoulait ses yeux élasti.
+Une vieille manie de son enfance le tourmenta. Avec ses doigts il refoulait ses yeux élasti.
 ! ques dans leurs orbites. Accoudé au bastingage, il
 traversa le golfe du Bengale un pouce dans chacun
 , 4 de ses yeux.
@@ -2015,8 +1928,7 @@ Reims était seul à attendre Clément.
 Nous allons chez lui. Un bateau de pêche Le
 s'était échoué au bout de l'estacade, démonté par les À
 grandes marées de ces derniers jours. Quelques
-hommes de l'équipage se cramponnaient aux ma-
-driers qui étayaient les planches de la jetée; la mer
+hommes de l'équipage se cramponnaient aux madriers qui étayaient les planches de la jetée; la mer
 les recouvrait à chaque instant. Majorel voulut les à FL"
 secourir: il s'était ouvert le ventre sur un pieu.
 la lumière
@@ -2072,7 +1984,7 @@ amanitaitont, c'est-à-dire que nous donnons 4 true)
 des deux le nom et l'adresse de la personne — qui reçot
 l'abonnement payé, — qui pare l'abonnement reçu Et
 Pour pouvoir envoyer à nos futurs abonnés des collec
-tions complètes, nous avons renoncé rigoureusement ï: à
+tions complètes, nous avons renoncé rigoureusement à
 Administration et rédaction le lundi et le jeudi, CEE
 de 2 heures à 5 heures. Adresser toute la corres- LA
 pondance à M. Charles Péguy, 19, rue des Fossés-
@@ -2084,9 +1996,8 @@ cahier devenait plus épais que je ne l'avais perisé. De
 Suresnes je fis téléphoner à quelques amis que j'ai, les
 priant de vouloir bien monter garder la maison et recevoir en ma place. Ils aimèrent mieux aller préparer en
 quelque Sorbonne les examens utiles. J'avais pensé que
-Je reviendrais pour deux heures. Mais les voies de com-
-munication de Suresnes à Paris sont embarrassées ÊT" on
-plus que partout ailleurs, à cause de Exposition. Je ne “8 a?
+Je reviendrais pour deux heures. Mais les voies de communication de Suresnes à Paris sont embarrassées ÊT" on
+plus que partout ailleurs, à cause de Exposition. Je ne “8
 pes au siège de ces cahiers qu'à trois heures et “ae
 : trouvai, comme un simple abonné, la maison
 vide. Le concierge seul put me donner quelques rensei- LE

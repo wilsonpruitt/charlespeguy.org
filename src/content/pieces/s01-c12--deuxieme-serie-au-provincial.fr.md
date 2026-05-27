@@ -21,21 +21,15 @@ embarrassés, forcés que nous serions de vivre à la fois
 
 dans deux périodes, comme historien de la précédente
 
-et comme citoyen de la contemporaine, si dès le com-
-
-mencement de l'année dernière Hubert Lagardelle
+et comme citoyen de la contemporaine, si dès le commencement de l'année dernière Hubert Lagardelle
 
 n'avait fondé le Mouvement Socialiste à seule fin de
 
-Le produire au lecteur Ics renseignements qu'il peut de-
-
-mander sur l'action socialiste pendant qu'elle se fait,
+Le produire au lecteur Ics renseignements qu'il peut demander sur l'action socialiste pendant qu'elle se fait,
 
 pendant qu'elle se meut. Laissant donc à nos camarades
 
-et à nos amis le soin de produire au mieux ces rensei-
-
-gnements d'action pour ainsi dire contemporains, nous
+et à nos amis le soin de produire au mieux ces renseignements d'action pour ainsi dire contemporains, nous
 
 serons d'autant plus libres pour publier nos documents
 
@@ -57,14 +51,11 @@ rendu analytique ou synthétique, officiel ou officieux,
 
 quand même un nouveau comité général, et quand
 
-même un nouveau congrès l'investirait et le sanction-
-
-douzième et dernier cahier de la première série
+même un nouveau congrès l'investirait et le sanctiondouzième et dernier cahier de la première série
 nérait, — aucun nouveau compte rendu ne peut fournir
 du congrès international un texte historique. Si puis
 
-sants que soient les comités et les congrès ils ne peu-
-vent pas décréter ou voter qu'un texte fabriqué sera
+sants que soient les comités et les congrès ils ne peuvent pas décréter ou voter qu'un texte fabriqué sera
 désormais le texte historique. Cette impuissance leur
 est commune avec les conseils de guerre. Et de même
 que nous aurons fait le pont du premier congrès national, Ne.
@@ -81,9 +72,7 @@ tuant, ou qu'il soit, comme les deux premiers, un con-
 
 - grès parlementaire, il marquera sans doute la fin d'une:°4
 période encore dans l'histoire de l'action socialiste.
-Sous ce titre courant: du deuxième congrès au troi-
-sième ces cahiers publieront aussitôt après les doc. « ments et les renseignements de la période ainsi déter-
-minée. En particulier, de même que nous avons publié
+Sous ce titre courant: du deuxième congrès au troisième ces cahiers publieront aussitôt après les doc. « ments et les renseignements de la période ainsi déterminée. En particulier, de même que nous avons publié
 les réponses données par les militants socialistes à la
 consultation internationale ouverte à la Petite Répu-. A À
 blique sur l'affaire Dreyfus et le cas Millerand, ainsi
@@ -94,8 +83,7 @@ stituer le parti socialiste français.
 Enfin sous ce titre le ministère de Millerand nouspu
 
 blierons autant que nous le pourrons le recensement
-textuel des arrêtés ministériels signés, des décrets pré-
-sidentiels contresignés, et des lois votées dans les questions ouvrières par M. Millerand ou sur sa proposition
+textuel des arrêtés ministériels signés, des décrets présidentiels contresignés, et des lois votées dans les questions ouvrières par M. Millerand ou sur sa proposition
 ou avec sa collaboration.
 Nous nous réservons de publier tous documents et:
 renseignements qu'il y aurait lieu sur les sujets particuliers qui n'entreraient pas en ces grandes rubriques.
@@ -150,11 +138,7 @@ socialiste. Il nous donnera dans un mois tout un cahier
 es intitulé: Les intellectuels devant le socialisme. — le
 problème de la petite bourgeoisie. Deux mois plus tard il
 nr. nous donnera tout un cahier au moins sur Le socialisme
-._ municipal en France. Les cahiers de Lagardelle entre-
-
-ront en brochures en série dans la bibliothèque du Mou-
-
-ne 44 vement Socialiste.
+._ municipal en France. Les cahiers de Lagardelle entreront en brochures en série dans la bibliothèque du Moune 44 vement Socialiste.
 de Aux mêmes conditions nous demanderons, quand ily
 aura lieu, des cahiers à plusieurs citoyens.
 
@@ -229,8 +213,7 @@ vouloir bien considérer que depuis le commencement
 nous payons nos imprimeurs ordinaires. Ce serait une
 erreur de s'imaginer que l'on ne doit pas nous payer
 parce que nous sommes socialistes. Nous sommes assurés que la plupart de nos camarades les ouvriers compositeurs, les correcteurs et les imprimeurs sont socialistes aussi. Mais c'est justement parce qu'ils sont
-socialistes que l'imprimerie de Suresnes les paie comp-
-tant au tarif syndical. Pour aujourd'hui nous prions
+socialistes que l'imprimerie de Suresnes les paie comptant au tarif syndical. Pour aujourd'hui nous prions
 ceux de nos anciens abonnés qui n'ont pas pensé encore
 à le faire de vouloir bien nous apporter ou nous envoyer
 en un mandat le montant de leur abonnement. — Nous
@@ -238,16 +221,12 @@ prions instamment ceux de nos anciens abonnés qui
 auraient déménagé pendant les vacances de vouloir
 bien nous donner sans aucun retard leur nouvelle
 adresse, pour que nos fiches et le répertoire soient rectifiés avant le commencement de la deuxième série.
-Nos anciens abonnés savent que nous avons réguliè-
-rement envoyé les cahiers de la première série à plus
-de trois cents abonnés gratuits, pour la plupart insti-
-tuteurs, dont les noms et adresses nous avaient été
+Nos anciens abonnés savent que nous avons régulièrement envoyé les cahiers de la première série à plus
+de trois cents abonnés gratuits, pour la plupart instituteurs, dont les noms et adresses nous avaient été
 communiqués par l'administration des Journaux pour
 tous, 17, rue Cujas, Paris. Huit mois d'exercice patient
 douzième-et dernier cahier de la première série
-et de correspondance active ont permis à cette admi-
-nistration de nous communiquer plus de cinq cents nou-
-veaux noms. Nous les avons acceptés. Si lourd que soit
+et de correspondance active ont permis à cette administration de nous communiquer plus de cinq cents nouveaux noms. Nous les avons acceptés. Si lourd que soit
 financièrement pour nous un tel service, nous enverrons
 donc régulièrement les cahiers de la deuxième série
 plus de huit cents abonnés gratuits, pour la plupart
@@ -255,8 +234,7 @@ Nous prions instamment nos amis non seulement de
 vouloir bien eux-mêmes s'abonner, mais de vouloir
 bien aussi nous présenter et honnêtement nous procurer
 le plus d'abonnés qu'ils pourront. Nous savons de cer-
-Lain que beaucoup de personnes s'imaginent innocem-
-ment qu'elles ont assez fait pour ces cahiers quand elles
+Lain que beaucoup de personnes s'imaginent innocemment qu'elles ont assez fait pour ces cahiers quand elles
 les ont lus par communication. Nous nous permettons
 d'attirer leur attention sur ce qu'il y auraït de parasitaire
 à user indirectement de cette publication sans participer
@@ -269,13 +247,11 @@ revue amie a bien voulu nous faire communiquer la
 liste administrative de ses abonnés. Nous espérons -
 qu'ayant par le Mouvement connaissance pragmatique de
 l'action socialiste internationale pendant qu'elle se meut
-ils demanderont à nos cahiers cette indispensable con-
-naissance historique de l'action que l'on ne peut donner
+ils demanderont à nos cahiers cette indispensable connaissance historique de l'action que l'on ne peut donner
 qu'un peu après que se sont dessinés les temps de eue
 
 ; Vas Nous envoyons éventuellement nos cahiers à tous les
-._ abonnés du bulletin del' Union pour l'action morale. L'ad-
-ministration de cette revue a bien voulu nous communi-
+._ abonnés du bulletin del' Union pour l'action morale. L'administration de cette revue a bien voulu nous communi-
 à FRE quer la liste de ses abonnés. Nous leur envoyons évenes tuellement nos cahiers. Nous sommes en effet de ceux
 “Lee qui ne peuvent nullement distinguer la révolution
 Nas sociale de la révolution morale, en ce double sens que
@@ -308,8 +284,7 @@ peut seule donner à tous les hommes le véritable exer- à
 cice de tous leurs droits humains, peut seule instituer
 une cité humaine où tous les hommes soient accueillis
 comme des citoyens véritables. Le
-Nous envoyons éventuellement nos cahiers à beau-
-coup d'universitaires, professeurs de l'enseignement
+Nous envoyons éventuellement nos cahiers à beaucoup d'universitaires, professeurs de l'enseignement
 supérieur et de l'enseignement secondaire, instituteurs
 et professeurs de l'enseignement primaire et de l'enseignement primaire supérieur, soit qu'ils fussent abonnés
 déjà au bulletin de l'Union pour l'action morale, soit 4 “4
@@ -320,8 +295,7 @@ des travaux et des œuvres qu'ils auront dans ces 3°
 cahiers. Nous espérons qu'ils n'hésiteront pas à nous. Le
 avouer pour un des leurs, à voir dans ces cahiers le
 travail d'enseignement que nous y mettons avant tout.
-Nous envoyons éventuellement nos cahiers aux secré-
-taires et aux délégués des groupes socialistes qui aux: “4
+Nous envoyons éventuellement nos cahiers aux secrétaires et aux délégués des groupes socialistes qui aux: “4
 récents congrès constituaient à peu près un parti opposé:
 au parti de la domination autoritaire. Nous regrettons De
 que le secrétariat du Parti Ouvrier Socialiste Révo-_ « lutionnaire nous ait refusé communication de ses listes.
@@ -329,11 +303,9 @@ Nous régretterons toujours tout ce qui sera du huis clos
 ! Nous n'avons avoir une liste sérieuse des principaux
 syndicalistes. Nous envoyons éventuellement nos
 cahiers aux citoyens secrétaires et délégués des
-groupes adhérents à la Fédération Socialiste Révo-
-lutionnaire, et aux Fédérations départementales et.
+groupes adhérents à la Fédération Socialiste Révolutionnaire, et aux Fédérations départementales et.
 régionales. Nous les envoyons éventuellement aux
-Autant que nous l'avons,pu nous envoyons éventuel-
-lement nos cahiers aux universités populaires, aux
+Autant que nous l'avons,pu nous envoyons éventuellement nos cahiers aux universités populaires, aux
 sociétés sérieuses d'enseignement laïque et de culture
 postscolaire. A ces institutions surtout conviennent les
 se principaux éléments dont nos cahiers sont formés. Si la
@@ -363,19 +335,15 @@ ne sont pas assez commodément composés pour un en
 Mais sachant pour l'avoir éprouvé comme il est difficile de faire quoi que ce soit il me présentait ses critiques mêmes comme un encouragement, une aide, et
 vraiment comme. une indispensable collaboration.
 Il vint me voir au commencement des vacances, comme
-ilen avait l'habitude. Rien dans son robuste aspect ne fai-
-sait pressentir le malheur qui déjà le menaçait. Il était
+ilen avait l'habitude. Rien dans son robuste aspect ne faisait pressentir le malheur qui déjà le menaçait. Il était
 seulement resté accablé d'un épouvantable deuil de
-Il vint me voir. Il m'exposa très fortement et minu-
-tieusement ses critiques. Je lui présentai ma défense.
+Il vint me voir. Il m'exposa très fortement et minutieusement ses critiques. Je lui présentai ma défense.
 Puis nous discutâmes nos raisons. Il finit par me donner cette preuve: Moi-méme, dit-il, qui te connais pourtant bien, et qui sais lire ce que tu écris, moi-même je
 ne lis pas commodément tes cahiers. Ils me forcent
 travailler. — Puis s'apercevant soudain que cette cri-.
-tique redoutable était si l'on voulait un élog'e incompa-
-rable il retrouva pour un instant son large sourire
+tique redoutable était si l'on voulait un élog'e incomparable il retrouva pour un instant son large sourire
 Je ne le revis pas. Une angine de poitrine le ter- LEO
-rassa en une demi-heure. Il en avait déjà subi les pre-
-mières atteintes en Savoie, maïs il se croyait rhumati
+rassa en une demi-heure. Il en avait déjà subi les premières atteintes en Savoie, maïs il se croyait rhumati
 sant et n'y prenait pas autrement garde.
 TRE Nos anciens abonnés savent qu'outre les abonnements
 gratuits annoncés dessus nous servons:
@@ -407,8 +375,7 @@ aucunement dans la rédaction de ces cahiers, donnera
 cette année à leur administration tout l'effort de sa
 patience efficace et de sa laborieuse ténacité. — Comme
 l'année dernière nos abonnés auront à la deuxième, à la Sea
-troisième et à la quatrième page de la couverture les ren-
-seignements nécessaires au détail de l'administration. à
+troisième et à la quatrième page de la couverture les renseignements nécessaires au détail de l'administration. à
 Sans aliéner du tout la même liberté, sans commu- TERRE
 niquer à personne la responsabilité de ce que nous
 voulons faire, nous avons avec béaucoup de plaisir
@@ -429,4 +396,4 @@ temps, leur travail, leur avoir, leur amitié, si jenecom-. Me
 mençais pas par présenter la défense de l'institution
 commune, Je suis comptable envers ces honnêtes gens … ce
 etenversle public. Il est inévitable qu'au début du
-prochain cahier je parle un peu pour ma maison. «;: La 137 6 TINMOENNER
+prochain cahier je parle un peu pour ma maison. La 137 6 TINMOENNER

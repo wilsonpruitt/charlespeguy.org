@@ -45,15 +45,13 @@ De vous, les Parisiens, vous raillez, pour avoir l'air spivi-
 (0 comme vous êtes lâches, vous faites semblant d'y aller
 pour piloter vos cousins. Vous êtes bien contents,
 d'avoir des cousins. A peine le tien, le fumiste orléanais, nous avait-il annoncé sa venue éventuelle que
-7 4 déjà M. Serge Basset, du Matin, avait sur le dos, de-
-puis trois jours, son cousin Bernard, notable commer..:
+7 4 déjà M. Serge Basset, du Matin, avait sur le dos, depuis trois jours, son cousin Bernard, notable commer..:
 çant de Quimper-Corentin, si nous le voulons, en tout
 cas un cousin plus sérieux que le tien, et plus rapide.:.
-A. — Que veux-tu, mon ami, le sien est un cousin quo-
-tidien et le mien n'est qu'un modeste cousin bimensuel,
+A. — Que veux-tu, mon ami, le sien est un cousin quotidien et le mien n'est qu'un modeste cousin bimensuel,
 à peu près bimensuel. ne
 ni — Parlons des copains.
-4 Les vacances commençaient mercredi soir. Mais
+Les vacances commençaient mercredi soir. Mais
 |. j'avais jeudi matin une répétition que je
 [4 É pas, et que je ne voulals pas Remettre;
 Tu donnes des leçons?
@@ -66,8 +64,7 @@ sans que je me connaisse fort bien en lettres françaises,
 en lettres latines et en lettres grecques, je laisse les
 parents de mes élèves apporter chez moi de tous côtés
 ceux qui sont timides en grec, en latin, et en français,
-è et qui cependant, pour des raisons purement désinté-
-ressées, désirent, comme on dit, subir heureusement la
+è et qui cependant, pour des raisons purement désintéressées, désirent, comme on dit, subir heureusement la
 première partie des épreuves du baccalauréat classique
 — et j'en donne à mes amis pour de l'argent.
 — Tu possèdes bien tes auteurs.
@@ -113,10 +110,10 @@ de. vingt-six d'annoncés avant le commencement de l'expo-
 — Sache que le citoyen sténographe est mon ami.
 à a Aussi m'a-t-il envoyé en province un papier, une piqûre
 
-44 Non, cela ne se met que Sur les monuments
+Non, cela ne se met que Sur les monuments
 
 Ministère du commerce, de l'industrie, des postes
-et des télégraphes —;
+et des télégraphes
 à exposition. Mais cela n'est pas officiel.
 , Commé tu parles bien. On voit bien que tu es
 — Exposition universelle internationale de 1900
@@ -157,8 +154,7 @@ Je sautai sur mon pétit Larousse. Le mot n'y était
 câbles et même des tissus.
 LA — La culture générale, aidée d'un vieux dictionnaire
 ironique plus douloureusement encore joeRe année.:
-M. Boutroux, rue Saint-Jacques, 260, préside à l'organi-
-sation du congrès de Philosophie. Asa quelque idée
+M. Boutroux, rue Saint-Jacques, 260, préside à l'organisation du congrès de Philosophie. Asa quelque idée
 de ce que c'est: un congrès de philosophie.
 Je n'en ai aucune image intéressante.
 — liy a dans Descartes, au discours de la srpes
@@ -191,14 +187,13 @@ je ne pense pouvoir
 donner des démonstrati
 ; ations, toutefois, à cause qu'il est
 À Possible qu'ils soient accordants avec toutes les
-!: verses opinions des autres hommes je prévoi es di-
+verses opinions des autres hommes je prévoi es di-
 à serais souvent diverti par les tie ne
 à naître. » qu'ils feraient
 aître mes fautes, qu'afin que,
 si j'avais quelque chose de‘ bon, les autres en eussent
 par ce moyen plus d'intelligence; et, comme plusieurs
-peuvent plus voir qu'un homme seul, que, commen-
-çant dès maintenant à s'en servir, ils m'aidassent aussi
+peuvent plus voir qu'un homme seul, que, commençant dès maintenant à s'en servir, ils m'aidassent aussi
 de leurs inventions. »
 es Cela serait favorable, sinon au congrès, du moins au
 de commerce des philosophes, au travail en commun, à la
@@ -209,12 +204,10 @@ toutefois l'expérience que j'ai des objections qu'on me
 Dee. peut faire m'empêche d'en espérer aucun profit: car j'ai
 “5 déjà souvent éprouvé les jugements tant de ceux que
 « 3. 0 j'aitenus pour mes amis que de quelques autres à qui
-je pensais être indifférent, et même aussi de quelques-
-uns dont je savais que la malignité et l'envie tâche- LR.
+je pensais être indifférent, et même aussi de quelquesuns dont je savais que la malignité et l'envie tâche- LR.
 raient assez à découvrir ce que l'affection cacherait
 D”: mes amis; mais il est rarement arrivé qu'on m'ait
-objecté quelque chose que je n'eusse point du tont pré-
-vue, si ce n'est qu'elle fût fort éloignée de mon sujet, en
+objecté quelque chose que je n'eusse point du tont prévue, si ce n'est qu'elle fût fort éloignée de mon sujet, en
 sorte que je n'ai quasi jamais rencontré aucun censeur
 
 ou moins équitable que moi-même:
@@ -249,17 +242,14 @@ les Chinois que parmi nous, il me semblait que le plus
 vus était de me régler selon ceux avec lesquels j'aurais
 à vivre; et que, pour savoir quelles étaient véritable.
 ment leurs opinions, je devais plutôt prendre garde à ce
-qu'ils pratiquaient qu'à ce qu'ils disaient, non seule-
-ment à cause qu'en la corruption de nos mœurs il
+qu'ils pratiquaient qu'à ce qu'ils disaient, non seulement à cause qu'en la corruption de nos mœurs il
 peu de gens qui veuillent dire tout ce qu'ils croient,
 La mais aussi à cause que plusieurs l'ignorent eux-mêmes;
 car l'action de la pensée par laquelle on croit une chose
 étant différente de celle par laquelle on connaît qu'on
 la croit, elles sont souvent l'une sans l'autre. Et, entre
 plusieurs opinions également reçues, je ne choisissais
-à que les plus modérées, tant à cause que ce sont tou-
-jours les plus commodes pour la pratique, et vraisem-
-blablement les meilleures, tout excès ayant coutume
+à que les plus modérées, tant à cause que ce sont toujours les plus commodes pour la pratique, et vraisemblablement les meilleures, tout excès ayant coutume
 d'être mauvais, comme aussi afin de me détourner
 moins du vrai chemin, en cas que je faillisse, que si,
 4: ayant choisi l'un des extrêmes, c'eût été l'autre qu'il eût
@@ -281,13 +271,10 @@ congressistes internationaux qui d'ailleurs et de leur
 métier seront des philosophes ou des professeurs de
 [ss — Rien, je distingue et je concilie.
 ( — Ah bien. —Il y ale congrès du Repos du dimanche,
-le congrès des Sapeurs-pompiers (des officiers et sousofficiers), celui de Sociologie coloniale, celui des Spé-
-cialités pharmaceutiques. Je pense que des sténo-
-graphes sténographieront le congrès de Sténographie: )
+le congrès des Sapeurs-pompiers (des officiers et sousofficiers), celui de Sociologie coloniale, celui des Spécialités pharmaceutiques. Je pense que des sténographes sténographieront le congrès de Sténographie: )
 on n'est jamais si bien servi que par soi-même.
 — Etl'on n'est jamais trahi que par les siens. Il y a [ol
-le congrès des Syndicats agricoles, et c'est M. le mar-
-de Vogüé, rue Faber, 2, qui préside à son organi- “JR
+le congrès des Syndicats agricoles, et c'est M. le marde Vogüé, rue Faber, 2, qui préside à son organi- “JR
 sation. Ilyale congrès du Tabac (contre l'abus). Je ne on,
 vois an congrès antialcoolique, et c'est dommage.
 nya que le congrès Végétarien. Encore n'a-til
@@ -315,17 +302,15 @@ es les gloires nationales que ces présidents, les
 ah aston Boissier, 23, quai Conti, préside à l'organisa- à
 tion de l'Histoire comparée. Les congrès des enseignehe ments sont nombreux: congrès des Associations des
 Le anciens élèves des Écoles supérieures de commerce; de
-l'Éducation physique et de l'Éducation sociale, déjà nom-
-més, celui de l'Enseignement agricole, déjà nommé, celui de l'Enseignement du dessin, celui de l'Enseignement
-Le. des langues vivantes, celui des Sociétés laïques d'Ensei-
-de gnement populaire, celui de l'Enseignement primaire,
+l'Éducation physique et de l'Éducation sociale, déjà nommés, celui de l'Enseignement agricole, déjà nommé, celui de l'Enseignement du dessin, celui de l'Enseignement
+Le. des langues vivantes, celui des Sociétés laïques d'Enseide gnement populaire, celui de l'Enseignement primaire,
 celui de l'Enseignement secondaire, celui de l'Enseigne-
 « ment des sciences sociales, celui de l'Enseignement suvi 4 périeur, celui de l'Enseignement technique, commercial:
 et industriel, celui de l'Épicerie — Non, je suis allé trop
 loin sur la liste. Rends-moi mon papier, imprimé à (
 l'imprimerie nationale. Tu n'as personne, alors? Que
 É devient notre ami Gaston Desbois?
-4 Il bien. Il est marié. Il est abonné aux cahiers,
+Il bien. Il est marié. Il est abonné aux cahiers,
 4 11 s'est abonné à vingt francs. Il était riche, quand il
 
 s'est abonné. Je viens de lai faire son changemen
@@ -351,7 +336,7 @@ il esthétisait P'aisir. Quand il était en Sorbonne,
 Que C'était un bon Garçon, très si Passer, parce » trés sincère. Je suis content
 Fais Rés le verras, tu Jui donneras le bonth n'auraïtpas dit, dans le temps, qu'il
 serait des premiers à trinquer.
-;; gneux. soir: avait osé dire au peuple
+gneux. soir: avait osé dire au peuple
 que l'hypothèse de Dieu n'était pas plus intéressante
 ù que l'hypothèse du droit de propriété. Alors, tu. comdi prends, la circulaire Leygues —
 — J'entends bien. C'est vraiment un très brave garEN çon. Et notre camarade Léon Deschamps?
@@ -363,8 +348,7 @@ latin, à l'école —
 — Le français, l'allemand, l'histoire de l'art et un
 peu de philosophie. Toujours la culture générale.
 44 — Cela me rappelle avantageusement un vieil ami de
-ma famille, un ancien instituteur, qui était devenu pro-
-fesseur de français et de gymnastique à la pension Vion,
+ma famille, un ancien instituteur, qui était devenu professeur de français et de gymnastique à la pension Vion,
 ba. — Deschamps vient à Paris de loin en loin.
 "4 — Il a tout de même plus de deux heures de chemin
 à. de fer. Je connais bien Coulommiers. J'y ai fait mes
@@ -386,9 +370,7 @@ répondu encore.
 — Tout de même c'est amusant, que ce soient Desbois
 et Duchêne ensemble qui aïent payé les premiers pour
 les Universités populaires. Tu te rappelles un peule léger
-dédain que Desbois avait pour les manifestations intem-
-peslives et un peu ridicules de Duchène? Et tu te rap-
-pelles tout lemépris que manifestait hautement Duchène 18%
+dédain que Desbois avait pour les manifestations intempeslives et un peu ridicules de Duchène? Et tu te rappelles tout lemépris que manifestait hautement Duchène 18%
 pour les esthétismes de Desbois? Il est admirable que
 tout cela ait aussi bien tourné..
 — Ils étaient aussi profondément, aussi sincèrement,
@@ -409,17 +391,14 @@ de Ils ont surenseigné. Ils continueront. Et quand un jour,
 à sous le prochain ministère Méline — Ribot — Barthou
 — Poincaré — Leygues — Charles — Dupuy — DeschaM nel —Sarrien — Léon — Bourgeois — Mesureur — kroy — Peytral — Zévaès — car ce ministère espéré
 finira bien par nous tomber sur le dos —quand un jour le
-hasard des persécutions gouvernementales antiteigneu-
-ses les aura tous les deux assemblés en quelque trou
+hasard des persécutions gouvernementales antiteigneuses les aura tous les deux assemblés en quelque trou
 me perdu de province oùils crèveront communément de faim,
-è; tous les deux, l'ancien esthète et l'ancien brutal pour-
-ront se donner une poignée de mains solide. Et quand
+tous les deux, l'ancien esthète et l'ancien brutal pourront se donner une poignée de mains solide. Et quand
 sera venu le Jour du Jugement dernier, qui estune hypode thèse, quand Dieu, qui est une hypothèse, pèsera dans
 sa balance hypothétique les actions non hypothétiques
 De des hommes, il se trouvera que ces deux professeurs,
 l'ancien esthète et l'ancien brutal, auront plus fait pour
-préparer ce que nous nommons indivisiblement la révo-
-lution sociale et la révolution morale que tout le Comité
+préparer ce que nous nommons indivisiblement la révolution sociale et la révolution morale que tout le Comité
 — Tais-toi, tais-toi, mon vieux, tu t'emballes, et cela
 t'empêche de parler proprement. Tu voila dire sans
 ? doute que ces deux professeurs, anciens ades,
@@ -469,8 +448,7 @@ sh. donna dix francs pour ses deux mois.
 AL: — Il vaut mieux que je te les donne tout de suite. En
 à rentrant de chez moi, je n'aurai plus un sou. Et puis je
 n'aurai pas le temps de m'arrêter à Paris.
-La vue de la monnaie que je lui rendais sembla dé-
-terrer de sa mémoire une réflexion négligemment ense-:
+La vue de la monnaie que je lui rendais sembla déterrer de sa mémoire une réflexion négligemment ense-:
 SE 1 — Crois-tu, me dit-il brusquement, que la vie et le
 budget de tes cahiers ne soient pas une vie et un bud-
 4, — Ta classe ettes leçons payantes, ce son les abon- À
@@ -484,8 +462,7 @@ ments gratuits, ce sont nos conférences
 — La preuve en est que ce sont nos salaires de classe
 et de leçons qui nourrissent tes cahiers.
 — Je le sais mieux que toi.
-— Mes cinq francs par mois représentent une demi-
-heure de leçon. Tu ne le sais pas mieux que moi.
+— Mes cinq francs par mois représentent une demiheure de leçon. Tu ne le sais pas mieux que moi.
 — Je voulais dire que je m'en suis aperçu avant toi,
 puisque c'est l'économie même de ces cahiers.
 — Parlons peu, mais parlons bien. Parlons proprement. Et Lucien Deslandes?
@@ -643,8 +620,7 @@ peurs, tu nous a donné quelques misérables citations
 du grand Pascal, citations lamentablement mesquines
 et déplorablement tronquées et inconvenablement
 La 4 brèves: au lieu qu'il était honnête simplement de nous
-4 À donner des citations quatorze ou quinze fois plus lon-
-es, puisque les citations capitales afférentes à le
+À donner des citations quatorze ou quinze fois plus lones, puisque les citations capitales afférentes à le
 question que osais mettre en cause étaient au )
 quatorze ou quinze fois plus longues. Tu as négligé
 bonnement, — et cela serait scandaleux s'il y aval.!
@@ -713,8 +689,7 @@ serait de s'imposer à l'attention de braves gens, comm
 Je sont sans doute la plupart detes lecteurs; de Le
 les honnêtes gens de leur vie et les travailleurs
 travail et les ouvriers de leur œuvre. ne
-est le vice capital de tes cahiers: ils sont intéres-
-sont trop personnels, trop individuels, et qu'on
+est le vice capital de tes cahiers: ils sont intéressont trop personnels, trop individuels, et qu'on
 à trop. D'abord cela n'est pas rigoureusement exact. Et
 à ensuite j'aime encore mieux qu'on parle et qu'on écrive
 à la première personne du singulier, et même à la
@@ -787,8 +762,7 @@ pluriel, parce que j'entendais bien qu'il ne s'adressait
 que ses phrases fussent bien pleines,
 pour te top visible, — que vous faites
 supportable, On … en rostents Cela est in.
-'essants, Vous voule are pue vos cahiers inté-
-intéressent DE SE acts qu'ils
+'essants, Vous voule are pue vos cahiers intéintéressent DE SE acts qu'ils
 te. ecteur, qu'ils intéressent mon-
 VOUS y réussissez trop souvent.
 
@@ -803,21 +777,18 @@ que la probité native.
 Je ne fais aucune réserve sur ta sincérité; mais je ne
 me fais aucune illusion sue ton intelligence: elle est
 n. Mayenne: et pen perspicace. Tu as une aversion sincère
-! de la démagogie, et tu tends à exercer une espèce par-
-ticulière de la démagogie, une agogie de quelques-uns,
+! de la démagogie, et tu tends à exercer une espèce particulière de la démagogie, une agogie de quelques-uns,
 51; une aristagogie, qui est la plus dangereuse agogie, parce
 qu'elle est la moins grossière. Tout homme qui veut
 plaire est à sa manière un démagogue. Tu lis beaucoup
 de journaux, trop de journaux, pour ta santé, beaucoup
 trop de quotidiens, et nous savons combien est vaine
 l'action du journaliste, et toi-même, si je te pressais,
-tu en conviendrais. Alors? Pourquoi L'es-tu fait jour-
-naliste? Car tu es journaliste. Au lieu que tu pourrais
+tu en conviendrais. Alors? Pourquoi L'es-tu fait journaliste? Car tu es journaliste. Au lieu que tu pourrais
 employer ta jeunesse finissante à lire les bons auteurs,
 US) à qui sont nombreux, que l'on connaît mal, et que tu ne
 connais pas. Puis tu emploierais ta maturité commen-
-Les travaux épais font plus pour l'action que les fantai-
-sies plus ou moins réussies, que vous croyez jee
+Les travaux épais font plus pour l'action que les fantaisies plus ou moins réussies, que vous croyez jee
 rade; Descartes et Kant ont plus fait pour préparer ce il
 y a de bon dans ce que vous nommez la Révolution
 Sociale que toutes les boutades et tous les calembours
@@ -909,8 +880,7 @@ Baudouin. Et si elle avait lieu elle ne réussirait pas.
 à fit transporter plus tard les exemplaires inpubliés
 a Société Nouvelle de librairi
 d'édition, dont ils doivent nn.
-rieur. Un recensement de; magasin exté-
-mon ami René Lardenois prit sur ma tabl
+rieur. Un recensement de; magasin extémon ami René Lardenois prit sur ma tabl
 ne quelques mots incompréhensibles
 ail;: un; sept fois
 trente-cinq et un trente-si..? lois cinq
@@ -978,11 +948,9 @@ lui demander quelques explications sympathiques sur
 È la disposition intérieure du poème. Résolument, mais
 1 posément, il m'arrêta aux premiers mots: Non, mon
 ami, je ne puis vous donner les quelques explications
-que vous me demandez bienveillamment. Car les quel-
-ques renseignements que vous me demandez sontliés
+que vous me demandez bienveillamment. Car les quelques renseignements que vous me demandez sontliés
 indissolublement aux idées, ou, si vous le voulez, aux
-opinions que j'ai sur l'art, en particulier sur l'art dramatique. Et pour exposer mes opinions sur l'art dra-
-matique, il est indispensable que l'on fasse au moins
+opinions que j'ai sur l'art, en particulier sur l'art dramatique. Et pour exposer mes opinions sur l'art dramatique, il est indispensable que l'on fasse au moins
 un dialogue —
 Hs. Naturellement, interrompit mon ami Lardenois.
 — un dialogue, assez long, et que je préfère écrire
@@ -990,7 +958,7 @@ moi-même, aussitôt que j'en aurai le temps, ce qui ne
 Ne voulant pas lui faire de peine en contrariant sa
 manie habituelle, je me gardai bien de
 n'insistai pas. Je me permis alors de lui deman » qu'il pensait faire des six cents exemplaires
-2 Vraiment, mon ami, me répondit-il, je per#
+Vraiment, mon ami, me répondit-il, je per#
 LES. Mais puisque vous me le demandez, je serais
 pas.? ais Jaires fussent lus. Seulement je
 heureux que ces EXEMP ai
@@ -1009,13 +977,10 @@ vain désir, je ne pus lui dissimuler plus longtemps que
 ces cahiers étaient devenus récemment une puissance
 d'argent formidable et qu'il ne s'en fallait plus que de
 quelques lieues terrestres qu'ils atteignissent aux Le
-confins enchantés des régions où règne l'opinion publi-
-que. Il en parut un peu mécontent, et inquiet pour moi.
+confins enchantés des régions où règne l'opinion publique. Il en parut un peu mécontent, et inquiet pour moi.
 Mais sans lui laisser le temps de s'abandonner à son
-malheureux naturel: s'il en est ainsi, lui dis-je, permet-
-tezmoi d'organiser la distribution de ces exemplaires.?
-ce mot d'organiser, son visage douteux se rassé-
-mal. Je suis écœuré on 5 ne Le volontiers si
+malheureux naturel: s'il en est ainsi, lui dis-je, permettezmoi d'organiser la distribution de ces exemplaires.?
+ce mot d'organiser, son visage douteux se rassémal. Je suis écœuré on 5 ne Le volontiers si
 es gens qui réussissent. Vous, au
 VOUS n'organisez pas pour la réussite Et cela
 voit. Je vous permets donc d'organiser la
@@ -1053,8 +1018,7 @@ ront pas d'accueillir aux Journaux pour tous.
 viendra-t-il de cette souscription, c'est ce que tu sAures
 en lisant de quinzaine en quinzaine, ou de mois en mois,
 c'est selon, la couverture des cahiers.
-— Je lis toujours attentivement la couverture, me ré-
-pondit-il naïvement, parce que c'est le plus intéressant.
+— Je lis toujours attentivement la couverture, me répondit-il naïvement, parce que c'est le plus intéressant.
 — Pour ménager les finances qui te reviennent, je
 commencerai par expédier aux Parisiens. Autant que je
 me rappelle mon ancien métier de libraire.
@@ -1063,8 +1027,7 @@ me rappelle mon ancien métier de libraire.
 colis postaux de Paris pour Paris, jusqu'à cinq kilos, ne
 coûtent que cinq sous. Cent exemplaires pour vingt-cinq
 francs: c'est pour rien. Il est même ennuyeux que l'on
-ne puisse pas envoyer trois exemplaires à la même per-
-sonne. Cela ne reviendrait pas plus cher. Les difficultés
+ne puisse pas envoyer trois exemplaires à la même personne. Cela ne reviendrait pas plus cher. Les difficultés
 financières commenceront à devenir sérieuses pour la
 province, où réside la banlieue, et pour l'extérieur. En-
 voyé par la poste, un imprimé ordinaire, sous bande, ou A
@@ -1077,8 +1040,7 @@ où plutôt nous aurions. raie avantages,
 Vantage de ne pouvoir
 trois kilos, mais nous n'auF plasieurs Yolirnes à AVOIr pas à envoyer deux ou
 En À me adresse, car deux volumes
-è: à; postes exige alors qu'on affran-
-chisse l'envoi à cinq centimes Par cinquante grammes. » À Ainsi est fixée la taxe d'affranchissement. A ce taux et
+postes exige alors qu'on affranchisse l'envoi à cinq centimes Par cinquante grammes. » À Ainsi est fixée la taxe d'affranchissement. A ce taux et
 selon ce tarif, chacun des exemplaires nous reviendrait,
 avec l'emballage, à trente-et-un et trente-deux sous..
 Nous serions donc obérés, si la vile complaisance des
@@ -1106,16 +1068,14 @@ quelconque. De plus, les colis de à de
 gés entre la France, la Corse, l'Algérie a
 peuvent atteindre la longueur de un mètre cinquante,
 la condition de ne pas excéder le volume de cinquantecinq décimètres cubes. En tout ceci nous sommes loin
-de compte, et nous pouvons hardiment passer. Où pas-
-serons-nous? Jusqu'à dix kilos les colis peuvent circuler
+de compte, et nous pouvons hardiment passer. Où passerons-nous? Jusqu'à dix kilos les colis peuvent circuler
 dans les relations entre la France, la Corse, l'Algérie,
 la Tunisie, la Belgique, le Luxembourg et la Suisse. Au
 delà commencent les régions mystérieuses hérissées de
 tarifs bizarres. Mais on ne saurait quitter son pays sans
 risquer la male aventure. Enfin, je prend tout sur moi:
 franc; cent exemplaires envoyés dans Paris, environ
-vingt-cinq francs; moins de cinq cents exemplaires en-
-voyés en province et ailleurs, allons, cinq cents francs
+vingt-cinq francs; moins de cinq cents exemplaires envoyés en province et ailleurs, allons, cinq cents francs
 nous sufiront largement pour le tout. Il est bien en- LE:
 tendu que je commencerai par envoyer à ceux de nos
 qui me feraient la commande ferme et qui 4 À n'à
@@ -1132,8 +1092,7 @@ pere. Je plains tout jeune homme qui
 ors passionné pour ou
 contre la
 Pour ou contre le déterminisme, pour ou a Hberié,
-lisme, pour ou contre contre l''idéa-
-ntre la morale de Kant, pour ou
+lisme, pour ou contre contre l''idéantre la morale de Kant, pour ou
 l'existence de Die: conte
 Pour ou contre Dieu, comme s'il
 : existait. Je plains tout;:
@@ -1142,8 +1101,7 @@ jeune homme qui, peu après
 o tables noires étroites, ne s'est pas violemment
 pour ou contre les enseignements de son proj de philosophie. Et je plains tout homme qui
 n'en est pas resté à sa première philosophie, j'entends
-Le è pour la Doureanté, la fraîcheur, la sincérité, le bienheu-
-il reux appétit. Ne plus s'occuper des grandes questions,
+Le è pour la Doureanté, la fraîcheur, la sincérité, le bienheuil reux appétit. Ne plus s'occuper des grandes questions,
 mon ami, c'est comme de fumer la pipe, une habitude
 que l'on prend quand l'âge vous gagne, où l'on croit que
 l'on devient homme, alors que c'est que l'on est devenu
@@ -1264,8 +1222,7 @@ avait donc, selon la justice ordinaire, le droit de me
 ! donner réponse, et que, selon la justice bourgeoise, il il
 pouvait me donner réponse double, c'est-à-dire me forcer; “4
 à insérer en même place un article de seize pages en ni
-huit. Mais, comme il nous le fit remarquer judicieuse-
-ment, les soins qu'il donne aux Journaux pour tous ne
+huit. Mais, comme il nous le fit remarquer judicieusement, les soins qu'il donne aux Journaux pour tous ne
 lui laissaient pas le loisir. d'instituer un article aussi
 long. Il faisait donc appel à ma loyauté naturelle, et
 bien connue. Elle ne lui fera pas défaut. Qu'il soit et
@@ -1274,8 +1231,7 @@ fétes socialistes, et en particulier dans la grande fête
 organisée pour le vendredi 13 avril au Théâtre de la
 Porte-Saint-Martin par le Théâtre Civique et la Petite Le. -
 République, les citoyens commissaires ne se réservent
-Que les strapontins, comme il est à la fois juste et indis-
-pensable, Ainsi le citoyen Boivin, quand il occupait un
+Que les strapontins, comme il est à la fois juste et indispensable, Ainsi le citoyen Boivin, quand il occupait un
 fauteuil d'orchestre, le gardait. momentanément pour Fos
 véritable titulaire, un ami commun à Ini et à moi,
 Nous tenons en Particulier Lune as csons importantes.

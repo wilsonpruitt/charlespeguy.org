@@ -27,14 +27,12 @@ ma joie dans la contemplation de la nature?
 — J'aurai des mots éclatants comme des plumes
 d'oiseaux des îles, assoupis comme des cieux d'automne, onduleux comme des lignes. Je trouverai
 pour tous les spectacles des phrases évocatrices. Si
-tu m'écoutes, tu multiplieras ta vie. Tes sens devien-
-dront plus subtils — tu seras un marcheur infatigable — un musicien prestigieux. Tu distingueras
+tu m'écoutes, tu multiplieras ta vie. Tes sens deviendront plus subtils — tu seras un marcheur infatigable — un musicien prestigieux. Tu distingueras
 dans une meule de foins l'odeur confondue des
 trèfles et des luzernes. Tu comprendras les paysages
 sans les voir.
 
-Quand Persée partit à la conquête d'Andro-
-mède, il trouva trois vieilles femmes sur sa route.
+Quand Persée partit à la conquête d'Andromède, il trouva trois vieilles femmes sur sa route.
 Seules, elles savaient le chemin qui menait à la
 captive. Elles refusèrent au héros l'œil unique
 qu'elles possédaient et qu'elles cachaïent la nuit
@@ -114,8 +112,7 @@ L'étonnement triste qu'il avait dans son enfance à sentir Reims et Majorel enn
 1 se demanda avec tristesse
 — Si ces deux êtres sont devenus ennemis pour
 des idées, de qui suis-je l'ennemi?
-Ils furent dérivés par le mauvais temps et les cou-
-rants très loin de la côte. Quandune accalmie arriva
+Ils furent dérivés par le mauvais temps et les courants très loin de la côte. Quandune accalmie arriva
 Braine et Majorel se mirent à la rame. Vers le matin
 ils aperçurent des falaises.
 — Vous tentez Dieu.
@@ -143,8 +140,7 @@ quelque part? Tu crois aimer la vie et tu n'aimes
 que la mort. Majorel n'a dans le monde que des
 musiques, des tableaux, des statues, des paysages: à
 la réalité vivante de son âme et des âmes voisines
-lui a toujours été inconnue. Il n'a jamais de re-
-mords et n'a jamais voulu avoir de pitié. C'est lui
+lui a toujours été inconnue. Il n'a jamais de remords et n'a jamais voulu avoir de pitié. C'est lui
 le véritable, le seul aveugle. Clément, je t'en prie,
 ne sois pas cet aveugle.
 — Je ne puis croire aux promesses divines.
@@ -171,8 +167,7 @@ Clément écoutait tristement cette dispute.
 Majorel força son silence.
 — Il faut choisir entre les pensées de l'abbé et les
 — Vous êtes impitoyable et jaloux. Comment
-choisirais-je entre vos deux amitiés? Puis-je parta-
-ger mon cœur? Comment choisirais-je entre vos
+choisirais-je entre vos deux amitiés? Puis-je partager mon cœur? Comment choisirais-je entre vos
 
 la lumière
 pensées? Elles forment en moi une confuse harmonie. Quand je les isole, les vôtres me tentent et
@@ -249,8 +244,7 @@ eaux cérulées sont parties jadis des barques lamées
 d'or avec des voiles de pourpre et des équipages de
 
 Dieux. Les unes après les autres elles se sont
-évanouies et personne ne sait dans quelles mysté-
-rieuses Thulés ont abordé les matelots divins.
+évanouies et personne ne sait dans quelles mystérieuses Thulés ont abordé les matelots divins.
 Seule, une barque est encore visible, celle qui a
 levé l'ancre la dernière. Des vierges et des enfants
 chantent à la proue. Des chevaliers veillent sur un
@@ -272,8 +266,7 @@ cimier de chênes.
 Ils descendirent sur la plage.
 Ces philosophes d'Ionie eurent une confiance
 sublime dans la Raison. — Ils ne crurent pas au
-miracle, mais aux forces naturelles, et leurs con-
-ceptions du monde furentintelligemmentenfantines.
+miracle, mais aux forces naturelles, et leurs conceptions du monde furentintelligemmentenfantines.
 Nous ne connaissons presque rien de l'histoire de
 ces vieux Sages: nous savons seulement qu'ils
 allèrent à la découverte de la mystérieuse nature.
@@ -349,8 +342,7 @@ Cette beauté qu'il comprenait par la caresse, le
 faisait rêver des mystères, des couleurs et des lignes.
 Dans la chapelle d'un couvent des Camaldules, il
 voulut deviner l'énigme d'une fresque de Giotto.,
-Sur les murs était représentée cette légende si popu-
-laire du Moyen-Age: Un roi, une reine suivis de
+Sur les murs était représentée cette légende si populaire du Moyen-Age: Un roi, une reine suivis de
 toute leur cour, arrivaient à cheval sur une place
 où des échevins faisaient pendre un homme. Le roi
 et la reine intercédérent pour le misérable.
@@ -359,9 +351,7 @@ Les Échevins répondirent brutalement
 à moins que vous ne rachetiez sa vie pour cent
 
 la lumière
-Le roi et la reine fouillèrent dans leurs escar-
-
-celles, ils n'avaient que soixante-treize ducats. La
+Le roi et la reine fouillèrent dans leurs escarcelles, ils n'avaient que soixante-treize ducats. La
 cour donna l'argent qu'elle avait: il manqua trois:
 ducats à la somme réclamée par les juges. Ils
 sa dirent
@@ -458,8 +448,7 @@ formes, des couleurs et des sons. Que deviendrai-je
 quand je n'aurai plus personne pour m'interpréter
 l'invisible Beauté?
 Le transatlantique fuma à l'horizon. Les trois
-hommes cessèrent de parler et regardèrent s'avan-
-cer le bateau. Dans la foule des passagers Reims et
+hommes cessèrent de parler et regardèrent s'avancer le bateau. Dans la foule des passagers Reims et
 Majorel distinguèrent à l'avant une femme longue
 et sèche qui tenait obstinément sa lorgnette braquée
 sur eux.
@@ -498,12 +487,10 @@ reproché, en toi-même, det'avoir abandonné?
 la lumière
 — Mère, n'évoquez pas les anciens souvenirs.
 — Évoquons-les, au contraire, pour relier par eux (
-le bateau, tu aurais pleuré si tu avais connu ma dé-
-tresse. J'avais peur de-ne retrouver en toi qu'un
+le bateau, tu aurais pleuré si tu avais connu ma détresse. J'avais peur de-ne retrouver en toi qu'un
 étranger. Je ne pouvais chasser cette pensée qui
 battait mon esprit, régulière et irrésistible comme
-les coups de la marée, et qui devenait plus douloureuse à chaque tour de l'hélice. Comprends-tu, Clé-
-ment? Si tu n'avais pas pleuré en m'embrassant! si
+les coups de la marée, et qui devenait plus douloureuse à chaque tour de l'hélice. Comprends-tu, Clément? Si tu n'avais pas pleuré en m'embrassant! si
 tu m'avais ménagé tes baisers.
 — Mère, vous êtes rassurée maintenant.
 — Si rassurée qu'il me semble que nous n'avons
@@ -541,9 +528,7 @@ percevait seulement les bruits de la terre qui allaient
 diminuant. Des hommes de peine déchargeaient du
 charbon. Il n'entendait plus les coups de pelle, ni
 le grincement de la chaîne sur la poulie de la grue.
-Il distinguait encore l''éboulement de la benne dé-
-clanchée et le ruissellement des masses sur la pyra-
-mide. Et voici que cela même devint imperceptible
+Il distinguait encore l''éboulement de la benne déclanchée et le ruissellement des masses sur la pyramide. Et voici que cela même devint imperceptible
 alors, dans le silence, montèrent les sons aigres
 à d'une clarinette, la clarinette de Zachée, qui envoyait du môle le définitif adieu. La clarinette
 creusée dans une branche de buis avait la sonorité
@@ -581,8 +566,7 @@ désirent et nous y autorisent, nous les mettons en
 communication, c'est-à-dire que nous donnons à chacun
 des deux le nom et l'adresse de la personne — qui reçoit
 l'abonnement payé, — qui paye l'abonnement reçu.
-Pour pouvoir envoyer à nos futurs abonnés des collec-
-tions complètes, nous avons rigoureusement renoncé
+Pour pouvoir envoyer à nos futurs abonnés des collections complètes, nous avons rigoureusement renoncé
 à la vente au cahier.
 Administration et rédaction le lundi et le jeudi, de
 1 -heure à 4 heures et demie. Adresser toute la correspondance à M. Charles Péguy, 19, rue des FossésSaint-Jacques, Paris.
@@ -597,8 +581,7 @@ situation financière à la fin du mois précédent:
 Au 28 février les souscriptions mensuelles régu-
 - lières, les ae. extraordinaires, les abonnements
 fermes et les abonnements gratuits payés d'ailleurs
-È A la même date le premier établisse-
-fee ment et l'établissement des quatre pre-: LPS
+È A la même date le premier établissefee ment et l'établissement des quatre pre-: LPS
 “miers cahiers nous avaient coûté... - 3.299 fr. "NN
 fous avions donc au 28 février un;
 L'établissement des cinquième et
@@ -614,12 +597,10 @@ Nos recettes montaient donc à environ
 64°, nos dépenses. 2%
 Nous avions donc à cette date un Aie
 égal à environ 36 de nos dépenses. +198
-la méme date vingt-huit étudiants et anciens étu-
-diants avaient décidé d'attribuer aux cahiers les sommes
+la méme date vingt-huit étudiants et anciens étudiants avaient décidé d'attribuer aux cahiers les sommes
 qu'ils avaient contribuées depuis le 1° mai 1897 et dont
 ils avaient constitué un fonds commun pour l'action
 moralement socialiste. Ces sommes allaient à 2.440 fr.
 Ê Cette souscription portera dans nos comptes le nom:
 de souscription rétrospective. Nous attirons l'attention ne
-de nos souscripteurs ordinaires sur ce qu'elle a forcé-
-ment d'anormal et qui ne se représentera plus.
+de nos souscripteurs ordinaires sur ce qu'elle a forcément d'anormal et qui ne se représentera plus.

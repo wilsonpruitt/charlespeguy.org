@@ -9,8 +9,7 @@ wordCount: 13062
 ---
 Le lendemain dans l'après-midi—et il y a de cela déjà
 
-plus d'un mois passé — le citoyen docteur socialiste ré-
-volutionnaire moraliste internationaliste revint donc me
+plus d'un mois passé — le citoyen docteur socialiste révolutionnaire moraliste internationaliste revint donc me
 voir. Il avait à la main, — et non pas sous le bras, car
 on n'a jamais porté pour marcher un livre sous le bras,
 — il avait un livre de bibliothèque. J'allais encore un
@@ -43,8 +42,7 @@ voulais guérir. Mais le désir et la volonté que j'en avais
 me paraissaiert tellement naturels que je ne cherchais
 à pas à en discerner les causes.
 — Le devoir et le savoir ne sont pas identiquement
-conformes à la nature. Je vous aïderai. Nous commen-
-cerons par les raisons, parce que c'est plus commode,
+conformes à la nature. Je vous aïderai. Nous commencerons par les raisons, parce que c'est plus commode,
 à et nous finirons par les sentiments. Maïs avant nous
 remarquerons que les malades veulent guérir pour
 à échapper à la mort, ou pour échapper à la maladie, ou,
@@ -120,8 +118,7 @@ les seuls que j'ai lus. J'en ai fait mes ennemis personnels. Un jour je vous dir
 je retiens seulement qu'ils ont puissamment contribué,
 avec toute leur littérature, à déconsidérer le travail.
 Vous savez: Ainsi quand Mazeppa qui rugit et qui
-pleure. Vous aussi vous avez déclamé ces vers en pleu-
-rant de bonheur et d'admiration.
+pleure. Vous aussi vous avez déclamé ces vers en pleurant de bonheur et d'admiration.
 
 — Je les ai déclamés quand j'étais écolier. C'étaient
 de beaux vers
@@ -170,8 +167,7 @@ profondément tristes et doux, nous enseignait. Nous lui
 
 devons plus pour nous avoir donné l'exemple d'une.
 longue et sérieuse vie universitaire que pour nous avoir
-préparés patiemment au baccalauréat. Il traitait simplement et noblement devant nous les questions du pro-
-gramme. L'immortalité de l'âme était sans doute au
+préparés patiemment au baccalauréat. Il traitait simplement et noblement devant nous les questions du programme. L'immortalité de l'âme était sans doute au
 programme. il traita devant nous de l'immortalité de
 l'âme. Il ne s'agissait de rien moins que de savoir si
 son âme à lui, à lui qui promenait régulièrement son
@@ -209,8 +205,7 @@ garder le mot, convertis.
 — C'est une angoisse épouvantable que de prévoir et
 de voir la mort collective, soit que tout un peuple s'engloutisse dans le sang du massacre, soit que tout un
 peuple chancelle et se couche dans les retranchements
-de bataille, soit que tout un peuple s'empoisonne hâtivement d'alcool, soit que toute une classe meure accé-
-lérément du travail qui est censé lui donner la
+de bataille, soit que tout un peuple s'empoisonne hâtivement d'alcool, soit que toute une classe meure accélérément du travail qui est censé lui donner la
 nourriture. Et comme l'humanité n'a pas des réserves
 indéfinies, c'est une étrange angoisse que de penser à la
 mort de l'humanité.
@@ -235,8 +230,7 @@ posa sur ma table ronde le livre qu'il avait apporté,
 ouvrit les Dialogues et fragments philosophiques, s'arrêta aux Dialogues, les parcourut, les relut, relut des
 passages, entraîné continûment des certitudes aux probabilités et des probabilités aux rêves. Cela dura longtemps.
 — Il faudrait tout citer. Ces dialogues ont un charme
-étrange et une inconsistance merveilleuse, une admi-
-rable continuation de l'idée acceptée à l'idée inacceptable. On ne saurait, sans fausser le texte, isoler un
+étrange et une inconsistance merveilleuse, une admirable continuation de l'idée acceptée à l'idée inacceptable. On ne saurait, sans fausser le texte, isoler un
 passage, une idée, un mot. Les propositions ne sont pas
 déduites, ne paraissent pas conduites, s'interpénètrent,
 s'internourrissent. Étrange mutualité de l'incontestable
@@ -246,8 +240,7 @@ nous y subissons la certitude entièrement vraie. Mais la
 
 certitude même y laisse place à la défiance. Écoutez. Je
 
-.… Le nombre des corps célestes où la vie peut se dé-
-velopper à un moment donné est, sans doute, dans une
+.… Le nombre des corps célestes où la vie peut se développer à un moment donné est, sans doute, dans une
 proportion infiniment petite avec le nombre des corps
 existants. La terre est peut-être à l'heure qu'ilest, dans
 des espaces presque sans bornes, le seul globe habité.
@@ -313,8 +306,7 @@ reste, peu importe. Il est très possible que la Terre
 manque à son devoir ou sorte des conditions viables
 avant de l'avoir rempli, ainsi que cela est déjà arrivé
 des milliards de corps célestes; il suffit qu'un seul de
-ces corps accomplisse sa destinée. Songeons que l'expé-
-rience de l'univers se fait sur l'infini des mondes. »
+ces corps accomplisse sa destinée. Songeons que l'expérience de l'univers se fait sur l'infini des mondes. »
 — Ne poursuivez pas, docteur, vos citations insaisissables. Nous ne pouvons pas critiquer cela ainsi. C'est
 proprement un charme. Il faudrait le rompre. Il faudrait
 lire du commencement à la fin, mot par mot, puis phrase
@@ -327,8 +319,7 @@ sous la sérénité imposante et charmeuse des mots,
 sous la savante impartialité de la proposition, quelle
 présomptueuse autorité de commandement, quelle
 usurpation, conduisant à quelles tyrannies! Nous )
-n'avons jamais de plus grand ennemi que ce Théo-
-phraste, qui se promenait à Versailles, sinon le Versaillais qui se promena le troisième jour avec eux,
+n'avons jamais de plus grand ennemi que ce Théophraste, qui se promenait à Versailles, sinon le Versaillais qui se promena le troisième jour avec eux,
 Théoctiste, celui qui fait la fondation de Dieu. Les réactionnaires les plus dangereux n'ont jamais prononcé sur
 tout ce que nous aimons, sur tout ce que nous préparons,
 
@@ -358,14 +349,11 @@ soient présentées sur un certain mode comme si elles
 Dialogues. Merci. Écoutez ce Théophraste en ses probabilités. Attendez un peu. Je vais le trouver. Le voici. Écoutez bien: « Voilà pourquoi les pays où il y a des classes
 marquées sont les meilleurs pour les savants; car, dans
 de tels pays, ils n'ont ni devoirs politiques, ni devoirs de
-société; rien ne les fausse. Voilà enfin pourquoi le savant s'incline volontiers (non sans quelque ironie) devant les gens de guerre et les gens du monde, Le con-
-
-templateur tranquille vit doucement derrière eux, tandis que le prêtre le gêne avec son dogmatisme, et le
+société; rien ne les fausse. Voilà enfin pourquoi le savant s'incline volontiers (non sans quelque ironie) devant les gens de guerre et les gens du monde, Le contemplateur tranquille vit doucement derrière eux, tandis que le prêtre le gêne avec son dogmatisme, et le
 peuple avec son superficiel jugement d'école primaire
 et ses idées de magister de village. »
 
-— Il me paraît certain que ce Théophraste ingé-
-nieux n'avait pas imaginé l'affaire Dreyfus, ni connu
+— Il me paraît certain que ce Théophraste ingénieux n'avait pas imaginé l'affaire Dreyfus, ni connu
 
 — Considérons seulement comme une probabilité
 qu'il n'avait pas imaginé cette malheureuse affaire. Je
@@ -378,7 +366,7 @@ Il y a beaucoup de puits. Et je lui reproche, ayant fait
 cet oubli, d'avoir aussi dédaigneusement négligé ma
 socialisation des moyens d'enseignement. « Le peuple
 avec son superficiel jugement d'école primaire et ses
-idées de magister de village »: voilà qui est bientôt dit,
+idées de magister de village voilà qui est bientôt dit,
 mais, monsieur, — c'est à ce Théophraste que je parle,
 et non pas à Renan, qui depuis nous a donné cet Avenir
 de la science, qu'il avait produit au temps de sa jeunesse
@@ -386,8 +374,7 @@ de la science, qu'il avait produit au temps de sa jeunesse
 improbables si nous réussissons à donner au peuple
 cette culture que nous lui devons, que nous n'avons
 pas toute, que nous recevrons et que nous nous donnerons en la lui donnant. Cela sera long. Cela sera difficile. Mais cela n'est pas impossible. Et même cela est
-plus facile à organiser que les communications interplanétaires. Et cela n'est pas, en un sens, moins inté-
-ressant. Et j'irai plus loin, monsieur — c'est toujours
+plus facile à organiser que les communications interplanétaires. Et cela n'est pas, en un sens, moins intéressant. Et j'irai plus loin, monsieur — c'est toujours
 ce M. Théophraste que je m'adresse, et non pas
 M. Renan — je dirai plus: en attendant que nous ayons
 socialisé, universalisé la culture, si je m'arrête à la
@@ -436,27 +423,19 @@ Voilà ce qu'il dit.
 — Le fait est, mon ami, que les paroles de ce Théoctiste ne sont pas beaucoup favorables à nos récentes
 universités populaires. Il avait encore dit: « Qu'importe
 que les millions d'êtres bornés qui couvrent la planète
-ignorent la vérité ou la nient, pourvu que les intelligents la voient et l'adorent? » Nous avons connu, de-
-puis, combien il importe que quarante millions de simples citoyens n'ignorent pas et ne nient pas la vérité,
-non seulement la vérité scientifique, mais aussi la vé-
-rité historique — pour Théoctiste surtout la vérité historique est partie inséparable de la vérité scientifique —
-nous avons connu qu'il ne suflit pas que quelques intelligents la voient; nous avons renoncé à toute ado-
-ration, même à l'adoration de la vérité. Tout setient ici.
+ignorent la vérité ou la nient, pourvu que les intelligents la voient et l'adorent? » Nous avons connu, depuis, combien il importe que quarante millions de simples citoyens n'ignorent pas et ne nient pas la vérité,
+non seulement la vérité scientifique, mais aussi la vérité historique — pour Théoctiste surtout la vérité historique est partie inséparable de la vérité scientifique —
+nous avons connu qu'il ne suflit pas que quelques intelligents la voient; nous avons renoncé à toute adoration, même à l'adoration de la vérité. Tout setient ici.
 Parce que Théophraste et parce que Théoctiste n'ont
 pas imaginé l'affaire Dreyfus, ils prononcent des paroles défavorables à ce grand mouvement salubre des
 universités populaires. Comme leurs propos sont éloignés de cette heureuse, de cette saine allocution
 qu'Anatole France prononça naguère à l'inauguration
 de l'Émancipation, et que vous avez mise au commencement du troisième cahier. On m'a dit que le même
-citoyen parlerait bientôt à la fête inaugurale de l''Uni-
-
-versité populaire du premier et du deuxième arrondissement. Attendons, si vous le voulez, qu'il ait participé
+citoyen parlerait bientôt à la fête inaugurale de l''Université populaire du premier et du deuxième arrondissement. Attendons, si vous le voulez, qu'il ait participé
 à cette inauguration. Nous aurons encore plus de courage à ne pas accompagner le deuxième, l'annonciateur,
-le Baptiste, en ses probabilités et le troisième, le fondateur, en ses rêves. Un charme de vérité nous proté-
-gera contre un charme d'erreur.
+le Baptiste, en ses probabilités et le troisième, le fondateur, en ses rêves. Un charme de vérité nous protégera contre un charme d'erreur.
 
-Ayant ainsi parlé, le docteur me souhaïta une heureuse convalescence. Quand il revint, le mardi 6 cou-
-
-rant, au matin, j'allais un peu mieux de la rechute que
+Ayant ainsi parlé, le docteur me souhaïta une heureuse convalescence. Quand il revint, le mardi 6 courant, au matin, j'allais un peu mieux de la rechute que
 j'avais eue la veille. Le docteur ne me fit pas ses compliments.
 
 — Je vous reconnais bien là, me dit-il. Nous avons
@@ -468,9 +447,7 @@ n'attendez jamais les enregistrements ni les expli-
 — Pardonnez-moi, docteur, et supposons que je ne
 suis pas retombé. Ainsi nous continuerons Ce que nous
 avons commencé, comme si de rien n'était. La Petite
-mars, nous a donné l'allocution attendue. Devons-
-
-nous la relire ici-même ou devons-nous la garder pour
+mars, nous a donné l'allocution attendue. Devonsnous la relire ici-même ou devons-nous la garder pour
 quand nous recueillerons les documents et les renseignements pour et contre les universités populaires.
 — Mieux vaut, mon ami, les relire aujourd'hui. Cette
 allocution de France accompagne aisément celle que
@@ -509,8 +486,7 @@ la clarté de la science. Et qu'est en effet cette science?
 Mécanique, physique, physiologie, biologie, qu'est-ce.
 que tout cela, sinon la connaissance de la nature et de
 l'homme, ou plus précisément la connaissance des rapports de l'homme avec la nature et des conditions
-mêmes de la vie? Vous sentez qu'il nous importe gran-
-dement de connaître les conditions de la vie, afin de.
+mêmes de la vie? Vous sentez qu'il nous importe grandement de connaître les conditions de la vie, afin de.
 nous soumettre à celles-là seules qui nous sont néces-,
 saires, et non point aux conditions arbitraires, souvent
 humiliantes ou pénibles, que l'ignorance et l'erreur nous
@@ -539,8 +515,7 @@ meurent dans un abîme de souffrances et de désolation.
 
 En leur longue enfance, les peuples ont été asservis
 aux fantômes de la peur, qu'ils avaient eux-mêmes “af
-créés. Et nous, si nous touchons enfin le bord des ténè-
-bres théologiques, nous n'en sommes pas encore tout
+créés. Et nous, si nous touchons enfin le bord des ténèbres théologiques, nous n'en sommes pas encore tout
 fait sortis. Ou pour mieux dire, dans la marche inégale
 et lente de la famille humaine, quand déjà la tête de la
 caravane est entrée dans les régions lumineuses de la
@@ -555,9 +530,7 @@ doute, il vous reste peu d'heures, le soir, après le dur
 travail du jour, bien peu d'heures pour l'interroger, cette
 science qui répond lentement aux questions qu'on lui
 fait et qui livre l'un après l'autre, sans hâte, ses secrets
-innombrables. Nous devons tous nous résigner à n'obtenir que des parcelles de vérité. Mais il y a à considé-
-rer dans la science la méthode et les résultats. Les ré-
-sultats, vous en prendrez ce que vous pourrez. La
+innombrables. Nous devons tous nous résigner à n'obtenir que des parcelles de vérité. Mais il y a à considérer dans la science la méthode et les résultats. Les résultats, vous en prendrez ce que vous pourrez. La
 méthode, plus précieuse encore que les résultats, puisqu'elle les a tous produits et qu'elle en produira encore
 une infinité d'autres, la méthode vous saurez vous
 l'approprier, et elle vous procurera les moyens de conduire sûrement votre esprit dans toutes les recherches
@@ -678,16 +651,13 @@ aller jusqu'à nommer la mégarde kantienne. Et même
 avant Kant. Eudoxe, au commencement du premier
 jour, portait sur lui un exemplaire des Entretiens sur
 la métaphysique, de Malebranche. Mais ces grands
-philosophes avaient un soin préalable de leurs défini-
-tions et de leurs distinctions. Une simple distinction du
+philosophes avaient un soin préalable de leurs définitions et de leurs distinctions. Une simple distinction du
 très grand, de l'indéfini et de l'infini, une simple distinction du perdurable, du temporel indéfini, du
 temporel infini et de l'éternel annulerait plusieurs
 paroles de Théophraste, plusieurs fondations de
 Théoctiste: elle endommagerait ainsi le Dieu qu'ils
 
-annoncent et qu'ils fondent. Au courant de ses pro-
-
-babilités, le citoyen Théophraste esquisse une théorie
+annoncent et qu'ils fondent. Au courant de ses probabilités, le citoyen Théophraste esquisse une théorie
 
 des probabilités qui n'est pas incontestable. Une
 
@@ -695,9 +665,7 @@ simple définition de la proportion mathématique,
 
 une simple définition ou distinction de la nature et de
 
-la morale, distinction considérable au moins, immobiliserait beaucoup de comparaisons dégénérant en assi-
-
-milations, et en identifications. L'impératif catégorique
+la morale, distinction considérable au moins, immobiliserait beaucoup de comparaisons dégénérant en assimilations, et en identifications. L'impératif catégorique
 
 est un peu facilement englobé. En vérité, ce Renan me
 
@@ -707,17 +675,13 @@ des spéculations immenses, des contemplations éter-
 
 à nelles. Je n'ai pas le temps. Je travaille par quinzaines.
 
-Je m'attache au présent. Il en vaut la peine. Je ne tra-
-
-vaillais pas dans la première et dans la deuxième
+Je m'attache au présent. Il en vaut la peine. Je ne travaillais pas dans la première et dans la deuxième
 
 quinzaine de mai 1871. Comment l'aurais-je fait, si je
 
 n'étais pas? Je travaille dans les misères du présent.
 
-Mais quand on se fonde sur l'immensité des rêves éter-
-
-nels pour démolir ma prochaine socialisation des moyens
+Mais quand on se fonde sur l'immensité des rêves éternels pour démolir ma prochaine socialisation des moyens
 
 d'enseignement, je ne puis m'empêcher d'examiner un
 
@@ -736,9 +700,7 @@ rien de ce qui est inhumain ne m'est concitoyen.
 — Et quand on se fonde, citoyen, sur l'immensité des
 rêves éternels pour me distraire dela considération des
 mortalités prochaines, je résiste invinciblement. Et
-quand on se fonde sur l'immensité de l'espérance éter-
-
-nelle pour me consoler de la prochaine épouvante, je
+quand on se fonde sur l'immensité de l'espérance éternelle pour me consoler de la prochaine épouvante, je
 refuse. Non pas que l'inquiétude et l'angoisse ne me soit
 douloureuse, mais mieux vaut encore une inquiétude ou
 
@@ -773,8 +735,7 @@ ni moi, nous n'avons bougé. La presse infâme, vendue au
 Sultan, abrutissait déjà le peuple. Et puis, cause d'abstention plus profonde: l'Europe est malade, la France
 
 est malade. Je suis malade. Le monde est malade. Les
-peuples et les nations qui paraissaient au moins libé-
-rales s'abandonnent aux ivrogneries de la gloire militaire, se soûlent de conquêtes. La France a failli recommencer les guerres de religion, — sans avoir même la
+peuples et les nations qui paraissaient au moins libérales s'abandonnent aux ivrogneries de la gloire militaire, se soûlent de conquêtes. La France a failli recommencer les guerres de religion, — sans avoir même la
 foi. Les jeunes civilisations, comme on les nommait,
 
 sont plus pourries que les anciennes. Les rois nous
@@ -794,16 +755,12 @@ C'est à peine si nous pouvons atténuer un peu le
 futur. Par quels remèdes? Nous essayerons de l'examiner plus tard. Mais quand je vois toutes ces morts
 collectives menaçantes, quand je vois l'empoison-
 - nement alcoolique et l'épuisement industriel, et quand
-je pense à la grande mort collective qui clorait l'huma-
-nité, je refuse audience à l'enchanteur: « Qu'importe,
+je pense à la grande mort collective qui clorait l'humanité, je refuse audience à l'enchanteur: « Qu'importe,
 m'a dit l'enchanteur, qu'importe que l'humanité meure
 avant d'avoir institué la raison? qu'importe que mille
 humanités meurent? Une humanité réussira. » Quittons,
 docteur, je vous en prie, quittons la morale astronomique, et soyons révolutionnaires. Préparons dans le
-présent la révolution de la santé pour l'humanité pré-
-
-sente. Cela est beaucoup plus sûr, Travaillons. En vé-
-rité, je vous le dis, ce Théophraste et ce Théoctiste sont
+présent la révolution de la santé pour l'humanité présente. Cela est beaucoup plus sûr, Travaillons. En vérité, je vous le dis, ce Théophraste et ce Théoctiste sont
 parmi nos plus grands et nos plus redoutables ennemis. Tous les deux ils sont de grands détendeurs de
 
 — On peut et on doit relâcher les courages qui
@@ -826,7 +783,7 @@ serait devenu mon ami, un tuberculeux, un poitrinaire,
 qui mourait depuis longtemps, grand, gros, doux,
 barbu d'une barbe soyeuse et frisée assez, très doux,
 
-ê: bonne mine, calme et fort, très bon, l'un des deux
+bonne mine, calme et fort, très bon, l'un des deux
 hommes les plus bons que j'aie connus jamais.
 mourait lentement en préparant ponctuellement des
 examens onéreux. Il était très bon envers la vie et
@@ -921,8 +878,7 @@ qu'elle devait avoir. Son Dieu lui fit la grâce de la rappeler à lui pendant l
 grippe, encore ininventée; un jour de la semaine des Rameaux, le printemps étant froid, elle eut un courant
 d'air dans la petite chapelle. Quand son -médecin lui
 
-annonça qu'elle avait une fluxion de poitrine, elle en re-
-çut la nouvelle comme l'annonce et la promesse du tout
+annonça qu'elle avait une fluxion de poitrine, elle en reçut la nouvelle comme l'annonce et la promesse du tout
 proche bonheur éternel. Elle entra en béatitude. La
 fluxion de poitrine lemporta au bout de ses neuf jours,
 comme tout le monde. Je crois qu'elle fut sérieusement
@@ -948,14 +904,11 @@ Merci. Vie de Blaise Pascal, par madame Perier (Gilberte Pascal), sœur aînée 
 
 — Histoire où transparaît la piété fraternelle, presque
 
-un peu maternelle, sévère comme en ce temps, chré-
-tienne et janséniste.
+un peu maternelle, sévère comme en ce temps, chrétienne et janséniste.
 
 — La Prière pour demander à Dieu le bon usage des
 maladies a été composée en 1648: Pascal avait alors
-vingt-quatre ans. Ce que je vais vous lire paraît se rap-
-
-porter au même âge
+vingt-quatre ans. Ce que je vais vous lire paraît se rapporter au même âge
 « Cependant mon frère, de qui Dieu se servait pour
 opérer tous ces biens, était travaillé par des maladies
 continuelles, et qui allaient toujours en augmentant.
@@ -1107,8 +1060,7 @@ la violence ou la surprise qui dussent produire cet effet.
 C'est en cette manière qu'il travaillait sans cesse à la
 — Je passe pour aujourd'hui le témoignage que madame Perier nous a donné de la pauvreté, de la pureté,
 de la charité, le service du roi, la simplicité.
-« Je tâche tant que je puis d'abréger; sans cela j'au-
-rais bien des particularités à dire sur chacune des
+« Je tâche tant que je puis d'abréger; sans cela j'aurais bien des particularités à dire sur chacune des
 choses que j'ai remarquées: mais comme je ne veux
 pas m'étendre, je viens à sa dernière maladie.
 Elle commença par un dégoût étrange qui lui prit
@@ -1140,8 +1092,7 @@ de se lever tous les jours et de prendre lui-même ses
 remèdes, sans vouloir souffrir qu'on lui rendit le moindre service. Les médecins qui le traitaient voyaient que
 
 ses douleurs étaient considérables; mais parce qu'il
-avait le pouls fort bon, sans aucune altération ni appa-
-rence de fièvre, ils assuraient qu'il n'y avait aucun péril,
+avait le pouls fort bon, sans aucune altération ni apparence de fièvre, ils assuraient qu'il n'y avait aucun péril,
 se servant même de ces mots: Il n'y a pas la moindre
 ombre de danger. Nonobstant ce discours, voyant que
 la continuation de ses douleurs et de ses grandes veilles
@@ -1158,14 +1109,12 @@ davantage; c'est pourquoi il vaut mieux diftérer.
 le curé ayant été de cet avis, il ne communia pas.
 Cependant son mal continuait; comme M. le curé le venait voir de temps en temps par visite, il ne perdait pas
 une de ces occasions pour se confesser, et n'en disait
-rien, de peur d'effrayer le monde, parce que les méde-
-cins assuraient toujours qu'il n'y avait nul danger à sa
+rien, de peur d'effrayer le monde, parce que les médecins assuraient toujours qu'il n'y avait nul danger à sa
 maladie; et, en effet, il eut quelque diminution en ses
 douleurs, en sorte qu'il se levait quelquefois dans sa
 chambre. Elles ne le quittèrent jamais néanmoins tout
 à fait, et même elles revenaient quelquefois, et il maigrissait aussi beaucoup, ce qui n'effrayaitpas beaucoup
-les médecins: mais, quoi qu'ils pussent dire, il dit toujours qu'il était en danger, et ne manqua pas dese con-
-fesser toutes les fois que M. le curé le venait voir. »
+les médecins: mais, quoi qu'ils pussent dire, il dit toujours qu'il était en danger, et ne manqua pas dese confesser toutes les fois que M. le curé le venait voir. »
 
 La fin du paragraphe est de la pauvreté. -
 Il joignait à cette ardente charité pendant sa maladie une patience si admirable, qu'ilédifiait et surprenait
@@ -1194,15 +1143,13 @@ l'état où l'on est obligé d'être, et qu'on n'a autre chose
 . C'est pourquoi je ne demande autre chose que de
 
 prier Dieu qu'il me fasse cette grâce. Voilà dans quel
-esprit il endurait tous ses maux. » Il souhaitait beaucoup de communier; mais les mé-
-decins s'y opposaient, disant qu'il ne le pouvait faire
+esprit il endurait tous ses maux. » Il souhaitait beaucoup de communier; mais les médecins s'y opposaient, disant qu'il ne le pouvait faire
 jeun, à moins que de le faire la nuit, ce qu'il ne trouvait
 pas à propos de faire sans nécessité, et que pour communier en viatique il fallait être en danger de mort; ce
 qui ne se trouvant pas en lui, ils ne pouvaient pas lui
 
 donner ce conseil. Cette résistance le fâchait, mais il
-était contraint d'y céder. Cependant sa colique conti-
-nuant toujours, on lui ordonna de boire des eaux, qui
+était contraint d'y céder. Cependant sa colique continuant toujours, on lui ordonna de boire des eaux, qui
 en effet le soulagèrent beaucoup: maïs au sixième jour
 de la boisson, qui était le quatorzième d'août, il sentit
 un grand étourdissement avec une grande douleur de,
@@ -1259,9 +1206,7 @@ en sa maison avec lui, il me pria donc de lui faire cette
 grâce de le faire porter aux Incurables, parce qu'ilavait
 grand désir de mourir en la compagnie des pauvres. Je
 lui dis que les médecins ne trouvaient pas à propos de
-le transporter en l'état où il était, ce qui le fâcha beau-
-
-coup'; il me fit promettre que, s'il avait un peu de relâche, je lui donnerais cette satisfaction. » Cependant cette douleur de tête augmentant, il la
+le transporter en l'état où il était, ce qui le fâcha beaucoup'; il me fit promettre que, s'il avait un peu de relâche, je lui donnerais cette satisfaction. » Cependant cette douleur de tête augmentant, il la
 souffrait toujours comme tous les autres maux, c'est-à-
 dire sans se plaindre; et une fois, dans le plus fort de
 sa douleur, le dix-septième d'août, il me pria de faire
@@ -1271,8 +1216,7 @@ de la faire; et les médecins lui ordonnèrent de boire
 du petit-lait, lui assurant toujours qu'il n'y avait nul
 danger, et que ce n'était que la migraine mêlée avec
 la vapeur des eaux. Néanmoins, quoi qu'ils pussent
-dire, il ne les crut jamais, et me pria d'avoir un ecclé-
-siastique pour passer la nuit auprès de lui; et moi-même
+dire, il ne les crut jamais, et me pria d'avoir un ecclésiastique pour passer la nuit auprès de lui; et moi-même
 je le trouvai si mal, que je donnai ordre, sans en rien
 dire, d'apporter des cierges et tout ce qu'il fallait pour
 le faire communier le lendemain matin. » Les apprêts ne furent pas inutiles, mais ils servirent
@@ -1280,8 +1224,7 @@ plus tôt que nous n'avions pensé: car environ minuit, il
 lui prit une convulsion si violente, que, quand elle fut
 passée, nous crûmes qu'il était mort, et nous avions cet
 extrême déplaisir, avec tous les autres, de le voir mourir sans le saint sacrement, après l'avoir demandé si
-souvent avec tant d'instance. Mais Dieu, qui voulait ré-
-compenser un désir si fervent et si juste, suspendit
+souvent avec tant d'instance. Mais Dieu, qui voulait récompenser un désir si fervent et si juste, suspendit
 comme par miracle cette convulsion, et lui rendit son
 jugement entier, comme dans sa parfaite santé; en
 sorte que M. le curé, entrant dans sa chambre avec le
@@ -1295,9 +1238,7 @@ pour le recevoir avec plus de respect; et M. le curé
 l'ayant interrogé, suivant la coutume, surles principaux
 
 mystères de la foi, il répondit distinctement: Oui, monsieur, je crois tout cela de tout mon cœur. Ensuite il
-reçut le saint viatique et l'extrême-onction avec des sen-
-timents si tendres, qu'il en versait des larmes. Il répondit à tout, remercia M. le curé; et lorsqu'il le bé-
-nit avec le saint ciboire, il dit: Que Dieu ne m'abandonne jamais! Ce qui fut comme ses dernières paroles;
+reçut le saint viatique et l'extrême-onction avec des sentiments si tendres, qu'il en versait des larmes. Il répondit à tout, remercia M. le curé; et lorsqu'il le bénit avec le saint ciboire, il dit: Que Dieu ne m'abandonne jamais! Ce qui fut comme ses dernières paroles;
 car, après avoir fait son action de grâces, un moment
 après ses convulsions le reprirent, qui ne le quittèrent
 plus, et qui ne lui laissèrent pas un instant de liberté
@@ -1348,8 +1289,7 @@ d'un socialiste dans un gouvernement constitué sur les
 bases du respect et de la défense du capitalisme a été envisagée de tout temps comme une éventualité pleine de dangers. Je suppose, en effet, que peu d'hommes sont capables
 d'échapper à l'influence délétère du milieu gouvernemental
 
-bourgeois et d'en sortir intacts; que si un ou plusieurs so-
-cialistes prennent place au pouvoir, beaucoup de camarades
+bourgeois et d'en sortir intacts; que si un ou plusieurs socialistes prennent place au pouvoir, beaucoup de camarades
 dans les rangs du parti seront animés de méfiance à leur
 
 égard et que des discussions pourront s'ensuivre.
@@ -1373,9 +1313,7 @@ fondé, avec lui, en 1891. Il a depuis cette époque sans cesse été
 réélu par cette organisation socialiste anglaise à la présidence de
 son conseil central.
 
-Député de la circonscription de West-Ham à la Chambre des com-
-
-munes, Keir Hardie fut battu aux élections de 1895 par une coalition
+Député de la circonscription de West-Ham à la Chambre des communes, Keir Hardie fut battu aux élections de 1895 par une coalition
 scandaleuse des conservateurs et des radicaux.
 Keir Hardie, qui est comme Tom Mann un ancien ouvrier manuel,
 vit à Glasgow, en Écosse, où il dirige l'organe central de son parti,
@@ -1388,12 +1326,10 @@ en France, car dans chacun des deux cas que vous me soumettez, l'on doit juger d
 faites, je réponds.
 Il n'est pas à souhaiter que le parti socialiste se confonde
 avec les partis bourgeois, où on peut l'éviter. C'est pour
-cela que l'Independent Labour Party (Parti Ouvrier Indé-
-pendant) d'Angleterre se tient strictement à l'écart des partis politiques vulgaires. Pour la même raison, le programme
+cela que l'Independent Labour Party (Parti Ouvrier Indépendant) d'Angleterre se tient strictement à l'écart des partis politiques vulgaires. Pour la même raison, le programme
 du Parti ne contient aucune réforme purement politique,;
 mais s'occupe exclusivement de réformes économiques et
-Mais aussi nous ne pouvons pas oublier ce fait qu'un so-
-cialiste est un homme et un citoyen et que des occasions
+Mais aussi nous ne pouvons pas oublier ce fait qu'un socialiste est un homme et un citoyen et que des occasions
 peuvent se présenter à propos desquelles il est obligé de
 faire connaître ses opinions et d'agir, même lorsqu'en ce
 faisant il semble se ranger du côté d'un des partis politiques
